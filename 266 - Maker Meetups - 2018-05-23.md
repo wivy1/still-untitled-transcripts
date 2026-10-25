@@ -4,8 +4,6 @@
 **Duration:** 47m 25s  
 Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by Stitcher Premium. Stitcher Premium gets you completely ad-free episodes of hundreds of shows like Comedy Bang Bang, WTF with Marc Maron, and How Did This Get Made. You also get twenty-one thousand hours of exclusive content and new exclusive originals like Marvel's Wolverine are launching every week for Stitcher Premium members. If you love podcasts, you got to check it out. When you listen to ad-free episodes in Stitcher Premium, your favorite podcasters also get paid. Help support your favorite shows and join Stitcher Premium today for a free month of listening. Go to stitcherpremium.com and use the promo code Untitled. And now on with the show.
-
 [00:00:43] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:46] Adam: I'm Adam.
@@ -778,7 +776,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:32:33] Unknown speaker: See you.
 
-[00:32:38] Norm: Bye. This week's episode is. Also brought to you by Udemy, the largest marketplace for online learning. Want to expand your potential? With over 65,000 courses starting at just $ 11.99, Udemy can help you develop your skills and discover new passions. Students around the world have used Udemy to get ahead and even switch careers. Visit ude.my/untitled or download the Udemy app to learn anytime, anywhere. We'll see you next time.
+[00:32:38] Norm: Bye. We'll see you next time.
 
 [00:33:14] Adam: Hello. All right. I can't shake hands with everyone yet. Hello, hello, Maker Faire. Another big hurrah for Rabid Transit, please. Thank you guys for keeping me warm, and to the Vallejo Mercs who got me here and the got me there in the in the Land Speeder 501st. I love you guys.
 

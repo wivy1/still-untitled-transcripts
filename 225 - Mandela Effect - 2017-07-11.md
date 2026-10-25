@@ -4,7 +4,7 @@
 **Duration:** 43m 39s  
 Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by LeVar Burton Reads. So many of us learn to love a good story by watching LeVar Burton, host of the wonderful TV show Reading Rainbow. Although you might also know LeVar from his years as Geordi on Star Trek: The Next Generation. Well, LeVar has a new podcast that recreates the magic for grown-ups. It's called LeVar Burton Reads. Each episode, LeVar picks one of his favorite short stories, like the great sci-fi story " Kin" by Bruce McAllister, and reads it to you. Simple, awesome. I think you'll really enjoy it. Subscribe it to LeVar Burton Reads in Stitcher, Apple Podcasts, or wherever you listen to podcasts, and thank him for sponsoring this week's show. Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
+[00:00:00] Norm: Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
 
 [00:00:49] Adam: I'm Adam,
 
@@ -1042,4 +1042,4 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:43:16] Adam: bye, guys.
 
-[00:43:18] Norm: Thanks again to LeVar Burton reads the new podcast where LeVar picks his favorite short stories and reads them to you. Subscribe to LeVar Burton Reads in Stitcher, Apple Podcasts, or wherever you listen to your podcasts. And thank you guys for listening. See you next week.
+[00:43:18] Norm: And thank you guys for listening. See you next week.

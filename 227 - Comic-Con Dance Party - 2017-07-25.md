@@ -4,7 +4,7 @@
 **Duration:** 41m 4s  
 Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by HP Workstations. With prices starting at fourteen hundred sixty-five dollars, HP Workstations enable you to innovate without boundaries, expanding as your workflow grows. Plus, you get free shipping, returns, and customer support, twenty-four seven, three hundred sixty-five days of the year. And right now, you can get an exclusive offer just for our listeners: get fifteen percent off HP Workstations with Intel Core i5 processors when you go to hp.com/untitled and enter code Untitled at checkout. That's hp.com/untitled. Enter code Untitled to get fifteen percent off select HP Workstations. Whether you have a small business that's looking to grow or you are established and ready to take the next step, HP Workstations with Intel Core i5 processors are for you. Welcome to Still Untitled: The Adam Savage Project. I'm Norm.
+[00:00:00] Norm: Welcome to Still Untitled: The Adam Savage Project. I'm Norm.
 
 [00:01:03] Adam: I'm Adam.
 
@@ -945,5 +945,3 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 [00:39:55] Adam: Here we go. Bye, guys.
 
 [00:39:57] Unknown [Danica / Norm]: Bye.
-
-[00:39:57] Norm: Once again, we want to thank the sponsor of this week's episode of Still Untitled, and that's. HP, with prices starting at fourteen hundred sixty-five dollars, HP workstations enable you to innovate without boundaries, expanding as your workflow grows. Plus, you get free shipping, returns, and customer support twenty-four-seven, three hundred sixty-five days of the year. And right now, you can get an exclusive offer just for our listeners: get fifteen percent off select HP workstations with Intel Core i5 processors when you go to hp.com/untitled and enter code Untitled at checkout. That's hp.com/untitled. Enter in code Untitled to get fifteen percent off select HP workstations. The special discount is valid through July thirty-first. Whether you have a small business that's looking to grow, or you're established and ready to take the next step, HP's workstations with Intel Core i5 processors are for you.

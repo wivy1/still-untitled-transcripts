@@ -396,8 +396,6 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:15:10] Will: Yeah.
 
-[00:15:12] Norm: Hey, everybody. Norm here. Before we continue on with the show, I want to thank the sponsor that made this episode possible, and that is KiwiCo. KiwiCo creates super cool hands-on projects for kids that make learning about STEAM fun. Their mission is to provide the next generation of innovators with the tools and foundation to become creative problem solvers and critical thinkers. KiwiCo projects are designed to spark creativity, tinkering, and learning in kids of all ages, and these projects are created by the in-house team of product designers and rigorously tested by kids. They have six types of projects for kids of all ages, from the Cricket Crate for toddlers to the Doodle Crate for teens, and it's really convenient. Every crate includes all the supplies needed for that month's project, easy to follow instructions. And an educational magazine to learn even more about that crate's theme. Kiwico inspires kids to see themselves as makers, engineering, creating their own innovative designs and outcomes. Over this past summer, Danica and I have done a bunch of babysitting, and kits like this really help pass the time, and the kids really enjoy it. They're learning and having fun at the same time. It's a great way to keep kids' minds and hands busy. Kiwico is offering listeners, you guys, of Still Untitled, the chance to try them for free. To redeem this offer and learn more about projects for kids, visit kiwico.com/untitled. Now back to the show.
-
 [00:16:37] Will: So what's the plan for New York Comic Con? Where’s your segue for that, Chan.
 
 [00:16:41] Norm: No, that got nothing.
@@ -900,4 +898,4 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:34:08] Will: Bye, everybody. Thanks for watching.
 
-[00:34:13] Norm: Thanks for joining us this week. And once again, I want to thank the sponsor that made this episode of Still Untitled possible, and that's KiwiCo. KiwiCo creates super cool hands-on projects for kids that make learning about science, technology, engineering, art, and math (STEAM) fun. Kids can create their own arcade games, construct a hydraulic claw, or tinker with electronics and motors. KiwiCo is offering Still Untitled listeners the chance to try these projects for free. To redeem this offer and learn more about their projects for kids, visit kiwico.com/untitled.
+[00:34:13] Norm: Thanks for joining us this week.

@@ -4,8 +4,6 @@
 **Duration:** 28m 54s  
 Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
-[00:00:00] Norm: This week's episode of Still Untitled is made possible by Star Talk All Stars. In a world filled with fake news, flat earthers, and conspiracy theories, what's a thinking person like you supposed to do? Think like a skeptic, of course. On a recent episode of Star Talk All Stars, neuroscientist Heather Berlin, PhD, and her comic co-host Ari Shaffir investigate the importance of skeptical thinking with our guests Cara Santa Maria and Dr. Steven Novella of The Skeptics Guide to the Universe. Remember, trust no one, question authority, and listen to Star Talk All Stars wherever you listen to podcasts for rigorous scientific thinking you crave. Now on with the show.
-
 [00:00:39] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:42] Adam: I'm Adam,
@@ -336,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:17:05] Will: A real bummer of a Christmas episode, guys.
 
-[00:17:08] Norm: Hey, everybody. Norm here. And before we continue with this week's episode, I want to thank the sponsor that makes it possible, and that's OpsGenie by Atlassian. Because incidents happen, and they require complex coordination between operations and software development teams who are putting out fires every day. That's why getting alerts immediately is critical. Thankfully, there's OpsGenie by Atlassian. OpsGenie empowers dev and ops teams to plan for service disruptions and stay in control during incidents. It also gives teams the power to respond quickly and efficiently to unplanned issues, and helps notify all the right people through a smart combination of scheduling and escalation paths that account for things like time zones and holidays. Better yet. Opsgenie allows for deep flexibility in how, when, and where alerts are deployed, with over 200 integrations like Jira, Amazon CloudWatch, Datadog, New Relic, and more. Plus, it tracks all activity and provides useful insights to improve future incident responses. Its services like Opsgenie that allow the other services that you rely on and you use so frequently, especially during this holiday season, to stay up and running without service interruptions because those engineers are on it. With Opsgenie, your next incident doesn't stand a chance. Visit Opsgenie.com to sign up for a free company account and add up to five team members. That's Opsgenie.com. Never miss a critical alert again with Opsgenie. Now back to the conversation. Have you guys seen the Infinity War and or I'm sorry, Avengers Endgame trailer teaser?
+[00:17:08] Norm: Have you guys seen the Infinity War and or I'm sorry, Avengers Endgame trailer teaser?
 
 [00:18:36] Adam: Oh, you don't
 

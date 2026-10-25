@@ -4,8 +4,6 @@
 **Duration:** 34m 26s  
 Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by the new Unscaled series from the All Turtles Podcast. AI is changing nearly everything about the way businesses grow and solve problems. This shift requires a new understanding of the word scale, and entrepreneurs need to pay attention. This eight-part podcast series looks at how startups and founders can use a new unscaled model to make products with impact. Listen to this provocative new series at allturtlespodcast dot com or wherever you get your podcasts. Now on with the show.
-
 [00:00:35] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:38] Adam: I'm Adam.
@@ -321,8 +319,6 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 [00:15:05] Norm: Okay, to change,
 
 [00:15:06] Adam: yes.
-
-[00:15:07] Norm: Hey everybody! Before we continue with this discussion, I want to let you know that this episode of Still Untitled is also brought to you by Wolverine: The Long Night. That's right. Marvel just released Wolverine: The Long Night, their first ever scripted podcast for free. It's a really interesting take on taking a comic character and incorporating it into this narrative audio-only form, kind of like an old radio drama. You can listen to it right now online or in your podcast app. The story starts when a fishing boat is off found off the coast of Burns, Alaska, and Special Agents Sally Pierce and Tad Marshall arrive to find out who or what killed the crew. And their primary suspect is a drifter named Logan. The local police won't cooperate, and there's more going on in Burns that meets the eye. With a great vocal cast, with people like Richard Armitage and also Bob Balaban, Scott Adsit, Chris Gethard, you'll want to check this. Out, you haven't heard anything like this before. The sound design, the acting, the writing—it's really amazing. Check it out. Wolverine: The Long Night is free in Apple Podcasts, Stitcher, Spotify, or wherever you listen to your podcasts. Or you can visit wolverinepodcast.com for more info. Thank them for sponsoring this episode. And back to the conversation.
 
 [00:16:24] Will: I I just went back and rewatched Dune a couple. I wasn't feeling too good.
 
@@ -738,4 +734,4 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:33:45] Will: Well, okay. I'm flipping the switch and take us out of here.
 
-[00:33:50] Norm: Thanks for listening this week. And once again, this episode of Still Untitled was brought to you by the new unscaled series from All Turtles Podcast. AI is changing nearly everything about the way businesses grow and solve problems. This shift requires a new understanding of the word. Scale and entrepreneurs need to pay attention. This eight-part podcast series looks at how startups and founders can use the new unscaled model to make products with impact. Listen to this provocative new series at allturtlespodcast dot com or wherever you get your podcasts. And thank you all for listening. We'll see you next week.
+[00:33:50] Norm: Thanks for listening this week. And thank you all for listening. We'll see you next week.

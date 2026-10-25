@@ -632,8 +632,6 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:23:36] Will: I'm okay.
 
-[00:23:38] Norm: Before we continue with this week's episode, I want to let you know that Still Untitled this week is made possible with support from M and M's Hazelnut Spread Chocolate Candies. When you need to hit pause on the demands of everyday life, grab the new M and M's Hazelnut Spread Chocolate Candies, guaranteed to deliver a delicious combo of hazelnut spread and milk chocolate in every bite-sized piece. M and M's Hazelnut Spread is going where no hazelnut spread has gone before, right inside M and M's Chocolate Candies. If you love M and M's Chocolate Candies and you love hazelnut spread, just wait until you try these together for the first time. They've added a delicious hazelnut spread. To the center of smooth M&Ms milk chocolate and crunchy candy shell. Enjoy them on their own or use them to dress up your favorite other treats. Just imagine them baked in the cookies or sprinkled on top of your go-to ice cream flavor. I used to eat hazelnut spread directly out of jars in college. All that deliciousness and energy would get me through those long nights. And now I can have them in a perfect bite-sized portion in the M&Ms new hazelnut spread chocolate candies. In fact, I've been salivating the entire time reading this. Go hazelnutty and try the new M&Ms hazelnut spread chocolate candies today. And now back to the conversation.
-
 [00:24:57] Adam: However, you saw something recently.
 
 [00:24:58] Will: Yeah. So I had a sick wife and kid this weekend.

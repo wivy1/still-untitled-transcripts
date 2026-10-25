@@ -4,7 +4,7 @@
 **Duration:** 37m 53s  
 Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
-[00:00:00] Norm: This week's episode of Still Untitled is made possible with support from M&M's new hazelnut spread chocolate candies. Spreadsheet and emails got you bogged down? Grab yourself a treat with the new M&M's hazelnut spread chocolate candies. Guaranteed to deliver delicious combo of hazelnut spread and milk chocolate in every bite-sized piece. They're a perfect way to bring some fun into your day. M&M's new hazelnut spread chocolate candies are an instant classic, unlocking a side of indulgence that's all its own. Even as I'm doing this ad read, my mouth is salivating because I'm thinking about the hazelnut chocolate spread. And I grew up on hazelnut spread chocolate, eating it directly out of the jar at college, and now it's in a convenient package that I can take on the go and snack on. Go hazelnutty and try the new M&M's hazelnut spread chocolate candies today, and thank them for sponsoring this week's episode. Welcome to Still Untitled the Adam Savage Project. I'm Norm.
+[00:00:00] Norm: Welcome to Still Untitled the Adam Savage Project. I'm Norm.
 
 [00:00:58] Adam: I'm Adam.
 

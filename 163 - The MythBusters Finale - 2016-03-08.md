@@ -4,7 +4,7 @@
 **Duration:** 36m 58s  
 Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
-[00:00:01] Norm: Hey everybody! Welcome to this week's episode of Still Untitled. I want to thank our sponsor this week, who is 3D Robotics. 3DR is America's largest drone maker. Their Solo Smart Drone is the first drone optimized for your GoPro. Get live HD video straight to your mobile screen as you're flying the quadcopter. Solo's computer also guides it smoothly and automatically, so you get cinematic shots you want. Push play, and the Solo does it all. It can even follow you. 3DR gives a Solo away every month to one of their email subscribers, so sign up for that today and learn more about drones at 3dr.com/StillUntitled. Just the name of this podcast. That's 3dr.com/StillUntitled. Now on with the show.
+[00:00:01] Norm: Hey everybody! Welcome to this week's episode of Still Untitled.
 
 [00:00:52] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 

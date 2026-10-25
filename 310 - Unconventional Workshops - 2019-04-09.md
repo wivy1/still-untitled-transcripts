@@ -4,7 +4,7 @@
 **Duration:** 39m 50s  
 Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
-[00:00:00] Norm: This week's episode of Still Untitled is made possible by the Rochester Institute of Technology. Faculty and students there have recently built a robot fish. Why? Because it could lead to a new wave of prosthetics. Now we're all hooked. At RIT, that creative team of engineers is onto something life-changing. Learn more about that project at rit. Edu/untitled. Now on with the show. Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
+[00:00:00] Norm: Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
 
 [00:00:30] Adam: I'm Adam.
 
@@ -292,8 +292,6 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:20:17] Melissa: Or maybe not. I I need to find that for myself.
 
-[00:20:20] Norm: Hey everyone, before we continue on with the conversation, I want to let you know that support for this week's episode comes from Ahrefs. Ahrefs is a digital subscription-based software for search engine optimization. If you want to grow traffic to your website, outrank your competitors on Google, and get tons of inbound leads, Ahrefs is the tool you need. Ahrefs is an all-in-one SEO toolset. It does absolutely everything from content research and keyword analysis to technical site audits, rank tracking, and backlinks analysis. Essentially, it gives you all the insights you need to research and monitor your niche, then rank your website. On the top of search engines, for Ahrefs also just launched the beta for its Keywords Explorer, rebuilding the whole tool with new technology and adding nine additional sources of data. You can now do keyword research for YouTube, Amazon, Bing, Yahoo, etc. It's for those kind of people who would like to dive deep into analytics, into data, and really maximize their efficiency on SEO. Ahrefs has a seven-day trial for only seven dollars. Sign up today at Ahrefs. dot com. That's spelled A H R E F S. dot com. Now back to the conversation.
-
 [00:21:29] Adam: So I have a you didn't ask for advice, but I have some.
 
 [00:21:31] Melissa: Okay, I'm ready.
@@ -566,4 +564,4 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:39:09] Kayte: Bye.
 
-[00:39:12] Norm: Thanks for listening this week, and once again, Still Untitled is made possible by Ahrefs. Ahrefs is a digital subscription-based software for search engine optimization. This all-in-one SEO toolset does absolutely everything from content research and keyword analysis to technical site audits, rank tracking, and backlinks analysis. Ahrefs gives you all the insights you need to research and monitor your niche, then rank your website on the top of search engines. Ahrefs has a seven-day trial for only seven dollars. Sign up today at ahrefs.com. That's spelled a h r e f s. dot com. Thanks for listening. We'll see you next week.
+[00:39:12] Norm: Thanks for listening this week. Thanks for listening. We'll see you next week.

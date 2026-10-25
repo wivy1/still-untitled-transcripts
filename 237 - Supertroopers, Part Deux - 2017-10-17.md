@@ -459,5 +459,3 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 [00:26:41] Unknown speaker: Bye, guys.
 
 [00:26:42] Adam: Bye, mom.
-
-[00:26:44] Norm: This week's episode of Still Untitled is brought to you by Casper Mattresses with three mattress models: the original Casper, the Wave, and the Essential. Casper mattresses are perfectly designed to soothe and cradle your natural geometry. Not to mention, the breathable design helps you sleep cool and regulates your body temperature throughout the night. And it's delivered right to your door in a small. How do they do that? Sized box with free shipping and returns in the U.S. and Canada. And the best part is, you can be sure of your purchase with Casper's 100 night risk free sleep on it trial. After all, you spend one third of your life sleeping, so you should be comfortable. Start sleeping ahead of the curve with Casper. Get fifty dollars toward any mattress purchase by going to casper.com/untitled and using the offer code Untitled at checkout. Again, that's casper.com/untitled using the offer code Untitled for fifty dollars off your mattress purchase. Terms and conditions apply.

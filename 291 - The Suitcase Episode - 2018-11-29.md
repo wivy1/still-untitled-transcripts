@@ -4,8 +4,6 @@
 **Duration:** 44m 44s  
 Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by OpsGenie because incidents happen. Thankfully, OpsGenie empowers devs and ops teams to plan for service disruptions and stay in control during incidents. It also gives teams the power to respond quickly and efficiently to unplanned issues, and it helps notify all the right people through smart combination of scheduling and escalation paths. With OpsGenie, your next incident doesn't stand a chance. Visit OpsGenie.com to sign up and get a free company account and add up to five team members. That's OpsGenie.com. Never miss a critical alert again with OpsGenie.
-
 [00:00:41] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:43] Adam: I'm Adam.
@@ -507,8 +505,6 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 [00:20:16] Norm: The best of us.
 
 [00:20:17] Adam: The best of us.
-
-[00:20:18] Norm: Before we continue with this episode, I want to let you know that this episode was also made possible by LinkedIn because the right hire can make a huge impact on your business. One of the reasons that we love working at Tested is because of all the great people we've hired. And work with and makes a huge impact on our day to day. But finding the right person can be hard. So instead of just posting on a job board, which most people don't check, post your job to a place where people go to every day to make connections, grow in their career, and discover job opportunities. And that's LinkedIn. Most LinkedIn members haven't recently visited the top job boards, but nine out of ten members are open to new opportunities. Seventy percent of the U.S. workforce is on LinkedIn, so it's the best place to get your job opportunity in front of people who are qualified for your role and ready for something new. It's the best way to find the right person who will help you grow your business. And that's why a new hire is made every ten seconds using LinkedIn. Hurry to LinkedIn.com/untitled and get fifty dollars off your first job post. That's LinkedIn.com/untitled to get fifty dollars off your first job post. Again, LinkedIn.com/untitled. Terms and conditions apply. Now back to the conversation.
 
 [00:21:31] Adam: Um. Hey, speaking of the opposite of the best of us, I can't stop watching The Americans.
 

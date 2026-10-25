@@ -4,8 +4,6 @@
 **Duration:** 54m 15s  
 Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
-[00:00:00] Norm: Today's episode of Still Untitled is brought to you by Eero. Whatever your Wi-Fi needs, Eero has the power to seamlessly blanket your home in fast, reliable Wi-Fi. Simply set it on a flat surface, or plug it into a wall outlet to expand your coverage to any room. Not to mention, with the addition of a third 5 gigahertz radio, the second-generation Eero is now tri-band and twice as fast as its predecessor, which lets customers do more in every room of their home simultaneously. And with the addition of a new Thread radio, Eero can now connect to low-power devices such as locks, doorbells, and other sensors. Meanwhile, Eero Beacon is half the size, but it's even more powerful than the original Eero. Whichever model you choose, with Eero's incredible customer support, you can call and get a hold of a Wi-Fi expert within 30 seconds. I have Eero plugged in my living room, into my dining room, and in my bedroom, so I can use my Nintendo Switch basically everywhere—the couch or even the bathroom. For free overnight shipping to U.S. or Canada, visit eero.com, select overnight as a shipping option, and use Untitled as the promo code at checkout.
-
 [00:01:07] Adam: Every Tuesday, sometimes Wednesday.
 
 [00:01:13] Will: Welcome to Still Untitled: The Adam Savage Project. I'm Will.
@@ -651,8 +649,6 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 [00:25:27] Norm: It looks like your house is herpes.
 
 [00:25:29] Will: Yeah, yeah, that was what I thought.
-
-[00:25:32] Norm: Before we continue with the podcast, I also want to thank the other sponsor of this week's episode, and that's Orbi Wi-Fi. Is something you really don't think about until you don't have it or it's not working properly. Videos buffering, there's Wi-Fi dead zones. Everyone's home for the holidays, fighting for that precious, precious Wi-Fi. So when did you last upgrade your Wi-Fi at home? If you just want better Wi-Fi everywhere, check out an Orbi Wi-Fi system from Netgear. With Orbi, you can enjoy super strong, fast, and more reliable whole-home Wi-Fi from your basement to your backyard. Change your Wi-Fi world. Get Orbi. That's O R B I Wi-Fi system from Netgear by going to netgear.com slash orbi. All right, back to us.
 
 [00:26:14] Adam: Hey, speaking of herpes,
 
@@ -1506,4 +1502,4 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:53:00] Will: See you next week. Bye, bye.
 
-[00:53:01] Norm: Hey everyone, thanks for listening to this week's episode. Before we go, I want to thank the last sponsor of this week's episode, and that is Casper. With three mattress models, the original Casper, the Wave, and the Essential Casper mattresses are perfectly designed to soothe and cradle your natural geometry. Not to mention the breathable design helps you sleep cool and regulates your body temperature throughout the night. And it's delivered right to your door in a small. How do they do that? Size box with free shipping and returns in the U.S. and Canada. But the best part is that you can be sure your purchase with Casper is risk-free with a hundred nights sleep on trial. That's over three months. After all, you spend a third of your life sleeping, so you should be comfortable while doing it. Now, start sleeping ahead of the curve with Casper. Get fifty dollars toward any mattress purchase by going to casper.com/untitled and using untitled at checkout. That's casper.com/untitled with the offer code untitled for fifty dollars off your mattress purchase. Terms and conditions apply. And we will see you next week.
+[00:53:01] Norm: Hey everyone, thanks for listening to this week's episode. And we will see you next week.

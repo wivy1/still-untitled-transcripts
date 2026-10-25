@@ -4,10 +4,6 @@
 **Duration:** 34m 57s  
 Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
-[00:00:00] Will: Today's episode of Still Untitled the Adam Savage Project is brought to you by Wix.com. Do you need a website? Why not do it yourself with Wix.com? No matter what business you're in, you can get your site live today with hundreds of templates and easy drag and drop features. It's simple to customize, and there's no coding needed. You don't need to be a programmer or designer to create something beautiful. Go to Wix.com and create your own stunning website. It's easy and free.
-
-[00:00:25] Norm: Today's episode is also brought to you by Skillshare, where you can explore thousands of online classes in design, photography, business, and more. Learn from the world's best teachers and join a learning community of over 1 million creators. Learn at your own pace by watching classes on your own schedule. You can even share your work and collaborate with students from around the world too. With real projects and feedback from the Skillshare community, it's like being in a real class, but on your own time. Classes can even be watched offline with the Skillshare mobile apps on both Apple and Android devices. Go to Skillshare.com and get three free months with the discount code. Untitled at checkout for new customers. Thanks.
-
 [00:01:09] Will: Today, sorry for the double ads. Today, we were actually doing two today because we missed an episode a few weeks ago, so we had to do some makegoods for our the the wonderful advertisers that support the show. And now on with the podcast. Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:27] Adam: I'm Adam,
@@ -975,10 +971,6 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 [00:33:51] Will: Exactly. See you guys next week.
 
 [00:33:51] Adam: Thanks, guys.
-
-[00:33:58] Norm: Today's episode was brought to you by Wix.com, used by 60 million people throughout the world. Wix.com empowers business owners to create their own professional websites with the drag and drop builder and hundreds of designer-made templates to choose from. You can get your website live today. It's easy and free. Go to wix.com and create your stunning website today.
-
-[00:34:22] Will: And today's episode was also brought to you by Skillshare. Don't forget, with Skillshare, you can explore thousands of online classes in design, photography, business, and more. Learn from the world's best teachers on your own schedule and join a learning community of over one million creators. With real projects and feedback from the Skillshare community, it's like being in a real class, but on your own time. Classes can even be watched offline with the Skillshare mobile apps on both Apple and Android devices. Go to Skillshare.com and get three free months with the discount code Untitled at checkout for new customers. Thanks, Skillshare, for your support of Still Untitled. Skillshare.com, creativity for everyone.
 
 [00:35:00] Norm: And see you guys next week.
 

@@ -4,8 +4,6 @@
 **Duration:** 32m 42s  
 Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
-[00:00:00] Norm: This week's episode of Still Untitled is made possible by Netgear routers. When's the last time you upgraded your home's Wi-Fi? Turn your Wi-Fi up a notch with Netgear's new line of Nighthawk Wi-Fi six routers. Whether you're gaming online or watching Netflix in four K, it's like giving your streaming the VIP treatment. You'll enjoy buffer-free streaming and zero lag, no matter how many devices are connected to your network. Upgrade your router at Netgear.com/slash Wi-Fi six. The number six again. That's Netgear.com/slash Wi-Fi six. Make your Wi-Fi feel young again.
-
 [00:00:35] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:37] Adam: I'm Adam,
@@ -658,7 +656,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:22:27] Adam: This is Just making me madder and madder.
 
-[00:22:28] Norm: This is the other podcast. Before we continue on with the conversation, I want to let you know that Still Untitled this week is also made possible with support from LightStream. You don't need to be a financial expert to know that consolidating debt into a low fixed rate can save you thousands in interest. So pay off your high interest credit cards with a credit card consolidation loan from LightStream. You can get a rate as low as 5.95% APR with autopay, which is much lower than the national average interest rate on credit card debt, and get a loan from $ 5,000 to $ 100,000 with absolutely no fees. Application is 100% online, and you can get your money as soon as the day you apply. I know that with all of the business we do, we have a ton of credit cards in our family, and sometimes it's just easier to get them everything under one bill with autopay, so we don't have to stress about missing any random payments or fees. Apply today at LightStream.com/Untitled and get an additional interest rate discount. That's LightStream dot com slash Untitled for an additional discount. L I G H T S T R E A M dot com slash Untitled. Subject to credit approval. The rate includes a point five auto pay discount. Terms and conditions apply, and offers are subject to change without notice. Visit LightStream dot com slash Untitled for more information. Now back to the conversation.
+[00:22:28] Norm: This is the other podcast.
 
 [00:23:51] Adam: Okay, I want to talk about something I've been watching, and I need you guys to watch.
 

@@ -4,12 +4,6 @@
 **Duration:** 34m 9s  
 Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by Stitcher Premium. Stitcher Premium gets you completely ad-free episodes of hundreds of shows like Comedy Bang Bang, WTF with Marc Maron, and How Did This Get Made. You also get twenty-one thousand hours of exclusive content, and new exclusive originals like Marvel's Wolverine are launching every week for Stitcher Premium members. If you love podcasts, you got to check it out. When you listen to ad-free episodes in Stitcher Premium, your favorite podcasters also get paid.
-
-[00:00:27] Norm: Hey,
-
-[00:00:27] Norm: Help support your favorite shows and join Stitcher Premium today for a free month of listening. Go to stitcherpremium.com and use the promo code Untitled. And now on with the show.
-
 [00:00:43] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:45] Adam: I'm Adam.
@@ -793,5 +787,3 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 [00:33:35] Adam: Weird outro. Bye guys.
 
 [00:33:38] Will: Bye guys. That was a weird outro.
-
-[00:33:42] Norm: This week's episode of Still Untitled is brought to you by Udemy, the largest marketplace for online learning. Whether you’re looking to learn something new or just sharpen your skills, Udemy has over 65,000 courses starting at just $ 11.99. Students around the world choose Udemy to discover new passions, expand their skills, and even change careers. Visit ude.my/untitled or download the Udemy app to learn anytime, anywhere. Udemy.

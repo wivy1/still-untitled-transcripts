@@ -4,26 +4,6 @@
 **Duration:** 32m 25s  
 Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
-[00:00:01] Will: Today’s sponsor is Casper Mattresses. They make obsessively engineered American-made mattresses at a shockingly fair price, and now you can get fifty bucks off any mattress by going to casper.com/untitled and using offer code Untitled.
-
-[00:00:17] Norm: That's the name of this podcast.
-
-[00:00:18] Will: Did you know that you spend a third of your life sleeping?
-
-[00:00:21] Norm: That's way too much time sleeping.
-
-[00:00:22] Will: No, that's the right amount of time to sleep.
-
-[00:00:24] Norm: I guess so.
-
-[00:00:25] Will: Yep, twenty-four hours in a day, eight hours a day. That math checks out. You should make sure that you're doing it on a good mattress. Casper brings two technologies together: latex foam, memory foam. You get better nights, brighter days, and they sink just the right amount, and they're good for other activities too.
-
-[00:00:40] Norm: Yeah, if you want to get a twin, it's five hundred dollars plus. You can also get fifty dollars off if you go to casper.com/untitled and use Untitled as the checkout code.
-
-[00:00:49] Will: And if you want to get the big boy, the king size, nine hundred and fifty bucks minus that fifty bucks, it's nine hundred dollars. You're not going to beat that deal. It's a great mattress. But thanks, Casper, for supporting. Still Untitled.
-
-[00:00:58] Norm: On with the show.
-
 [00:01:02] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:05] Adam: I'm Adam,

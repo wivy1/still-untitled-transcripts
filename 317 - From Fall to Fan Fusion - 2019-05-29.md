@@ -4,8 +4,6 @@
 **Duration:** 36m 42s  
 Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
-[00:00:01] Norm: This week's episode of Still Untitled is made possible with support from the Rochester Institute of Technology. Faculty and students there recently built a robot fish. Why? Because it could lead to a new wave of prosthetics, and now we're all hooked. At RIT, that creative team of engineers is onto something life-changing. Learn more about the project at rit. dot edu slash Untitled. Now on with the show.
-
 [00:00:27] Will: Welcome to Still Untitled, the Adam Savage Project. I am Will.
 
 [00:00:27] Adam: I am Adam.
@@ -548,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:22:18] Adam: By all means.
 
-[00:22:26] Norm: before we continue this week, I want to let you know that Still Untitled is also made possible with support from TripleByte. Because applying to programming jobs sucks. You have to put the right keywords in your resume. You spend hours and hours on phone screens and take home projects, and that's assuming the company even responds to your application. Well, if you're a software engineer, TripleByte can help. They work with over 400 top tech companies, from big names like Dropbox and Adobe to exciting startups. You do one brief online interview with them, and if you do well, you get to go straight to final interviews with the companies on their platform. It's like the common app for software engineers. TripleByte does not look at your resume or where you went to school. All they care about is if you can code, because that's what really matters. Not a sheet of paper. It's about your personal experience and about your ability. Apply now at triplebyte dot com slash untitled. That's triplebyte b y t e byte as in eight bits. And as a special offer for listeners of the show, if you take a job through Triplebyte, they'll offer you a one thousand dollar signing bonus. Now back to the conversation. There is no way you get from Eyes Wide Shut. I want to do want to hear about your time at Fan Fusion in Phoenix.
+[00:22:26] Norm: There is no way you get from Eyes Wide Shut. I want to do want to hear about your time at Fan Fusion in Phoenix.
 
 [00:23:36] Adam: Phoenix Fan Fusion was fantastic.
 
@@ -942,4 +940,4 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:36:09] Adam: Yeah, we'll see you next week.
 
-[00:36:12] Norm: Thanks for listening this week. And once again, Still Untitled is made possible this week with support from the Rochester Institute of Technology. Did you know that faculties and students there recently built a robot fish because it could lead to a new wave of prosthetics? And now we're all hooked at RIT. That creative team of engineers is onto something life-changing. Learn more about that project at rit. Edu/untitled, and we'll see you next week.
+[00:36:12] Norm: Thanks for listening this week, and we'll see you next week.

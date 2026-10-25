@@ -4,8 +4,6 @@
 **Duration:** 32m 7s  
 Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
-[00:00:00] Norm: This episode of Still Untitled was brought to you by Canary, a complete home security system in a single device. When Canary detects something out of the ordinary, it sends an intelligent notification with HD video straight to your phone. Canary puts you in control during an emergency. Through the Canary app, you can watch live footage with a built-in siren or connect with police near your home. Start protecting your home with Canary just for two hundred dollars one ninety nine. Go to meetcanary dot com and use the promo code Untitled, like the name of this podcast, for free overnight shipping. Thanks to Canary for sponsoring this week's episode of Still Untitled. And on with the show.
-
 [00:00:46] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:49] Adam: I'm Adam.
@@ -818,4 +816,4 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:31:15] Norm: Bye.
 
-[00:31:15] Norm: Thanks for listening to that episode of Still Untitled. And if you liked the show, please support us by supporting our sponsors. And the sponsor for this week's show is Canary. Canary is a complete home security system in a single device. Like we mentioned earlier, Canary, when it detects something out of the ordinary, it sends intelligent notifications with HD video straight to your phone with the Canary app. Let's put you in control during an emergency. You can watch live footage. You can sound the built-in siren, or you can connect to police near your home. So start protecting your home today with Canary, just for one ninety-nine, and you can use the promo code Untitled to get free overnight shipping. Thanks, guys, and we'll see you next time. Bye.
+[00:31:15] Norm: Thanks for listening to that episode of Still Untitled. Thanks, guys, and we'll see you next time. Bye.

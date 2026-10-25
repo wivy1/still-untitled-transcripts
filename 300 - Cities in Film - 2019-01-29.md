@@ -424,8 +424,6 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:21:49] Jen: everything about it sounds fascinating.
 
-[00:21:51] Norm: Hey, everybody, Norm here. Before we continue on with this episode, I want you know that this episode of Still Untitled is made possible by the podcast Hackable. Have you ever wondered if Siri And Alexa are listening to you, or if hackers can watch your webcam, cyber crime is all over the news and in popular media, like TV shows like Mister Robot or Black Mirror, featuring cyber criminals lurking in the shadows. But how worried should you really be? And can hackers actually infiltrate your daily life with a couple of keystrokes? Hackable, an original podcast from McAfee, answers the simple question: Is it hackable? Each week, host Jeff Siskind invites white hat hackers to try to hack a different device or technology. Past episodes have tested webcams, smart speakers, car key fobs, pet cams, smart doorbells, and more. In one episode, Jeff was even trapped in an internet connected car wash when a show friendly hacker locks the doors. Season three just launched and will investigate whether VR headsets, drones, and more are hackable. Now listen and subscribe to Hackable on all major podcast platforms like Apple Podcasts, Stitcher, or wherever you are listening right now, and thank them for making this episode possible. Back to the conversation.
-
 [00:23:05] Adam: You you are in the neighborhood, as it were. Jen, are you? Have you partaken of any local cuisine?
 
 [00:23:11] Jen: I've eaten a lot of burritos.
@@ -812,4 +810,4 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:36:14] Jen: Bye, guys.
 
-[00:36:16] Norm: Thanks for listening this week. And once again, I want to let you know that this episode was made possible by the podcast Hackable. Cybercrime has been all over TV and news and popular media, and Hackable, an original podcast from McAfee, answers the question: How worried should I really be about hackers? In each episode, host Jeff Siskind invites a hacker to try to hack a device he's using. It's kind of like what you see on Mr. Robot in season three. Jeff straps on a virtual reality headset, puts his laptop password on the line, investigates drones, and more. Listen to Hackable on all major podcast platforms, and thank them for sponsoring this week's episode. We'll see you next week.
+[00:36:16] Norm: Thanks for listening this week. We'll see you next week.

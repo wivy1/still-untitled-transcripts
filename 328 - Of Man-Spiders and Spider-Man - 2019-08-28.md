@@ -4,8 +4,6 @@
 **Duration:** 38m 55s  
 Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
-[00:00:00] Norm: This week's episode of Still Untitled is made possible with support from the National Highway Traffic Safety Administration. Do you think it's okay to drive stoned? The truth is, your reaction times slow way down when you're high. You not only put yourself in danger, but everyone around you. So stop kidding yourself. It's not okay to drive high. If you've been using marijuana in any form, do not get behind the wheel. If you feel different, you drive different. Drive high, get a DUI. Now on with the show.
-
 [00:00:28] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:28] Adam: I'm Adam,
@@ -561,8 +559,6 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 [00:16:24] Will: Yep.
 
 [00:16:24] Adam: films, and Tom Holland is just I think the most proto perfect Spider-Man.
-
-[00:16:37] Norm: Before we continue with this week's episode, I want to let you know that Still Untitled is also made possible this week with support from World of Warcraft Classic. That's right. Get ready to return to an era lost to legend, because World of Warcraft Classic is available now, coming just in time for the game's 15th anniversary. World of Warcraft Classic invites players to return to the world of Azeroth just as it was during its earliest days. This faithful, authentic recreation captures the danger, excitement, and glory of the original game and relives the timeless adventures that defined. World of Warcraft's legacy. You can fight for the Horde or the Alliance in an ongoing struggle between Southshore and Taren Mill. Then gear up to take on the dragons of Blackwing Lair as more of the original game's legendary content opens over time. There's so much more to discover and explore. WoW Classic is included with your regular World of Warcraft subscription at no additional charge, so you can switch between the original experience and the latest content as you see fit. World of Warcraft Classic is available to play right now. Just head over to wowclassic.com/stilluntitled to learn all about it and get ready to relive the legend. Once again, that's wowclassic, W-O-W classic dot com slash still untitled. Now back to the conversation.
 
 [00:18:03] Will: So, so do we want to talk about spoilers?
 

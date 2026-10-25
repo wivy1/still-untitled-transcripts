@@ -4,8 +4,6 @@
 **Duration:** 29m 59s  
 Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
-[00:00:01] Norm: Hey, everybody! Norm here. This week's episode of Still Untitled is brought to you by Backblaze. They're a great backup service. I actually use them myself. Even if you have a Time Machine for your Mac or a local backup system, that's not really backing things up. You need to have multiple copies. So I use Backblaze as my offsite backup service. They work for both Mac and PCs, and you can restore files individually, or you can have them send a USB hard drive for you to restore your files. No throttling for uploads. They have great native apps on the PC and Mac. Works with iPhone and Android as well. To see what you've backed up, and there's no add-ons, gimmicks, or additional charges. Just five dollars a month, unlimited, unthrottled online backup for your local hard drives and even your connected NAS drives, your your USB drives as well, as your external drives. So listeners of Still Untitled can get a two week free trial by going to backblaze dot com slash still Untitled. That's the name of this podcast. All connected together. That's backblaze dot com slash still Untitled. Now on with the show.
-
 [00:01:11] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:14] Adam: I'm Adam,

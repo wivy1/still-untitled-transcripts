@@ -4,8 +4,6 @@
 **Duration:** 54m 0s  
 Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
-[00:00:00] Norm: Still Untitled is brought to you by Udemy, the largest marketplace for online learning. Whether you're looking to learn something new or just sharpen your skills, Udemy has over 65,000 courses starting at just $ 11.99. Students around the world choose Udemy to discover new passions, expand their skills, and even change careers. Visit ude.my/untitled or download the Udemy app to learn anytime, anywhere. Now on with the show.
-
 [00:00:30] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:32] Adam: I'm Adam.

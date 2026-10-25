@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:19:32] Kishore: So I, I thought it was was sort of fascinating the diversity, both geography and in the kinds of people you see there, was absolutely fascinating.
 
-[00:19:43] Norm: Hey everyone, Norm here. Before we continue with this week's podcast, I want to thank the sponsor that makes this episode possible, and that's Campaign Monitor. When it comes to email marketing, there is so much more that goes into creating smart and effective campaigns than what meets the eye. That's why Campaign Monitor created an easy-to-use email marketing platform, complete with simple drag-and-drop email editors and an award-winning. Twenty-four-seven customer service. Campaign Monitor gives you everything you need to run beautifully designed, professional email marketing campaigns to grow your business. With their gallery of beautiful email templates, all of which look amazing on every device, you're bound to find something that will make your brand pop. And since Campaign Monitor uses detailed lists and smart segments, your messages instantly drive more engagement. No wonder it’s used by more than two hundred and fifty thousand businesses worldwide. Now, Still Untitled listeners have the opportunity to try Campaign Monitor for themselves without spending a dime. Sign up for your free trial today at campaignmonitor.com/untitled. Again, that's campaignmonitor.com/untitled. Back to the conversation. Yeah, I'm digging. I'm trying to dig up the Instagrams of some of the cosplayers I met, but I, as I was taking some photos on Sunday morning, I met a Killmonger whose amazing foam Killmonger mask.
+[00:19:43] Norm: Yeah, I'm digging. I'm trying to dig up the Instagrams of some of the cosplayers I met, but I, as I was taking some photos on Sunday morning, I met a Killmonger whose amazing foam Killmonger mask.
 
 [00:20:59] Kishore: Oh, really? Oh, with the
 
@@ -510,4 +510,4 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:34:32] Adam: Thanks, guys.
 
-[00:34:35] Norm: Hey everyone, thanks for listening this week. And once again, I want to let you know that the sponsor that made this episode possible is Campaign Monitor. When it comes to email marketing, there's so much more that goes into creating smart and effective campaigns than what meets the eye. That's why Campaign Monitor created an easy-to-use email marketing platform, complete with mobile-friendly templates, a simple drag-and-drop email editor, and award-winning 24/7 Customer service. It's used by more than 250,000 businesses worldwide, which you can become part of. Because Still Untitled listeners have the opportunity to try Campaign Monitor for themselves without spending a dime. Sign up for your free trial today at campaignmonitor.com/untitled. Again, that's campaignmonitor.com/untitled. We'll see you next week.
+[00:34:35] Norm: Hey everyone, thanks for listening this week. We'll see you next week.

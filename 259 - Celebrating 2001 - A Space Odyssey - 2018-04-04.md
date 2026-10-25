@@ -4,8 +4,6 @@
 **Duration:** 34m 2s  
 Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by Acer Swift Five. Looking for a laptop that delivers on both performance and price? Check out the Acer Swift Five, which offers a powerful Intel Core processor, super slim design, and more. Discover new possibilities with this laptop by going to Acer dot com. Click on Store and enter the coupon code Untitled at checkout to receive 10% off plus free ground shipping on a Swift series laptop, including already discounted models. The offer is valid through April thirtieth, twenty eighteen, and limited to one per qualified order. Windows Hello, the password is you. Windows ten. Now on with the show.
-
 [00:00:42] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:44] Adam: I'm Adam.

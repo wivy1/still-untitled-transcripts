@@ -4,8 +4,6 @@
 **Duration:** 28m 38s  
 Episode URL: https://www.youtube.com/watch?v=zj_SMQFBLuA
 
-[00:00:00] Unknown speaker: This episode of Still Untitled: The Adam Savage Project is brought to you by Squarespace, the all-in-one platform that makes it fast and easy to create your own professional website or online portfolio. For a free trial and ten percent off, go to squarespace.com and use offer code UNTITLED.
-
 [00:00:17] Norm: Well, welcome to Still Untitled: The Adam Savage Project. I'm Norm.
 
 [00:00:20] Adam: I'm Adam.
@@ -257,5 +255,3 @@ Episode URL: https://www.youtube.com/watch?v=zj_SMQFBLuA
 [00:28:23] Norm: Bye.
 
 [00:28:23] Adam: Bye.
-
-[00:28:24] Unknown speaker: No credit card is required to start building your website today. When you sign up for Squarespace, use the offer code Untitled to get 10% off and support this show. Thanks to Squarespace for sponsoring Still Untitled. Squarespace: Everything you need to create an exceptional website.

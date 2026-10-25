@@ -4,8 +4,6 @@
 **Duration:** 27m 50s  
 Episode URL: https://www.youtube.com/watch?v=Nmy3uFU-7t4
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by Eero. Whatever your Wi-Fi needs, Eero has the power to seamlessly blanket your home in fast, reliable Wi-Fi via Ethernet, wireless, or any combination. Simply set it on a flat surface or plug it into a wall outlet to expand coverage into any room. Not to mention, with the addition of a third five gigahertz radio, the second-generation Eero is now tri-band and twice as fast as its predecessor, which lets you do more in every room of your home simultaneously. And with the addition of a new Thread radio, Eero can now connect to low-power devices such as locks, doorbells, and other sensors. Meanwhile, Eero Beacon is half the size but is even more powerful than original Eero. So whichever model you choose, with Eero's incredible customer support, you can call and get a hold of a Wi-Fi expert within thirty seconds. I have Eero plugged into several outlets in my home, which lets me use my Nintendo Switch and play multiplayer games basically anywhere. You know, even like the bathroom. So for free overnight shipping to U.S. or Canada, visit. eero dot com. That's e e r o dot com. Select overnight as a shipping option and use the code Untitled at checkout. Now on with the show.
-
 [00:01:17] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:21] Adam: I'm Adam.

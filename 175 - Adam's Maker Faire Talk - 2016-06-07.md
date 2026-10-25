@@ -4,7 +4,7 @@
 **Duration:** 1h 6m 36s  
 Episode URL: https://www.youtube.com/watch?v=kdLky-YkOVw
 
-[00:00:00] Norm: Hey everybody, Norm here. Before we start this episode, I'd like to thank the sponsor of Still Untitled this week, and that sponsor is Atlassian. Atlassian, they're makers of collaboration software that lets teams work and communicate better together. See how Jira, Confluence, HipChat, and Bitbucket give your team everything you need to organize, discuss, and complete shared work. Atlassian works to help teams, large and small, ascend to new heights to create what's next. Visit Atlassian dot com. That's A T L A S S I A N dot com. Atlassian, helping teams everywhere team up to create what's next. And now, please enjoy Adam Savage's 2016 Maker Faire talk.
+[00:00:00] Norm: Hey everybody, Norm here. And now, please enjoy Adam Savage's 2016 Maker Faire talk.
 
 [00:01:01] Adam: I'm really sorry I wasn't here last year. I apologize. I was in another state, and I mean an actual state, not a state of mind. Um, a couple
 
@@ -164,4 +164,4 @@ Episode URL: https://www.youtube.com/watch?v=kdLky-YkOVw
 
 [01:05:20] Adam: Thank you guys so much. I love you, Maker Faires. Stay making. Stay curious.
 
-[01:05:28] Norm: Hope you all enjoyed that talk from Maker Faire 2016. And thanks again for the other sponsor of this week's episode, and that is Casper. Casper, of course, makes obsessively engineered mattresses at a shockingly fair. Price. They combine springy latex with supportive memory foams to create an award-winning sleep surface with just the right amount of sink and just the right bounce. Time magazine even named it one of the best inventions of 2015. In fact, it's now the most awarded mattress of the decade. There is free shipping and returns in U.S. and Canada. And try Casper for 100 nights. That's over three months, risk-free in your own home. If you don't love it, they'll pick it up and refund you everything. Of course, they're also made in America. And for listeners of this podcast, get fifty dollars toward any mattress purchase by visiting casper.com/untitled and using the offer code untitled. Again, that's www.casper.com/untitled and using untitled as the offer code for fifty dollars off. Thanks again for listening. Thanks Casper for sponsoring this week's episode, and we'll see you next week. Bye.
+[01:05:28] Norm: Hope you all enjoyed that talk from Maker Faire 2016. Thanks again for listening, and we'll see you next week. Bye.

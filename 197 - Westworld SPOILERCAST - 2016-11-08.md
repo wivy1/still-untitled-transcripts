@@ -4,8 +4,6 @@
 **Duration:** 42m 26s  
 Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
-[00:00:00] Norm: This week's episode of Still Untitled was brought to you by ZipRecruiter.com. Are you hiring? Do you know where to post your job to find the best candidates? Posting your job in one place isn't enough to find quality candidates. If you want the perfect hire, you need to post your job on all the top job sites, and now you can with ZipRecruiter.com. You can post your job to 100 plus job sites, including social media networks like Facebook and Twitter, all with a single click. Find candidates in any city, industry, nationwide. Just post once and watch your qualified candidates roll in with ZipRecruiter's easy-to-use interface. No more juggling emails or calls to your office. Quickly screen the candidates, rate them, and hire the right person fast. And right now, listeners of this podcast can post jobs on ZipRecruiter for free by going to ZipRecruiter.com/slash Adam S. That's Adams, but A D A M S. Again, that's ZipRecruiter.com/AdamS. One more time, try it for free. Go to ZipRecruiter.com/AdamS. Thank them for sponsoring this show, and now on with that show.
-
 [00:01:09] Will: Welcome to Still Untitled: The Adam Savage Project. I'm Will.
 
 [00:01:15] Adam: I'm Adam,

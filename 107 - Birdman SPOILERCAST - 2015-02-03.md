@@ -4,46 +4,6 @@
 **Duration:** 30m 49s  
 Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
-[00:00:01] Will: Norm Chan.
-
-[00:00:02] Norm: Hey, what?
-
-[00:00:02] Will: I need a website.
-
-[00:00:05] Norm: You have a website. It's called Tested.com.
-
-[00:00:07] Will: No, no, no. I need a I need a personal website to share pictures of my you know my daughter and maybe sell t-shirts.
-
-[00:00:12] Norm: All right. Well, I can't help you there, but there's a company that can. It's Squarespace, and they are the sponsor for this week's podcast.
-
-[00:00:18] Will: I um I have a copy of Notepad. I assume that's all I need to get a website going, right?
-
-[00:00:22] Norm: Yeah, coding in HTML.
-
-[00:00:24] Will: Yeah,
-
-[00:00:24] Norm: none of that anymore.
-
-[00:00:24] Will: Oh, really?
-
-[00:00:24] Norm: It's all template based, real time editing, responsive design, and if you need any help, as someone like me probably would, they have 24 hour support as well.
-
-[00:00:37] Will: Uh, so it's it's a Squarespace. It must this must cost a ton of money.
-
-[00:00:40] Norm: I think it's eight dollars a month, which I don't think is that much at all.
-
-[00:00:43] Will: That doesn't seem like a ton of money. I was expecting thousands and thousands of dollars. We have a whole team of engineers down in LA that makes our site work.
-
-[00:00:48] Norm: You don't have no dedicated engineer, paid required.
-
-[00:00:48] Unknown speaker: Just
-
-[00:00:48] Norm: Squarespace.com, and you can also use a promo code Untitled, I believe, for a discount and try it out. They are supporting this week's podcast.
-
-[00:01:02] Will: Well, thank you, Squarespace.
-
-[00:01:04] Norm: Thank you.
-
 [00:01:08] Will: Welcome to Still Untitled, the Adam Savage Project. I am Will.
 
 [00:01:12] Adam: I am Adam,
@@ -820,38 +780,6 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:28:42] Norm: Bye.
 
-[00:28:47] Will: It seems like it's been just 20 minutes since we talked about Squarespace.
-
-[00:28:49] Norm: That's right. They are once again the sponsor for this week's podcast. Thank you, Squarespace, for supporting our podcast, and thank you guys for listening. Have you built? Have you decided what your website's gonna look like yet?
-
-[00:28:59] Will: We just talked about Birdman. I I haven't had a chance to do my website, but I I think I'm gonna make it red.
-
-[00:29:03] Norm: You should make a website about the best long takes.
-
-[00:29:08] Will: The longest takes of all the long takes, and just show them all on the website. I should try that. I'm looking forward to using 24/7 live text, live chat, and email support. I'm looking. I like a like low price. What if I want some stock images, Norm?
-
-[00:29:22] Norm: They have a partnership with Getty Images, so you can license them royalty free for very small price.
-
-[00:29:28] Will: So if I want to have, say, a picture of a woman getting something that should never be in a refrigerator, like crackers out of a refrigerator, eating them late at night, I can get that.
-
-[00:29:37] Norm: Probably. Although I think the Getty Images photos are much better than quality in that.
-
-[00:29:41] Will: Okay, so what if I want a picture of a man walking across the street while using an old school Zack Morris kind of cell phone?
-
-[00:29:47] Norm: Absolutely. I think there's a rule in internet: if you can think of it, if it exists, then Getty Images has a photo of it.
-
-[00:29:54] Will: What if I want a man eating pizza in his underwear on top of the Statue of Liberty? I might have to pay for that.
-
-[00:30:00] Norm: Might have to pay for that.
-
-[00:30:01] Will: Okay, but in the meantime, Squarespace Seven is a really easy way to build your own custom website. They have online shop integrations, so you can sell stuff to people. You can take credit cards and all that stuff. You don't have to know how to make an account with a credit card processing company. They have twenty four seven live chat and email support, and it's the sites work on mobile and desktop, and all the places the site just shrinks down, fit onto your phone without you having to know anything about web design. It sounds like a good place for me to start with my website.
-
-[00:30:28] Norm: You know my favorite thing about Squarespace.
-
-[00:30:28] Will: What's your favorite thing about Squarespace?
-
-[00:30:28] Norm: They support podcasts like this one.
-
-[00:30:32] Will: That is my favorite thing about this about Squarespace as well. We'll see you guys next week.
+[00:30:32] Will: We'll see you guys next week.
 
 [00:30:36] Norm: Bye.

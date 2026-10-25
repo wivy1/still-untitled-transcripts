@@ -4,8 +4,6 @@
 **Duration:** 28m 16s  
 Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
-[00:00:00] Norm: Today's sponsor of this week's episode of Still Untitled is Casper Mattresses, obsessively engineered American-made mattresses at a shockingly fair price. And now you can get fifty dollars toward any mattress purchase by going to casper dot com slash untitled, like the name of this podcast, and using the code untitled. Listen, you spend a third of your life sleeping, so let's make sure you are doing it on a good mattress. Casper brings two comfy technologies together for better nights and brighter days: latex foam and memory foam. So they got the right amount of sink and the right amount of bounce, no matter how you sleep. And they have a risk-free trial and return policy. They deliver straight to you. The mattress actually comes in a box, and it breathes the air in, expands out, and you can try it for a hundred days. And if you are not happy, they'll pick it back up. At the store, maybe you get a minute to try your mattress. With Casper, you actually get to sleep on it. It's five hundred dollars for a twin size mattress and nine hundred fifty for a king size mattress, and it's a really good price point compared to other industry standards. Also, remember you can get fifty dollars off any mattress purchase by going to Casper dot com slash Untitled and using the offer code Untitled. Thank you Casper for sponsoring this week's episode of Still Untitled, and on with the show.
-
 [00:01:24] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:27] Adam: I'm Adam,

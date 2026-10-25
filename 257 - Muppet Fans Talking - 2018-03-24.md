@@ -708,4 +708,4 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:29:25] Norm: Bye.
 
-[00:29:25] Norm: Support for today's podcast comes from Google Cloud Platform. Looking to move to the cloud? Check out Google Cloud Platform's weekly podcast, where Google Developer Advocates answer questions, get in the weeds, and talk to experts, customers, and partners about GCP. Learn more and subscribe to the podcast at g co slash gcp podcast. We'll see you next week.
+[00:29:25] Norm: We'll see you next week.

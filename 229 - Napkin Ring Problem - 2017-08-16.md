@@ -4,8 +4,6 @@
 **Duration:** 31m 53s  
 Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by Eero. Whatever your Wi-Fi needs, Eero has the power to seamlessly blanket your home in fast, reliable Wi-Fi via Ethernet, wireless, or any combination. Simply set it on a flat surface or plug it into a wall outlet to expand coverage into any room. Not to mention, with the addition of a third 5 gigahertz radio, the second-generation Eero is now tri-band and twice as fast as its predecessor, which lets customers do more in every room of their home simultaneously. And with the addition of a new Thread radio, Eero can now connect to low-power devices such as locks, doorbells, and other sensors. Meanwhile, Eero Beacon is half the size but is even more powerful than original Eero. Whichever model you choose, with Eero's incredible customer support, you can call and get a hold of a Wi-Fi expert within 30 seconds. I set up my Eero in my home. Plug the beacon into the wall. Has nice night light when the room ambient light goes down. And now I can play my Nintendo Switch. Switch in rooms I previously couldn't even before, maybe even the bathroom. For free overnight shipping, visit eero. dot com and select overnight as the shipping option, and enter " Untitled" at checkout.
-
 [00:01:17] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:17] Adam: I'm Adam.
@@ -1030,6 +1028,6 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:30:51] Will: good one.
 
-[00:30:52] Norm: Bye. I want to thank the other sponsor of this week's episode of Still Untitled, and that's Casper. The Casper is an obsessively engineered mattress at a shockingly fair price. Supportive memory foams create an award-winning sleep surface with just the right sink and just the right bounce. I sleep on my Casper and love it. You know who else loves bouncing on it? My dog Ripley, as well. She can't get enough of it. Try Casper for 100 nights, risk-free in your own home. If you don't love it, they'll pick it up and refund you everything. Casper understands the importance of truly sleeping on a mattress before you commit, especially considering you're going to spend a third of your life on it. Free shipping and returns in the U.S. and Canada. And for listeners of Still Untitled, you can get $ 50 toward any mattress purchase by going to www.casper.com/untitled and using the offer code Untitled. Terms and conditions apply. We'll see you next week.
+[00:30:52] Norm: Bye. We'll see you next week.
 
 [00:30:52] Unknown speaker: Thank you.

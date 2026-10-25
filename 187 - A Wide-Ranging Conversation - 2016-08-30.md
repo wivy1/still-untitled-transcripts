@@ -4,8 +4,6 @@
 **Duration:** 29m 52s  
 Episode URL: https://www.youtube.com/watch?v=nHAUfyQf7jU
 
-[00:00:00] Unknown speaker: Today's episode is brought to you by Blue Apron. For less than ten dollars a meal, Blue Apron delivers seasonal recipes along with pre-portioned ingredients to make delicious home cooked meals. Some meals available in September include spicy hoisin chicken stir fry with baby bok choy and sesame ginger cucumber salad, or summer udon noodle salad with cherry tomatoes. Check out this week's menu and get your first three meals free with free shipping by going to blueapron dot com slash untitled. That's blueapron dot com slash untitled. Blue Apron: A better way to cook. And now on with the show.
-
 [00:00:38] Will: Welcome to Still Untitled, the Adam Savage Project. I am Will.
 
 [00:00:41] Simone: I am Simone.

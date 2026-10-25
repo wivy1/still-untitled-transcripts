@@ -4,8 +4,6 @@
 **Duration:** 34m 19s  
 Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
-[00:00:01] Norm: This week's episode of Still Untitled is sponsored by Piper. Get security without the fees, and better yet, without the security companies. Check out Piper. It's an all-in-one home security and home automation system packed with a camera, multiple environmental sensors, and even a blaring siren. Get notified when motion or sound is detected, and see exactly what's going on directly from your mobile device with encrypted live or recorded HD videos. It's easy to use, and there's no wiring required. Starting from $ 199, you have a security system that you can customize to focus on exactly what matters to you. Go to getpiper.com/untitled. That's G-E-T-P-I-P-E-R dot com slash untitled, and you can collect $ 25 off any Piper or Piper bundle.
-
 [00:00:51] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:55] Adam: I'm Adam.
@@ -827,7 +825,5 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 [00:33:18] Norm: See you.
 
 [00:33:19] Adam: Bye.
-
-[00:33:28] Will: Today's episode of Still Untitled is brought to you by Piper, an all-in-one home security and home automation system without the fees, and better yet, without the security companies. Packed with a camera, multiple environmental sensors, and even a blaring siren, see exactly what's going on directly from your mobile device with encrypted live or recorded HD videos. There's no wiring required. It's easy to use, and you're completely in control. Starting at $ 199, you'll have a security system that you can customize to focus on exactly what matters to you. Go to getpiper.com/untitled. That's g-e-t-p-i-p-e-r.com/untitled, and collect $ 25 off any Piper or Piper bundle.
 
 [00:34:00] Unknown speaker: [unclear: The—]

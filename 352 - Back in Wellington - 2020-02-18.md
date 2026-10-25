@@ -4,7 +4,7 @@
 **Duration:** 42m 4s  
 Episode URL: https://www.youtube.com/watch?v=iGx4hqg9mqk
 
-[00:00:00] Norm: This week's episode of Still Untitled is made possible with support from Microsoft Surface. Introducing the new Microsoft Surface Laptop 3. With its beautiful touchscreen, you'll experience stunning graphics with razor sharp resolution. Now available with a 13 and a half or 15 inch screen, and with the latest processors, there's no project the Surface Laptop can't handle. It's both light and powerful, so you can get more done on the go. Visit surface dot com slash laptop three to learn more. That's surface dot com slash laptop three. Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
+[00:00:00] Norm: Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
 
 [00:00:36] Adam: I'm Adam.
 
@@ -197,8 +197,6 @@ Episode URL: https://www.youtube.com/watch?v=iGx4hqg9mqk
 [00:18:25] Johnny Fraser-Allen: But Richard also was such a helpful benefactor of my work that he he owns nearly all of it.
 
 [00:18:34] Richard Taylor: Well, can I just explain for a moment? One of the reasons that I purchased that first exhibition is that Johnny had it up for sale, and had I not, the artwork would have dissipated to the four corners. And for a young artist, one of the most critical things is to have a collection that you can hang as a gallery of art. Yeah. And I saw so fundamentally in Johnny's early work that he would go on to do wonderful and great things. And if his collection wasn't held and held closely, where he could access it, or we could exhibit it, and we've held some beautiful exhibitions, even taking as far a field as Korea and exhibiting it there twice, so that people get to see all of his art, and that's really what motivated it. Rather than also, I just love Johnny's art. So even my my father now has a very beautiful, almost shrine-like section of his house dedicated to Johnny's art, which is really nice.
-
-[00:19:42] Norm: Before we continue on with the show, I want to let you know that support for Still Untitled comes this week from Microsoft Surface, introducing the new Microsoft Surface Laptop 3. With its beautiful touchscreen, you'll experience stunning graphics with razor-sharp resolution. Now available with a 13 and a half or 15 inch screen. And with the latest processors, there's no project the Surface Laptop can't handle. It's both light and powerful, so you can get more done on the go. Visit surface dot com slash laptop three to learn more. That's surface dot com slash laptop three. Now back to the show.
 
 [00:20:19] Adam: And it is a virtuous cycle, right? Like Jamie knew, I didn't know that he knew this, but Jamie knew that letting me come in on weekends and have access to the shop to to try stuff out made me more valuable to him. It was a direct exchange.
 

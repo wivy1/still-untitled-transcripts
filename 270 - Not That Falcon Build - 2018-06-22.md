@@ -4,8 +4,6 @@
 **Duration:** 44m 24s  
 Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by Udemy, the largest marketplace for online learning. Whether you're looking to learn something new or just sharpen your skills, Udemy has over sixty-five thousand courses, starting at just eleven ninety-nine. Students around the world choose Udemy to discover new passions, expand their skills, and even change careers. Visit u d e dot m y slash Untitled, or download the Udemy app to learn anytime, anywhere. On with the show.
-
 [00:00:29] Adam: Let's start.
 
 [00:00:30] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
@@ -676,8 +674,6 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:27:04] Will: It was exceptional. It was really, really well. Like those those costumes when they're done well are so cool.
 
-[00:27:09] Norm: Hey everyone! Before we continue with this week's episode, I also want to thank the other sponsor of this week's episode, and that is Mack Weldon. With smart design, premium fabrics, and simple shopping, Mack Weldon will be the most comfortable underwear, socks, shirts, undershirts, hoodies, and sweatpants, and more that you'll ever wear. Not only do Mack Weldon's underwear, socks, and shirts look good, they perform well too. Perfect for working out, going to work, going on dates, just everyday life. They even have a line of silver underwear and shirts that are naturally antimicrobial, which means they eliminate odor. And if you don't like your first pair, you can just keep it. They'll still refund you with no questions asked. We used Mack Weldon to get some undershirts, to get some socks, things I never considered buying, nice things, of nice dress socks to go to events, and it was super easy to buy it on the website. And they also have other things, accessories like bags, hats, and wallets as well. It's worth checking out. For 20% off your first order, go to macweldon.com and use the promo code Untitled. At checkout, again, that's macweldon dot com, and enter the promo code Untitled Checkout for twenty percent off your first order. Now back to the show.
-
 [00:28:21] Adam: And speaking totally about something completely tangential, last year at San Diego Comic Con, we covered Richard Browning and his incredible rocket suit with the rockets on his arms. You see the video that went around this week of him doing a test run over a lake.
 
 [00:28:21] Norm: No, wow.
@@ -1218,4 +1214,4 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:43:37] Will: Bye, everybody.
 
-[00:43:39] Norm: And before we let you go, I want to thank the final sponsor of this week's show, and that's Stitcher Premium. If you haven't joined Stitcher Premium yet, now is the perfect time. Stitcher Premium gets you completely ad free episodes of hundreds of shows like Comedy Bang Bang and WTF with Marc Maron. You also get twenty one thousand hours of exclusive content, new exclusive originals from Paul F. Tompkins, Threedom launching every week for Stitcher Premium members. If you love podcasts, you got to check it out, or you'll be missing out. When you listen to ad free episodes in Stitcher Premium, your favorite podcasters also get paid. Help support your favorite shows and join Stitcher Premium. Today, for a free month of listening, go to stitcherpremium.com and use the promo code Untitled. We'll see you next week.
+[00:43:39] Norm: We'll see you next week.

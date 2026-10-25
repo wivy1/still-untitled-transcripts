@@ -4,8 +4,6 @@
 **Duration:** 51m 49s  
 Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
-[00:00:00] Norm: This week's episode of Still Untitled is made possible by Triplebyte because applying to programming jobs sucks. From endless applications to countless hours of technical screens, with Triplebyte, there's a better way. You do one online interview, and then you go straight to the final interviews at hundreds of companies, from tech giants like Dropbox to exciting startups. It's like the common app for software engineers. No resume required. Now apply now at triplebyte.com/untitled, and if you take a job through Triplebyte, they'll offer you a one thousand dollar signing bonus. Triplebyte, b y t e dot com/untitled. Now on with the show.
-
 [00:00:41] Ben: Welcome.
 
 [00:00:42] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
@@ -908,8 +906,6 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:29:38] Will: You like you like the the slash order, not the not the not the cuts order. Wow, bold.
 
-[00:29:45] Norm: Before we continue with the conversation, I want to let you know that this episode of Still Untitled is also made possible by LinkedIn. The right hire can make a huge impact on your business. That's why it's so important to find the right person. Working with the right people here at Tested is what makes this job so awesome. Where do you find that individual? You could post a job on a job board and hope the right person will find your job. But why leave it up to chance? Instead of posting on job boards, post your job to a place where people go to every day to make connections, grow in their careers, and discover job opportunities. That's LinkedIn. Most LinkedIn members haven't recently visited the top job boards, but nine out of ten members are open to new opportunities. With seventy percent of the U.S. workforce on LinkedIn, it's the best way to get your job opportunity in front of more people and more of the right people—people who are qualified for your role and ready for something new. It's the best way to find the person who will help you grow your business, and that's why a new hire is made every ten seconds using LinkedIn. Hurry to LinkedIn.com/untitled and get fifty dollars off your first job post. That's LinkedIn dot com slash Untitled to get fifty dollars off your first job post. LinkedIn dot com slash Untitled. Terms and conditions apply. Now back to the conversation.
-
 [00:31:04] Will: But yeah, back to the Spider Verse, I guess.
 
 [00:31:09] Adam: Back to the Spider Verse, I guess.
@@ -1470,4 +1466,4 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:51:02] Ben: See you in hell.
 
-[00:51:04] Norm: Thanks for listening this week. And once again, this episode was made possible by TripleByte. Applying to programming jobs, you know, sucks from endless applications to countless hours of technical screens. With TripleByte, there's a better way. You do just one online interview, then you get to go to straight to final interviews at hundreds of companies from tech giants like Dropbox to exciting startups. It's like the common app for software engineers. No resume needed. Apply now at triplebyte.com/untitled. And if you take a job through TripleByte, they'll offer you a one thousand dollar signing bonus. TripleByte, triple b y t e. dot com slash untitled. We'll see you next week.
+[00:51:04] Norm: Thanks for listening this week. We'll see you next week.

@@ -4,7 +4,7 @@
 **Duration:** 32m 4s  
 Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
-[00:00:00] Norm: Today's episode of Still Untitled is brought to you by VideoBlocks. They offer great value with an unlimited download model. Choose from a library of over 115,000 HD video clips, after effects templates, motion backgrounds, and cinemagraphs. On average, subscribers pay less than a dollar per download over the course of a year, and they have a great variety of time lapses, aerials, U.S. international locations, slow motion, nature shots, and more. Everything is 100% royalty free, even if a subscription is canceled. VideoBlocks is also offering listeners of this podcast a year’s subscription for only $ 99. This is $ 50 off the usual price tag for our listeners only. Less than $ 10 a month. Get your subscription today for only $ 99 at VideoBlocks.com/StillUntitled. That's VideoBlocks, V-I-D-E-O-B-L-O-C-K-S.com/StillUntitled for this exclusive offer. Now on with the show. Welcome to Still Untitled the Adam Savage Project. I'm Norm.
+[00:00:00] Norm: Welcome to Still Untitled the Adam Savage Project. I'm Norm.
 
 [00:01:10] Adam: I'm Adam,
 
@@ -668,6 +668,6 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:30:58] Adam: All right. Bye, guys. Bye. Happy Halloween.
 
-[00:31:00] Norm: Happy Halloween. I also want to thank the other sponsor of this week's podcast, and that's Casper Mattresses. Casper is an obsessively engineered mattress at a shockingly fair price, combining springy latex and supportive memory foams to create an award-winning sleep surface with just the right amount of sink and just the right. Bounce, free shipping and returns to U.S. and Canada, and you can try Casper for 100 nights risk-free in your home. If you don't love it, they'll pick it up and refund you everything. And of course, all the mattresses are made in America. Now, for listeners of Still Untitled, you can get $ 50 toward any mattress purchase by visiting Casper.com/untitled and using the offer code Untitled. Again, that's www.casper.com/untitled and using the offer code Untitled. Terms and conditions may apply. We'll see you next week.
+[00:31:00] Norm: Happy Halloween. We'll see you next week.
 
 [00:32:02] Unknown speaker: Bye.

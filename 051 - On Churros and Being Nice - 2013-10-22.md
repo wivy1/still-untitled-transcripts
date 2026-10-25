@@ -6,10 +6,6 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:00:00] Will: Eat the churros.
 
-[00:00:01] Unknown speaker: This episode of
-
-[00:00:04] Unknown speaker: Still Untitled, the Adam Savage Project, is brought to you by Squarespace, the all-in-one platform that makes it fast and easy to create your own professional website or online portfolio. For a free trial and ten percent off, go to squarespace.com and use offer code Untitled.
-
 [00:00:21] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:24] Adam: I am Adam,
@@ -785,8 +781,6 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 [00:32:01] Will: Um, we'll see you guys next time.
 
 [00:32:02] Adam: Bye, guys.
-
-[00:32:02] Unknown speaker: No credit card is required to start building your website today. When you sign up for Squarespace, use the offer code Untitled to get 10% off and support this show. Thanks to Squarespace for sponsoring Still Untitled. Squarespace: Everything you need to create an exceptional website.
 
 [00:32:17] Adam: I say the hell with those places. By the way, let me just explain what every real chef in San Francisco knows: is that the only excellent, truly over-the-top burrito in San Francisco.
 

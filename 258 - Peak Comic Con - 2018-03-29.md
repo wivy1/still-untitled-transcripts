@@ -4,8 +4,6 @@
 **Duration:** 21m 42s  
 Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by Acer. If you're looking for a laptop that delivers on both performance and price, check out the Acer Swift Five, which offers a powerful Intel Core processor, super slim design, and more. Go to Acer.com, click on Store, and enter the coupon code Untitled at checkout to receive 10% off plus free ground shipping on a Swift series laptop, including already discounted models. Offers valid through April 30th, 2018, and limited to one per qualified order. Windows Hello, the password is you. Windows 10. Now on with the show.
-
 [00:00:39] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:41] Adam: I'm Adam,
@@ -632,4 +630,4 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:21:17] Adam: Bye, everybody. Talk to you next week.
 
-[00:21:20] Norm: Thanks for listening to this week's episode, which was also brought to you by Google Cloud Platform. What can your data tell you with Google Cloud Platform? Use machine learning at scale to build better products. It predicts so your business can thrive. Learn more about Google's Cloud Platform at g co slash get cloud AI. We'll see you next week.
+[00:21:20] Norm: Thanks for listening to this week's episode. We'll see you next week.

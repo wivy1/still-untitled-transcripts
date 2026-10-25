@@ -944,4 +944,4 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:47:37] Norm: Bye.
 
-[00:47:37] Unknown sponsor voice: This week's episode of Still Untitled is brought to you by Casper Mattresses. Thanks to Casper for sponsoring us today. The Casper is an obsessively engineered mattress at a shockingly fair price. Supportive memory foams create an award-winning sleep surface with just the right amount of sink and just the right bounce. Try Casper for 100 nights risk-free in your own home. If you don't love it, they'll pick it up and refund you everything. Casper understands importance of sleeping on a mattress before you commit, especially when considering that you're going to spend a third of your life on it. And there's free shipping and returns in the U.S. and Canada. Now, listeners of Still Untitled can get $ 50 toward any mattress purchase by visiting www.casper.com/untitled and using the offer code Untitled. Terms and conditions may apply. We'll see you next week.
+[00:47:37] Unknown sponsor voice: We'll see you next week.

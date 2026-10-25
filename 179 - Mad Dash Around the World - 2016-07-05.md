@@ -4,8 +4,6 @@
 **Duration:** 30m 5s  
 Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
-[00:00:00] Norm: Hey everybody, Norm here. Before we start this episode of Still Untitled, I want to thank the sponsor of this week's episode. That's TunnelBear. What's TunnelBear? Well, it's a VPN service that protects your privacy. Does it give you the creeps when your internet provider tracks your web browsing? If today's lack of online privacy brings out your inner grizzly bear, try out TunnelBear. TunnelBear is a simple VPN app that makes it easy to browse privately and enjoy a more open internet, all on your desktop or mobile devices, any of them. And it has a top-rated privacy policy and does not log any of your activity. You can try it with no credit card required. Just go to tunnelbear. dot com slash untitled. That's the name of this podcast, which will start now.
-
 [00:00:51] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:54] Adam: I'm Adam,
@@ -656,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:28:58] Will: See you guys next week. Thanks for watching.
 
-[00:29:01] Norm: Thanks for listening to this episode. I also want to thank the other sponsor of this week's episode of Still Untitled. That's Casper Mattresses. You know them, of course. They are an obsessively engineered mattress at a shockingly fair price, combining springy latex and supportive memory foams to create award-winning sleep surface with just the right amount of sink and just the right amount of bounce. Time magazine named it one of the best inventions in 2015. In fact, it's now the most awarded mattress of the decade. There's free shipping and returns in U.S. and Canada, and you can try Casper Mattresses for a hundred nights. It's like over three months, risk-free in your own home. If you don't love it, they'll pick it up and refund you. Everything, of course, the mattresses are also made in America. And for listeners of this podcast, you can get fifty dollars toward any mattress purchase. Just go to Casper dot com slash Untitled and the offer code Untitled. But you knew that, of course. And we'll see you next week.
+[00:29:01] Norm: Thanks for listening to this episode. And we'll see you next week.
 
 [00:30:00] Unknown speaker: Okay.
 

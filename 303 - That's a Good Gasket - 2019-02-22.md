@@ -478,8 +478,6 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:21:14] Will: Yeah.
 
-[00:21:15] Unknown speaker, possibly Norm: Before we continue with this week's episode, I want to let you know that Still Untitled this week is also made possible by LinkedIn. The right hire can make a huge impact on your business. That's why it's so important to find the right person for the gig. We work with some great people here at Tested, and it's those people that make working here. So much fun, but where do you find that individual? You could post a job on a job board and hope that person will find your job, but why leave it up to chance? Instead of posting on job boards, post your job on a place where people go every day to make connections, grow in their career, and discover job opportunities. That's LinkedIn. Most LinkedIn members haven't recently visited the top job boards, but nine out of ten members are open to new opportunities. And with seventy percent of the U.S. workforce on LinkedIn, it's the best way to get your job opportunity in front of more of those right people—people who are qualified for your role and ready for something new. It's the best way to find that person who will help grow your business. And why a new hire is made every ten seconds on LinkedIn. Hurry up to LinkedIn.com/untitled and get fifty dollars off your first job post. Again, that's LinkedIn.com/untitled to get fifty dollars off your first job post. LinkedIn.com/untitled. Terms and conditions apply. Now back to the show.
-
 [00:22:38] Kishore: The Groundhog Day thing we did—we screened that last month for my my science series at the Alamo Drafthouse,
 
 [00:22:43] Adam: Oh, wow.

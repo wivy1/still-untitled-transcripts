@@ -4,8 +4,6 @@
 **Duration:** 36m 23s  
 Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
-[00:00:00] Norm: This week's episode of Still Untitled is made possible by Wyze Cam. Wyze is on a mission to make amazing smart home products accessible to everyone. The Wyze indoor camera is packed with premium features that allow you to see everything from anywhere for only twenty dollars. Whether you're checking to see if your kids are home safe or if your three D printer is finished printing, nothing is off limits for Wyze Cam. Go to wyze dot com slash untitled. That's w y z e dot com slash untitled to be guaranteed the lowest price available. Now on with the show.
-
 [00:00:34] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:37] Adam: I'm Adam.
@@ -636,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:25:48] Adam then Norm then Will: Oh, that was it. Wait, I’m I’m the person. Don’t offend the talent. Don’t offend the talent, Norman.
 
-[00:25:57] Norm: It's like the I'm looking around. Before we continue with this week's episode, I want to let you know that Still Untitled is also made possible by Shapr. Take networking from awkward to awesome with Shapr, the number one professional networking platform that uses your experience, interests, and goals to help you make the right connections. Whether you're looking for investors, a co-founder, a new job opportunity, or just inspiring conversations, Shapr can connect you to professionals who truly want to share tips and help. Each day, it suggests 15 people with similar goals and interests for you to meet. Then all you have to do is take a few minutes to swipe through your daily profiles, set up coffees with the people who stand out. If you're a professional, the Shapr app should be installed on your phone, and you'll meet awesome people in no time. So download the app today, or check out Shapr online at shapr.co. That's Shapr, S-H-A-P-R. dot co. To learn more about Shapr, download the app and improve the way you network. Now back to the conversation.
+[00:25:57] Norm: It's like the I'm looking around.
 
 [00:26:59] Adam: My mom just got back from Israel.
 
@@ -908,4 +906,4 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:35:40] Will: No, do it again. Do it again. I talked over you.
 
-[00:35:40] Norm: Thanks for listening this week, and I want to remind you that Still Untitled is made possible in part by the fine folks at Wyze Cam. Wyze is on a mission to make amazing smart home products accessible to everyone. Their Wyze indoor camera is packed with premium features, allowing you to see every everything from anywhere for only twenty dollars. Whether you're checking to see if your kids are home safe or if your 3D printer has finished printing, nothing is off limits for Wyze Cam. Go to wyze dot com slash untitled. That's w y z e dot com slash untitled to be guaranteed the lowest price available, and thank them for sponsoring this week's episode. We will see you next week.
+[00:35:40] Norm: Thanks for listening this week. We will see you next week.

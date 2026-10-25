@@ -4,8 +4,6 @@
 **Duration:** 37m 6s  
 Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
-[00:00:01] Norm: This week's episode of Still Untitled is brought to you by VMware's new podcast. IT is greater than sci-fi. Have you ever been watching a movie and gone, " Well, why didn't they just fix the problem like that?" Of course, then there probably wouldn't be a movie. But tech pioneer VMware said, " Screw it! They're going to turn this idea into a podcast." So they dropped a couple of IT guys in the classic sci-fi movies like Star Wars, Matrix, The Terminator to plug the technology plot holes. Clever and funny. It's called IT is greater than sci-fi, and you can listen at vmware.com/radius/sci-fi or download from iTunes. Now on with the show.
-
 [00:00:45] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:47] Adam: I'm Adam,
@@ -894,4 +892,4 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:36:24] Will: We'll see you next week.
 
-[00:36:26] Norm: Once again, we want to thank the sponsor of this week's episode of Still Untitled, and that is VMware's new podcast, " IT is Greater Than Sci-Fi." Tech pioneer VMware dropped a couple of IT guys into classic sci-fi movies like Star Wars, The Matrix, and Terminator to plug the technology plot holes. It's clever and funny. The podcast is called " IT is Greater Than Sci-Fi," and you can listen to it at vmware dot com slash radius slash sci-fi or download it from iTunes. See you next week.
+[00:36:26] Norm: See you next week.

@@ -930,4 +930,4 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:41:19] Adam: Thanks, guys.
 
-[00:41:19] Norm: Bye. Thanks for listening this week, and I want to let you know that this episode of Still Untitled was made possible by you guys. Yes, that's right, you who listen to our podcast every week, watch our videos, and maybe even are part of the Tested Premium community. You make this possible. And another way to support us is also buying our merchandise. We have a new T-shirt. This one is the Tested logo as an exploded diagram, designed in collaboration with those nerdy design sketches. I love this T-shirt and can't wait to see it out in the wild. It's available right now for the next two weeks on Tested.com/shop. Once again, you can get the shirt and support us directly at Tested.com/shop. We'll see you next week.
+[00:41:19] Norm: Bye. Thanks for listening this week, and I want to let you know that this episode of Still Untitled was made possible by you guys. Yes, that's right, you who listen to our podcast every week, watch our videos, and maybe even are part of the Tested Premium community. You make this possible. We'll see you next week.

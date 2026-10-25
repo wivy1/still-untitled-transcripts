@@ -4,7 +4,7 @@
 **Duration:** 33m 17s  
 Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
-[00:00:00] Norm: This episode of Still Untitled is brought to you by Rackspace. Did you know Rackspace can help guide your migration to Amazon Web Services? Rackspace support for AWS offers tooling and automation for account management, security, and best practices. Learn more at rackspace.com/yourcloud. And now on with the show. Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
+[00:00:00] Norm: Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
 
 [00:00:31] Adam: I'm Adam.
 
@@ -476,4 +476,4 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:32:43] Adam: Bye, guys.
 
-[00:32:47] Norm: Once again, this episode of Still Untitled was brought to you by Rackspace. Rackspace support for Amazon Web Services offers tooling and automation for account management, security, and best practices. Control your costs and relax knowing Rackspace will monitor your AWS twenty four seven. Learn more at rackspace dot com slash your cloud. See you next week.
+[00:32:47] Norm: See you next week.

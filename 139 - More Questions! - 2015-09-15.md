@@ -4,7 +4,7 @@
 **Duration:** 37m 29s  
 Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
-[00:00:03] Will: Do you need a website? Why not do it yourself with Wix. dot com? No matter what business you are in, you can get your site live today with hundreds of templates and easy drag and drop features. It's simple to customize, and there is no coding needed. You don't need to be a programmer or designer to create something beautiful. Go to wix. dot com and create your own stunning website. It's easy and free. Welcome to Still Untitled: The Adam Savage Project. I am Will.
+[00:00:03] Will: Welcome to Still Untitled: The Adam Savage Project. I am Will.
 
 [00:00:31] Adam: I am Adam.
 
@@ -837,5 +837,3 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 [00:36:53] Will: Bye,
 
 [00:36:53] Adam: bye.
-
-[00:36:59] Will: Today's episode is brought to you by Wix.com. Used by 60 million people throughout the world, Wix.com empowers business owners to create their own professional websites with the drag and drop builder and hundreds of designer-made templates to choose from. You can get your website live today. It's easy and free. Go to wix.com and create your stunning website today.

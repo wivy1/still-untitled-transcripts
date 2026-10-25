@@ -4,8 +4,6 @@
 **Duration:** 37m 11s  
 Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
-[00:00:00] Norm: Still Untitled, the Adam Savage Project is brought to you this week by TripleByte. Applying to programming jobs sucks—from endless applications to countless hours of technical screens. With TripleByte, there's a better way. You do one online interview, then you get to go straight to final interviews at hundreds of companies, from tech giants like Dropbox to exciting startups. It's like the common app for software engineers. There's no resume needed. Apply now at triplebyte.com/untitled. And if you take a job through TripleByte, they'll offer you a $ 1,000 signing bonus. That's triplebyte, B-Y-T-E, dot com slash untitled. Now on with the show.
-
 [00:00:39] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:42] Adam: I'm Adam.
@@ -342,8 +340,6 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:20:34] Greg: No, when you're in the thick of it, like the reality is darker than fiction.
 
-[00:20:39] Norm: Before we continue with the conversation, I want to let you know that this week's episode of Still Untitled was also made possible by Ahrefs, a digital subscription-based software for search engine optimization. If you want to grow traffic to your website, outrank your competitors on Google, and get tons of inbound leads. Ahrefs is the tool you need. Ahrefs is an all-in-one SEO toolset. It does absolutely everything from content research and keyword analysis to technical site audits, rank tracking, and backlinks analysis. Essentially, it gives you all the insights you need to research and monitor your niche, then rank your website on the top search engines. Ahrefs also just launched the beta for its new Keywords Explorer, rebuilding the whole tool with new technology and adding nine additional sources of data. You can now do keywords research for YouTube, Amazon, Bing, and Yahoo. If you're the type of person that's into data, into analytics, and wants to know and wants to micromanage and min-max your traffic, you should check out Ahrefs. Now, Ahrefs has a seven-day trial for only seven dollars. Sign up today at ahrefs.com. That's spelled a h r e f s dot com. A h r e f s dot com. Now back to the conversation.
-
 [00:21:51] Adam: Somebody said all all product all productivity software is competing with Excel, and all notification software is competing with emailing yourself.
 
 [00:22:05] Will: People text themselves now.
@@ -602,4 +598,4 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:36:13] Adam: Thanks, everybody.
 
-[00:36:31] Norm: Thanks for listening this week, and I want to let you know that " Still Untitled" was made possible this week by Ahrefs, a digital subscription-based software for search engine optimization. This all-in-one SEO toolset does absolutely everything from content research and keyword analysis to technical site audits, rank tracking, and backlinks analysis. Ahrefs gives you all the insights you need to research and monitor your niche, then rank your website on the top of search engines. Ahrefs has a seven-day trial for only seven dollars. Sign up today at ahrefs.com. That's spelled a h r e f s.com. We'll see you next week.
+[00:36:31] Norm: Thanks for listening this week. We'll see you next week.

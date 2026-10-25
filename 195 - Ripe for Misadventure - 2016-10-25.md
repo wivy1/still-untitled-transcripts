@@ -4,8 +4,6 @@
 **Duration:** 35m 52s  
 Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
-[00:00:00] Norm: Today's episode of Still Untitled is brought to you by VideoBlocks. They offer great value with an unlimited download model. Choose from a library of over 115,000 HD video clips, after effects templates, motion backgrounds, and cinemagraphs. On average, subscribers pay less than a dollar per download over the course of a year, and they have a great variety of time lapses, aerials, U.S. international locations, slow motion, nature shots, and more. Everything is 100% royalty free, even if a subscription is canceled. VideoBlocks is also offering listeners of this podcast a year subscription for only $ 99. This is $ 50 off the usual price tag for our listeners only. Less than $ 10 a month. Get your subscription today for only $ 99 at VideoBlocks.com/StillUntitled. That's VideoBlocks, V-I-D-E-O-B-L-O-C-K-S.com/StillUntitled for this exclusive offer. Now on with the show.
-
 [00:01:07] Will: Welcome to Still Untitled: The Adam Savage Project. I'm Will.
 
 [00:01:10] Adam: I'm Adam, and

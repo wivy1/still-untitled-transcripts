@@ -4,35 +4,7 @@
 **Duration:** 30m 3s  
 Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
-[00:00:00] Will: Norman Chan.
-
-[00:00:01] Norm: Hey, Will,
-
-[00:00:01] Will: do you know why I grew a beard?
-
-[00:00:02] Norm: Um, because it makes you look manlier.
-
-[00:00:06] Will: No, it's because I was tired of being treated like a dirty criminal when I went to buy razor blades.
-
-[00:00:10] Norm: What do you mean?
-
-[00:00:11] Will: Well, when you go to the right drugstore, you walk back to the back, and the razor blades are all in the special locked space, and you have to go find somebody, and then they have to bring a key, and they look at you like, " Are you going to pocket these as soon as you I take them out for you?"
-
-[00:00:11] Norm: Wow.
-
-[00:00:11] Will: I hated that, so I just grew a beard.
-
-[00:00:23] Norm: That's why I order everything online.
-
-[00:00:25] Will: Well, you don't have to feel like a criminal, and you can order your shaving supplies online if you go to harrys.com and use offer code Untitled to get five dollars off. Harry's is a subscription service. One of the founders actually founded Warby Parker, makes eyeglasses. We like them too, and they they send you razors and blades and shaving supplies through the mail. It's really hassle free. It's much cheaper than buying the brand name stuff at you know grocery at grocery stores, drugstores, all that. And I used it this morning to trim up under the beard and up on the neck, and you know, do a little manscaping.
-
-[00:00:54] Norm: You get a starter kit.
-
-[00:00:55] Will: You get a starter kit. You get five dollars off of any order if you go to harrys.com and use offer code Untitled.
-
-[00:01:02] Norm: And that's Harry's H-A-R-R-Y-S.
-
-[00:01:04] Will: Yes. Thanks to Harrys for supporting Still Untitled, and I guess now it's time to start the show. Welcome to Still Untitled, the Adam Savage Project. I'm Will.
+[00:01:04] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:15] Adam: I'm Adam, and
 

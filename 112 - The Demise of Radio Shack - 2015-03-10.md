@@ -4,23 +4,7 @@
 **Duration:** 24m 51s  
 Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
-[00:00:05] Will: Norman Chan,
-
-[00:00:06] Norm: hey Will.
-
-[00:00:06] Will: How much do you think glasses should cost?
-
-[00:00:08] Norm: I don't think they should cost a lot. A lot of people watching this show and our other videos have mentioned that we, many of us, wear these similar glasses. And as it turns out, both you and I got our glasses from the same place.
-
-[00:00:21] Will: I didn't know that, but now I do.
-
-[00:00:24] Norm: We both got our glasses from a company called Warby Parker, and their glasses cost ninety-five dollars, free to ship.
-
-[00:00:32] Will: And it's on. So it's online glasses. It's a new thing. So you don't have to go to the store. You don't have to try on a million frames there. They'll send five pairs of glasses home to your house for free if you go to warbyparker.com/untitled, and you can try them, keep them for five days, try them on, see what they look like in the mirror in the comfort of your own home, and then you send all of those frames back, and they'll they'll fill them with your prescription as you want for ninety-five dollars a pair. Or if you want to try the new titanium line. That are titanium frames with French screws. It's one hundred and forty five bucks.
-
-[00:00:59] Norm: Yeah, and use our use our link Warby Parker dot com slash Untitled for the free three day shipping. The five pairs of sample glasses. I think it's really nice. Even if you only want to try, you know, two or three of them, they'll send you all five. So they'll throw some in, and I think it's much better than the virtual glass try on things that some places have.
-
-[00:01:18] Will: I have to say, they do this IPD thing where they measure your pupillary distance, and it's much better than everything I've ever used in a normal optician's office. So that's it. It's Warby Parker dot com slash Untitled. I am a fan. We actually use this product, and you can get a free three day shipping both ways and a five day home try on of five pairs of glasses. You can pick three that you think you are going to like, and then get two crazy ones, and who knows, you might like the crazy ones better than the ones that you think you'll like. So now on with the show. Thanks for supporting Still Untitled, Warby Parker. Welcome to Still Untitled, the Adam Savage Project. I am Will.
+[00:01:18] Will: Welcome to Still Untitled, the Adam Savage Project. I am Will.
 
 [00:01:52] Adam: I am Adam,
 

@@ -4,7 +4,7 @@
 **Duration:** 41m 32s  
 Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by Udemy, the largest marketplace for online learning. Whether you're looking to learn something new or just sharpen your skills, Udemy has over sixty-five thousand courses starting at just eleven ninety-nine. Students around the world choose Udemy to discover new passions, expand their skills, and even change careers. Visit ude.my/untitled or download the Udemy app to learn anytime, anywhere. Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
+[00:00:00] Norm: Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
 
 [00:00:32] Adam: I'm Adam,
 
@@ -500,8 +500,6 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:23:36] Adam: I know that is the kind of narrative flourish he brings.
 
-[00:23:41] Norm: Hey, everyone! Before we move on with today's show, I want to thank the other sponsor of this week's episode, and that's Stitcher Premium. If you love music, you also might love comedy, and you may love Weird Al Yankovic. Weird Al, you know, was one of the first cassettes I ever bought, and he puts on an incredible show. He actually just wrapped up his ridiculously self-indulgent, ill-advised vanity tour, where for the first time he played his original songs, classics like " Dare to Be Stupid," " Buy Me a Condo," and more. There were seventy-five, seventy-seven performances on this tour, and every show is unique with a different set list, professionally mixed and mastered, and includes Al's impromptu stage banter. And with Stitcher Premium, not only you do you get Weird Al's ridiculously self-indulgent, ill-advised vanity tour, but you also get access to twenty-one thousand hours of original content. Exclusive bonus episodes of your favorite podcasts and ad-free archives, hundreds of stand-up comedy albums, and more. For a free month of Stitcher Premium, go to stitcherpremium.com/weirdal and use the promo code Untitled. All right, back to the conversation.
-
 [00:24:53] Adam: So where were we?
 
 [00:24:55] Norm: Uh.
@@ -728,4 +726,4 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:40:59] Norm: Bye.
 
-[00:41:02] Norm: Thanks again for listening. And once again, this episode of Still Untitled is brought to you by Udemy, the largest marketplace for online learning. Want to expand your potential with over sixty-five thousand courses starting at just eleven ninety-nine? Udemy can help you develop your skills and discover new passions. Students around the world have used Udemy to get ahead and even switch careers. Visit ude.my/untitled, or download the Udemy app to learn anytime, anywhere. We'll see you next time. Bye.
+[00:41:02] Norm: Thanks again for listening. We'll see you next time. Bye.

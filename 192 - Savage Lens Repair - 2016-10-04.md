@@ -4,8 +4,6 @@
 **Duration:** 33m 19s  
 Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
-[00:00:00] Norm: Today's episode of Still Untitled is brought to you by Blue Apron. For less than ten dollars a meal, Blue Apron delivers seasonal recipes along with pre-portioned ingredients to make delicious home-cooked meals. Some of the meals available this month include crispy chicken with warm Brussels sprouts, celery, and potato salad, or you can get roast pork steam buns with black garlic mayonnaise and spicy cabbage slaw, or seared salmon and fall vegetable hash with apple brown butter dressing. Check out the week's menu and get your first three meals free with free shipping by going to blueapron.com/untitled. You'll love how good it feels and tastes to create incredible home-cooked meals with Blue Apron. So don't wait. That's blueapron.com/untitled. Now on with the show.
-
 [00:00:53] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:56] Unknown: [unclear: Adam: “I’m Adam” / unnamed speaker: “I’m Adam”—Will: “I’m”—Adam: “Adam”].
@@ -912,4 +910,4 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:32:16] Adam: Bye guys.
 
-[00:32:16] Norm: Bye. I also want to thank the other sponsor of this week's podcast, and that's Casper Mattresses. Casper is an obsessively engineered mattress at a shockingly fair price, combining springy latex and supportive memory foams to create an award-winning sleep surface with just the right amount of sink and just the right bounce. Free shipping and returns to U.S. and Canada, and you can try Casper for one hundred nights risk-free in your home. If you don't love it, they'll pick it up and refund you everything. And of course, all the mattresses are made in America. Now, for listeners of Still Untitled, you can get fifty dollars toward any mattress purchase by visiting Casper dot com slash Untitled and using the offer code Untitled. Again, that's www dot Casper dot com slash Untitled and using the offer code Untitled. Terms and conditions may apply. We'll see you next week. Okay.
+[00:32:16] Norm: Bye. We'll see you next week. Okay.

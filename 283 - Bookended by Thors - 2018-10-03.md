@@ -588,10 +588,6 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:26:41] Adam: exactly.
 
-[00:26:41] Norm: Hey everyone, before we move on with the conversation,
-
-[00:26:41] Norm: I want to thank the sponsor that makes this week's episode of Still Untitled possible, and that's. Campaign Monitor. When it comes to email marketing, there's so much more that goes into creating smart and effective campaigns than what meets the eye. That's why Campaign Monitor created an easy-to-use email marketing platform, complete with simple drag-and-drop email editors and an award-winning 24/7 customer service. Campaign Monitor gives you everything you need to run beautifully designed, professional email marketing campaigns to grow your business. With their gallery of beautiful email templates, all of which look amazing on every device, you're bound to find something that will make your brand pop. And since Campaign Monitor uses detailed lists and smart segments, your messages instantly drive more engagement. No wonder it's used by more than 250,000 businesses worldwide. Now, Still Untitled listeners have the opportunity to try Campaign Monitor for themselves without spending a dime. Sign up for your free trial today at campaignmonitor.com/untitled. Again, that's campaignmonitor.com/untitled. Back to the conversation.
-
 [00:27:50] Will: Okay, Norm. You promised something last week.
 
 [00:27:50] Adam: I did promise something, and you alluded to it earlier.
@@ -1218,4 +1214,4 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:42:55] Will: Yeah. See you guys next week. Bye, Comic Con guys.
 
-[00:42:57] Norm: Bye. Thanks for listening this week, and once again, this episode was brought to you by Campaign Monitor. When it comes to email marketing, there's so much more that goes into creating smart and effective campaigns than what meets the eye. That's why Campaign Monitor created an easy to use email marketing platform, complete with mobile friendly templates, a simple drag and drop email editor, and award winning 24 seven customer service. It's used by over 250 thousand businesses worldwide. Still Untitled listeners have the opportunity to try Campaign Monitor for themselves without spending a dime. Sign up for your free trial today at campaignmonitor.com/untitled. Again, that's campaignmonitor.com/untitled. We'll see you next week.
+[00:42:57] Norm: Bye. Thanks for listening this week. We'll see you next week.

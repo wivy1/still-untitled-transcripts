@@ -4,7 +4,7 @@
 **Duration:** 34m 21s  
 Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by MindShow. MindShow is a free app for the HTC Vive virtual reality headset that lets you become a character in a three D cartoon. Characters move with your body movement and speak with your voice. Then you can turn your scene into a two D video and share it on social media. It's like making your own television show in virtual reality using a VR headset and motion controllers. You can choose from a ton of different characters, set up your scenes, and basically become a VR filmmaker. You got to check it out. Just go to mindshow dot com for videos for more information, or download the free MindShow app for HTC Vive on Steam and Viveport. And now on with the show. Welcome to Still Untitled, the Adam Savage Project. I am Norm.
+[00:00:00] Norm: Welcome to Still Untitled, the Adam Savage Project. I am Norm.
 
 [00:00:50] Adam: I am Adam,
 

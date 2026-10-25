@@ -4,8 +4,6 @@
 **Duration:** 46m 15s  
 Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by the Tested Premium Community. The support of Tested Premium members is what allows us to do what we do on a daily and weekly basis, producing shows like Still Untitled, One Day Builds, and our gear reviews. Member support also lets us experiment with new premium shows available on Tested.com. This month, Adam and I build a Blade Runner blaster. Frank teaches us how to paint model kits, and Simone tests some new robot designs. Check out all of our premium content and learn how to be a member at Tested.com/premium. Now on with the show.
-
 [00:00:44] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:46] Adam: I'm Adam.

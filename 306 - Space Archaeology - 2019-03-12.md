@@ -4,8 +4,6 @@
 **Duration:** 40m 1s  
 Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
-[00:00:00] Norm: This week's episode of Still Untitled is made possible by the fine folks at the Rochester Institute of Technology. Faculty and students there recently built a robot fish. Why? Because it could lead to a new wave of prosthetics, and now we're all hooked. At RIT, the creative team of engineers is onto something that could be life-changing. Learn more about that project at rit. Edu/untitled.
-
 [00:00:25] Will: Welcome to Still Untitled the Adam Savage Project.
 
 [00:00:25] Will: I’m Will.
@@ -157,8 +155,6 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 [00:16:34] Adam: on Halloween.
 
 [00:16:35] Sarah: No, I think I think if you if you say his name three times, you'll get sucked into the Stargate.
-
-[00:16:44] Norm: Hey everyone! Before we continue with this week's episode, I want to let you know that support for Still Untitled also comes this week from Wyze Cam, an indoor live streaming camera that allows you to see everything from anywhere for only twenty dollars. A core value of Wyze is providing. Quality tech at the lowest possible price. They're on a mission to democratize that tech and make amazing smart home products accessible to everyone. Whether you're checking on your kids or if your three D printer is finished printing, nothing is off limits for Wyze Cam, thanks to its low profile design and friendly price point. It has a 1080p Wi Fi camera and it's packed with premium features like motion and sound alerts, two way audio, and night vision, so you can see clearly after the sun goes down. And with Wyze Cam, you get full HD continuous video recording and 14 days of free rolling cloud storage. They don't compromise on quality or performance. Plus, there are zero subscription fees. It's easy to view playback of the Wyze Cam footage, and it works with Alexa. We have one set up in our nursery right now, so we can keep an eye on the baby overnight, in the middle of night, during the day when he's making noises, and even send whispers of love to him during the day during his naps. Go to wyze dot com slash Untitled to be guaranteed the lowest available price. That's w y z e. dot com slash Untitled for the lowest price point on the Wyze Cam. Now back to the show.
 
 [00:18:04] Adam: Oh, speaking of being sucked into a Stargate, I saw Captain Marvel yesterday.
 
@@ -610,4 +606,4 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:39:21] Unknown speaker (Will or Norm): Bye.
 
-[00:39:24] Norm: Thanks for listening this week, and once again, Still Untitled is made possible. By Wyze Cam. Wyze is on a mission to make amazing smart home products accessible to everyone. The Wyze Indoor Camera is packed with premium features that allow you to see anything from anywhere for only twenty dollars. Whether you're checking to see if your kids are home safe or if your three D printer has finished printing, nothing is off limits for your Wyze Cam setup. Go to wyze dot com slash untitled. That's w y z e. dot com slash untitled to be guaranteed the lowest available price. We'll see you next week.
+[00:39:24] Norm: Thanks for listening this week. We'll see you next week.

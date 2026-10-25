@@ -284,8 +284,6 @@ Episode URL: https://www.youtube.com/watch?v=Wf15R6uZloY
 
 [00:34:30] Mike Birbiglia: Okay, sounds good.
 
-[00:34:30] Adam: Hey guys, Adam here to let you know that today's podcast is brought to you by my friends at American Giant. And just to be clear, they're my friends because I fell in love with their product a few years ago and talked about it as one of my favorite things at the end of one of the years on Tested. And they reached out and sent our crew some more of their incredible clothing. They truly make the greatest hoodie you have ever put on. I literally live for weeks in that thing. Don't worry, I wash it. And right now, you can get 15% off your first order when you use promo code Adams at AmericanGiant.com. That's 15% off when you use code Adams A D A M S at AmericanGiant.com.
-
 [00:35:15] Mike Birbiglia: You missed when I said this is an outrage. I will not stand for this.
 
 [00:35:19] Adam: I literally got the plug in the computer, and the computer went boom, and I was like, " Yes!" and then it went boom, like Bugs Bunny, like Wile E. Coyote, who's my hero.

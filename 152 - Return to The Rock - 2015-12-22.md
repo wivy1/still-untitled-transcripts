@@ -4,8 +4,6 @@
 **Duration:** 31m 37s  
 Episode URL: https://www.youtube.com/watch?v=SqndNdkYKtg
 
-[00:00:00] Norm: Hey everybody! This week's episode of Still Untitled is brought to you by Automatic. Automatic is a tiny device that you plug into your car. I actually use one for my car, and it brings your car into the 21st century. Works with any car made after 1996, and installation takes literally seconds. Fits right into that onboard diagnostics port, and when you pair it with your phone, with either an iOS phone or an Android phone, it can keep tabs on your driving habits, your fuel expenses, find out what the check engine light means in plain English, automate your home using Nest or If Then Then That, and you connect Automatic to the apps you use every day, from everything from expense filling to fitness trackers and even crash detection. There's Automatic will detect a crash and even call for help for free, and a human will stay with you on the line until help arrives. So go to automatic.com and use the offer code Untitled when checking out. The normal price is a hundred. Bucks, but the holiday price is eighty dollars, and Still Untitled listeners can get it for seventy dollars sixty nine ninety nine. Buy it before Christmas and get free FedEx two day shipping, and there's a forty five day return policy. So it's pretty great. Check it out. It's automatic dot com, and use the offer code " Untitled" like this podcast. And now on with the show.
-
 [00:01:28] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:31] Adam: I'm Adam,
@@ -440,4 +438,4 @@ Episode URL: https://www.youtube.com/watch?v=SqndNdkYKtg
 
 [00:30:43] Will: Thank you so much, Dave. Yes.
 
-[00:30:47] Norm: And I want to thank this week's sponsor of Still Untitled, which is Automatic. It's a device that you plug into your car, and you can get really awesome data from your car, moving your car into the twenty-first century. Automatic is a small device plugs into the onboard diagnostics port, and then pairs with your iOS or Android phone, and then you can get driving habits. You can track your fuel usage. It can help tie to other apps to plug into your expense filing or your fitness trackers. You can connect it to Nest. Super easy to use, really powerful, and it's available right now for sixty nine ninety nine for Still Untitled listeners. If you use the offer code Untitled, order today, and you get free FedEx two day shipping before Christmas. Thank you, Automatic, for supporting the podcast, and thank you guys for listening. And we'll see you next week.
+[00:30:47] Norm: and thank you guys for listening. And we'll see you next week.

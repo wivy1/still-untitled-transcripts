@@ -4,8 +4,6 @@
 **Duration:** 33m 46s  
 Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
-[00:00:00] Norm: Today's episode of Still Untitled is sponsored by Autodesk Graphic. Graphic is a full-featured app for making icons, illustrations, UI and UX, or anything else you need out of a professional vector design app. Open, edit, and save raster or vector images, layered Photoshop or Illustrator files, CSS, SVG, PDF, and just about any other file format you can think of. You can open an AI file and export a clean CSS code or a web-ready SVG with just a few clicks. It's available on your Mac, iPhone, and iPad, so you can design without compromise on the go. It's the vector design app you've been waiting for for your iPad Pro and Apple Pencil. Visit graphic. dot com to learn more about Autodesk Graphic or find it in the App Store.
-
 [00:00:47] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:50] Adam: I'm Adam.
@@ -896,4 +894,4 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:33:09] Will: Bye guys.
 
-[00:33:11] Norm: Thanks again to Autodesk Graphic for sponsoring today's episode. Graphic is a full-featured app for making icons, illustrations, UI and UX, or anything else you'd need out of a professional vector design app. It's available for your Mac, phone, and iPad, so you can design without compromise on the go. It's the vector design app you've been waiting for for your iPad Pro and Apple Pencil. Visit Graphic.com to learn more about Autodesk Graphic, or just find it in the App Store. We'll see you next week.
+[00:33:11] Norm: We'll see you next week.

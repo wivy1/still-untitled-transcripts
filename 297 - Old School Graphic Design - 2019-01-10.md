@@ -4,8 +4,6 @@
 **Duration:** 37m 28s  
 Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
-[00:00:00] Norm: This week's episode of Still Untitled is made possible by Thinkful. Do you hate your job? Well, you can always quit and become a developer or data scientist with Thinkful instead. Thinkful is an online education platform that offers fast-paced learning to take you from a beginner to job-ready in six months or your tuition back. Start off the new year by pursuing your dream career in technology. Go to thinkful dot com slash untitled for a six hundred dollars scholarship. Again, that's thinkful dot com slash untitled. Terms and conditions apply.
-
 [00:00:32] Will: Welcome to Still Untitled, the Adam Savage Project. I am Will.
 
 [00:00:35] Adam: I am Adam,
@@ -438,8 +436,6 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:20:09] Will: Oh, that's fantastic.
 
-[00:20:11] Norm: Before we continue on with the conversation, I want to let you know that this week's episode of Still Untitled is also made possible by Triplebyte. Applying to programming jobs sucks. You have to put the right keywords in your resume, and you spend hours and hours on phone screens and take-home projects. And that's assuming the company even responds to your application. Well, if you're a software engineer, Triplebyte can help. They work with over 400 top tech companies, from big names like Dropbox and Adobe to exciting startups. You do one brief online interview with them, and if you do well, you get to go straight to final interviews with the companies on their platform. It's like the common app for software engineers. Triplebyte does not look at your resume or where you went to school. All they care about is if you can code. There are so many people I know who I went to school with who maybe don't have the best resumes, or maybe even didn't finish their degrees, and they have tough times getting past recruiter screens. And a service like this can definitely help. Apply now at Triplebyte dot com slash Untitled. That's Triplebyte b y t e byte as in eight bits dot com slash Untitled. And as a special offer for listeners of this show, if you take a job through Triplebyte, they'll offer you a one thousand dollar signing bonus. All right, back to the conversation.
-
 [00:21:30] Adam: I saw Vice this weekend. My mom was in town. Hi, mom. She's an avid podcast listener. Mom, she was in town this weekend, and we had a ton of fun. And we went and saw we saw two movies. Maybe we even saw three movies. We did. We went and saw the Spider Verse. No, we didn't see Spider Verse. I'm sorry. We went and saw Vice, which is so good. We came home and watched The Big Short, which is just a master. Yeah. If you haven't seen Big Short since it came out,
 
 [00:21:30] Will: I haven't.
@@ -852,4 +848,4 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:36:39] Will: Bye.
 
-[00:36:42] Norm: Thanks for listening this week. And once again, I want to let you know that this episode is made possible by TripleByte. Applying to programming jobs sucks from endless applications to countless hours of technical screens. With TripleByte, there's a better way. All you do is one online interview, and then you get to go straight to the final interviews. At hundreds of companies, from tech giants like Dropbox to exciting startups, it's like the common app for software engineers with no resume needed. Apply for your next job now at triplebyte.com/untitled. And if you take a job through Triplebyte, they'll offer you a $ 1,000 signing bonus. That's triplebyte.by.t.e.dot.com/untitled. We'll see you next week.
+[00:36:42] Norm: Thanks for listening this week. We'll see you next week.

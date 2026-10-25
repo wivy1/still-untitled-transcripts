@@ -4,8 +4,6 @@
 **Duration:** 35m 2s  
 Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
-[00:00:00] Norm: Still Untitled is supported by Citi Cards with Android Pay. Listening on your phone, now you can pay while you listen using the same device. Just tap and go. Download the Android Pay app on Google Play or visit citi.com/androidpay to get started. Android Pay is available for eligible Citi consumer credit and debit cards.
-
 [00:00:27] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:30] Adam: I'm Adam.
@@ -968,6 +966,6 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:33:52] Unknown speaker: Bye guys.
 
-[00:33:53] Norm: And thanks to Casper for sponsoring today's episode of Still Untitled. Casper is, of course, an obsessively engineered mattress at a shockingly fair price, combining springy latex and supportive memory foam to create an award-winning sleep surface with just the right amount of sink and just the right bounce. Time Magazine named it one of the best inventions of 2015. In fact, it's now the most awarded mattress of the decade. There are free shipping and returns to U.S. and Canada. You can try a Casper mattress for 100 nights, risk-free in your own home. And if you don't love it, they'll pick it up and refund you everything. The mattresses, of course, are also made in. America. Now, for listeners of Still Untitled, you can also get fifty dollars toward any mattress purchase by going to Casper.com/untitled and using the offer code. You guessed it, Untitled. Again, go to Casper.com/untitled and use the offer code Untitled. Terms and conditions may apply. And we'll see you next week.
+[00:33:53] Norm: And we'll see you next week.
 
 [00:33:53] Unknown speaker: Thanks for watching.

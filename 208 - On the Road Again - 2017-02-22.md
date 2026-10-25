@@ -4,8 +4,6 @@
 **Duration:** 40m 40s  
 Episode URL: No YouTube video (audio-only episode)
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by Backblaze. Get peace of mind knowing all your files are secured with Backblaze. What is Backblaze? It's an unlimited cloud backup for Macs and PCs. Backblaze backs up documents, music, photos, videos, drawings, projects, whatever you need, and you can access it from anywhere in the world. All for just five dollars a month. You can even get a free fifteen day trial. Just make sure you visit backblaze dot com slash still untitled so they know where you came from and continue supporting our show. Start protecting all your most important files today with Backblaze. Now on with the show.
-
 [00:00:41] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:44] Adam: I'm Adam.

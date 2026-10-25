@@ -4,8 +4,6 @@
 **Duration:** 47m 22s  
 Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
-[00:00:01] Norm: This week's episode of Still Untitled is made possible by Ahrefs. Ahrefs is a digital subscription-based software for search engine optimization. This all-in-one SEO toolset does absolutely everything from content research and keyword analysis to technical site audits, rank tracking, and backlinks analysis. Ahrefs gives you all the insights you need to research and monitor your niche, then rank your website on the top of search engines. Ahrefs has a seven-day trial for only seven dollars. Sign up today at ahrefs.com. That's spelled a h r e f s dot com. Now on with the show.
-
 [00:00:37] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:39] Norm: I'm Norm.
@@ -1028,8 +1026,6 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:27:40] Will: I mean, if the if the Death Star was orbiting the forest moon and it blows up, it's going to fall onto the forest moon.
 
-[00:27:47] Norm: Hey everyone! Before we continue this week, I want to let you know that Still Untitled is brought to you this week by TripleByte. Applying to programming jobs. Sucks. You have to put in the right keywords in your resume, and you spend hours and hours on phone screens and take-home projects. And that's assuming the company even responds your application. Well, if you're a software engineer, Triplebyte can help. They work with over 400 top tech companies, from big names like Dropbox and Adobe to exciting startups. You do one brief online interview with them, and if you do well, you get to go straight to final interviews with companies on their platform. It's like the common app for software engineers. Triplebyte does not look your resume or where you went to school. All they care about is whether you can code, because there are plenty of self-taught people who are great but lack credentials, and the resumes get past recruiter screens. It's happened to a bunch of people we know. It's all more about what you're capable of doing and not just the paperwork you have. Apply now at triplebyte.com/untitled. Again, that's triplebyte, b-y-t-e, byte as in eight bits. And as a special offer for listeners of the show, if you take a job through Triplebyte, they'll offer you a $ 1,000 signing bonus. So check it out: triplebyte.com/untitled. Now back to the conversation.
-
 [00:29:01] Norm: What I love about
 
 [00:29:02] Will: that's how gravity works,
@@ -1604,6 +1600,6 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:46:36] Jeremy: Bye.
 
-[00:46:40] Norm: Thanks for listening this week. And once again, Still Untitled was made possible this week by Ahrefs. Ahrefs is a digital subscription based software for search engine optimization. This all in one SEO toolset does absolutely everything from content research and keyword analysis to technical site audits, rank tracking, and backlink analysis. Ahrefs gives you all the insights you need to research and monitor your niche, then rank your website on the top of search engines. Ahrefs has a seven-day trial for only seven dollars. Sign up today at ahrefs.com. That's spelled a h r e f s dot com. Again, a h r e f s dot com. We'll see you next week.
+[00:46:40] Norm: Thanks for listening this week. We'll see you next week.
 
 [00:46:40] Unknown (speaker not established): Bye-bye.

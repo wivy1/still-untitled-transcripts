@@ -4,7 +4,7 @@
 **Duration:** 27m 21s  
 Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
-[00:00:00] Will: Are you an Apple product lover? Is Steve Jobs one of your heroes or someone you admire? Well, the director of * Slumdog Millionaire* and the writer of * The Social Network* bring you * Steve Jobs*, a film about the legend himself. Critics are calling it must-see, one-of-a-kind cinema that cannot be ignored. In select theaters, October ninth. Everywhere, October sixteenth. Don't miss this film. Welcome to * Still Untitled*, the Adam Savage Project. I'm Will.
+[00:00:00] Will: Welcome to * Still Untitled*, the Adam Savage Project. I'm Will.
 
 [00:00:27] Adam: I'm Adam,
 
@@ -647,5 +647,3 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 [00:26:54] Will: Yeah, we'll be back next week with another show. As always, if you like us, like us on iTunes. That's the best way that you can let more people know about Still Untitled, and we will see you next week.
 
 [00:27:02] Unknown speaker: Bye.
-
-[00:27:05] Will: Thanks again to Universal Pictures and its upcoming film, Steve Jobs, for sponsoring today's episode. The director of Slumdog Millionaire and the writer of The Social Network bring you Steve Jobs. Critics are calling it must-see, one-of-a-kind cinema that cannot be ignored. In select theaters, October nine. Everywhere, October sixteenth.

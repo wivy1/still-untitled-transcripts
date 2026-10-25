@@ -4,8 +4,6 @@
 **Duration:** 43m 53s  
 Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
-[00:00:00] Will: This week's episode of Still Untitled: The Adam Savage Project is brought to you by Wix.com. Do you need a website? Why not do it yourself with Wix.com? No matter what business you're in, you can get your site live today with hundreds of templates and easy drag and drop features. It's simple to customize, and there is no coding needed. You don't need to be a programmer or designer to create something beautiful. Go to wix.com and create your own stunning website today. It's easy and free.
-
 [00:00:31] Adam: So, given that we'll probably run this before this podcast, I want to point out that I want to address that YouTube post.
 
 [00:00:40] Will: Yes, yes, yes.
@@ -895,8 +893,6 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 [00:40:34] Will: bye,
 
 [00:40:34] Adam: bye, guys.
-
-[00:40:39] Will: Today's episode was brought to you by Wix.com. Used by 60 million people throughout the world, Wix.com empowers business owners to create their own professional websites with drag and drop builder and hundreds of designer-made templates to choose from. You can get your website live today. It's easy and free. Go to wix.com and create your own stunning website today.
 
 [00:41:01] Norm: You know when we were talking about Inside Out last time, I the thing that stuck with me is that movie is such a weird head trip about and it is about inside your head about determinism because those characters have zero agency.
 

@@ -4,8 +4,6 @@
 **Duration:** 37m 54s  
 Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
-[00:00:00] Norm: Hey everybody, Norm from Tested here. Before we jump into this week's episode of Still Untitled, I want to tell you about something I did this past weekend for the first time. I cooked my own dinner. Why? I've done that, but using a service called Blue Apron. Blue Apron is the sponsor of this week's episode of Still Untitled, and they sent me a trial meal in a refrigerator box so I could make my own dinner before watching Game of Thrones. Here's how it works: you sign up for meals. It's under ten dollars a meal. They send you a refrigerated package with all the ingredients pre-portioned and easy-to-follow recipes to make the meal. I had cod tacos, which were, quite frankly, delicious. And I decided not to put the onions in there because I don't like the onions. Now you can also get in on Blue Apron, and for listeners of this podcast, get two free meals plus free shipping by going to blueapron.com/untitled. Again, that's blueapron.com/untitled. You'll love how good it feels to cook your own meal, how good it tastes, and just the convenience of not having to buy all the recipes, all the ingredients individually, having it all pre-packaged and pre-portioned. Again, blueapron.com/untitled. Thank you for supporting this week's episode of Still Untitled. And now on with the show.
-
 [00:01:23] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:25] Adam: I'm Adam,

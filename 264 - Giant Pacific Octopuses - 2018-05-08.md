@@ -928,4 +928,4 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:33:48] Unknown speaker (Adam or Norm): Jinx.
 
-[00:33:48] Norm: This week's episode of Still Untitled is brought to you by Udemy, the largest marketplace for online learning. Want to expand your potential? With over sixty-five thousand courses starting at just eleven ninety-nine, Udemy can help you develop your skills and develop your new passions. Students around the world have used Udemy to get ahead and even switch careers. Visit ude. Dot my slash Untitled, or download the Udemy app to learn anytime, anywhere. We'll see you next week.
+[00:33:48] Norm: We'll see you next week.

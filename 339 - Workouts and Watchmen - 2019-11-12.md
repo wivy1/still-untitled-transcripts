@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:20:49] Will: Well, it's like the Black Freighter, yeah, like it's an interspersed stories.
 
-[00:20:53] Norm: Yeah, but he's having a lot of fun. Before we continue on with this week's episode, I want to let you know that Still Untitled this week is made possible with support from Afternoon Cyber Tea for companies, governments, and even individuals. Managing the ever-evolving cyber threat landscape can be the difference between thriving and being thwarted. Afternoon Cyber Tea with Anne Johnson has insights for CISOs and key decision makers striving to succeed amid rapid change without compromising security. Each week, Anne Johnson, corporate vice president for cybersecurity solutions at Microsoft, talks with cybersecurity thought leaders and influential industry experts to explore perspectives on implementing new tech, next-generation security risks, current trends, and the future state of cybersecurity. Join Anne as she and her guests. Explore the risks and promise of tools and systems powered by AI, IoT, machine learning, and other emerging technologies, as well as the impact on how humans work, communicate, consume information, and live in this era of digital transformation. Because it's not enough to keep up with cyber criminals, you need to stay a step ahead. Afternoon Cyber Tea is available on Apple Podcasts and Podcast One. Listen in to lead the future of cybersecurity. Now back to the show.
+[00:20:53] Norm: Yeah, but he's having a lot of fun.
 
 [00:22:08] Adam: Okay, so speaking of Doctor Manhattan,
 

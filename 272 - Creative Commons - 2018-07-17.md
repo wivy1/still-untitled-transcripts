@@ -4,8 +4,6 @@
 **Duration:** 43m 9s  
 Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by the Supergroup on Stitcher Premium. On each episode of the Supergroup, hosts Tawny Newsome and Alex Kliner invite a comedian and musician to write and record an original song with them over the course of a week. You'll hear every step of the process, from writing and rewriting to recording and mixing. Songs with Ted Leo, Paul F. Tompkins, Janet Varney, and more. The podcast is funny and the songs are legit. Listen to the Supergroup only on Stitcher Premium. Go to stitcherpremium dot com and use the promo code Untitled for a free month of Stitcher Premium. And thank them for supporting us this week. And on with the show.
-
 [00:00:41] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:44] Adam: I'm Adam.

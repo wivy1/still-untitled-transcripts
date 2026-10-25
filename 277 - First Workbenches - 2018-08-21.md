@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:15:46] Kayte Sabicer: Totally.
 
-[00:15:47] Norm: Hey everybody! Before we continue on this week's episode, I want to thank the sponsor of Still Untitled this week, and that is NFL Podcast. Are you smarter or more devoted than the average NFL fan? Well, be sure to catch. The Move the Sticks podcast, hosted by former former NFL scouts Daniel Jeremiah and Bucky Brooks. Jeremiah and Brooks break down the most impressive performances of the week, explaining how individual players and teams are able to be successful based on their skill sets, techniques, and coaching decisions. The Move the Sticks podcast provides detailed analysis of the college and pro game from seasoned experts, from the NFL Combine straight through to Super Bowl. There's no off season on the Move the Sticks podcast with guests like NFL GMs, head coaches, and top draft prospects. No one brings you closer to the inner workings of football than Move the Sticks podcast. Subscribe now to Move the Sticks podcast with new episodes dropping three times a week. Available on your favorite podcast app or NFL dot com. Again, that's Move the Sticks podcast, and thank them for sponsoring this week's episode. Back to the conversation. That's something you're in the process of doing right now in the research.
+[00:15:47] Norm: That's something you're in the process of doing right now in the research.
 
 [00:16:57] Adam: Well, I'm working on the book.
 

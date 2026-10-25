@@ -4,8 +4,6 @@
 **Duration:** 41m 58s  
 Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
-[00:00:00] Norm: This week's episode of Still Untitled is made possible with support from Linksys. Bad Wi-Fi is usually due to your Wi-Fi equipment rather than your internet provider. Update to Linksys and kiss dead zones goodbye. Linksys solves the biggest Wi-Fi issues like buffering and connection problems, and you can easily set up guest access and parental controls. Visit Linksys.com to save 15% on a new router with the code Untitled while supplies last. Cannot be combined with other promos. Refurbished products not eligible for this promotion. One per customer. Once again, that's Linksys.com with the offer code Untitled to save 15% on a new router. And now on with the show.
-
 [00:00:41] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:44] Adam: I'm Adam,

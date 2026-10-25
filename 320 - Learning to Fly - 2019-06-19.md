@@ -4,8 +4,6 @@
 **Duration:** 47m 47s  
 Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
-[00:00:00] Norm: This week's episode of Still Untitled is made possible with support from the Rochester Institute of Technology. Faculty and students at Rochester Institute of Technology recently built a robot fish. Why? Because it could lead to a new wave of prosthetics, and now we're all hooked. At RIT, that creative team of engineers is on to something life-changing. Learn more about the project at rit. Edu/untitled. And now on with the show.
-
 [00:00:28] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:28] Adam: I'm Adam.
@@ -609,8 +607,6 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 [00:23:19] Adam: Yeah,
 
 [00:23:19] Will: yeah. I just jam a microfiber.
-
-[00:23:22] Norm: Before we continue with the conversation, I want to let you know that support for this episode of Still Untitled also comes from the fine folks at Clear. Clear helps you get through security with a tap of your fingers, so you can get to the gate faster and reduce pre-flight stress. Clear replaces the need for physical ID cards, using your eyes and fingertips to get you through security in a tap. Create your account online, and then a Clear ambassador will help you finish the process at the airport, and then you can use Clear immediately. Clear helps you get through security faster in over forty airports and stadiums across the country, with more being added every day. If you're traveling with family, up to three family members can be added at a discounted rate, and kids under 18 are free when traveling with a Clear member. We've all had this experience, me especially. We travel a lot for Tested, and yeah, I tend to make it to the airport at the very last minute, find my parking spot. Oh no, the tram is broken, getting me late to the terminal. Running up to the gate after check-in, and there's a huge line. And I wish I'd signed up for Clear because I could then get right through real fast. Clear is the absolute best way to get through airport security. It works great with pre-check too. And right now, you can get your first two months of Clear for free. Go to Clearme.com/untitled and use the code Untitled. That's C-L-E-A-R-M-E.com/untitled and use the code Untitled for free two months of Clear. Now back to the conversation.
 
 [00:24:54] Will: Anyway, John Wick,
 

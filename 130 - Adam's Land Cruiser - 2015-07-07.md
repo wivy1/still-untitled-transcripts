@@ -4,7 +4,7 @@
 **Duration:** 22m 45s  
 Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
-[00:00:00] Will: Today’s episode of Still Untitled, the Adam Savage Project, is brought to you by Casper. Casper makes obsessively engineered, American-made mattresses that you get in the mail. It comes in a little box; it's a cardboard box. It fits through any door. You open it up. Inside, there's an envelope that tells you what to do next, and a box cutter that lets you open the the mattress without risking tearing it or anything like that. And what happens then is it just kind of unfolds. It inflates. It's ready to sleep on in about five minutes. And using a combination of memory foam and latex foam, it gives you just the kind of right amount of sink, right amount of bounce. It's very comfortable, no matter what you do in the bedroom. And on top of everything else, they're a phenomenal deal. They're about 500 bucks for a twin, not up to 950 for a queen. If you go to your local mattress showroom, you're going to see a completely different price structure that does not cap out at under a thousand dollars. And if you want to show your support for Still Untitled, you can go to casper.com/untitled. Again, that's c a s p e r dot com/untitled. Use the offer code Untitled. Tell Casper that you like the ad on the show, you like this podcast. They'll know that you like us. It works out well for everyone, and you'll get a better night's sleep. Again, casper.com/untitled and offer code Untitled. Thanks for supporting Still Untitled, Casper. And now on with the show. Welcome to Still Untitled, the Adam Savage Project. I'm Will.
+[00:00:00] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:26] Adam: I'm Adam,
 

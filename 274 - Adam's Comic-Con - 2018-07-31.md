@@ -4,8 +4,6 @@
 **Duration:** 29m 21s  
 Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
-[00:00:00] Norm: Hey, everybody. Norm here. Before we start this week's episode, I want to let you know that we have new Tested merch. Yes, finally, we have a tested T-shirt. This one is designed by Adam, and it is about our one-day builds video series. It proudly proclaims that one-day builds always take more than one day. Sales of this shirt help us make more one-day build videos, and we'd love it if you could check it out and pick one up and wear it proudly as you embark on your own one-day builds. You can find out more and get the shirt at Tested.com/shop. Once again, that's Tested.com/shop. Now on with the show.
-
 [00:00:39] Will: Welcome to Still Untitled: The Adam Savage Project.
 
 [00:00:42] Will: I'm Will.

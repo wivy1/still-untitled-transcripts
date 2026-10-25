@@ -4,8 +4,6 @@
 **Duration:** 31m 1s  
 Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
-[00:00:00] Unknown sponsor reader: Today's episode of Still Untitled is brought to you by VideoBlocks. They offer great value with an unlimited download model. Choose from a library of over 115,000 HD video clips, after effects templates, motion backgrounds, and cinemagraphs. On average, subscribers pay less than a dollar per download over the course of a year, and they have a great variety of time lapses, aerials, U.S. international locations, slow motion, nature shots, and more. Everything is 100% royalty free, even if a subscription is canceled. VideoBlocks is also offering listeners of this podcast a year’s subscription for only $ 99. This is $ 50 off the usual price tag for our listeners only. Less than $ 10 a month. Get your subscription today for only $ 99 at VideoBlocks.com/StillUntitled. That's VideoBlocks, V-I-D-E-O-B-L-O-C-K-S.com/StillUntitled for this exclusive offer. Now on with the show.
-
 [00:01:07] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:09] Adam: I'm Adam.
@@ -666,4 +664,4 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:29:45] Norm: See ya. Bye.
 
-[00:29:48] Unknown sponsor reader: Thanks again to VideoBlocks for sponsoring us today. VideoBlocks offers great value with unlimited downloads from a library of one hundred and fifteen thousand HD video clips, After Effects templates, motion backgrounds, and Cinemagraphs. On average, subscribers pay less than a dollar per download over the course of a year. With access to a variety of time lapses, aerials, U.S. international locations, slow motion, nature shots, and more, and they're continuously adding new content to their library so it stays fresh. Everything is a hundred percent royalty free, even as if a subscription is canceled, and you have unrestricted usage rights for personal or commercial projects. Keep what you download and maintain usage rights forever. Now, VideoBlocks is offering our listeners a year subscription for ninety nine dollars. That's fifty dollars off their usual price tag for our listeners only. Less than ten dollars a month. Get your yearly subscription today for only ninety nine dollars at VideoBlocks dot com slash still untitled. That's VideoBlocks V I D E O B L O C K S dot com slash still untitled, and we'll see you next week.
+[00:29:48] Unknown sponsor reader: and we'll see you next week.

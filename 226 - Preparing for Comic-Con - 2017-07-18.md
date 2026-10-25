@@ -4,8 +4,6 @@
 **Duration:** 33m 14s  
 Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
-[00:00:00] Unknown sponsor voice: This week's episode of Still Untitled is brought to you by HP Workstations. With prices starting at fourteen hundred sixty-five dollars, HP Workstations enable you to innovate without boundaries, expanding as your workflow grows. Plus, you get free shipping, returns, and customer support, twenty-four seven, three hundred sixty-five days of the year. And right now, you can get an exclusive offer just for our listeners: get fifteen percent off HP Workstations with Intel Core i5 processors when you go to hp.com/untitled and enter code Untitled at checkout. That's hp.com/untitled. Enter code Untitled to get fifteen percent off select HP Workstations. Whether you have a small business that's looking to grow or you are established and ready to take the next step, HP Workstations with Intel Core i5 processors are for you.
-
 [00:01:00] Will: Welcome to Still Untitled: The Adam Savage Project. I'm Will.
 
 [00:01:03] Adam: I'm Adam,
@@ -889,7 +887,3 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 [00:32:05] Will: Bye. Have fun at Comic Con, guys.
 
 [00:32:07] Adam: We will.
-
-[00:32:09] Norm: Once again, we want to thank the sponsor of this week's episode of Still Untitled, and that's HP. With prices starting at fourteen hundred sixty-five dollars, HP Workstations enable you to innovate without boundaries, expanding as your workflow grows. Plus, you get free shipping, returns, and customer support twenty-four-seven, three hundred sixty-five days of the year. And right now, you can get an exclusive offer just for our listeners: get fifteen percent off select HP Workstations with Intel Core i5 processors when you go to hp.com/untitled and enter code Untitled at checkout. That's hp.com/untitled. Enter in code Untitled to get fifteen percent off select HP Workstations. The special discount is valid through July thirty first. Whether you have a small business that's looking to grow, or you're established and ready to take the next step. HP's workstations with Intel Core i5 processors are for you.
-
-[00:32:09] Unknown sponsor voice: You can get free shipping, returns, and customer support 24-7, 365 days of the year.

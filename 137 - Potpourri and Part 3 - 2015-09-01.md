@@ -4,7 +4,7 @@
 **Duration:** 40m 21s  
 Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
-[00:00:03] Will: Today's episode is brought to you by Skillshare, where you can explore thousands of online classes in design, photography, business, and more. Learn from the world's best teachers and join a learning community of over 1 million creators. Learn at your own pace by watching classes on your own schedule. You can even share your work and collaborate with students around the world too. With real projects and feedback from the Skillshare community, it's like being in a real class, but on your own time. Classes can even be watched offline with the Skillshare mobile apps on both Apple and Android devices. Go to Skillshare.com and get three free months with the discount code Untitled at checkout for new customers. Thank you, Skillshare, for supporting Still Untitled. And now on with the show. Welcome to Still Untitled, the Adam Savage Project. I'm Will.
+[00:00:03] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:46] Adam: I am Adam,
 
@@ -1000,6 +1000,6 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:39:31] Adam: Bye.
 
-[00:39:40] Norm: Don't forget, with Skillshare, you can explore thousands of online classes in design, photography, business, and more. Learn from the world's best teachers on your own schedule, and join a learning community of over one million creators. With real projects and feedback from the Skillshare community, it's like being in a real class but on your own time. Classes can even be watched offline with Skillshare's mobile apps on both Apple and Android devices. Go to Skillshare.com and get three free months with the discount code Untitled at checkout for new customers. Thanks, Skillshare, for your support of this podcast, and thank you guys for watching.
+[00:39:40] Norm: and thank you guys for watching.
 
 [00:40:17] Will: Bye.

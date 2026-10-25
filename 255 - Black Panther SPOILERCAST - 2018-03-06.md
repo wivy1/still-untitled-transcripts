@@ -4,8 +4,6 @@
 **Duration:** 31m 57s  
 Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by Google's Cloud Platform. Looking to move to the cloud? Check out Google's Cloud Platform's weekly podcast, where Google Developer Advocates answer questions, get in the weeds, and talk to experts, customers, and partners about GCP. Learn more and subscribe to the podcast at g.co/gcppodcast. Once again, that's g.co/gcppodcast. Now on with the show.
-
 [00:00:33] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:34] Adam: I'm Adam,
@@ -728,4 +726,4 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:31:27] Adam: Bye.
 
-[00:31:28] Norm: Once again, we want to thank the sponsor of this week's episode, and that's Google's Cloud Platform. What can your data tell you? With Google Cloud Platform, use machine learning at scale to build better products. It predicts so your business can thrive. Learn more about Google's Cloud Platform at g co slash get cloud AI. Once again, that's g co slash get cloud AI. We'll see you next week.
+[00:31:28] Norm: We'll see you next week.

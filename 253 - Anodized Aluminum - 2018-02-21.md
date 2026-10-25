@@ -4,8 +4,6 @@
 **Duration:** 36m 29s  
 Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by Google's Cloud Platform. Looking to move to the cloud? Check out the Google Cloud Platform Weekly Podcast, where Google Developer Advocates answer questions, get in the weeds, and talk to experts, customers, and partners about GCP. Learn more and subscribe to the podcast by going to g.co/gcppodcast. Once again, that's g.co/gcppodcast. And now on with the show.
-
 [00:00:33] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:36] Adam: I'm Adam.

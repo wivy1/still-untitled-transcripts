@@ -8,31 +8,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:00:07] Norm: Hey Will.
 
-[00:00:08] Will: Today's sponsor of this week's episode of this podcast is Parachute.
-
-[00:00:11] Norm: What's Parachute?
-
-[00:00:12] Will: Parachute makes luxury bedding for your home. So everything, basically, from the mattress up, sheets, top sheets, duvet covers, duvet inserts, all the stuff that you need to give you, to level up your sleeping experience at a home. And I've been actually testing this for the last couple of weeks. They sent me a bottom sheet and a duvet cover. They're made of Italian cotton percale. I don't know what any of that stuff means,
-
-[00:00:34] Norm: but the point is,
-
-[00:00:34] Will: when you get into bed, it feels awesome. It's all nice and cool and crisp and soft, and it makes you feel like you're sleeping in a really nice hotel.
-
-[00:00:43] Norm: But you're actually at home.
-
-[00:00:44] Will: But I'm actually at home.
-
-[00:00:45] Norm: That's the dream.
-
-[00:00:46] Will: It is exactly the dream. If you want to try out Parachute, you can. You can go to parachutehome.com/untitled. Use the offer code Untitled, and they'll give you 25 bucks off your first order. I highly recommend it. If you have a weird circumstance, like I do, you can call them, talk talk through the whole thing. They'll figure it out for you and get you exactly what you need. And
-
-[00:01:05] Norm: I like that name too, Parachute, because old parachutes made of fine linens,
-
-[00:01:09] Will: silk.
-
-[00:01:09] Norm: Yes,
-
-[00:01:09] Will: silk. Again, it's ParachuteHome dot com slash Untitled. Use the offer code Untitled for twenty five bucks off. And now on with the show. Welcome to Still Untitled, the Adam Savage Project. I'm Will.
+[00:01:09] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:09] Adam: I'm Adam,
 

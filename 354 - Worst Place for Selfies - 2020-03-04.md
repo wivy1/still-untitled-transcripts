@@ -4,8 +4,6 @@
 **Duration:** 35m 33s  
 Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
-[00:00:00] Norm: This week's episode of Still Untitled is made possible with support from Microsoft Surface. Introducing the new Microsoft Surface Laptop 3. With its beautiful touchscreen, you'll experience stunning graphics with razor sharp resolution. Now available with a 13 and a half or 15 inch screen, and with the latest processors, there's no project the Surface Laptop can't handle. It's both light and powerful, so you can get more done on the go. Visit surface dot com slash laptop three to learn more. That's surface dot com slash laptop three.
-
 [00:00:32] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:35] Adam: I'm Adam,
@@ -479,8 +477,6 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 [00:20:37] Norm: What would you recommend doing in Denver?
 
 [00:20:38] Will: I don't know. I went to Boulder. It was nice there. Granby was really pretty.
-
-[00:20:43] Norm: Before we continue on with the show, I want to let you know that support for Still Untitled comes this week from Microsoft Surface. Introducing the new Microsoft Surface Laptop 3. With its beautiful touchscreen, you'll experience stunning graphics with razor-sharp resolution. Now available with a 13 and a half or 15 inch screen, and with the latest processors, there's no project the Surface Laptop can't handle. It's both light and powerful, so you can get more done on the go. Visit surface dot com slash laptop three to learn more. That's surface dot com slash laptop three. Now back to the show.
 
 [00:21:19] Adam: A Japanese restaurant called Uchi. Oh, okay. Really, really stunning, delicious. We did the omakase menu at the at the bar, and it was stunning. The best dish I had was
 

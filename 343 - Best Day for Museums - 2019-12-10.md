@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:15:49] Will: we could just be on the set. It'll be a new podcast.
 
-[00:15:52] Norm: These things are all we have conversations off off podcast about this. We shall. We shall. Before we continue on with this week's episode, I want to let you know that Still Untitled this week is made possible with support from Keeps. Two out of three guys will experience some form of male pattern baldness by the time they're 35, but Keeps offers proven treatments that can combat the symptoms of hair loss and help you keep the hair you have at half the cost of your local pharmacy. Keeps offers generic versions of the only two FDA-approved hair loss products out there. Plus, Keeps now offers prescription shampoos to keep your scalp healthy too. Keeps treatments are up to 90% effective at reducing and stopping further hair loss, and the sooner you start using Keeps, the more hair you'll save. With Keeps, you can visit a doctor online and get your hair loss medication delivered to your home. No more waiting in waiting rooms or pharmacy lines. Keeps treatments just start at ten dollars a month. Plus, for a limited time, you can get your first month free. That's one hell of a deal for getting to keep your hair. If you're ready to take action and prevent hair loss, go to Keeps.com/Untitled to receive your first month of treatment for free. Once again, that's K-E-E-P-S.com/Untitled. And back to the conversation. This past weekend, I was also at the Dickens Fair.
+[00:15:52] Norm: These things are all we have conversations off off podcast about this. We shall. We shall. This past weekend, I was also at the Dickens Fair.
 
 [00:17:08] Adam: Oh yes, I saw baby's first Dickens Fair.
 

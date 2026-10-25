@@ -4,8 +4,6 @@
 **Duration:** 40m 39s  
 Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
-[00:00:00] Norm: Still Untitled is supported by Citi Cards with Android Pay. Listening on your phone, now you can pay while you listen using the same device. Just tap and go. Download the Android Pay app on Google Play or visit citi.com/androidpay to get started. Android Pay is available for eligible Citi consumer credit and debit cards.
-
 [00:00:26] Adam: Welcome to Still Untitled, the Adam Savage Project. I'm Adam.
 
 [00:00:29] Norm: I'm Norm.

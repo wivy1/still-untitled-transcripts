@@ -4,8 +4,6 @@
 **Duration:** 46m 19s  
 Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
-[00:00:00] Norm: This week's episode of Still Untitled is made possible with support from Microsoft Surface. Introducing the new Microsoft Surface Laptop 3. With its beautiful touchscreen, you'll experience stunning graphics with razor-sharp resolution. Now available with a 13 and a half or 15 inch screen, and with the latest processors, there's no project the Surface Laptop can't handle. It's both light and powerful, so you can get more done on the go. Visit surface dot com slash laptop three to learn more. That's surface dot com slash laptop three.
-
 [00:00:32] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:36] Adam: I'm Adam.
@@ -291,8 +289,6 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 [00:19:50] Adam: Well, I, let me get on with my story.
 
 [00:19:51] Will: Okay.
-
-[00:19:55] Norm: Before we continue on with the show, I want to let you know that support for Still Untitled comes this week from Microsoft Surface. Introducing the new Microsoft Surface Laptop 3. With its beautiful touchscreen, you'll experience stunning graphics with razor-sharp resolution. Now available with a 13.5 or 15-inch screen, and with the latest processors, there's no project the Surface Laptop can't handle. It's both light and powerful, so you can get more done on the go. Visit surface.com/laptop3 to learn more. That's surface.com/laptop3. Now back to the show.
 
 [00:20:32] Will: Like, okay, just to be clear, from a from a, I'm not a doctor, not a medical professional. From first aid stuff that I've done over the years, that is the very, that is like 99% of people, I would say, yeah, you need to go to the doctor right now when you see that.
 

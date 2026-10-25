@@ -4,8 +4,6 @@
 **Duration:** 36m 10s  
 Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
-[00:00:00] Norm: Hey everyone! Today's episode of Still Untitled was brought to you by Squarespace. Squarespace is the easiest way to build and create a beautiful website, blog, or online store for you and your ideas. Squarespace features an elegant interface, beautiful templates, and incredible twenty four seven customer support. Start building your website today at squarespace dot com. And for listeners of Still Untitled, if you use the offer code Untitled at checkout, you'll get ten percent off. Squarespace, build it beautiful, and on with the show.
-
 [00:00:37] Will: Welcome to Still Untitled, the Adam Savage Project. I am Will.
 
 [00:00:39] Adam: I am Adam

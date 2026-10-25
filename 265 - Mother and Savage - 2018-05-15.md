@@ -4,7 +4,7 @@
 **Duration:** 30m 34s  
 Episode URL: https://www.youtube.com/watch?v=VihllKaZHnM
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by Udemy, the largest marketplace for online learning. Whether you're looking to learn something new or just sharpen your skills, Udemy has over 65,000 courses starting at just $ 11.99. Students around the world choose Udemy to discover new passions, expand their skills, and even change careers. Visit ude.my/untitled or download the Udemy app to learn anytime, anywhere. Now on with the show. Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
+[00:00:00] Norm: Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
 
 [00:00:34] Adam: I'm Adam,
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=VihllKaZHnM
 
 [00:14:55] Adam: So you had two ovens and and eight burners in order to cook large meals for large groups of people.
 
-[00:15:02] Norm: Before we continue with this week's episode, I want to let you know about the other sponsor of Still Untitled this week, and that is Stitcher Premium. Stitcher Premium gets you completely ad-free episodes of hundreds of shows like Comedy Bang Bang, WTF with Marc Maron, and How Did This Get Made. You also get twenty-one thousand hours of exclusive content, and new exclusive originals like Marvel's Wolverine are launching every week for Stitcher Premium members. If you love podcasts, you got to check it out. When you listen to ad-free eps in Stitcher Premium, your favorite podcasters also get paid. Help support your favorite shows and join Stitcher Premium today for a free month of listening. Go to stitcherpremium.com and use the promo code Untitled. All right, back to the program. You know, we get a lot of questions for you at events about your advice for parents raising their kids, the next generation of makers. What did you hope for Adam when he was growing up?
+[00:15:02] Norm: You know, we get a lot of questions for you at events about your advice for parents raising their kids, the next generation of makers. What did you hope for Adam when he was growing up?
 
 [00:16:00] Karen Savage: What an interesting question. I obviously just hoped that he would feel fulfilled with whatever he chose to do. I mean, I think that in our family, my husband was an artist from a very early age and knew that that was what he wanted to do. But he also was a realist and realized he wasn't going to make a living at it. So he always painted and always showed in New York. Had a show almost every year in New York. But he also did many ancillary things that were art related, and found that he could make a wonderful living being an animator for Sesame Street and doing TV commercials and various other things like that, all in the art field. And I think that all of our kids grew up feeling that he was a good example of the fact that if you love something, just go do it,
 

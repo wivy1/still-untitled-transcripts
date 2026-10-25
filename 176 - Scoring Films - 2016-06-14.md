@@ -4,8 +4,6 @@
 **Duration:** 22m 29s  
 Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
-[00:00:00] Norm: Hey everybody, Norm here. Before we start this episode of Still Untitled, I want to thank the sponsor this week, and that sponsor is Blue Apron. Blue Apron knows that when you cook with incredible ingredients, you make incredible meals. So they set the highest quality standards for their community of artisanal suppliers, family-run farms, fisheries, and ranchers. Whether it's Japanese ramen noodles, wild-caught Alaskan salmon, or heirloom tomatoes, Blue Apron is bringing you the best, and for less than ten dollars per meal, Blue Apron delivers seasonal recipes along with pre-portioned ingredients—that's my favorite part—to make delicious home-cooked meals. Check out this week's menu and get two meals free by going with free shipping by going to blueapron.com/untitled. That's the name of this podcast. You will love how good it feels and tastes to create incredible home-cooked meals with Blue Apron. So don't wait. Again, that's blueapron.com/untitled. And now on with the show.
-
 [00:01:07] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:10] Adam: I'm Adam,
@@ -596,4 +594,4 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:21:40] Adam: Thanks, everybody.
 
-[00:21:41] Norm: See you. Bye. Thanks for listening to this episode of Still Untitled. And I want to again thank the sponsor of this week's episode. That sponsor is Atlassian, makers of collaboration software that lets teams work and communicate better together. See how Jira, Confluence, HipChat, and Bitbucket give your team. Everything you need to organize, discuss, and complete shared work. Atlassian works help teams, large and small, ascend to new heights to create what's next. Visit Atlassian dot com. That's A T L A S S I A N dot com. Atlassian helping teams everywhere team up. And see you next week.
+[00:21:41] Norm: See you. Bye. Thanks for listening to this episode of Still Untitled. And see you next week.

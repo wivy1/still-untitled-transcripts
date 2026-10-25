@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:16:17] Will: Yeah.
 
-[00:16:18] Norm: Before we continue on with the show, I want to let you know that support for Still Untitled comes this week from Microsoft Surface, introducing the new Microsoft Surface Laptop 3. With its beautiful touchscreen, you'll experience stunning graphics with razor sharp resolution. Now available with a 13 and a half or 15 inch screen, and with the latest processors, there's no project the Surface Laptop can't handle. It's both light and powerful, so you can get more done on the go. Visit surface. Com/laptop3 to learn more. That's surface. Com/laptop3. Now back to the show. While I was gone last week, you guys did a recording of the first episode of your book club.
+[00:16:18] Norm: While I was gone last week, you guys did a recording of the first episode of your book club.
 
 [00:17:00] Adam: We did.
 

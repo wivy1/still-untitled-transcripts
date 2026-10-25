@@ -4,8 +4,6 @@
 **Duration:** 22m 33s  
 Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
-[00:00:00] Norm: Hey everyone! Today's episode of Still Untitled was brought to you by Squarespace. Squarespace is the easiest way to build and create a beautiful website, blog, or online store for you and your ideas. Squarespace features an elegant interface, beautiful templates, and incredible twenty-four-seven customer support. Start building your website today at squarespace.com. And for listeners of Still Untitled, if you use the offer code Untitled at checkout, you'll get ten percent off. Squarespace. Build it beautiful. And on with the show.
-
 [00:00:34] Will: Welcome to the Rock.
 
 [00:00:34] Adam: No,

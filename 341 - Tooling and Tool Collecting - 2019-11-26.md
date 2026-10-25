@@ -492,8 +492,6 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:23:52] Zach: Yeah, yeah, exactly.
 
-[00:23:54] Norm: Before we continue on with this week's conversation, I want to let you know that Still Untitled this week is made possible with support from Netgear. Is your Wi-Fi feeling old? Does it buffer while streaming? Does connecting to new devices slow it down? Can it handle gaming, video calls, large file transfers all at once? It doesn't matter how fast your internet connection is if your Wi-Fi router is old and outdated. With Orbi Wi-Fi 6 from Netgear, your Wi-Fi will feel new again. Wi-Fi 6 is the latest tech that allows more devices to connect and stream simultaneously without impacting speed. Speed or reliability. The result delivers the fastest Wi-Fi for all of your devices anywhere in your home. Stream in HD, 4K, or even 8K without buffering. Eliminate lag while gaming and connect more devices to your Wi-Fi than ever before. Orbi Wi-Fi Six is like upgrading your Wi-Fi to first class. And if you're ready for the best Wi-Fi ever, you can get it today from Netgear and never have to worry about Wi-Fi again. Check out Orbi Wi-Fi Six at your local Best Buy or at netgear.com/bestwifi. Once again, that's netgear.com/bestwifi. Now back to the conversation.
-
 [00:25:02] Adam: So I will say that I've been doing lots of television lately and keeping current with the morning show, which is still uneven but really fun. The Mandalorian. You guys haven't seen the third episode. Yet.
 
 [00:25:15] Zach: Trying to catch up.

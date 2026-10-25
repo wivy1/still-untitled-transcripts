@@ -4,8 +4,6 @@
 **Duration:** 20m 6s  
 Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
-[00:00:00] Norm: Hey everybody, it's Norm from Tested. Before we jump into this week's episode of Still Untitled, I want to thank the sponsor of this week's podcast, and that sponsor is VideoBlocks. Today's episode is brought to you by VideoBlocks, and it's a subscription-based stock media company that gives you unlimited access to premium stock footage that anyone can afford. Premium content at a great value, and everything is 100% royalty free. Get your subscription today for only ninety nine dollars at www. VideoBlocks. Com/x/untitled. That's www. VideoBlocks. Com/x/untitled. And now on with the show.
-
 [00:00:47] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:50] Adam: I'm Adam,

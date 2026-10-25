@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:19:37] Adam: Ocean's Eleven is so good.
 
-[00:19:40] Norm: Hey, everybody, Norm here. Before we continue on with this week's episode, I want to thank the sponsor that makes this episode possible, and that is Kiwi Co. Kiwi Co. Creates super cool hands-on projects for kids that make learning about Steam fun. Their mission is to provide next generation of innovators with the tools and foundation to become creative problem solvers and critical thinkers. Their projects are designed to Spark creativity, tinkering, and learning in kids of all ages. All projects, inspiration activities are created by an in-house team of product designers and rigorously tested by kids. KiwiCo has six types of projects for kids of all ages, from the Cricket Crate for toddlers to the Doodle Crate for teens, and it's super convenient. Every crate includes all the supplies needed for that month's project, easy-to-follow instructions, and an educational magazine to learn even more about that crate's theme. KiwiCo inspires kids to see themselves as makers, engineering, and creating their own innovative designs and outcomes. They sent us one of their crates, and I've been handing it over to some of the kids that we've been babysitting, and they've been loving these kits as a perfect way to help them get through the summer before school starts. KiwiCo is offering still untitled listeners the chance to try these kits for free. To redeem this offer and learn more about these projects for kids, visit kiwico.com/untitled. Once again, that's kiwico.com/untitled. Now back to the conversation. You know, I watched recently in terms of old movies. I watched rewatch all of Heat.
+[00:19:40] Norm: You know, I watched recently in terms of old movies. I watched rewatch all of Heat.
 
 [00:21:09] Adam: Oh,
 
@@ -1158,4 +1158,4 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:39:49] Adam: Bye guys.
 
-[00:39:51] Norm: Bye. Thanks for listening this week, and once again, I want to thank the sponsor that made this episode possible, and that's KiwiCo. KiwiCo creates super cool hands-on projects for kids that make learning about science, technology, engineering, art, and math fun. Kids can create their own arcade games, construct A hydraulic claw, or tinker with electronics and motors. Kiwico is offering still-untitled listeners the chance to try these kits for free. To redeem this offer and learn more about their projects for kids, visit kiwico.com/untitled. We'll see you next week.
+[00:39:51] Norm: Bye. Thanks for listening this week. We'll see you next week.

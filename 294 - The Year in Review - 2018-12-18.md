@@ -244,8 +244,6 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:17:34] Adam: it'll tease the video.
 
-[00:17:36] Norm: Hey, everybody, Norm here. And before we continue with this week's episode, I want to thank the sponsor that makes it possible, and that's OpsGenie by Atlassian. Because incidents happen, and they require complex coordination between operations and software development teams who are putting out fires every day. That's why getting alerts immediately is critical. Thankfully, there's OpsGenie by Atlassian. OpsGenie empowers Dev and ops teams to plan for service disruptions and stay in control during incidents. It also gives teams the power to respond quickly and efficiently to unplanned issues and helps notify all the right people through a smart combination of scheduling and escalation paths that account for things like time zones and holidays. Better yet, OpsGenie allows for deep flexibility in how, when, and where alerts are deployed with over 200 integrations like Jira, Amazon CloudWatch, Datadog, New Relic, and more. Plus, it tracks all activity and provides useful insights to improve future incident responses. It's services like OpsGenie that allow the other services that you rely on and you use so frequently, especially during this holiday season, to stay up and running without service interruptions because those engineers are on it. With OpsGenie, your next incident doesn't stand a chance. Visit OpsGenie.com to sign up for a free company account and add up to five team members. That's OpsGenie.com. Never miss a critical alert again with OpsGenie. Now back to the conversation.
-
 [00:18:58] Adam: Norm, what are you doing for the holidays?
 
 [00:19:00] Norm: I'm I'm staying at home raising a child.

@@ -6,27 +6,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:00:00] Unknown speaker: [unclear: you]
 
-[00:00:57] Will: Hey Norm.
-
-[00:00:58] Norm: Hey Will.
-
-[00:00:59] Will: When was the first time you built a website?
-
-[00:01:00] Norm: Uh, The first website I built, probably ninth grade high school. Remember, it was not easy back then.
-
-[00:01:07] Will: Were you on GeoCities? Did you use GeoCities?
-
-[00:01:09] Norm: I definitely had a GeoCities website. It was terrible. Thank goodness, no one's going to ever find it. Good luck.
-
-[00:01:14] Will: The good news is today, building websites is easier than it's ever been before, thanks to Squarespace.
-
-[00:01:19] Norm: Yeah, it's a service that lets you use templates and drag and drop, real time editing, tons of features, and it's really easy to get started.
-
-[00:01:27] Will: You can start building your website today at squarespace.com. Enter the offer code Untitled at checkout, and you'll get 10% off Squarespace,
-
-[00:01:34] Norm: and you'll be supporting us. Uh, thanks. So thanks.
-
-[00:01:38] Will: Thanks Squarespace. Build it beautiful. Welcome to Still Untitled, the Adam Savage Project. I'm Will.
+[00:01:38] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:46] Adam: I'm Adam Savage,
 

@@ -4,8 +4,6 @@
 **Duration:** 24m 40s  
 Episode URL: https://www.youtube.com/watch?v=rhaNoBx39Jc
 
-[00:00:01] Norm: Hey everybody, Norm here. This week's episode of Still Untitled was brought to you by Automatic. Automatic is a tiny piece of hardware that you plug into your car to bring it into the 21st century. Just plug the dongle under your steering wheel into the diagnostic port, pair it with your smartphone, and then you get access to a wide range of data like your fuel expenses and other driving habits. Automatic can even detect a crash and call for help. So go to automatic dot com and use the code Untitled when checking out to get 20% off. Thanks, Automatic. Thanks you guys for listening, and on with the show.
-
 [00:00:42] Adam: All right, let's start while the jackhammer is not going.
 
 [00:00:44] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.

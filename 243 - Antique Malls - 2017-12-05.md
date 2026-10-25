@@ -4,8 +4,6 @@
 **Duration:** 29m 23s  
 Episode URL: https://www.youtube.com/watch?v=2XqEZH4KUEA
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by Orbi. Wi-Fi is something you really don't think about until you don't have it or it's not working properly. Videos buffering, there's Wi-Fi dead zones. Everyone's home for the holidays, fighting for Wi-Fi. So, when did you last upgrade your Wi-Fi at home? If you just want better Wi-Fi everywhere, check out the Orbi Wi-Fi system from Netgear. With Orbi, you can enjoy super strong, fast, and more reliable home Wi-Fi from your basement to your backyard. Change your Wi-Fi world. Get Orbi. That's O-R-B-I Wi-Fi system from Netgear, and you can learn more at netgear.com/orbi. Now on with the show.
-
 [00:00:47] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:48] Adam: I'm Adam.

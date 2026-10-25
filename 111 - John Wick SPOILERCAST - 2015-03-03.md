@@ -4,15 +4,7 @@
 **Duration:** 31m 31s  
 Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
-[00:00:00] Will: Today's episode of Still Untitled is brought to you by Squarespace. It's a fast and easy way to get your website online in an idiot-proof way. When when we did our first website at Maximum PC, I don't even think you were there yet.
-
-[00:00:11] Norm: Yeah.
-
-[00:00:11] Will: But I, we basically paid a dude a few thousand dollars, and he built a Movable Type website for us. You know, it was okay, but it was a real pain in the butt, and it like I couldn't go in and change stuff. It was difficult. With Squarespace, you don't have that problem.
-
-[00:00:24] Norm: CMSs today are amazing. Real time editing, responsive design automatically, and just tons of templates and assets.
-
-[00:00:34] Will: And if you have, if you just need like one page that looks really nice and has all of your stuff on it, you know, you don't need a blog roll or anything fancy like that. You can do what's called a cover page, and it'll tell everything you need to tell about your business or site or whatever portfolio, whatever it is you want in one page. It's so easy. Jeff Bridges can do it. Wow. So Squarespace, thanks for supporting the show. If you want to sign up, get a ten percent off your first order by using the offer code Untitled when you check out, and also show your support for this podcast. Welcome to Still Untitled, the Adam Savage Project. I'm Will.
+[00:00:34] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:05] Adam: I'm Adam,
 
@@ -902,19 +894,9 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:30:37] Will: Norman Chan, that was a hell of a podcast.
 
-[00:30:38] Norm: Yeah, indeed it was, and we're gonna thank Squarespace again for sponsoring this show. Before there were services like Squarespace, web CMSs were terrible. I think my first website I built from GeoCities, hosted by GeoCities, and I used Microsoft FrontPage to build it.
+[00:30:38] Norm: Yeah, indeed it was.
 
-[00:30:56] Will: Did you
-
-[00:30:57] Will: Did you have an animated GIF that said " Under Construction" on it?
-
-[00:30:59] Norm: Absolutely not. I didn't do that, but it was pretty bad. And I used tables, which you shouldn't use to frame everything.
-
-[00:31:06] Will: Open up Notepad and then FTP stuff up and down.
-
-[00:31:09] Norm: It was. It looked bad, and today's websites, of course, look much much better. And anyone can do it.
-
-[00:31:15] Will: And if you need help getting your site up and running, they have twenty four twenty four seven online support. It's eight bucks a month. You get ten percent off your first order if you use the offer code Untitled when you sign up, and also show support for the podcast. Thanks for listening.
+[00:31:15] Will: Thanks for listening.
 
 [00:31:28] Norm: We'll see you next week.
 

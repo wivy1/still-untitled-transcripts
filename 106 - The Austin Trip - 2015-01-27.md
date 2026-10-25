@@ -4,54 +4,6 @@
 **Duration:** 26m 47s  
 Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
-[00:00:00] Will: Norman Chan.
-
-[00:00:01] Norm: Hey, Will.
-
-[00:00:01] Will: How did you sleep last night?
-
-[00:00:02] Norm: I slept fairly well, pretty well actually. I've been testing a new mattress, and I want to talk about a mattress company that's sponsoring this podcast.
-
-[00:00:11] Will: This episode, right now.
-
-[00:00:12] Norm: This episode was brought to you by Casper.com, and they're a new company. They make mattresses. I didn't know there were any new mattress companies making mattresses, but here they are. And they sent me a mattress to lay on, and it was kind of cool [unclear: cool]. I received a queen mattress in a box. It was a sixty-pound box, and I was really surprised how small this box was.
-
-[00:00:31] Will: Was it like a square box? Was it like an Amazon type box?
-
-[00:00:35] Norm: It's a box I could reuse to make a rocket spaceship if I wanted to.
-
-[00:00:38] Will: Really?
-
-[00:00:38] Norm: Four foot tall, about two feet by three feet, but it's memory foam and you know latex foam, and it's just compressed. You can like open the box, slice the padding, slice the the wrapping, and then it kind of breathes in and unfolds.
-
-[00:00:55] Will: How long did that take? Was it like days, hours, weeks, minutes?
-
-[00:00:57] Norm: [unclear: six to five minutes].
-
-[00:00:58] Will: Oh, really?
-
-[00:00:59] Norm: Yeah. So they sell mattresses. They're made in the USA, and like five hundred dollars for a twin mattress, up to nine hundred fifty for king size ones.
-
-[00:01:08] Will: Wow.
-
-[00:01:08] Norm: And I, my old mattress was purely spring-based, so it was really cool to sleep on one that was that had memory foam.
-
-[00:01:15] Will: So I have a latex and memory foam mattress, and it's too squishy. Like I sink in, and it's it's it's maybe not optimal for other bed-type activities.
-
-[00:01:25] Norm: This one has bounce. Definitely has bounce.
-
-[00:01:27] Will: Okay.
-
-[00:01:28] Norm: But not to a point where, if you, for example, set a cup or a tray on one end and then stepped on the other end, it wouldn't flip over the tray. So still, it's both squishy and also has bounce.
-
-[00:01:41] Will: They describe it as obsessively engineered, and they'll ship it to your house. If you want to try out a Casper mattress, you can go to Casper.com and put in the slash Untitled, and use the offer code Untitled to get how much off? fifty bucks off?
-
-[00:01:54] Norm: fifty bucks off, which I think is pretty cool. If it's five hundred bucks for a twin size bed, and then you can try the mattress for a hundred days, free shipping. They'll take it back if you don't like it.
-
-[00:02:02] Will: It's amazing because when I went to the store to get a mattress, like king size beds cost four or five thousand dollars. Sometimes they are crazy expensive. I don't know if that's just here or everywhere, but a thousand dollars for a king size bed seems very much more reasonable.
-
-[00:02:15] Norm: Casper dot com slash Untitled. Thank them for supporting the podcast, and on with the show.
-
 [00:02:23] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:02:25] Adam: I'm Adam,

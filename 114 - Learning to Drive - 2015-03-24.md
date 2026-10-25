@@ -4,7 +4,7 @@
 **Duration:** 23m 30s  
 Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
-[00:00:07] Will: Hey gang! This week's episode of Still Untitled: The Adam Savage Project is brought to you by Tested Premium Memberships. To find out how you can support Tested directly, go to tested.com/membership. And now on with the show. Welcome to Still Untitled: The Adam Savage Project. I'm Will.
+[00:00:07] Will: Welcome to Still Untitled: The Adam Savage Project. I'm Will.
 
 [00:00:25] Adam: I'm Adam,
 

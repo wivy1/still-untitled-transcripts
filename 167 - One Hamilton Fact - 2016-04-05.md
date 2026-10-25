@@ -4,8 +4,6 @@
 **Duration:** 34m 9s  
 Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
-[00:00:00] Norm: Today's episode of Still Untitled is brought to you by Automatic. Automatic is a tiny piece of hardware that brings your car into the twenty-first century. Just plug it into your car, pair it with your smartphone, and you have access to a wide range of valuable information like your fuel expenses and your driving habits. Automatic can even detect a crash and call for help. So go to automatic dot com and use the offer code Untitled, like this podcast Untitled, when checking out to get twenty percent off. Now on with the show.
-
 [00:00:39] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:42] Adam: Oh, I'm Adam,
@@ -738,4 +736,4 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:32:53] Adam: Thanks, guys.
 
-[00:32:54] Norm: Bye. This week's episode of Still Untitled is also brought to you by Casper Mattresses, obsessively engineered American-made mattresses at a shockingly fair price, and now you can get fifty dollars toward any Casper purchase by going to casper. Com/untitled and using the offer code. You guessed it, Untitled, just like the name of this podcast. Casper brings together two comfy technologies for better nights and brighter days: latex foam and memory foam. So they get just the right amount of sink and just the right bounce, no matter how you sleep. They also have a risk-free trial and return policy. The mattress gets delivered straight to you, and you can try it for a hundred days. Actually, sleep on it for three months, and if you're not happy, we'll pick it back up. It's five hundred dollars for a twin size mattress and nine fifty for a king size mattress. Comparing that to industry averages, it's a great price point. So get fifty dollars toward any Casper purchase by going to casper dot com slash Untitled and using the offer code Untitled. Terms and conditions may apply. And we'll see you next week. Bye.
+[00:32:54] Norm: Bye. And we'll see you next week. Bye.

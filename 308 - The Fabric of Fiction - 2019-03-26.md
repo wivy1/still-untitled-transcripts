@@ -4,8 +4,6 @@
 **Duration:** 54m 34s  
 Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
-[00:00:00] Norm: This week's episode of Still Untitled is made possible by Triplebyte. Applying to programming jobs sucks—from endless applications to countless hours of technical screens. With Triplebyte, there's a better way. You do one online interview, and then you go straight to final interviews at hundreds of companies, from tech giants like Dropbox to exciting startups. It's like the common app for software engineers. No resume needed. Apply now at triplebyte.com/untitled. And if you take a job through Triplebyte, they'll offer you a one thousand dollar signing bonus. That's triplebyte, B-Y-T-E, dot com slash untitled. On to the show.
-
 [00:00:41] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:43] Adam: I'm Adam.
@@ -700,8 +698,6 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:28:26] Will: He's not going to cut it out.
 
-[00:28:28] Norm: Hey everyone, Norm here. Before the guys continue this week, I want to let you know that Still Untitled is also made possible by Shapr. Take networking from awkward to awesome with Shapr, the number one professional networking platform that uses your experience, interests, and goals to help you find and make the right connections. Whether you're looking for investors, a co-founder, a new job opportunity, or just inspiring conversations, Shapr can connect you to professionals who truly want to share tips and help. Each day, it suggests 15 people with similar goals and interests for you to meet. Then all you have to do is take a few minutes to swipe through your daily profiles, then set up coffees with the people who stand out. And if you're a professional, the Shapr app should be installed on your phone. So download the app today. Go check out Shapr online at shapr.co. That's Shapr, S H A P R. dot co. To learn more about Shapr, download the app and improve the way you network. Back to the conversation.
-
 [00:29:26] Adam: So wait, what were we talking about?
 
 [00:29:27] Will: I don't know.
@@ -1174,4 +1170,4 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:53:48] Will: Bye, thanks, Max. Bye, guys.
 
-[00:53:52] Norm: Thanks for listening this week, and once again, I wanted to remind you that " Still Untitled" this week was brought to you by TripleByte. Because applying to programming jobs, yeah, it sucks from endless applications to countless hours of technical screens. With TripleByte, there’s a better way. You do one online interview, then you go straight to final interviews at hundreds of companies from tech giants like Dropbox to exciting startups. It's like the common app for software engineers. There’s no resume needed. Apply now at triplebyte dot com slash untitled, and if you take a job through TripleByte, they'll offer you a one thousand dollars signing bonus. Again, that's triplebyte b y t e dot com slash untitled. We'll be back next week.
+[00:53:52] Norm: Thanks for listening this week. We'll be back next week.

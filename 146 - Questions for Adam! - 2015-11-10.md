@@ -4,8 +4,6 @@
 **Duration:** 34m 29s  
 Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
-[00:00:00] Norm: Hey everybody! Did you know that your DNA is made up of 23 pairs of chromosomes? That's why the name of this week's sponsor of Still Untitled is named 23 and Me. 23 and Me is a personalized genetic service that helps you understand what your DNA says about you. With 23 and Me, you get more than 60 60 personalized, detailed reports of your health, traits, and ancestry. And here's how it works: you order your DNA kit from 23andMe.com, provide your saliva sample from home, and mail it back with the CLIA certified lab mail to their lab. And then you'll be notified when your reports are ready online. More than 1 million people around the world have experienced their genetics through 23 and Me. So order your kit today from 23andMe.com. And thank you for listening to this podcast. On with the show.
-
 [00:00:57] Will: Welcome to " Still Untitled," the Adam Savage Project. I am Will.
 
 [00:01:00] Adam: I am Adam,

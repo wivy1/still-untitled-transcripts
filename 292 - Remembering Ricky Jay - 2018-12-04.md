@@ -4,7 +4,7 @@
 **Duration:** 32m 1s  
 Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by OpsGenie because incidents happen. Thankfully, OpsGenie empowers devs and ops teams to plan for service disruptions and stay in control during incidents. It also gives teams the power to respond quickly and efficiently to unplanned issues, and it helps notify all the right people through smart combination of scheduling and escalation paths. With OpsGenie, your next incident doesn't stand a chance. Visit OpsGenie.com to sign up and get a free company account and add up to five team members. That's OpsGenie.com. Never miss a critical alert again with OpsGenie. Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
+[00:00:00] Norm: Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
 
 [00:00:44] Adam: I'm Adam,
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:19:34] Unknown speaker (Norm or Adam then Norm then Adam or Adam then Jeremy then Adam): Yeah, yeah, yeah.
 
-[00:19:35] Norm: Before we continue on with the conversation, I want to let you know that this episode is also made possible by Kiwi Co. Kiwi Co. creates super cool hands-on projects for kids that make learning about STEAM fun. KiwiCo projects are designed to spark creativity, tinkering, and learning in kids of all ages. Their mission is to provide the next generation of innovators with tools and foundation to become creative problem solvers and critical thinkers. KiwiCo's projects are super fun, educational, and convenient. Every crate includes all the supplies needed for that month's projects, detailed, easy-to-follow instructions written specifically for kids, and an educational magazine to learn even more about that crate's theme. KiwiCo inspires kids to see themselves as makers, engineering, and creating their own innovative designs and outcomes. And they have six lines of projects to choose from, like the tadpole crate for kids zero to two, all the way up to the Tinker crate for teens. If you're looking for a gift this holiday season for kids of any age, check out KiwiCo. And KiwiCo is offering today's listeners the chance to try these projects out for free. To redeem this offer and learn more about projects for kids, visit kiwico.com/untitled. Once again, that's kiwico.com/untitled to try these projects out for free. Now back to the conversation. Jeremy, working on any fun projects? Anything you can talk about?
+[00:19:35] Norm: Jeremy, working on any fun projects? Anything you can talk about?
 
 [00:20:57] Jeremy: Yeah, actually, related to the wireless charging, I'm finally like getting my hands into NFC, which is like all the makers out there like they.
 
@@ -694,6 +694,6 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:31:18] Jeremy: My pleasure. Thank you, guys.
 
-[00:31:20] Norm: All right, see you next time. Thanks for listening this week. And once again, this episode of Still Untitled was made possible by KiwiCo, creators of super cool hands-on projects for kids of all ages that are designed to spark creativity and make learning about STEAM fun. KiwiCo’s mission is to provide the next generation of innovators with the tools to become creative problem solvers and critical thinkers with projects that are fun, educational, and convenient. KiwiCo is offering you today's listeners the chance to try these projects out for free. To redeem this offer and learn more about their projects for kids, visit kiwico.com/untitled. We'll see you next week.
+[00:31:20] Norm: All right, see you next time. Thanks for listening this week. We'll see you next week.
 
 [00:32:00] Unknown speaker, possibly Norm: Okay.

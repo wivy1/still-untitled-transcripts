@@ -454,8 +454,6 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:20:22] Adam: Here's a tweet from a couple weeks ago: The first rule of Dunning Kruger. Club is that you don't know you're in Dunning-Kruger Club. Oh boy!
 
-[00:20:34] Norm: Hey everyone, Norm here. Before we continue on with the conversation, I want to let you know that this episode of Still Untitled is made possible by the podcast Hackable. Cybercrime has been all over the news and TV shows. Hackable, an original podcast from McAfee, answers the question: How worried should I really be about cybercrime? In each episode, host Geoff Siskind invites a hacker to try and hack a device he's using. Think Mr. Robot. In season three, Geoff straps on a virtual reality headset, puts his laptop password on the line, investigates drones, and more. Listen to Hackable now on all major podcast platforms, and thank them for sponsoring this week's episode. Now back to the conversation.
-
 [00:21:18] Adam: Hey Mythbusters,
 
 [00:21:19] Adam: Yeah.
@@ -960,4 +958,4 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:36:57] Will: Happy New Year.
 
-[00:36:59] Norm: Thanks for listening this week. And once again, I want to let you know that this episode was made possible by the podcast Hackable from McAfee. Cyber crime has been all over the news and TV shows. Hackable, an original podcast from McAfee, answers the question: How worried should I really be about cyber crime? In each episode, host Geoff Siskind invites a hacker to try and hack a device he's using, kind of like in * Mr. Robot*. In season three, Geoff straps on a virtual reality headset, puts his laptop password on the line, investigates drones, and more. Listen to * Hackable* now on all major podcast platforms, and thank them for making this episode possible. We'll see you next week.
+[00:36:59] Norm: Thanks for listening this week. We'll see you next week.

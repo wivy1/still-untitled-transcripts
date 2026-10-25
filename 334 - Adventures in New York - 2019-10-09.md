@@ -4,8 +4,6 @@
 **Duration:** 40m 58s  
 Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
-[00:00:00] Norm: Today's episode of Still Untitled is made possible with support from Widex, a global leader in premium hearing aid technology. Widex offers sophisticated hearing technology to meet all budgets and lifestyle needs. In fact, their latest Evoke hearing aid tech connects to most modern media devices for wireless streaming of phone calls, music, and of course, podcasts like Still Untitled right into your hearing aids. You may not know it, but Adam himself uses the latest Widex model called Evoke, and he listed it as one of his top tech items of 2018. Today's hearing aids are truly at the front line of innovation. If you, a family member, or a friend are experiencing hearing loss, getting tested and treated now is the best course of action. Widex wants to give you, our listeners, the opportunity to try their hearing aids for yourselves with no obligation to purchase. Simply go to widex.com/tested. That's w-i-d-e-x.com/tested to learn where you can trial Widex hearing aids near you. Now on with the show.
-
 [00:01:00] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:03] Adam: I'm Adam,

@@ -4,8 +4,6 @@
 **Duration:** 32m 51s  
 Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
-[00:00:00] Norm: Hey everybody, Norm here. Before we start this episode of Still Untitled, I want to thank the sponsor for this week. That sponsor is TunnelBear. Does it give you the creeps when your internet provider tracks your web browsing? If today's lack of online privacy brings out your inner grizzly bear, then you should try TunnelBear. TunnelBear is a simple VPN app that makes it easy to browse privately and enjoy more open internet on your desktop and mobile devices. TunnelBear is a top-rated privacy policy and does not log your activity. Try it free with 500 megabytes and no credit card required. To get started, just go to TunnelBear.com/untitled. Now on with the show.
-
 [00:00:49] Adam: Welcome to Still Untitled, the Adam Savage Project. I'm Adam.
 
 [00:00:53] Norm: I'm Norm.
@@ -714,6 +712,6 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:31:49] Adam: Bye.
 
-[00:31:51] Norm: Thanks for listening to Still Untitled this week, and I want to thank the sponsor of this week's episode. That sponsor, of course, TunnelBear. TunnelBear is a simple VPN app that makes it easy to browse privately and enjoy a more open internet. Just choose a country in the app, turn TunnelBear on, and watch as your bear quickly tunnels your internet connection into a new secured location. When TunnelBear is on, your internet connection is encrypted, and your online activity is kept private from your internet provider, from advertisers, hackers, and other snoops. More importantly, TunnelBear does not log any user activity. The bears have apps for all your desktop and mobile devices, plus a sleek Chrome extension. So try TunnelBear free with 500 megabytes and no credit card required. Just go to TunnelBear.com/Untitled, and we'll see you next week. Bye.
+[00:31:51] Norm: Thanks for listening to Still Untitled this week, and we'll see you next week. Bye.
 
 [00:32:47] [unclear speaker]: Bye. Bye. Bye. Bye. Bye.

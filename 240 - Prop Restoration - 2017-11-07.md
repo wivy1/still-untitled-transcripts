@@ -4,7 +4,7 @@
 **Duration:** 34m 28s  
 Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
-[00:00:00] Norm: Support for today's episode of Still Untitled comes from War Dragons, a mobile real-time strategy game where players directly control dragons to attack enemy bases. With over 150 different dragons to collect, players can join guilds to launch co-op attacks and co-op defense. Best of all, there's a new endgame feature called Atlas, which is a 3D persistent world where players can forge alliances with other teams and build up dragon-led armies, fight for new land, and secure lucrative rewards. Just go to wardragons.com/untitled via your phone or tablet device to download the game. On with the show. Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
+[00:00:00] Norm: Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
 
 [00:00:46] Adam: I'm Adam.
 
@@ -916,4 +916,4 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:33:39] Unknown speaker: Bye.
 
-[00:33:41] Norm: Once again, support for today's episode of Still Untitled comes from War Dragons, a mobile real time strategy game where players directly control dragons to attack enemy bases. With over 150 different dragons to collect, players can join guilds to launch co op attacks and co op defense. Best of all, there's a new end game feature called Atlas, which is a 3D persistent world where players can forge alliances with other team members and build up dragon led armies, fight for new land, and secure lucrative rewards. Just go to wardragons.com/untitled on your phone or tablet device to download the game. We'll see you next week.
+[00:33:41] Norm: We'll see you next week.

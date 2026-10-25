@@ -4,8 +4,6 @@
 **Duration:** 39m 2s  
 Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by SyFy's The Expanse. Imagine if hundreds of years from now we colonize Mars and the asteroid belt, but took all of Earth's worst problems with us, like corruption, deception, and injustice. The sci-fi series that Io9 named the best show of the year returns to explore what happens when we reach the stars, but still are at each other's throats. Based on the best-selling book series The Expanse, all new episodes Wednesdays at 10:9 Central on SyFy.
-
 [00:00:37] Adam: Welcome to Still Untitled, the Adam Savage Project.
 
 [00:00:41] Norm: I'm Norm.
@@ -754,4 +752,4 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:37:50] Simone: See ya.
 
-[00:37:52] Norm: This week's episode of Still Untitled was also brought to you by Casper Mattresses. Casper is, of course, an obsessively engineered mattress at a shockingly fair price. It combines springy latex and supportive memory foams to create an award-winning sleep surface with just the right amount of sink and just the right bounce. An in-house team of engineers spent thousands of hours developing the Casper. Its breathable design helps you regulate your temperature throughout the night. Time magazine even named it one of the best inventions of 2015. Try Casper for 100 nights risk-free in your own home. If you don't love it, they'll pick it up and refund you everything. Casper understands the importance of truly sleeping on a mattress before you commit, especially if you're going to spend a third of your life on it. And Casper mattresses are, of course, made in America, and you have free shipping and returns in the U.S. and Canada. Now, listeners of Still Untitled will get fifty dollars toward any mattress purchase by going to Casper dot com slash Untitled and using the offer code Untitled. Terms and conditions apply. See you next week.
+[00:37:52] Norm: See you next week.

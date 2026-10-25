@@ -4,7 +4,7 @@
 **Duration:** 27m 54s  
 Episode URL: https://www.youtube.com/watch?v=gPE-cLUiVqE
 
-[00:00:00] Will: Have you ever wondered why the filters you use in your home, like your refrigerator, furnace, or air conditioning unit, cost so much? They don't have to. With DiscountFilters.com, you'll find top-quality household filters at a fraction of the price. Replacing the filters in your refrigerator, furnace, and AC unit is important to do often to ensure the air in your home is fresh, clean, and healthy. However, who ever remembers to replace them? With DiscountFilters.com, they'll send you an email reminder when it's time to change and also when it's time to replenish. They have filters to match any fridge, furnace, or AC unit, and if you aren't sure what filter to get, they also offer helpful filter finders and experts available if you need them, ensuring you get the right fit. And with free shipping and returns, you can't go wrong. Visit DiscountFilters.com/untitled. That's DiscountFilters.com/untitled, and receive ten percent off your order. Again, it's DiscountFilters.com/untitled to get. Ten percent off your order. Welcome to Still Untitled, the Adam Savage Project. I am Will.
+[00:00:00] Will: Welcome to Still Untitled, the Adam Savage Project. I am Will.
 
 [00:01:02] Adam: I am Adam,
 
@@ -537,5 +537,3 @@ Episode URL: https://www.youtube.com/watch?v=gPE-cLUiVqE
 [00:27:13] Adam: Bye guys.
 
 [00:27:14] Will: Bye.
-
-[00:27:20] Will: We'd like to thank Discount Filters for sponsoring today's show. Stop worrying about the air quality in your home. DiscountFilters.com will send you an email reminder when it's time to change, and also when it's time to replenish your refrigerator, furnace, and AC unit filters. They have filters to match any fridge, furnace, or air conditioning unit. And if you aren't sure what filter to get, they also offer helpful filter finders, as well as experts who are available if you need them, ensuring you get the right fit. And with free shipping and returns, you can't go wrong. Visit DiscountFilters.com/untitled and receive 10% off your order. Again, that's DiscountFilters.com/untitled to get 10% off your order.

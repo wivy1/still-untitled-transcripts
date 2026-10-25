@@ -4,8 +4,6 @@
 **Duration:** 51m 49s  
 Episode URL: No YouTube video (audio-only episode)
 
-[00:00:00] SPEAKER_00: This episode of Still Untitled is brought to you by Movement Watches, started by two broke college kids that wanted to wear stylish watches but couldn't afford them. Movement was founded on the belief that style shouldn't break the bank. Movement watches have classic design, quality construction, and styled minimalism that start at just ninety-five dollars. At a department store, you're looking at four to five hundred bucks. Get fifteen percent off today with free shipping and free returns by going to mvmtwatches.com/untitled. Again, that's mvmtwatches.com/untitled. And now on with the show.
-
 [00:00:38] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:41] Adam: I'm Adam.

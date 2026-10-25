@@ -4,35 +4,7 @@
 **Duration:** 36m 24s  
 Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
-[00:00:02] Will: This week's episode is brought to you by Squarespace. Squarespace seven, specifically, it's Squarespace's new platform for building a website. Norm, you take a lot of photos.
-
-[00:00:11] Norm: I do, and I haven't built a website in a long time. I remember, oh, what is a rule that you shouldn't break? You shouldn't use tables. I use too many tables.
-
-[00:00:20] Will: Don't use tables.
-
-[00:00:20] Norm: That's something you don't have to worry about if you use Squarespace.
-
-[00:00:23] Will: Yeah, Squarespace is a design. Squarespace seven is a fully responsive design, so it looks right on mobile, on desktop, all sorts of different stuff. Where do your photos live now? Do you put them on other people's services where they're making money off of them instead of you?
-
-[00:00:33] Norm: I wish I was making money off of them.
-
-[00:00:34] Will: You could build your own site with Squarespace right now to host your photos. Put some ads on there, make money today.
-
-[00:00:40] Norm: That's right. And I guess Squarespace seven has a bunch of new features. Something that
-
-[00:00:44] Will: seven new features.
-
-[00:00:46] Norm: Seven new features. One of them that I think is really cool is like a landing page. I think they call the cover page. I don't have a restaurant. If I was building like a website, I would want like a nice landing.
-
-[00:00:56] Will: It's like a portfolio. You can have a front page. Splash page. Hey, here is me. And then you can link directly out to galleries or stuff like that. Hey, here is my work. So if you want to make a portfolio site for your small business, whatever, Squarespace is there for you. If you want to find out how to sign up, go to Squarespace dot com. You can get a free trial. You don't have to put a credit card in or anything. When you sign up to start paying, you can get ten percent off if you use the offer code Untitled.
-
-[00:01:20] Norm: That's the name of this podcast.
-
-[00:01:21] Will: Untitled, U N T I T L E D, and let Squarespace know that you like still Untitled and you want to support the show.
-
-[00:01:27] Norm: And also let us know if you build a website because I want to see them.
-
-[00:01:31] Will: And now on with the show. Welcome to Still Untitled, the Adam Savage Project. I am Will.
+[00:01:31] Will: Welcome to Still Untitled, the Adam Savage Project. I am Will.
 
 [00:01:39] Adam: I am Adam Savage. And
 
@@ -910,18 +882,8 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:35:20] Frank Ippolito: Well, I'll let you know.
 
-[00:35:21] Will: Have a good week, guys. See you next week. This week's episode of Still Untitled is brought to you by Squarespace Seven.
+[00:35:21] Will: Have a good week, guys. See you next week.
 
-[00:35:26] Norm: That's right, Squarespace. It's a service that helps you build a website, even if you have basically no experience. There's a real time tools. You drag and drop designs. There are a bunch of templates, new templates in this new version of Squarespace, and whether you're building a portfolio for yourself or small business, it's something you can use.
-
-[00:35:44] Will: You know what my favorite feature is, Norm?
-
-[00:35:45] Norm: What's your favorite feature of Squarespace Seven?
-
-[00:35:46] Will: When I build websites at three o'clock in the morning, I always hit problems. I never know where to go. Squarespace has twenty four hour online help, so you can get help around the clock, seven days a week.
-
-[00:35:57] Norm: Design help. Engage with the Squarespace help, and I want to see your conversations with them. Three a m. Conversations.
-
-[00:36:04] Will: That sounds great. If you want to support test support Still Untitled. You can do so by going to squarespace.com, signing up. You don't need to put your credit card in to sign up, but when you do decide to pay, you can get ten percent off by using the offer code Untitled, and let them know that you love Still Untitled. Thanks for listening.
+[00:36:04] Will: Thanks for listening.
 
 [00:36:19] Norm: Bye.

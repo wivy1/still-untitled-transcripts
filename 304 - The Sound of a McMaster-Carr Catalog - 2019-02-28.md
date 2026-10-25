@@ -4,7 +4,7 @@
 **Duration:** 30m 46s  
 Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
-[00:00:00] Norm: This week's episode of Still Untitled is made possible by Wyze Cam. Wyze is on a mission to make amazing smart home products accessible to everyone. The Wyze Indoor Camera is packed with premium features that allow you to see everything from anywhere for only twenty dollars. Whether you are checking to see if your kids are home safe or if your three D printer has finished printing, nothing is off limits for Wyze Cam. Go to wyze.com/ untitled. That's W Y Z E to be guaranteed the lowest price available. Now, on with the show. Welcome to Still Untitled, the Adam Savage Project. I am Norm.
+[00:00:00] Norm: Welcome to Still Untitled, the Adam Savage Project. I am Norm.
 
 [00:00:35] Adam: I am Adam.
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:18:04] Adam: Oh, I would totally look at that.
 
-[00:18:04] Norm: and do interviews and um and trends. Hey everyone! Before we continue on with this week's episode, I want to let you know that Still Untitled is also made possible by VistaPrint. Whether you're a startup or a business with a century of history, being plugged in and prepared when the opportunity comes up is crucial. Those moments happen all the time, and having a business card that shows how professional you are is the first step to making something happen. With VistaPrint, all it takes is ten dollars to create a truly professional, unique card in minutes. To have the confidence you're always ready to make an impression, ready to own the now, simply upload your own design or start with one of VistaPrint's professionally designed options and wide range of templates. Pick the paper stock, style, and quantity. Choose your delivery speed, and then receive your cards in as few as three days with your satisfaction one hundred percent guaranteed. VistaPrint wants you to be able to always own the now in any situation, which is why our listeners will get five hundred high quality custom business cards starting at just nine ninety nine. Just use the code Untitled at VistaPrint dot com. That's the code Untitled at VistaPrint dot com. Untitled at vistaprint dot com. Now back to the conversation.
+[00:18:04] Norm: and do interviews and um and trends.
 
 [00:19:30] Adam: Oh, also, at one point, hold on. At one point, at one point, a couple of years ago, I tweeted about how much I liked on the media, and they tweeted back to me, and it's such a thrill. Yesterday, I got the same thrill because I tweeted a picture of me receiving my new McMaster-Carr catalog, and McMaster-Carr tweeted to me, " We embrace your reality."
 
@@ -554,4 +554,4 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:30:06] Adam: Thanks, guys.
 
-[00:30:08] Norm: Thanks for listening this week. And once again, I want to let you know that this episode is made possible by Wyze Cam because Wyze is on a mission to make amazing smart home products accessible to everyone. Wyze’s indoor camera is packed with premium features, allows you to see everything from anywhere for only twenty dollars. Whether you're checking to see if your kids are home safe or if a three D print has finished printing, nothing is off limits for the Wyze Cam. Just go to wyze.com/ Untitled. That's W Y Z E. dot.com/slash/untitled to be guaranteed the lowest available price. Thanks for listening again, and we'll see you next week.
+[00:30:08] Norm: Thanks for listening this week. Thanks for listening again, and we'll see you next week.

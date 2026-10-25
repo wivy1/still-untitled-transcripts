@@ -4,8 +4,6 @@
 **Duration:** 35m 57s  
 Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
-[00:00:01] Norm: Hey, everybody! Norm here. This week's episode of Still Untitled is brought to you by Blue Apron. We've talked about this service before. It brings you fresh ingredients and recipes so that you can make meals in your own home for less than ten dollars a meal. Blue Apron delivers seasonal recipes along with pre-portioned ingredients to make delicious home-cooked meals. The pre-portioned part—that's my favorite. Blue Apron knows that when you cook with incredible ingredients, you make incredible meals, so they set the highest quality standards for their community of artisanal suppliers, family-run farms, fisheries, and ranchers. Whether it's Japanese noodles, wild-caught Alaskan salmon, or heirloom tomatoes, Blue Apron is bringing you the best. And for listeners of this podcast, you can get check out this week's menu and you get your first three meals—that's three meals for free with free shipping by going to blueapron dot com slash untitled. Again, that's blueapron dot com slash untitled. Blue Apron—a better way to cook. And now on with the show.
-
 [00:01:09] Adam: Welcome to Still Untitled, the Adam Savage Project. I'm Adam.
 
 [00:01:12] Norm: I'm Norm.
@@ -1008,4 +1006,4 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:34:57] Adam: Good.
 
-[00:34:58] Norm: All right. Bye. Hey, I want to thank the other sponsor of this week's episode of Still Untitled, and that's TunnelBear. TunnelBear is a simple VPN app that makes it easy to browse privately and enjoy a more open internet. Just choose a country in the app, turn TunnelBear on, and watch your bear tunnel across and make a new internet connection to a secure location. When the app is on, your internet connection is encrypted, and your online activity is kept private from your ISP, advertisers, hackers, and other snoops. Most importantly, your user activity is never logged. The bears have apps for all your desktop and mobile devices, plus a sleek Chrome extension. So try TunnelBear with 500 megabytes free and no credit card required. Just go to TunnelBear.com/untitled. We'll see you next time. Bye.
+[00:34:58] Norm: All right. Bye. We'll see you next time. Bye.

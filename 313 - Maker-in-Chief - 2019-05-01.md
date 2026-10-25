@@ -472,8 +472,6 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:25:17] Adam: And I I really appreciate that.
 
-[00:25:19] Norm: Hey everyone, Norm here. Before we continue on with this week's conversation, I want to let you know that Still Untitled the Adam Savage project is brought to you this week by TripleByte because applying to programming jobs sucks. You have to put in the right keywords in your resume. You spend hours and hours on phone screens and take home projects, and that's assuming the company even responds to your application. Well, if you're a software engineer, TripleByte can help. They work with over 400 top tech companies, from big names like Dropbox and Adobe to exciting startups. You do one brief online interview with them, and if you do well, you get to go straight to final interviews with the companies on their platform. It's like the common app for software engineers. Triplebyte does not look at your resume or where you went to school. All they care about is if you can code. Because you are more than just a sheet of paper or a signature on a diploma. You are your skills and your abilities. Apply now at triplebyte.com/untitled. That's triplebyte, B-Y-T-E, byte as in eight bits. And as a special offer for listeners of the show, if you take a job through Triplebyte, they'll offer you a one thousand dollar signing bonus. All right, back to the conversation.
-
 [00:26:28] Adam: Nick had another way when we started our interview. We were just shooting the breeze and kind of warming up, and he said, " What have you made lately?" And I said, " Oh, actually, this last weekend, I..." Came into my shop. There's this big under the sink cabinet in the island in my kitchen, and it was with these terrible sort of container store upright metal racks.
 
 [00:26:49] Will: Oh, the wobbly ones.
@@ -700,4 +698,4 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:38:56] Adam: bye, guys.
 
-[00:39:03] Norm: Thanks for listening this week, and I want to remind you that Still Untitled is made possible this week by the fine folks at TripleByte. Applying to programming jobs, you know, sucks. From endless applications to countless hours of technical screens, with TripleByte, there is a better way. You do one online interview, then you get to go straight to final interviews at hundreds of companies from tech giants like Dropbox to exciting startups. It's like the common app for software engineers. No resume needed. Apply now at triplebyte.com/untitled, and if you take a job through Triplebyte, they'll offer you a one thousand dollar signing bonus. That's pretty good. Triplebyte b y t e dot com/untitled. We'll see you next week.
+[00:39:03] Norm: Thanks for listening this week. We'll see you next week.

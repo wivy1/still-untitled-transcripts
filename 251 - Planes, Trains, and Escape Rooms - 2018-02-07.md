@@ -4,8 +4,6 @@
 **Duration:** 32m 2s  
 Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by Google's Cloud Platform. When you're building an application, you need it to be fast, secure, and always evolving. With the Kubernetes Engine on Google Cloud Platform, developers can deploy fully managed containerized apps. The Kubernetes Engine combines automatic scaling, updates, and reliable self-healing infrastructure with open source flexibility to cut down development cycles and speed up time to market. To learn more about the Kubernetes Engine, visit g co slash get gke. Now on with the show.
-
 [00:00:38] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:41] Adam: I'm Adam,

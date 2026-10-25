@@ -4,27 +4,7 @@
 **Duration:** 28m 31s  
 Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
-[00:00:00] Will: Hey Norm.
-
-[00:00:00] Norm: Hey Will.
-
-[00:00:00] Will: Have you read any good books lately?
-
-[00:00:02] Norm: I haven't had time to read books, but I'm planning on doing a lot of driving in a couple of weeks, so I'm going to do some audiobooks.
-
-[00:00:09] Will: Ooh, you know, today's podcast is brought to you by Audible.com. They have hundreds of thousands of great audiobooks, both full cast recordings, single person recordings, whatever you want, you can find it there, including such things as Enigma, which is the the book that the Alan Turing biopic.
-
-[00:00:25] Norm: Yes, The Imitation Game.
-
-[00:00:25] Will: Yes.
-
-[00:00:25] Norm: The Oscars were on this past weekend, so I wanted to listen to the Alan Turing book. I know that Gone Girl I really liked that movie last year, and that's a book. I don't know if I want to read that.
-
-[00:00:36] Will: Book is much better than the movie.
-
-[00:00:37] Norm: Oh, maybe I'll listen to that book as well.
-
-[00:00:39] Will: So yeah, if you want to find out more about Audible and get a free 30 day trial and one free audiobook, you can do that by going to audiblepodcast.com/untitled, and you'll also show support for Still Untitled: The Adam Savage Project. Thanks for listening, and we'll on with the show. Welcome to Still Untitled: The Adam Savage Project. I'm Will.
+[00:00:39] Will: Welcome to Still Untitled: The Adam Savage Project. I'm Will.
 
 [00:01:00] Adam: I'm Adam,
 

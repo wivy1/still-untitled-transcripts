@@ -4,8 +4,6 @@
 **Duration:** 48m 34s  
 Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
-[00:00:00] Norm: Hey everybody! Support for today's episode of Still Untitled comes from Backblaze. Backblaze offers unlimited cloud backups for Macs and PCs for just five dollars a month. You can go to backblaze.com/still untitled—that's the name of this podcast—so you know where you came from and continue to support the show. And there, you can receive a fully featured 15-day free trial on their site. You can play with it, test it out, start protecting yourself from potential bad times today. And also, don't forget—they also have a business plan, business backup. If you're already a Backblaze user at home, let your system admin at work know. Again, the website is backblaze.com/still untitled, and you can try the business version with more admin tools, like using Backblaze groups or protect your home PC. Again, just at five dollars a month. And thank them for supporting this week's episode.
-
 [00:00:56] Will: Well, on that note, welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:00] Adam: I'm Adam.

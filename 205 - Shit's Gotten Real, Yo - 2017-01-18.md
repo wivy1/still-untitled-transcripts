@@ -4,8 +4,6 @@
 **Duration:** 36m 19s  
 Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
-[00:00:02] Norm: This week's episode of Still Untitled is brought to you by MVMT Watches. MVMT Watches start at just ninety-five dollars. At a department store, you're looking at four hundred to five hundred bucks. MVMT figured out that by selling online, they were able to cut out the middleman and retail markup, providing the best possible price. They have classic designs, quality construction, and styled minimalism. Over five hundred thousand watches have been sold in over a hundred sixty countries. Now you can get fifteen percent off your MVMT Watch today with free shipping and free returns by going to mvmtwatches.com/untitled. Again, that's mvmtwatches.com/untitled. Now is the time to step up your watch game. Go to mvmtwatches.com/untitled to join the movement. Now on the show.
-
 [00:01:00] Will: Welcome to Still Untitled: The Adam Savage Project. I'm Will.
 
 [00:01:02] Adam: I'm Adam, and today we have a special guest.

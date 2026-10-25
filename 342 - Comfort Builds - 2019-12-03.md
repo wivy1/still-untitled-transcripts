@@ -534,8 +534,6 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:24:33] Norm: Yeah.
 
-[00:24:34] Norm: Hey everyone, Norm here. Before we continue on with the conversation this week, I want to let you know that Still Untitled is made possible with support. From Netgear Orbi Wi-Fi Six, is your Wi-Fi feeling old? Does it buffer while streaming? Does connecting new devices slow down? Can it handle gaming, video calls, large file transfers all at once? It doesn't matter how fast your internet connection is, if your Wi-Fi router is old and outdated. With Orbi Wi-Fi Six from Netgear, your Wi-Fi will feel new again. Wi-Fi Six is the latest tech that allows more devices to connect and stream simultaneously without impacting speed or reliability. The result delivers the fastest Wi-Fi for all your devices anywhere in your home. You can stream in HD, 4K, or even 8K without buffering, eliminate lag while gaming, and connect more devices to your Wi-Fi than ever before. Orbi Wi-Fi Six is like upgrading your Wi-Fi to first class, and if you're ready for that best Wi-Fi ever, you can get it today from Netgear and never worry about Wi-Fi again. Check out Orbi Wi-Fi Six at your local Best Buy or at netgear.com/bestwifi. That's netgear.com/bestwifi. Now on with the show.
-
 [00:25:45] Adam: Okay, so we've talked a little bit about science fiction. I want to go back to what you guys ate on Thanksgiving. So, Jen, yeah, what was what was your Thanksgiving meal, the dinner like?
 
 [00:25:55] Jen Schachter: It was it was pretty traditional. I went over. We have a Friendsgiving every year in Baltimore, and I went back to to go do Friendsgiving.

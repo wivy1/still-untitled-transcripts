@@ -4,8 +4,6 @@
 **Duration:** 36m 42s  
 Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
-[00:00:00] Norm: This week's episode of Still Untitled is brought to you by VideoBlocks. VideoBlocks offers a great value with an unlimited download model. Choose from a library of over 115,000 HD video clips, After Effects templates, motion backgrounds, and cinemagraphs. AudioBlocks also has over 130,000 music tracks, sound effects, and loops. On average, subscribers pay less than a dollar per download over the course of a year, and they're continuously adding new content to the library so it stays fresh. Everything is 100% royalty free, even if a subscription is canceled, and you have unrestricted usage rights for personal or commercial projects, and those rights never go away. You keep what you download. Now, VideoBlocks is offering listeners of this podcast a year’s subscription to both VideoBlocks and AudioBlocks for just $ 149. That's $ 100 discounted [unclear: for our listeners only / for a year. So for our listeners only]. Get your subscription today at videoblocks.com/StillUntitled2016. That's right. That's videoBlocks dot com slash still untitled twenty sixteen for this exclusive offer. Now on with the show.
-
 [00:01:19] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:01:21] Adam: I'm Adam.
@@ -1054,6 +1052,6 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:35:09] Will: Everything is awesome. Okay. See you guys later. Have a good one. Bye. Thanks for listening.
 
-[00:35:15] Norm: This week's episode of Still Untitled was also brought to you by Casper Mattresses. Casper is, of course, an obsessively engineered mattress at a shockingly fair price. Mattresses can cost well over fifteen hundred dollars, but Casper mattresses cost five hundred dollars for a twin size mattress up to nine fifty for a king. It combines springy latex and supportive memory foams to create an award-winning sleep surface with just the right amount of sink and just the right bounce. An in-house team of engineers spent thousands of hours developing the Casper. Its breathable design helps you regulate your temperature. Throughout the night, Time Magazine even named it one of the best inventions of twenty fifteen. Try Casper for one hundred nights, risk free in your own home. If you don't love it, they'll pick it up and refund you everything. Casper understands the importance of truly sleeping on a mattress before you commit, especially if you are going to spend a third of your life on it. And Casper mattresses are, of course, made in America, and you have free shipping and returns in the U.S. and Canada. Now, listeners of Still Untitled will get fifty dollars toward any mattress purchase by going to casper dot com slash untitled and using the offer code untitled. Again, that's www dot casper dot com slash untitled and using the offer code untitled. Terms and conditions apply. See you next week.
+[00:35:15] Norm: See you next week.
 
 [00:35:15] Unknown speaker: Thanks for watching.

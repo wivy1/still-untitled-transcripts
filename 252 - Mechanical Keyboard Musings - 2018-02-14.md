@@ -1160,4 +1160,4 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:39:44] Norm: Bye.
 
-[00:39:44] Norm: Support for today's episode of Still Untitled comes from Google's Cloud Platform. What can your data tell you? With Google Cloud Platform, use machine learning at scale to build better products. Predicts so your business can thrive. Learn more about Google Cloud Platform at g.co/getcloudai, and thank them for supporting this week's episode. We'll see you next week.
+[00:39:44] Norm: We'll see you next week.
