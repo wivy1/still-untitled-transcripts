@@ -16,7 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:00:14] Adam: the show.
 
-[00:00:14] Will: Yes, we're doing a week of tested live on stage at the Castro Theater.
+[00:00:14] Will: Yes, we're doing a week of tested live on stage at the Castro Theatre.
 
 [00:00:20] Adam: Wait, wait, that it's like we're cramming a full week of tested into one afternoon of live performance on stage at the Castro. It's not a week long performance.
 
@@ -44,9 +44,9 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:00:58] Will: It’s on the top of the page,
 
-[00:00:59] Norm: and it'll be at the Castro Theater. So it's a beautiful venue.
+[00:00:59] Norm: and it'll be at the Castro Theatre. So it's a beautiful venue.
 
-[00:01:01] Adam: Beautiful Castro Theater.
+[00:01:01] Adam: Beautiful Castro Theatre.
 
 [00:01:03] Will: I think VIP tickets are already sold out, but we're going to have a tested meetup for members, tested members after the event.
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:07:58] Adam: So so monkeys aren't the only ones that use tools.
 
-[00:08:02] Will: The thing is, when the dog when the dog when you get an eyeball of the dog's ass. It's just because the dog is trying to get in a more comfortable position and is unaware of the social aspects of, you know, bearing its its nethers.
+[00:08:02] Will: The thing is, when the dog when the dog when you get an eyeball of the dog's ass. It's just because the dog is trying to get in a more comfortable position and is unaware of the social aspects of, you know, baring its its nethers.
 
 [00:08:02] Adam: Its starfish.
 
@@ -810,7 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:29:00] Adam: But it was really pretty.
 
-[00:29:18] Adam: The big witch,
+[00:29:18] Adam: The big which,
 
 [00:29:19] Will: the big net that the that the defending ships make.
 

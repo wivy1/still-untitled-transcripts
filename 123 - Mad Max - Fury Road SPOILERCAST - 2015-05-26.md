@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:05:06] Will: Some days I don't brush, but I always floss.
 
-[00:05:08] Norm: People don't know how to floss properly either. It's it's not the song motion. It's the scraping up and down.
+[00:05:08] Norm: People don't know how to floss properly either. It's it's not the sawing motion. It's the scraping up and down.
 
 [00:05:12] Will: Well, so my dentist told me to get. I can't believe we're talking about dental care here. We're not dentists, just to be clear. But she gave me. She told me to get one of those things you clip the little heads on, and it has a thing that goes across. It's like it basically just [unclear: a cross cross saw / a cross cross R / across yeah it’s like a little thing that goes across the cross]. And and when I started using that, all of a sudden I got good at flossing. Like I had always gotten bad notes when I when I went into the dentist before about my flossing, and once I switched to that, she was like, " Oh no, you're doing a really good job because it's all up and down, and you kind of just rank it around from side to side to get the get the edges."
 

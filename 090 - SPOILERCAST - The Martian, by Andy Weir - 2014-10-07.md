@@ -10,7 +10,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:00:01] Adam: All right.
 
-[00:00:01] Will: Welcome to Still Untitled, the Adam Savage. Welcome to Still Untitled, the Adam Savage Project. I'm Will.
+[00:00:01] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:11] Adam: I'm Adam,
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:11:33] Norm: Yeah. Eight month journey.
 
-[00:11:34] Adam: Eight month journey. And NASA is late in informing them that their crewman is still alive because they're worried about their morale because they won't be able to do anything about it. And when he finds out, when the main character finds out, he's like, he writes, " Are you fucking kidding me? Tell them already." And he's told by the NASA guy, " Hey, please watch your language. There's a billion people reading every single one of your misses from Mars." And his next missive is, " Hey boobies,"
+[00:11:34] Adam: Eight month journey. And NASA is late in informing them that their crewman is still alive because they're worried about their morale because they won't be able to do anything about it. And when he finds out, when the main character finds out, he's like, he writes, " Are you fucking kidding me? Tell them already." And he's told by the NASA guy, " Hey, please watch your language. There's a billion people reading every single one of your missives from Mars." And his next missive is, " Hey boobies,"
 
 [00:12:01] Norm: with a
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:12:03] Norm: He like the the balance. Oh,
 
-[00:12:12] Will: and we're back. Had a slight malfunction there, but we, Mark Watney, need that shit.
+[00:12:12] Will: and we're back. Had a slight malfunction there, but we Mark Watneyed that shit.
 
 [00:12:17] Adam: There we go. We figured it out. So now we're no longer recording on a GoPro. We're recording on a laptop.
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:25:02] Adam: to use the currently returning crew’s acceleration speed to do a gravity assist from Earth while picking up a food supply and slingshot back to Mars faster than anybody else can
 
-[00:25:14] Will: because they don't have to stop and they don't have to stop and
+[00:25:14] Will: because they don't have to stop and
 
 [00:25:16] Adam: start again. But there's a bit of a mutiny, and the mutiny is announced. By the Hermes three, Ares three, the Hermes ship or the Ares three crew, sending a missive to NASA saying, " Rich Parnell is a steely-eyed rocket man." Well, that's the point at which I got a little teary. I was like, "
 
@@ -984,7 +984,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:38:15] Will: but it's not just for exercise. You have to do that so they can cook too. Uh huh. Um,
 
-[00:38:38] Adam: and I have heard tell, by the way, that the that the that the Tracy Desjardins space burrito is now a thing.
+[00:38:38] Adam: and I have heard tell, by the way, that the that the that the Traci Des Jardins space burrito is now a thing.
 
 [00:38:44] Will: That's that's their word. Yeah,
 
@@ -1002,7 +1002,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:39:22] Norm: In the in the hab, he'll you can.
 
-[00:39:24] Adam: Karl Urban is, and if you don't know who Karl Urban is, he played Judge Dredd without ever taking his helmet off in Dredd 3D. He also. plays the nephew of King Theoden from the Two Towers. He also plays Bones in the Star Trek movies. You've seen him in a million. He also plays the Russian villain in the Second Born films. You've seen him in a million things.
+[00:39:24] Adam: Karl Urban is, and if you don't know who Karl Urban is, he played Judge Dredd without ever taking his helmet off in Dredd 3D. He also. plays the nephew of King Theoden from the Two Towers. He also plays Bones in the Star Trek movies. You've seen him in a million. He also plays the Russian villain in the Second Bourne films. You've seen him in a million things.
 
 [00:39:44] Will: Was he in Terminator or something too?
 
@@ -1236,7 +1236,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:44:01] Adam: Totally.
 
-[00:44:01] Will: Um, and we'll be back next week with another episode of Still Untitled. Don't forget, tickets for the live show are on sale now. If you would like to come see us, I mean, they're presumably still on sale now. They may be sold out by now. We're they're selling through pretty fast. Um, it's testedlive. Eventbrite. Com. It's October twenty fifth, one p. M. At the Castro Theater in San Francisco. Hope to see you guys there, and it'll be on the site later. All right, if you can't make it, but thanks for watching. We'll see you guys next week.
+[00:44:01] Will: Um, and we'll be back next week with another episode of Still Untitled. Don't forget, tickets for the live show are on sale now. If you would like to come see us, I mean, they're presumably still on sale now. They may be sold out by now. We're they're selling through pretty fast. Um, it's testedlive. Eventbrite. Com. It's October twenty fifth, one p. M. At the Castro Theatre in San Francisco. Hope to see you guys there, and it'll be on the site later. All right, if you can't make it, but thanks for watching. We'll see you guys next week.
 
 [00:44:28] Adam: Thanks, guys.
 

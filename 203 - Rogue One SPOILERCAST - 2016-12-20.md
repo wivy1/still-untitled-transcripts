@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:03:41] Will: it's. I can't find. Does it stream anywhere?
 
-[00:03:45] Norm: Sci-fi has some episodes online. Like they did the first episode online.
+[00:03:45] Norm: Syfy has some episodes online. Like they did the first episode online.
 
 [00:03:49] Adam: I could be wrong, but I believe that before season two. Airs, they're going to allow you to stream season one, so you can get ready.
 
@@ -556,7 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:19:23] Adam: If you're going to watch Episode Three, I recommend that you watch it in French with English subtitles, because dialogue that bad is actually much more palatable if you're reading it rather than hearing people butcher it.
 
-[00:19:35] Will: You almost got your first Still entitled spit take on that one.
+[00:19:35] Will: You almost got your first Still Untitled spit take on that one.
 
 [00:19:37] Norm: That's great.
 
@@ -740,7 +740,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:25:09] Norm: But No one expected that.
 
-[00:25:10] Will: Yeah, it was like that. So, so the thing that I was gonna say about Tarkin and and Leia is they stood out because the blend between practical and digital effects was so good in the rest of the film. Yeah, that it was like you couldn't tell where the real word stopped and and and the the digital effects ended. So when you saw those faces, it just it just leapt out of the screen at me. Anyway,
+[00:25:10] Will: Yeah, it was like that. So, so the thing that I was gonna say about Tarkin and and Leia is they stood out because the blend between practical and digital effects was so good in the rest of the film. Yeah, that it was like you couldn't tell where the real world stopped and and and the the digital effects ended. So when you saw those faces, it just it just leapt out of the screen at me. Anyway,
 
 [00:25:30] Norm: and even to the Star Destroyers, we're talking about they use the effects to how you remember it. The way they designed the AT-AT walkers. If you compare a screenshot of the AT-ATs in Empire and the AT-ATs they have in this movie, which are Little different because they’re cargo ATs.
 
@@ -974,7 +974,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:32:42] Unknown speaker: right?
 
-[00:32:42] Norm: And it was, but in retrospect, yeah, they didn't need Yoda to go crazy, and they did it because they had CG. Here, it's measured, and I think. They they had that in the review mirror.
+[00:32:42] Norm: And it was, but in retrospect, yeah, they didn't need Yoda to go crazy, and they did it because they had CG. Here, it's measured, and I think. They they had that in the rearview mirror.
 
 [00:32:52] Will: I think Yoda fighting the way Yoda fought was important for Yoda because you needed to see Yoda as a force powered badass at some point in his arc. But but this
 
@@ -1056,7 +1056,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:35:25] Will: but but
 
-[00:35:26] Norm: so both of those guys, they were both temple guards. They were both guardians of the wills, but one had lost his faith. Baze, Blaze, Baze?
+[00:35:26] Norm: so both of those guys, they were both temple guards. They were both Guardians of the Whills, but one had lost his faith. Baze, Blaze, Baze?
 
 [00:35:33] Will: the guy with the gun.
 
@@ -1200,7 +1200,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:40:08] Will: in the same way Han Solo was in the beginning, yeah. The first movie.
 
-[00:40:10] Norm: her mission and Luke, her mission is not clear to her, and so their environment reflects that, where she's kind of like wandering through the Jedi and like, what am I doing here? And then like in the murky, the rainy Eadu, and then it becomes this bright, lush war zone. So you have you have like the the classic three things going on in the finale with the sky battle, like a a war, and then the the infiltration, just like just like in Jedi,
+[00:40:10] Norm: her mission and Luke, her mission is not clear to her, and so their environment reflects that, where she's kind of like wandering through the Jedha and like, what am I doing here? And then like in the murky, the rainy Eadu, and then it becomes this bright, lush war zone. So you have you have like the the classic three things going on in the finale with the sky battle, like a a war, and then the the infiltration, just like just like in Jedi,
 
 [00:40:41] Will: yeah,
 
@@ -1286,7 +1286,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:42:52] Adam: totally true,
 
-[00:42:52] Will: like that that to me totally recovered the the Gen Orso scene at the at the council. In a way that I kind of wasn't expecting quite so quick. It's like, oh man, that's a yeah. Okay,
+[00:42:52] Will: like that that to me totally recovered the the Jyn Erso scene at the at the council. In a way that I kind of wasn't expecting quite so quick. It's like, oh man, that's a yeah. Okay,
 
 [00:43:03] Adam: I totally agree.
 

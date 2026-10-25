@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:01:30] Adam: Anyway,
 
-[00:01:30] Norm: anyway, hey, you know, last week one of the things we didn't get a chance to talk about, complete omission on our part, was the the passing, of course, of Carroll Spinney,
+[00:01:30] Norm: anyway, hey, you know, last week one of the things we didn't get a chance to talk about, complete omission on our part, was the the passing, of course, of Caroll Spinney,
 
 [00:01:39] Adam: the amazing Muppeteer performer who spent decades making the world a better place, portraying Big Bird,
 
@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:01:59] Adam: but yes,
 
-[00:02:00] Will: if if you haven't, one of the first things we talked about when we talked about the Muppets here in the early early days of Still Untitled was you explained how that Carroll Spinney Big Bird puppet works,
+[00:02:00] Will: if if you haven't, one of the first things we talked about when we talked about the Muppets here in the early early days of Still Untitled was you explained how that Caroll Spinney Big Bird puppet works,
 
 [00:02:10] Adam: right?
 
@@ -112,13 +112,13 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:02:46] Will: Yeah, yeah,
 
-[00:02:47] Adam: and uh, uh, I got to meet Carroll Spinney at Silicon Valley Comic Con a couple of years ago.
+[00:02:47] Adam: and uh, uh, I got to meet Caroll Spinney at Silicon Valley Comic Con a couple of years ago.
 
 [00:02:53] Unknown speaker: Mm-hmm.
 
 [00:02:53] Adam: And he was, as every account of him has attested, the very picture of gracious, lovely, attentive, and sweet as you wanted Big Bird's creator to be.
 
-[00:03:08] Will: There were a number of people who had profiled or interviewed the Sesame Street, you know, children's television workshop, or or Carroll Spinney specifically, who kind of shared stories about meeting him. And and the one that I loved the most, I wish I should have looked up to see who it was before we started. So I apologize, but it basically told us the story of going to do this profile on on CTW.
+[00:03:08] Will: There were a number of people who had profiled or interviewed the Sesame Street, you know, children's television workshop, or or Caroll Spinney specifically, who kind of shared stories about meeting him. And and the one that I loved the most, I wish I should have looked up to see who it was before we started. So I apologize, but it basically told us the story of going to do this profile on on CTW.
 
 [00:03:31] Unknown speaker: Mm-hmm.
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:03:35] Adam: what was that? Was it someone yelling?
 
-[00:03:37] Will: Somebody's yelling. Yeah, somebody's yelling on the street. Sorry. They basically told the story of him going into interview this person and then sending him over to Carroll Spinney first. And he had taken off the top of Big Bird and was just wearing the legs and was resting. And he he said. He said in the big bird voice, " Oh hi, how how are you?" And the reporter just started crying, just burst into tears, right?
+[00:03:37] Will: Somebody's yelling. Yeah, somebody's yelling on the street. Sorry. They basically told the story of him going into interview this person and then sending him over to Caroll Spinney first. And he had taken off the top of Big Bird and was just wearing the legs and was resting. And he he said. He said in the big bird voice, " Oh hi, how how are you?" And the reporter just started crying, just burst into tears, right?
 
 [00:03:57] Norm: Yeah, certain people have that effect. I mean, it's the same. This year was also the year that we, you know, lost Peter Mayhew. So we're talking about character performers.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:09:58] Norm: oh Hong Chau,
 
-[00:10:00] Adam: so wonderful and wow! This episode, you know, I I enjoyed the spit out of this series. I think it's one of my my favorite series, both from a I thought I think it's one of my favorite series I've seen from both a technical storytelling perspective. Like I loved all the characters. I loved how the world was built. I loved how much they didn't hold your hand because knowing early what knowing having read the Watchmen, so much is filled in for you. And if you haven't read the Watchmen, they don't fill a ton in, or there's there's some there's some gaps. I felt like, or I wondered. Anyway, sorry, I'm getting ahead of myself. I love the spit out of it,
+[00:10:00] Adam: so wonderful and wow! This episode, you know, I I enjoyed the spit out of this series. I think it's one of my favorite series I've seen from both a technical storytelling perspective. Like I loved all the characters. I loved how the world was built. I loved how much they didn't hold your hand because knowing early what knowing having read the Watchmen, so much is filled in for you. And if you haven't read the Watchmen, they don't fill a ton in, or there's there's some there's some gaps. I felt like, or I wondered. Anyway, sorry, I'm getting ahead of myself. I love the spit out of it,
 
 [00:10:46] Adam: and also I think as as social commentary. A really, really powerful show.
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:27:20] Adam: And the device that he's being held in gets
 
-[00:27:22] Adam: destroyed. And the device that he's being held in gets destroyed
+[00:27:22] Adam: destroyed.
 
 [00:27:26] Will: by the yeah
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:28:50] Norm: She was not terrifying.
 
-[00:28:51] Adam: She was not terrifying, and it's the only only point in the in the series where I felt like I didn't see the thing I thought that should was was the likely thing to happen there, but. Holy hell! I also loved this aspect of the writing of both her character and Adrian Veidt of both of them being crazy intelligent, and the realization that like she spun up the Seventh Cavalry to believe that they were doing something only to be serving her needs, also to hide herself from Doctor Manhattan.
+[00:28:51] Adam: She was not terrifying, and it's the only only point in the in the series where I felt like I didn't see the thing I thought that should was was the likely thing to happen there, but. Holy hell! I also loved this aspect of the writing of both her character and Adrian Veidt of both of them being crazy intelligent, and the realization that like she spun up the Seventh Kavalry to believe that they were doing something only to be serving her needs, also to hide herself from Doctor Manhattan.
 
 [00:29:20] Will: Just to mask it, yeah.
 
@@ -756,7 +756,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:31:07] Adam: look, I didn't think that she was any less effective or interesting being strapped to that chair for the last two episodes.
 
-[00:31:13] Norm: She was kind of a bystander watching, and she never she sees that John reacts like. She has a reaction to Manhattan
+[00:31:13] Norm: She was kind of a bystander watching, and she never she sees that Jon reacts like. She has a reaction to Manhattan
 
 [00:31:18] Adam: It's her that calls Angela and tells her to get in to shelter.
 
@@ -784,7 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:32:11] Will: the the yeah the guy with the beard.
 
-[00:32:13] Adam: So yeah, I didn't feel I didn't feel like Jean was being sidelined. I just felt like okay, she's a witness to this while this while this stuff is going on. The the the payoff to the Seventh Cavalry,
+[00:32:13] Adam: So yeah, I didn't feel I didn't feel like Jean was being sidelined. I just felt like okay, she's a witness to this while this while this stuff is going on. The the the payoff to the Seventh Kavalry,
 
 [00:32:28] Norm: and also actually a [unclear] and a laughing stock and a joke of a you know of a of misdirection of a menace that that was great,
 
@@ -814,7 +814,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:34:20] Will: At the very end,
 
-[00:34:20] Norm: when she goes to defend him against Seventh Calvary,
+[00:34:20] Norm: when she goes to defend him against Seventh Kavalry,
 
 [00:34:23] Adam: I love that bit where he
 
@@ -926,7 +926,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:39:29] Norm: Zeddemore.
 
-[00:39:31] Will: I mean, the other thing—the other thing, like the the question of whether the costumed Avengers are good and bad, and watching Angela's path through that, as beginning with I'm not thinking about this at all, and ending with the thing that created the costumed the the masked cops, which is the which is the beginning of the it's why this whole thing starts, is the thing that that ends Doctor Manhattan is a is a fascinating turn to me, right? Because the White Knight he he's he's unmasked because of the White Knight because he instinctively reaches out he protects his family when they're attacked right because she's a cop
+[00:39:31] Will: I mean, the other thing—the other thing, like the the question of whether the costumed Avengers are good and bad, and watching Angela's path through that, as beginning with I'm not thinking about this at all, and ending with the thing that created the costumed the the masked cops, which is the which is the beginning of the it's why this whole thing starts, is the thing that that ends Doctor Manhattan is a is a fascinating turn to me, right? Because the White Night he he's he's unmasked because of the White Night because he instinctively reaches out he protects his family when they're attacked right because she's a cop
 
 [00:40:10] Adam: right.
 

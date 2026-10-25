@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:02:27] Will: I was just going to say, what makes a good venue, Adam? Sorry.
 
-[00:02:29] Adam: Yeah, we've discovered over the course of this tour that we've been doing very, very full crowds, and even when the crowds weren't full, the crowds have been super enthusiastic. So that's been awesome. But we also find that some halls there's a long distance between the back of the stage and the back of the auditorium, like it's hundreds of feet. And others fit the same amount of people, but they're wider. And specifically, the movie theater—it's like the distance from the stage to the back of the house has got to be not much more than like eighty to a hundred feet. It's that the Moody feels like it's right on top of you, and that's kind of the ideal house for our show. That type of intimacy is is phenomenal. Both for I think the audience—it's like looking right into the show, but also the performers. It feels like the audience is just sitting on top of you in the best way. Like you really hear them.
+[00:02:29] Adam: Yeah, we've discovered over the course of this tour that we've been doing very, very full crowds, and even when the crowds weren't full, the crowds have been super enthusiastic. So that's been awesome. But we also find that some halls there's a long distance between the back of the stage and the back of the auditorium, like it's hundreds of feet. And others fit the same amount of people, but they're wider. And specifically, the Moody Theater—it's like the distance from the stage to the back of the house has got to be not much more than like eighty to a hundred feet. It's that the Moody feels like it's right on top of you, and that's kind of the ideal house for our show. That type of intimacy is is phenomenal. Both for I think the audience—it's like looking right into the show, but also the performers. It feels like the audience is just sitting on top of you in the best way. Like you really hear them.
 
 [00:03:28] Will: That's awesome. I love it when you feel like you're in the like on the stage almost when you're in that kind of a shallow venue.
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:24:02] Will: Because didn't you go to Huntsville too?
 
-[00:24:05] Adam: Well, I went to Huntsville a couple years ago. We didn't play Huntsville this time. Um, and it was amazing. Chell Lindgren, astronaut Chell Lindgren, took me around in the morning. Um, I visited the neutral buoyancy lab. I watched an astronaut climbing into one of the new Z two suits, where you enter through the backpack. Um,
+[00:24:05] Adam: Well, I went to Huntsville a couple years ago. We didn't play Huntsville this time. Um, and it was amazing. Kjell Lindgren, astronaut Kjell Lindgren, took me around in the morning. Um, I visited the neutral buoyancy lab. I watched an astronaut climbing into one of the new Z two suits, where you enter through the backpack. Um,
 
 [00:24:25] Will: are these the skin ones or the hard shell ones?
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:25:25] Will: Oh man!
 
-[00:25:26] Adam: Wow. Then Chell passed me off to astronaut Don Pettit, who's somebody I've corresponded with for a long time, but this was the first time we actually met. So we spent the afternoon together. We went to the VR lab. Did you know that the self same software that the astronauts use to do VR training around the space station is publicly available for Oculus?
+[00:25:26] Adam: Wow. Then Kjell passed me off to astronaut Don Pettit, who's somebody I've corresponded with for a long time, but this was the first time we actually met. So we spent the afternoon together. We went to the VR lab. Did you know that the self same software that the astronauts use to do VR training around the space station is publicly available for Oculus?
 
 [00:25:53] Norm: So that's what we talked about last week. When I it was last week, and I wanted to get you to use that demo, and it sounds like you did.
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:26:38] Norm: So yeah, Adam, did you ask them because they have the VR simulator now? Do they still use the ISS the physical mock up for training, or do they still do that? Okay,
 
-[00:26:49] Adam: okay. Yeah, it is a combination of all three, and the whole. I mean. There's all these limitations to every way in which they train the astronauts. For instance, the pool, the the NBL, is not big enough to house the entire space station in its orientation. So the astronauts have to move from one part and then move to another and realize that it's not where it is in the pool. It's actually on the end of this other thing. So the VR, the VR is like this final linchpin that Chell was telling me that helps you really put into your body the understanding of where you are, both on the inside of the station and on the outside of the station at any given moment. And literally, every last thing that's on the outside of the station, whether it's a broken handle or some little doodad, is in the model. So there is like there is nothing that isn't there. What they see in the model is what they're going to encounter when they're up there.
+[00:26:49] Adam: okay. Yeah, it is a combination of all three, and the whole. I mean. There's all these limitations to every way in which they train the astronauts. For instance, the pool, the the NBL, is not big enough to house the entire space station in its orientation. So the astronauts have to move from one part and then move to another and realize that it's not where it is in the pool. It's actually on the end of this other thing. So the VR, the VR is like this final linchpin that Kjell was telling me that helps you really put into your body the understanding of where you are, both on the inside of the station and on the outside of the station at any given moment. And literally, every last thing that's on the outside of the station, whether it's a broken handle or some little doodad, is in the model. So there is like there is nothing that isn't there. What they see in the model is what they're going to encounter when they're up there.
 
 [00:27:46] Norm: Something that I immediately felt when using it, and and Jeremy and I think Will as well, is how small it felt inside that simulation of the ISS. How little space. The astronauts really have, because you see these photos, and the photos are all wide-angle camera lenses, and you have no sense of where things are related to each other. But you realize the the bathroom is right above, like the the cupola.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:28:41] Will: I when Norm and I were sitting up in the. Oh, go ahead. Sorry.
 
-[00:28:46] Adam: No, I was just going to say I sat in the toilet and couldn't believe that just a little curtain separates you. I mean, it's. Chell said you get very intimate with everybody.
+[00:28:46] Adam: No, I was just going to say I sat in the toilet and couldn't believe that just a little curtain separates you. I mean, it's. Kjell said you get very intimate with everybody.
 
 [00:28:55] Will: Well, I I couldn't believe like when we were sitting up in the cockpit. So Norman and I climbed up into the into the commander and the pilot seat, and I was just like, first off, I was blown away that I was sitting in the actual trainer where they where they did this, and this was after they had decommissioned the shuttle already, so like it wasn't in active use anymore. But but the just the the climb down, like I couldn't imagine how you would make that climb up into those cockpit seats when that when the shuttle was vertical, like it it just it seemed like you'd have to do some real gymnastics to get up there. So, and then when they launched, they had five extra seats, like like mounted to the floor someplace. The whole thing is bananas. It's tiny.
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:33:04] Will: Cool.
 
-[00:33:08] Adam: I want to build an MMU. I want to build the safer unit. I'm totally. I'm totally already gathering material for the mods for this new suit.
+[00:33:08] Adam: I want to build an MMU. I want to build the SAFER unit. I'm totally. I'm totally already gathering material for the mods for this new suit.
 
 [00:33:15] Will: Oh, nice. Awesome. Okay, Norm. What's on tested this week?
 

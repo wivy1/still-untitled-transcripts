@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:05:47] Will: There's no rock me amadeus here,
 
-[00:05:59] Norm: guys. We're bearing the lead here because the the generation unifying thing of this week is the new Star Wars trailer.
+[00:05:59] Norm: guys. We're burying the lead here because the the generation unifying thing of this week is the new Star Wars trailer.
 
 [00:06:06] Adam: Oh yes, yes, the Last Jedi,
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:09:36] Adam: and so there's a, there's a, and there's also now a full culture that grows up each time a trailer comes out. Gizmodo and other sites, IO9, start doing articles about like, here's all the things we know. Putting it together, they build flow charts and they start looking at plot lines. And I'm never interested in that kind of discussion, so because I, it just doesn't, it doesn't, it doesn't enhance my movie making, movie going experience.
 
-[00:09:59] Will: So that's where I ended up. Joey did this years before any of us even considered, and he's this is why he's smarter than all of us. But but when I went into Rogue One cold, I went into um, I went into Rival completely cold.
+[00:09:59] Will: So that's where I ended up. Joey did this years before any of us even considered, and he's this is why he's smarter than all of us. But but when I went into Rogue One cold, I went into um, I went into Arrival completely cold.
 
 [00:09:59] Norm: Yeah.
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:11:58] Adam: Ghost in the Shell,
 
-[00:11:59] Norm: Ghost in the Shell, Watchmen, they're mass full almost music video.
+[00:11:59] Norm: Ghost in the Shell, Watchmen, they're masterful almost music video.
 
 [00:11:59] Adam: I like Watchmen. Norm,
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:12:11] Norm: yes, and there there are just feats of editing. And sometimes, even if the film ends up not being great, to have just that moment in time where you were excited about the movie for the trailer and that told the story, that glimpse of it is totally fine. I'm happy to have it. I'm happy to have that.
 
-[00:12:26] Adam: So, speaking of trailers that were way better than the movie, I watched a thing just this morning, nerd writer's piece on how passengers would be far more watchable. If you watched it in a complete, if they cut it in a totally different order,
+[00:12:26] Adam: So, speaking of trailers that were way better than the movie, I watched a thing just this morning, Nerdwriter's piece on how passengers would be far more watchable. If you watched it in a complete, if they cut it in a totally different order,
 
 [00:12:40] Norm: so yeah, passengers is.
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:20:55] Will: Yeah.
 
-[00:20:55] Norm: So the nerd writer video that Adam's referring to
+[00:20:55] Norm: So the Nerdwriter video that Adam's referring to
 
 [00:20:55] Adam: You’ll love this.
 

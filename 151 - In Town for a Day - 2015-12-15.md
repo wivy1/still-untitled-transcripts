@@ -4,7 +4,7 @@
 **Duration:** 39m 22s  
 Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
-[00:00:00] Norm: Hey everybody, Norm here. Today's sponsor of Still Untitled is Casper Mattresses. Obsessively engineered, American-made mattresses at a shockingly fair price. And now you can get fifty dollars toward any mattress purchase by going to casper.com/untitled and using the offer code Untitled, just like the name of this podcast. Listen, you spend about a third of your life sleeping. Let's make sure you do it on a good mattress. Casper brings two comfy technologies together for better nights and brighter days: latex foam and memory foam. So they got the right amount of sink and the right bounce, no matter how you sleep. And they have a risk-free trial and return policy. To deliver it straight to you, you can try it for a hundred days, and if you're not happy, they'll pick it back up at the store. You maybe get a minute with those mattresses, but with Casper, you'll actually be able to sleep on it. It's five hundred dollars for a twin size mattress and nine hundred fifty dollars for a king size mattress. Comparing that to industry averages, it's an outstanding price point. So, get fifty dollars toward any mattress purchase today by going to Casper dot com slash Untitled and using the offer code Untitled. But now, on with the show.
+[00:00:00] Norm: Hey everybody, Norm here. Today's sponsor of Still Untitled is Casper Mattresses. Obsessively engineered, American-made mattresses at a shockingly fair price. And now you can get fifty dollars toward any mattress purchase by going to casper.com/untitled and using the offer code Untitled, just like the name of this podcast. Listen, you spend about a third of your life sleeping. Let's make sure you do it on a good mattress. Casper brings two comfy technologies together for better nights and brighter days: latex foam and memory foam. So they got the right amount of sink and the right bounce, no matter how you sleep. And they have a risk-free trial and return policy. To deliver it straight to you, you can try it for a hundred days, and if you're not happy, they'll pick it back up. At the store, you maybe get a minute with those mattresses, but with Casper, you'll actually be able to sleep on it. It's five hundred dollars for a twin size mattress and nine hundred fifty dollars for a king size mattress. Comparing that to industry averages, it's an outstanding price point. So, get fifty dollars toward any mattress purchase today by going to Casper dot com slash Untitled and using the offer code Untitled. But now, on with the show.
 
 [00:01:20] Will: Welcome to Still Untitled, the Adam Savage Project. I am Will.
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:19:14] Will: Oh yeah,
 
-[00:19:14] Adam: It’s, you know, sci-fi is trying this out, and it's great.
+[00:19:14] Adam: It’s, you know, Syfy is trying this out, and it's great.
 
 [00:19:18] Will: the The thing that I, the thing that I liked, the thing that struck me early on because I read this book years ago, I didn't see social commentary there, right? The thing that TV does is really good at is holding a light up to the problems of the modern day.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:22:13] Will: Like, I feel like if you make it to the end of the second one and you are not into it, probably it's not for you, right?
 
-[00:22:24] Adam: That's exactly. I I wouldn't say base it on the first because t here is a lot of storytelling they have to get done. I think you are right. By the end of the second episode, if you are not intrigued, it's probably not for you. But frankly, I was dying to get to more.
+[00:22:24] Adam: That's exactly. I I wouldn't say base it on the first because there is a lot of storytelling they have to get done. I think you are right. By the end of the second episode, if you are not intrigued, it's probably not for you. But frankly, I was dying to get to more.
 
 [00:22:37] Will: The end of the fourth. I I can't wait to see. We have to wait until like the first of the year, basically, for the next episode. I think at this point.
 

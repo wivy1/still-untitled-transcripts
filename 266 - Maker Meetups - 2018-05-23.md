@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:03:25] Adam: Yeah,
 
-[00:03:25] Norm: Razor makes a go kart called the Crazy Kart
+[00:03:25] Norm: Razor makes a go kart called the Crazy Cart
 
 [00:03:25] Adam: Oh, right.
 
@@ -174,11 +174,11 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:04:42] Will: hopefully not get any injuries.
 
-[00:04:47] Adam: The the the maker fair. I keep wanting to say Comic Con because they they feel quite similar in a in a love of what we're doing fan aspect. Like Everyone there is there to play,
+[00:04:47] Adam: The the the Maker Faire. I keep wanting to say Comic Con because they they feel quite similar in a in a love of what we're doing fan aspect. Like Everyone there is there to play,
 
 [00:04:47] Unknown speaker: Yeah.
 
-[00:04:47] Adam: and that's something that I find really invigorating about moving around through Maker Fair and engaging with the fans.
+[00:04:47] Adam: and that's something that I find really invigorating about moving around through Maker Faire and engaging with the fans.
 
 [00:05:07] Norm: Well, it's such a Big area, and I know New York is even bigger, but there's so many different independent sections. You could go, and a lot of people do go just to wander and dip into one section, dip another section. It's great because you get really inspired. For us, it's super inspired. by people who are obsessed about the one thing, whether it's like crocheting or model trains, or if you're there and you can meet your fellow people who are interested in those things. And you could stay in that one spot the whole time and get a full weekend's worth of experience there.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:15:00] Norm: this week
 
-[00:15:02] Adam: that'll go up on the site on last Thursday because a lot of people come from all over the country who are working hard to bring making and maker culture to the most marginalized communities that really need it. A couple of my fellow board members from Nation of Makers and I held an event for forty people here in the cave. That was just a long conversation. With some of the old people from Obama's Office of Science and Technology Policy, some people I knew, many people that I didn't—a really, really fruitful conversation—and all of that—and kind of engendered by the fact that they're all here for MakerFaire.
+[00:15:02] Adam: that'll go up on the site on last Thursday because a lot of people come from all over the country who are working hard to bring making and maker culture to the most marginalized communities that really need it. A couple of my fellow board members from Nation of Makers and I held an event for forty people here in the cave. That was just a long conversation. With some of the old people from Obama's Office of Science and Technology Policy, some people I knew, many people that I didn't—a really, really fruitful conversation—and all of that—and kind of engendered by the fact that they're all here for Maker Faire.
 
 [00:15:43] Will: It's, it's. I mean, they call it the world's greatest show and tell, but I think that really undersells what what you get out of coming to this event.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:19:37] Will: Anything else you saw that was exceptional?
 
-[00:19:39] Norm: Well, one of the things I wanted to point out is that Adam talks about a lot of people coming into town, right? And it's New York is officially the World Maker Faire, but I met a lot of people who had come from other countries, from Australia, from England, for Bay Area Maker Fair, and there was like definitely a Silicon Valley vibe to some of the projects there. I never thought a Maker Fair in my mind was never like a Comic Con or Dragon Con. It was always like the the event for the hours from ten to six. That's the fair. But when we went to a Comic Con, there's a lot of after parties, right? And this is the first year I heard about a lot of the after stuff that went on. A lot of people, like Bill and Laura, who met up at restaurants and bars and and and groups that set up meetups after Maker Fair, and I think it's something that we'd love to see more of.
+[00:19:39] Norm: Well, one of the things I wanted to point out is that Adam talks about a lot of people coming into town, right? And it's New York is officially the World Maker Faire, but I met a lot of people who had come from other countries, from Australia, from England, for Bay Area Maker Faire, and there was like definitely a Silicon Valley vibe to some of the projects there. I never thought a Maker Faire in my mind was never like a Comic Con or Dragon Con. It was always like the the event for the hours from ten to six. That's the fair. But when we went to a Comic Con, there's a lot of after parties, right? And this is the first year I heard about a lot of the after stuff that went on. A lot of people, like Bill and Laura, who met up at restaurants and bars and and and groups that set up meetups after Maker Faire, and I think it's something that we'd love to see more of.
 
 [00:20:22] Will: Yeah, I think that'd be great.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:24:56] Adam: awesome.
 
-[00:24:56] Will: It is the best. And like those those people spend thousands of hours building these robots. They take them out. They drive them out into the crowd of people at Maker Fair, and it's got to be scary and exciting and all the all of the things. But it's it's one of my favorite things.
+[00:24:56] Will: It is the best. And like those those people spend thousands of hours building these robots. They take them out. They drive them out into the crowd of people at Maker Faire, and it's got to be scary and exciting and all the all of the things. But it's it's one of my favorite things.
 
 [00:25:25] Adam: So awesome!
 
@@ -548,7 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:25:50] Will: Yeah, except for the you know yeah, other than the murder, mass murder problem.
 
-[00:25:55] Adam: Other than that, yeah, super awesome to watch that. And yeah, that that was. Oh, and we went and saw Raiders last night at the Alamo Draft House.
+[00:25:55] Adam: Other than that, yeah, super awesome to watch that. And yeah, that that was. Oh, and we went and saw Raiders last night at the Alamo Drafthouse.
 
 [00:26:05] Norm: Ooh.
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:26:23] Norm: Nice.
 
-[00:26:23] Norm: Kishore has a monthly movie series at the Alamo Draft House in San Francisco. So if you're a Bay Area local, check it out. First Monday.
+[00:26:23] Norm: Kishore has a monthly movie series at the Alamo Drafthouse in San Francisco. So if you're a Bay Area local, check it out. First Monday.
 
 [00:26:23] Norm: Yeah,
 
@@ -794,13 +794,13 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:33:35] Adam: Human progress is made not simply because of how we make things, but also because we share what we make and how we made it. The first two examples I gave are examples of people mistaking the techniques that they know for a commodity. The third is based on the specious idea that one can control everything about a brand. And I know that unique processes have a value, and the inventor of those processes should benefit from that value. I believe that too. That's what our patent and copyright acts are built to address. But each of the three examples I gave are about treating something as a scarce commodity when it is not scarce at all, because sharing defies the laws of physics. The more you give away, the more you have.
 
-[00:33:35] Adam: When Star Wars came out and changed my life, I was 11 years old and reading the fan magazines at the time. I learned that people built that universe and decided that I wanted to do that too. And 20 years later, in 1998, I got hired up in Industrial Light and Magic. And one day I was making some radar dishes for the movie Space Cowboys, and I'd come up with a. I had to make a dozen of them, and this was going to be really laborious. These are like open frame radio telescopes, like the one you pass on 280 on the way here. And I came up with this new method of doing it, which was I laser cut out the wire frame, and then under the heat lamp of a vacuum former, I slumped it into a very specific radar dish shape. And my friend Lauren Peterson, who's one of the original Industrial Light and Magic model makers from Star Wars and Empire, came by my desk and he said, " What are you doing? That looks really cool." And then he went and told some of my coworkers about it. And for the rest of the day, everyone filed past my desk to learn this new technique. This new technique, the the institution that was the model shop was imbibing my new execution, and learning it and keeping it in its pocket for future reference. And I I wasn't special in this regard at all. This every time a new process was brought in or someone came up with a new way to do something, that procedure was Repeated and the subtle institutionalization of the sharing and knowledge and about building was one of the single best things about working in that model shop.
+[00:33:35] Adam: When Star Wars came out and changed my life, I was 11 years old and reading the fan magazines at the time. I learned that people built that universe and decided that I wanted to do that too. And 20 years later, in 1998, I got hired up in Industrial Light and Magic. And one day I was making some radar dishes for the movie Space Cowboys, and I'd come up with a. I had to make a dozen of them, and this was going to be really laborious. These are like open frame radio telescopes, like the one you pass on 280 on the way here. And I came up with this new method of doing it, which was I laser cut out the wire frame, and then under the heat lamp of a vacuum former, I slumped it into a very specific radar dish shape. And my friend Lorne Peterson, who's one of the original Industrial Light and Magic model makers from Star Wars and Empire, came by my desk and he said, " What are you doing? That looks really cool." And then he went and told some of my coworkers about it. And for the rest of the day, everyone filed past my desk to learn this new technique. This new technique, the the institution that was the model shop was imbibing my new execution, and learning it and keeping it in its pocket for future reference. And I I wasn't special in this regard at all. This every time a new process was brought in or someone came up with a new way to do something, that procedure was Repeated and the subtle institutionalization of the sharing and knowledge and about building was one of the single best things about working in that model shop.
 
-[00:33:35] Adam: When we over commodify around the things that we make, we mistakenly assert that we are solely responsible for this thing. Again, I'm not against getting paid for your good work and benefiting from your inventions, but our Congress is right at this second contemplating extending copyright to almost 140 years past the creation, and this is all because Disney doesn't want Mickey Mouse to drift into the public domain. Walt Disney deserved all of the fruits of his labors, but being able to commodify it, to commodify a creation indefinitely and even infinitely is bad for culture and it's bad for the world. It's instructive to go back and read. I'm a little bit of a legal geek, so I advise this. It's instructive to go read the original Copyright and Patent Acts from 1801 and 1802. They're Googleable. They're actually quite readable. But our founding fathers state really clearly in them that a creator should totally benefit from a limited monopoly over the fruits of their labors, but that after a reasonable period, that monopoly over those efforts should expire. This is so that society can benefit from taking that idea, learning from it, tearing it apart, breaking it down, and putting it back together in new and different ways. This is literally how human progress is made. And the point of human progress isn't to make money forever from every useful invention. isn't to make money forever from every useful invention, it's to make the world a better place than we left it. And it's not just to make the world better for our relatives and the people we know and the people that look like us, but for everyone.
+[00:33:35] Adam: When we over commodify around the things that we make, we mistakenly assert that we are solely responsible for this thing. Again, I'm not against getting paid for your good work and benefiting from your inventions, but our Congress is right at this second contemplating extending copyright to almost 140 years past the creation, and this is all because Disney doesn't want Mickey Mouse to drift into the public domain. Walt Disney deserved all of the fruits of his labors, but being able to commodify it, to commodify a creation indefinitely and even infinitely is bad for culture and it's bad for the world. It's instructive to go back and read. I'm a little bit of a legal geek, so I advise this. It's instructive to go read the original Copyright and Patent Acts from 1801 and 1802. They're Googleable. They're actually quite readable. But our founding fathers state really clearly in them that a creator should totally benefit from a limited monopoly over the fruits of their labors, but that after a reasonable period, that monopoly over those efforts should expire. This is so that society can benefit from taking that idea, learning from it, tearing it apart, breaking it down, and putting it back together in new and different ways. This is literally how human progress is made. And the point of human progress isn't to make money forever from every useful invention, it's to make the world a better place than we left it. And it's not just to make the world better for our relatives and the people we know and the people that look like us, but for everyone.
 
 [00:33:35] Adam: Working together to solve our common and uncommon problems and share resources is how to do that. Share what you've got and what you've done. And now my sunglasses don't have close up, so I have to look at this. Let's see. Ah, yeah.
 
-[00:33:35] Adam: One of my favorite things to do when I'm building something complicated is to make more than one of them. And sometimes that's just because I'm going to screw one up. But usually at the end, I end up with at least two of the thing, and that means I can trade the other one away. And this is this whole new bonus because not only do I get a new thing, but in the barter exchange, the person I've traded with and I each get a story associated with the things that we've traded, associated with the things that we've traded, and those stories become part of the lifeblood of my collection and my shop.
+[00:33:35] Adam: One of my favorite things to do when I'm building something complicated is to make more than one of them. And sometimes that's just because I'm going to screw one up. But usually at the end, I end up with at least two of the thing, and that means I can trade the other one away. And this is this whole new bonus because not only do I get a new thing, but in the barter exchange, the person I've traded with and I each get a story associated with the things that we've traded, and those stories become part of the lifeblood of my collection and my shop.
 
 [00:33:35] Adam: I believe deeply in open source. Last year, I released my first product, a tool bag that addressed my issues around the idea of a tool bag. And in a few weeks, I'm going to release a bunch more products and a second iteration of this bag, including a brand new design. At the same time, I'm going to release for literally my cost a set of inexpensive patterns for both bags, so that anyone who wants to make one can pay like 15 bucks and make their own. Yeah, I I cannot wait to see what people do with this, and I don't think of this as eating into my profit margin. I see it as investing in building and learning from a community interested in solving and benefiting from the same common problems that I have. I get to see executions of my original idea that drift untold distances from anything I could have imagined.
 

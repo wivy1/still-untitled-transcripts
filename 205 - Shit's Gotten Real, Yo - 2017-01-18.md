@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:01:50] Will: Well, it's become kind of one of San Francisco's premier cultural like festivals. We don't have a lot of music. I mean, we have. We have some music festivals in the summer, but it's nothing that kind of goes on for a long time. And this is like, it's a month of just awesome stuff. It seems like every night, but I know it's not. It's not quite that. But it's it's fabulous, and it's about it's about comedy for the most part.
 
-[00:02:08] Janet Varney: Yeah, yeah. We've. I mean, we started with just sketch because that was what we were doing at the time as performers, and there weren't really that many places to perform sketch in San Francisco 16 years ago. And so we ended up partnering with five other groups that we had met in the year that we had been performing sketch, and said, " Would you guys be open to us renting a theater? We could share the cost, but we could split the profits, and then we none of us would have to do like a month long show, which is not, you know, we're not. It's not the Fantastics. You're not like we really. I think we're going to start getting really solid in week two. It's like you do your sketch set five times in a row over two weeks, and you're like, I hate this. I hate all of this. So you sort of want. We wanted to do fewer performances and then give the opportunity. To the groups that we had met to share audiences because they were all really different and there wasn't a whole lot of crossover. In you know, Casper Hauser had its hardcore Casper Hauserins, but because there wasn't this sort of like UCB environment, yeah, there just wasn't a place where people were like, I like all sketch or I like to check out, you know, and see what I like. It was just sort of like you found your audience and then good luck to you. Yeah. So it was it was kind of a chance to do that, and then it went so well that we started branching out. And then over the years, we've we've really found ways to just jam in stuff that I'm not even sure is comedy anymore. Like I start having ideas of doing tributes for people that I can't even name a comedy they've done, but I'm like, I'm sure we could make it work. They're probably funny in person.
+[00:02:08] Janet Varney: Yeah, yeah. We've. I mean, we started with just sketch because that was what we were doing at the time as performers, and there weren't really that many places to perform sketch in San Francisco 16 years ago. And so we ended up partnering with five other groups that we had met in the year that we had been performing sketch, and said, " Would you guys be open to us renting a theater? We could share the cost, but we could split the profits, and then we none of us would have to do like a month long show, which is not, you know, we're not. It's not the Fantastics. You're not like we really. I think we're going to start getting really solid in week two. It's like you do your sketch set five times in a row over two weeks, and you're like, I hate this. I hate all of this. So you sort of want. We wanted to do fewer performances and then give the opportunity. To the groups that we had met to share audiences because they were all really different and there wasn't a whole lot of crossover. In you know, Kasper Hauser had its hardcore Kasper Hauserins, but because there wasn't this sort of like UCB environment, yeah, there just wasn't a place where people were like, I like all sketch or I like to check out, you know, and see what I like. It was just sort of like you found your audience and then good luck to you. Yeah. So it was it was kind of a chance to do that, and then it went so well that we started branching out. And then over the years, we've we've really found ways to just jam in stuff that I'm not even sure is comedy anymore. Like I start having ideas of doing tributes for people that I can't even name a comedy they've done, but I'm like, I'm sure we could make it work. They're probably funny in person.
 
 [00:03:41] Will: Well, and and my wife yesterday, yesterday the day before went to the most comedy event I think you have, which was the West Wing Weekly, which they did live here. I think for the first time.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:22:24] Janet Varney: It sounds like you're saying Andy Richter should stick to the funny.
 
-[00:22:28] Will: I used to like that guy, but I mean, what's he got political? It's just been all down.
+[00:22:28] Will: I used to like that guy, but I mean, once he got political? It's just been all down.
 
 [00:22:32] Janet Varney: Also, I just want to say, Will, that I understand that seems crazy. That book was written in '85, but we were very focused in '85. Like I remember, I felt I needed to wear two swatches in '85 because my time was so precious that I needed to see it twice.
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:29:19] Will: chlorine receptors are just burned out. Yeah.
 
-[00:29:21] Janet Varney: Water smells like Adam. That’s what that person was.
+[00:29:21] Janet Varney: What are smells like, Adam? That’s what that person was.
 
 [00:29:24] Adam: In one of those hotels, I checked in, and you've had this, I'm sure. I checked in at like one thirty in the morning, and I get my card, and I stagger to the room, and I stick it in, and it does not turn green.
 
@@ -650,11 +650,11 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:35:06] Janet Varney: And this weekend, I will just say because I can't believe this is still true, but it's only because we're doing them in huge theaters that Nathan Fillion is coming, and he hasn't done the festival yet, even though he is one of those adjacent people who always almost does it. So it's tremendously satisfying that he's doing it, and he's doing Hardwick's Nerdist podcast, but he's also doing monologues for Upright Citizens Brigade Ass Cat, and that is like a A connection I've been waiting for a long time. Like that's two of my favorite things in one room. So I'm excited about that. Yeah.
 
-[00:35:40] Will: I think I'm on Quizatron on Sunday.
+[00:35:40] Will: I think I'm on Quiz-o-Tron on Sunday.
 
 [00:35:40] Janet Varney: Oh, cool!
 
-[00:35:40] Janet Varney: I love Quizitron.
+[00:35:40] Janet Varney: I love Quiz-o-Tron.
 
 [00:35:40] Will: Yeah, so yeah, so I'll be there answering. Well, maybe answering questions with facts or just making some bullshit up. One or the other.
 

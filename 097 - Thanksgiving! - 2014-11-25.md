@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:10:26] Will: I think they have a turkey dinner most of the time. [unclear: They probably do.] It might be one of their weekly blue plates. I've had turkey dinner not on Thanksgiving,
 
-[00:10:32] Norm: and people ask for recommendations about San Francisco all the time. Tommy's Joynt, you can't miss it. It's on Van Ness, Geary, or Farrell, Geary, I think, or Farrell. And then there is a big it's the mural on the side of the wall. Yeah, cash only, open till two a.m. and it's a bar. Yeah, and seating in the back.
+[00:10:32] Norm: and people ask for recommendations about San Francisco all the time. Tommy's Joynt, you can't miss it. It's on Van Ness, Geary, O'Farrell, Geary, I think, O'Farrell. And then there is a big it's the mural on the side of the wall. Yeah, cash only, open till two a.m. and it's a bar. Yeah, and seating in the back.
 
 [00:10:48] Adam: Service is spotty sometimes, but they're really, really awesome in there. Like the guy, the people behind the counter are awesome. Sometimes I've had trouble getting a glass of water, but the food is great. [unclear: The food.] Ambience is amazing, and like I said, it's it's been there for it, and it feels like it. It feels like a set from a David Fincher film.
 
@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:13:21] Will: No they're still around.
 
-[00:13:22] Norm: The one on Gary is no longer there.
+[00:13:22] Norm: The one on Geary is no longer there.
 
 [00:13:24] Will: It's a chain.
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:14:49] Will: Well, I must have missed that.
 
-[00:14:50] Adam: Oh well, so candle salad comes out. Candle salad is like scoops of ice cream with a banana in the middle, whipped cream on the top of the banana sticking up out of two scoops of ice cream, whipped cream on the top of the banana, and a cherry on top of the whipped cream. That is a candle salad, and it is eaten without irony.
+[00:14:50] Adam: Oh well, so candle salad comes out. Candle salad is like scoops of ice cream with a banana in the middle, sticking up out of two scoops of ice cream, whipped cream on the top of the banana, and a cherry on top of the whipped cream. That is a candle salad, and it is eaten without irony.
 
 [00:15:12] Will: What?
 
@@ -696,7 +696,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:22:07] Will: they can go to behindthemyths.com.
 
-[00:22:08] Adam: But behindthemystour.com.
+[00:22:08] Adam: But behindthemythstour.com.
 
 [00:22:10] Will: Tour.com.
 

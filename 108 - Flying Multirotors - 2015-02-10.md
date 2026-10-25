@@ -178,7 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:04:46] Will: Yes,
 
-[00:04:46] Adam: and I, Janet is a friend of mine. Cole has become a friend of mine, and so has David. And I've done lots of stuff for them over the years when they come. So I've interviewed the the all the puppeteers from Labyrinth on stage at the Castro. I've participated with RiffTrax, Bill Corbett, Kevin Murphy, those guys at the on stage at the Castro multiple times. We do a Woodstock Founders Night every year, so
+[00:04:46] Adam: and I, Janet is a friend of mine. Cole has become a friend of mine, and so has David. And I've done lots of stuff for them over the years when they come. So I've interviewed the the all the puppeteers from Labyrinth on stage at the Castro. I've participated with RiffTrax, Bill Corbett, Kevin Murphy, those guys at the on stage at the Castro multiple times. We do a w00tstock Founders Night every year, so
 
 [00:05:15] Norm: it's not just stand-up comedy.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:08:43] Will: Fish of some kind.
 
-[00:08:44] Adam: Snapper. He had the snapper. Harry had the steak, and Chris and I each had the burger. Now, the burger isn't on the regular menu over here; it's the bar menu. But Tracy's burger is my favorite burger in San Francisco.
+[00:08:44] Adam: Snapper. He had the snapper. Harry had the steak, and Chris and I each had the burger. Now, the burger isn't on the regular menu over here; it's the bar menu. But Traci's burger is my favorite burger in San Francisco.
 
 [00:08:55] Will: It is a really good burger, and it's a good burger town. Just to be clear,
 
@@ -664,7 +664,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:29:22] Will: using the sticks.
 
-[00:29:23] Adam: Yeah, and you you have to turn on the the the quad the multirotor. You have to turn on the Inspire. Because Eric Chang told me it's actually using the the drone software to work with the flight simulator.
+[00:29:23] Adam: Yeah, and you you have to turn on the the the quad the multirotor. You have to turn on the Inspire. Because Eric Cheng told me it's actually using the the drone software to work with the flight simulator.
 
 [00:29:39] Will: So you take the props off or something? I'm sure.
 

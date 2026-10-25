@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:08:03] Will: Lands in the Naboo city. The—
 
-[00:08:05] Adam: Yeah, so, uh, I think, uh, Michael Steffy designed the mechanics for the legs as they sat. Those laser-cut files, and my job was the la— the loading bay. So I got to design the whole interior of the loading bay. I mean, I had sketches from Doug Chiang, um, beautiful and amazing sketches, and I had to make them all practical and make them work. Layers of lattice work, and then I did the lighting, and then I also got to do the painting—
+[00:08:05] Adam: Yeah, so, uh, I think, uh, Michael Steffe designed the mechanics for the legs as they sat. Those laser-cut files, and my job was the la— the loading bay. So I got to design the whole interior of the loading bay. I mean, I had sketches from Doug Chiang, um, beautiful and amazing sketches, and I had to make them all practical and make them work. Layers of lattice work, and then I did the lighting, and then I also got to do the painting—
 
 [00:08:29] Will: Cool.
 
@@ -816,7 +816,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:25:58] Will: people should go. It's like recording Appalachian bluegrass. You got to capture that stuff before it's gone.
 
-[00:26:02] Adam: So check out " Everything Is a Remix" by Kirby Ferguson. I think it's at everythingismerimix dot org or dot com. One of the two.
+[00:26:02] Adam: So check out " Everything Is a Remix" by Kirby Ferguson. I think it's at everythingisaremix dot org or dot com. One of the two.
 
 [00:26:09] Norm: You'll find it on Vimeo.
 

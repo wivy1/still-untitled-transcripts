@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:16:46] Norm: Jonah Hill,
 
-[00:16:46] Will: Jonah Hill, Thanks, Storm. Yeah,
+[00:16:46] Will: Jonah Hill, Thanks, Norm. Yeah,
 
 [00:16:48] Adam: yeah. This is all feels like the preamble. I don't feel like we've gotten to the meat of the podcast.
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:22:33] Adam: I gotta get on that.
 
-[00:22:35] Will: Yeah, it's it's I like look. It's one of those things. It's it's like the Man in High Castle. You're gonna watch the first episode of it, and if you like it, you're gonna know immediately. You're gonna like write it all the way down, and if not, you're gonna back slowly away and be totally okay with that too. Um, but it's it's it's a like it is obviously made with a lot of love and care from yeah from the from the artists that work on the props and costumes and stuff.
+[00:22:35] Will: Yeah, it's it's I like look. It's one of those things. It's it's like the Man in High Castle. You're gonna watch the first episode of it, and if you like it, you're gonna know immediately. You're gonna like ride it all the way down, and if not, you're gonna back slowly away and be totally okay with that too. Um, but it's it's it's a like it is obviously made with a lot of love and care from yeah from the from the artists that work on the props and costumes and stuff.
 
 [00:22:58] Adam: So uh, two people have now expressed to me an issue with wearing masks in public that I did not expect. Uh, and they both have roughly the same story. Um, and one of them is my wife, who was walking down the street, listening to a podcast on her AirPods when she took her mask off, and the mask kicked both her AirPods out and into a sewer grate.
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:32:47] Adam: Excellent.
 
-[00:32:47] Will: On on the Tech Pod this week at techpod.content.town, we had a friend of tested Mike Mica on and talked about how old video games worked. So we talked about like how electronics wizards turned dumb circuits into games like Pong, all the way through how you own and maintain arcade machines, and like the we talked about the the end of CRTs and and. All the way through to like FPGA-based emulators that can basically reprogram these FPGA emulators are amazing because you can buy a thing for 150 bucks that basically replicates the actual circuitry in an old console or arcade arcade machine.
+[00:32:47] Will: On on the Tech Pod this week at techpod.content.town, we had a friend of tested Mike Mika on and talked about how old video games worked. So we talked about like how electronics wizards turned dumb circuits into games like Pong, all the way through how you own and maintain arcade machines, and like the we talked about the the end of CRTs and and. All the way through to like FPGA-based emulators that can basically reprogram these FPGA emulators are amazing because you can buy a thing for 150 bucks that basically replicates the actual circuitry in an old console or arcade arcade machine.
 
 [00:33:30] Adam: Oh my god! Wow.
 

@@ -394,7 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:14:52] Simone: They were super nice. They fed me, made sure that I was warm. They like rescheduled all the rehearsals so that I could take a two-hour nap.
 
-[00:14:57] Unknown speaker: Adam / Norm]: Wow.
+[00:14:57] [unclear: Adam/Norm]: Wow.
 
 [00:14:57] Simone: Yeah.
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:17:01] Adam: As soon as we know when it's going to air, we'll put it up on Tested.
 
-[00:17:03] Norm: Yes, well, absolutely, and we'll embed that as well. I realized because I was listening. I'm like, oh, you guys have both been on Colbert on TV with Colbert. All three of us have been on TV with Colbert at one point or another. I know you know this. Last year at Comic Con. When it was still the Colbert Report, one of his last bits was that he walked through Comic Con incognito as a character, Hot Cat. Do you remember this?
+[00:17:03] Norm: Yes, well, absolutely, and we'll embed that as well. I realized because I was listening. I'm like, oh, you guys have both been on Colbert on TV with Colbert. All three of us have been on TV with Colbert at one point or another. I know you know this. Last year at Comic Con. When it was still the Colbert Report, one of his last bits was that he walked through Comic Con incognito as a character, Hawkcat. Do you remember this?
 
 [00:17:25] Adam: Yes, I do remember this.
 
@@ -614,7 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:28:11] Norm: Ass Out of the wagon. I love that we're going to learn Swedish phrases.
 
-[00:28:15] Norm: Adam / Norm]: This is great.
+[00:28:15] [unclear: Adam/Norm]: This is great.
 
 [00:28:15] Adam: So I have a Swedish story for you.
 
@@ -686,7 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:31:16] Adam: Because now you are a member of the Tested Cult and
 
-[00:31:18] Norm: community. That's right. Also, for people who are in the Bay Area or maybe willing to travel, Simone, you're doing a talk with Nerd Night East Bay on June 27th. We'll be there. Want to say hi? I know. I think you're going to be out.
+[00:31:18] Norm: community. That's right. Also, for people who are in the Bay Area or maybe willing to travel, Simone, you're doing a talk with Nerd Nite East Bay on June 27th. We'll be there. Want to say hi? I know. I think you're going to be out.
 
 [00:31:33] Adam: I'm going to be in New York,
 

@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:14:07] Will: Um. So you had all your costumes set up on the IMDb boat.
 
-[00:14:14] Adam: I had captain's chair. I had Blade Runner chess set. I had ZF one. We got a picture of Luc Besson standing next to the ZF one.
+[00:14:14] Adam: I had captain's chair. I had Blade Runner chess set. I had ZF-1. We got a picture of Luc Besson standing next to the ZF-1.
 
 [00:14:20] Unknown speaker: That's right.
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:19:39] Will: It's dirty hard sci. It's really really hard sci-fi in a dirty universe.
 
-[00:19:42] Adam: And the actors, one of the actors, Kaz was telling me that they had to take classes in walking in zero G with magnetic boots.
+[00:19:42] Adam: And the actors, one of the actors, Cas was telling me that they had to take classes in walking in zero G with magnetic boots.
 
 [00:19:51] Norm: Oh, oh, that's cool.
 
@@ -648,11 +648,11 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:23:07] Will: Like, there’s a whole thing with Apocalypse. Is that no death? Death,
 
-[00:23:18] Norm: Dark Side,
+[00:23:18] Norm: Darkseid,
 
-[00:23:18] Will: Dark Side,
+[00:23:18] Will: Darkseid,
 
-[00:23:19] Adam: Dark Side. I haven't seen it.
+[00:23:19] Adam: Darkseid. I haven't seen it.
 
 [00:23:20] Will: It's like that whole thing. You could have dropped that and the movie; would have been awesome. I thought that it was much better than it got.
 
@@ -756,7 +756,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:26:10] Norm: Fantasy Camp.
 
-[00:26:11] Adam: A Fantasy Camp, totally insane. Justin. Is such a like a lovely fanboy geek, right? He's the real deal. He he was asking me about MythBuster stuff we had done based on Fast and the Furious, and I told him, you know, look, a lot of the stuff you guys did was so unrealistic we couldn't get near it, but we did have a whole Fast and Furious episode planned for a couple of years that we never got to. He it was lovely, you know. That's another one where it's clear the cast loves each other, like yeah, meeting those guys backstage, Zachary, Chris, and and Carl, they're all friends, and again that comes across on screen how how cohesive that unit of JJ Justin and the whole cast is,
+[00:26:11] Adam: A Fantasy Camp, totally insane. Justin. Is such a like a lovely fanboy geek, right? He's the real deal. He he was asking me about MythBuster stuff we had done based on Fast and the Furious, and I told him, you know, look, a lot of the stuff you guys did was so unrealistic we couldn't get near it, but we did have a whole Fast and Furious episode planned for a couple of years that we never got to. He it was lovely, you know. That's another one where it's clear the cast loves each other, like yeah, meeting those guys backstage, Zachary, Chris, and and Karl, they're all friends, and again that comes across on screen how how cohesive that unit of JJ Justin and the whole cast is,
 
 [00:26:54] Norm: and just like watching that movie, you have to appreciate like the amount of skill a director has. He's a very subdued person. I very briefly met him at the the the fan event we went to, but like there's so much going on in his head to be able to orchestrate like storytelling and action. And just manage and be a leader in that role.
 

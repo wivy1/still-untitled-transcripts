@@ -350,7 +350,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:29:32] Will: it is like if if it is, it literally looks like they're making a shot for shot live action remake of the movie. They have the scene with Gaston jumping up on the table and and you know flipping the table over on his little on his on his. Buddy, and they have the dance scene with the with the Angela Lansbury song and the whole thing, and like on one hand, it's it seems creatively bankrupt, and I'm really cynical about it. But on the other hand, it looks like an amazing piece of filmmaking.
 
-[00:30:01] Adam: Oh, okay. I have not watched any of those. I have not watched any of those trailers because I've been too afraid that it would just horrify me in the Uncanny Valley.
+[00:30:01] Adam: Oh, okay. I have not watched any of those trailers because I've been too afraid that it would just horrify me in the Uncanny Valley.
 
 [00:30:08] Will: Well, so my daughter went from like she was like the immediately preceding that trailer, she's like this boring dad because there were a ton of trailers before a kids' movie, and then and then she saw that and was captivated. She's like, I really want to see that. When can we go see that? And I said, Well, good news, because we can go home and watch that movie right now.
 
@@ -372,7 +372,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:31:25] Will: I assumed it was to extend copyright or something too, but but then they do Sleeping Beauty, which is only twenty years old.
 
-[00:31:30] Adam: But I so I feel like when I when I see that it might be beautiful, and I'm very interested to watch the trailers now for Bella LaBett, but. I feel like the shot-for-shot remakes make me sad because there's only so much you're going to be able to do with it. So there's only so far it can be taken creatively. Now, I could be wrong about that. I could be totally wrong about that, but I feel like it's a it's a restriction that seems to me calculated to not drift too far. And granted, when you drift too far, things can get bad, but they can also get really, really interestingly, fascinatingly great.
+[00:31:30] Adam: But I so I feel like when I when I see that it might be beautiful, and I'm very interested to watch the trailers now for Belle et la Bête, but. I feel like the shot-for-shot remakes make me sad because there's only so much you're going to be able to do with it. So there's only so far it can be taken creatively. Now, I could be wrong about that. I could be totally wrong about that, but I feel like it's a it's a restriction that seems to me calculated to not drift too far. And granted, when you drift too far, things can get bad, but they can also get really, really interestingly, fascinatingly great.
 
 [00:32:11] Will: I don't.
 
@@ -510,7 +510,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:39:34] Will: Have fun on the tour, Adam.
 
-[00:39:36] Adam: Thank you, and tested viewers. I'll see you out on the road, and Norman will. I'll talk to you guys next week.
+[00:39:36] Adam: Thank you, and tested viewers. I'll see you out on the road, and Norm and Will. I'll talk to you guys next week.
 
 [00:39:42] Will: Are you and you're posting stuff on social and photo galleries on the site and stuff?
 

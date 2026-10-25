@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=o8Ij0rEn6J8
 
 [00:15:30] Kishore: It is the most huggable cosplay you have.
 
-[00:15:32] Adam: Totally, completely. My wife described walking around, and I've said this before, as an antidepressant. Well, just walking around near me as Totoro, but then this morning was the was the big costume, and that was that was taking my old Chewbacca costume with some upgraded parts, including the bandolier, which I did as a one day build recently. And on the back of that was a complete vacuum metallized three PO built. The parts were supplied to me by Gordon Tarpley, Master Three PO Cosplayer and Builder. Jeremy Williams designed and built the Arduino based sound system and animatronic system. And unfortunately, the neck of three PO broke at the last minute, so his head was supposed to turn and it did not turn. But again, nothing ever quite goes according to plan at a con, and that's just part of the part of the deal. Yeah. And it was great; like people were losing their minds. I took a picture with a whole family of Leas, and and and uh, yeah, that was awesome.
+[00:15:32] Adam: Totally, completely. My wife described walking around, and I've said this before, as an antidepressant. Well, just walking around near me as Totoro, but then this morning was the was the big costume, and that was that was taking my old Chewbacca costume with some upgraded parts, including the bandolier, which I did as a one day build recently. And on the back of that was a complete vacuum metallized three PO built. The parts were supplied to me by Gordon Tarpley, Master Three PO Cosplayer and Builder. Jeremy Williams designed and built the Arduino based sound system and animatronic system. And unfortunately, the neck of three PO broke at the last minute, so his head was supposed to turn and it did not turn. But again, nothing ever quite goes according to plan at a con, and that's just part of the part of the deal. Yeah. And it was great; like people were losing their minds. I took a picture with a whole family of Leias, and and and uh, yeah, that was awesome.
 
 [00:16:31] Kishore: I think you're underselling the sense of scale. Like I was walking around as a cheeseburger, and like I stumbled like around a corner, and I'm like, " Oh, there's an eight foot Chewbacca with a three PO on its back, like towering over everything else in its sight with the crossbow.
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=o8Ij0rEn6J8
 
 [00:18:38] Adam: Well, just so that I can towel off at the end of the at the end of the run, I I need to be able to sit down and just sort of cool down again.
 
-[00:18:46] Norm: I mean, there are different priorities for different cosplayers. Just even between the two Todoros, you and the other Adam, your rig, which we will have in the video, is completely upgraded. You had Two iPhones inside.
+[00:18:46] Norm: I mean, there are different priorities for different cosplayers. Just even between the two Totoros, you and the other Adam, your rig, which we will have in the video, is completely upgraded. You had Two iPhones inside.
 
 [00:18:46] Unknown speaker: Yes.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=o8Ij0rEn6J8
 
 [00:23:54] Kishore: I have to say, as somebody that I didn't cosplay for a long time, and then before I was at Tested, I would watch the Incognito videos. I'm like, I can do this. I can do this, but I don't have like very much skill. So like my mayor McCheese is held together with like pins and like it's just sort of mashed together. But I love it. That's the point. It's like that love, and then it just I inhabit that character. So I'm like walking around saying political slogans as a mayor. It's ridiculous, but I I love it, and I think it's charming to everyone around you.
 
-[00:24:24] Adam: Well, so when I was walking as three sorry as Chewy just a few minutes ago and saw you, I didn't realize it was you at first.
+[00:24:24] Adam: Well, so when I was walking as three sorry as Chewie just a few minutes ago and saw you, I didn't realize it was you at first.
 
 [00:24:32] Kishore: Well, there's a giant cheeseburger on my head. It's hard to recognize.
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=o8Ij0rEn6J8
 
 [00:25:20] Adam: There is also a booth here of some incredible cars, Blade Runner spinners, and some unbelievable stuff. Some Terminators out there on the floor. Again, NASA's got a booth. I took a bunch of pictures in front of the Meatball logo as Chewbacca.
 
-[00:25:34] Kishore: NASA booth is the best. They have the Sophia mission, which I'll just go on forever about it. Can we the K two S O? I love K two S O
+[00:25:34] Kishore: NASA booth is the best. They have the SOFIA mission, which I'll just go on forever about it. Can we the K two S O? I love K two S O
 
 [00:25:40] Adam: [unclear: is the paper one / The K2SO is amazing. The paper one]?
 

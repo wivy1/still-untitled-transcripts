@@ -240,11 +240,11 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:13:31] Adam: I had an experience yesterday as Kylo, where I'm walking through and I'm kind of giving my all, and this little boy walks up and he's like Kylo, and I'm like I give him a little high five, he gives me a high five, and his dad's like, you want to take a picture? And kid's like, yeah, and I get down on the kid's level, and as I get down, the kid looks more and more horrified and runs away screaming. It was a little too much Kylo, too close.
 
-[00:13:54] Norm: No. I love going through and seeing the the high end collectible, the model miniatures at booths like EFX and and Quantum Mechanics.
+[00:13:54] Norm: No. I love going through and seeing the the high end collectible, the model miniatures at booths like EFX and and Quantum Mechanix.
 
-[00:14:04] Adam: The Quantum Mechanics cutaway Millennium Falcon is a masterpiece. John Eblen's an old friend of mine.
+[00:14:04] Adam: The Quantum Mechanix cutaway Millennium Falcon is a masterpiece. John Eblan's an old friend of mine.
 
-[00:14:08] Norm: Yes, at EFX Cinema Arts, there, and he said he's been working his whole life on it. It is a one, I want to say one eightieth scale, but the whole top of the Millennium Falcon comes off, and you can see like a blueprint of the inside.
+[00:14:08] Norm: Yes, at FX Cinema Arts, there, and he said he's been working his whole life on it. It is a one, I want to say one eightieth scale, but the whole top of the Millennium Falcon comes off, and you can see like a blueprint of the inside.
 
 [00:14:21] Adam: Incredible.
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:21:44] Unknown speaker: Yes.
 
-[00:21:44] Adam: I brought the one wheel. Norm brought the Segway.
+[00:21:44] Adam: I brought the Onewheel. Norm brought the Segway.
 
 [00:21:46] Norm: The Mini Pro.
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:22:07] Norm: So in the times that I need to get places, and and I can go and there's a straightaway. I'm going to use the Segway.
 
-[00:22:14] Adam: Well, so and this is the thing for me with the one wheel is the way Comic Con is constructed. The convention center is right along the harbor.
+[00:22:14] Adam: Well, so and this is the thing for me with the Onewheel is the way Comic Con is constructed. The convention center is right along the harbor.
 
 [00:22:20] Norm: Yeah.
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:22:43] Norm: And to get if you were just to walk, it'd be half an hour.
 
-[00:22:46] Adam: Well, so I put out one wheel on. I mean, I jump on the one wheel, and for instance, last night to get to the IMDb party, I had to be there at seven thirty. I left my hotel room at seven twenty-two. And I just whizz through the crowd, and the best part about it is, by the time you see me, I'm gone.
+[00:22:46] Adam: Well, so I put out Onewheel on. I mean, I jump on the Onewheel, and for instance, last night to get to the IMDb party, I had to be there at seven thirty. I left my hotel room at seven twenty-two. And I just whizz through the crowd, and the best part about it is, by the time you see me, I'm gone.
 
 [00:23:02] Norm: Right.
 
@@ -428,13 +428,13 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:23:08] Adam: So I just I hear people, wait, wait, wait a minute, what the like that kind of thing as I'm going through.
 
-[00:23:12] Simone: Because you were on front page of page of Imgur again, just in San Francisco, going around on your one wheel.
+[00:23:12] Simone: Because you were on front page of page of Imgur again, just in San Francisco, going around on your Onewheel.
 
 [00:23:19] Adam: Yes, that’s right.
 
 [00:23:19] Norm: I think with your coffee.
 
-[00:23:21] Adam: Yeah. Exactly. So yeah, I they someone caught me leaving ritual with my coffee carrier, changing my sunglasses while on the one wheel and making a U turn. Yeah. So I love that thing, and it's been. I think next year we should bring electric, more electric vehicles for the crew to be able to move around.
+[00:23:21] Adam: Yeah. Exactly. So yeah, I they someone caught me leaving ritual with my coffee carrier, changing my sunglasses while on the Onewheel and making a U turn. Yeah. So I love that thing, and it's been. I think next year we should bring electric, more electric vehicles for the crew to be able to move around.
 
 [00:23:41] Norm: Hotels should definitely have this, like things you can get for guests to to rent or loan for the day. Yeah. To get around.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:31:21] Simone: yeah, make it easier
 
-[00:31:22] Adam: So it’s gonna be easier to see me. Amazingly, the other night at Woodstock, I was talking to a I was talking to this woman, and she said, " What is your costume?" And I said, " It's a seven foot tall bear." And she was like, " Wait, really? You know, because I'm a professional puppeteer." She turned out to know Rick and Rod. She knew those guys. She does this stuff for a living. She was working on a bear costume currently, and on the side, she's a specialist in Regency era clothing.
+[00:31:22] Adam: So it’s gonna be easier to see me. Amazingly, the other night at w00tstock, I was talking to a I was talking to this woman, and she said, " What is your costume?" And I said, " It's a seven foot tall bear." And she was like, " Wait, really? You know, because I'm a professional puppeteer." She turned out to know Rick and Rod. She knew those guys. She does this stuff for a living. She was working on a bear costume currently, and on the side, she's a specialist in Regency era clothing.
 
 [00:31:56] Norm: Wow,
 

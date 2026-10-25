@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:11:28] Adam: I don't mind. I don't suspect that Mark Hamill minds being a handful. He's an amazing actor. He's built an incredible post-Star Wars career as one of the defining voice actors of the last twenty years. Yeah, and well deserved. And what he brought to this film is incredible. And if that was a handful on set, it was completely worth it.
 
-[00:11:48] Norm: I'm just thinking of Jan and Bob Strike Back when he has a cameo as the cop blocker, cop knocker. Sorry, and he has like a Schwartz type power. And then now he's this.
+[00:11:48] Norm: I'm just thinking of Jay and Silent Bob Strike Back when he has a cameo as the cop blocker, cop knocker. Sorry, and he has like a Schwartz type power. And then now he's this.
 
 [00:11:58] Will: Oh no, not again!
 
@@ -340,7 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:19:07] Adam: Yeah,
 
-[00:19:07] Will: I saw it in at the Draft House on 35 mil or their digital version of that.
+[00:19:07] Will: I saw it in at the Drafthouse on 35 mil or their digital version of that.
 
 [00:19:13] Norm: No, Sony projector.
 
@@ -630,9 +630,9 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:30:29] Will: right. And one of the main subtexts of this movie is, you know, Rey’s a nobody, Finn's a nobody, Poe’s presumably nobody. We don't know. Um, Kylo Ren comes out and tells Rey, " You're you're nobody." In that final sequence, yeah,
 
-[00:30:42] Norm: the nagging,
+[00:30:42] Norm: the negging,
 
-[00:30:42] Will: nagging, yeah, yeah, the nagging scene.
+[00:30:42] Will: negging, yeah, yeah, the negging scene.
 
 [00:30:44] Norm: It’s horrible.
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:31:27] Norm: And it's not a comp, it's not complex. It's it's more complex than just light or dark. It's not seduced. He is just a bad person.
 
-[00:31:35] Will: Well, but interesting. More interesting than that is it solves what I think is the main problem with all the Star Warses except for the first Star Wars, which is that you know you you open on the tent before you see Darth Vader for the first time. He is clearly just an evil motherfucker, right? Like he is
+[00:31:35] Will: Well, but interesting. More interesting than that is it solves what I think is the main problem with all the Star Warses except for the first Star Wars, which is that you know you you open on the Tantive IV, you see Darth Vader for the first time. He is clearly just an evil motherfucker, right? Like he is
 
 [00:31:49] Will: he is the worst guy in the universe. And then they immediately in the next movie introduce a bigger bad who maybe isn't as big and as bad, but and scary. But he is with Kylo Ren. They they've written a character that is truly truly terrifying, really really scary. Like he's impulsive and he has he has he has a temper and he's he's destructive and he has no kind of filters and he's the actual first villain since Darth Vader that's good.
 
@@ -696,7 +696,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:33:09] Norm: Yeah,
 
-[00:33:09] Adam: doing the bring you towards me like Go Go Ubari.
+[00:33:09] Adam: doing the bring you towards me like Gogo Yubari.
 
 [00:33:12] Will: Oh, it's so good.
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:34:53] Will: She’s Adam Driver’s daughter.
 
-[00:34:55] Norm: No, well, she maybe her parents aren't really nobodies. Maybe the nagging was.
+[00:34:55] Norm: No, well, she maybe her parents aren't really nobodies. Maybe the negging was.
 
 [00:34:58] Adam: I think her parents are nobodies, and I don't think it matters. I think that’s the whole. point.
 
@@ -922,7 +922,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:41:21] Adam: Uh, friend of Tested
 
-[00:41:23] Will: from Fallbots as well.
+[00:41:23] Will: from BattleBots as well.
 
 [00:41:24] Adam: Yes, indeed. Uh, from Mouser Mecha Catbot, uh, his wonderful Mouser Mecha Catbot, meow, meow. Um, he has a great story. From many years, I think even before he worked at ILM, he was working at this place where there was a parking lot nearby, and he decided to go one day. Fon, you'll tell me if I got this story wrong. He decided to go one day and pulled up to the guy at the thing and said, " No, it's I am supposed to park here because of the because of the folks," and the guy was like, " Okay." And he just pulled into a parking space and did that every day for months.
 
@@ -994,7 +994,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:43:55] Will: when, uh, they were in the Millennium Falcon fight on the on the mineral planet at the end. They played the theme from it was John Williams used this the theme from the Tie Fighter Escape from the original Death Star in Star Wars. When Luke died, when Luke became one with the Force at the end, yeah, they he stared at two suns in the sunset. Yes, and they played the Luke's intro theme from Tatooine in original Star Wars.
 
-[00:44:18] Adam: There's one I want to say. There's one shot I wanted in this movie, which is when the Millennium Falcon shows up to help during the last battle. I wanted the first shot of the Falcon to be Chewy in the cockpit. I realized that would have that just just that one. Sorry, Rian. I just I want that one little piece of like ah Chewy
+[00:44:18] Adam: There's one I want to say. There's one shot I wanted in this movie, which is when the Millennium Falcon shows up to help during the last battle. I wanted the first shot of the Falcon to be Chewie in the cockpit. I realized that would have that just just that one. Sorry, Rian. I just I want that one little piece of like ah Chewie
 
 [00:44:39] Will: man Chewbacca. Yeah, Princess Leia got the Chewbacca hug that she missed at the end of Force Awakens.
 

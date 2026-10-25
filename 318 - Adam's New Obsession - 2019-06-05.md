@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:01:51] Will: I saw a picture from that,
 
-[00:01:52] Adam: and then I had an afternoon lunch with my friend Philip Atiba Goff, who runs a wonderful organization that helps police stations better serve their communities, and then I and then what did they do for dinner? Oh yeah, I had late afternoon dinner with one of my oldest friends.
+[00:01:52] Adam: and then I had an afternoon lunch with my friend Phillip Atiba Goff, who runs a wonderful organization that helps police stations better serve their communities, and then I and then what did they do for dinner? Oh yeah, I had late afternoon dinner with one of my oldest friends.
 
 [00:02:12] Norm: You were it's New York in the summer because we talk about
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:18:04] Adam: I came in here on Friday morning or Thursday morning, and I just whipped together this foam core box with hangers for everything.
 
-[00:18:11] Norm: These are notes of like when you did the gang charger for the GII Inspire. Yeah. When you are interested and passionate about a piece of tech or experience,
+[00:18:11] Norm: These are notes of like when you did the gang charger for the DJI Inspire. Yeah. When you are interested and passionate about a piece of tech or experience,
 
 [00:18:19] Adam: I want immediate access to it as often as possible.
 
@@ -798,7 +798,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:28:18] Adam: Yeah,
 
-[00:28:19] Norm: and the way it's made reminds me of like * Lemony Snicket* series and * Fortune Events* that Netflix show has a lot of whimsy to it, like * Pushing Daisies*. And while comic book fans know Neil probably most for * Sandman*, and that's been kind of In the works for a very long time.
+[00:28:19] Norm: and the way it's made reminds me of like * Lemony Snicket* series * Unfortunate Events* that Netflix show has a lot of whimsy to it, like * Pushing Daisies*. And while comic book fans know Neil probably most for * Sandman*, and that's been kind of In the works for a very long time.
 
 [00:28:34] Will: An impossible project.
 

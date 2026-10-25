@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=3sVWJThNzrI
 
 [00:17:11] Joey: Keeley and Rebecca, I thought both were fantastic to watch.
 
-[00:17:13] Adam: Two amazing female characters. So the the the basic plot is a struggle between the hip new young rock star Jamie Tartt, who can like everything he kicks goes into the goal, and and Roy Roy Fox. So the team is sort of divided, and Ted has to figure out a way to do this. And Jamie Tart is just a total dick. He's a terrible person. He's racist. He's classist. He's shitbird. But his girlfriend Keeley might be one of the most psychologically advanced humans on the show. She shows up at first, and you think, " Oh, she's like hot, and she's like being super flirty with everyone." This is going to be a problematic character. It's just going to be, " Oh, this is going to be go in a certain way," and then it totally doesn't go in that way. Keeley is amazing. Keeley is. Keeley considers herself the equal of anyone she meets, and she totally is. And there's a, a level of beautiful confidence to her that's remarkable.
+[00:17:13] Adam: Two amazing female characters. So the the the basic plot is a struggle between the hip new young rock star Jamie Tartt, who can like everything he kicks goes into the goal, and and Roy Roy Fox. So the team is sort of divided, and Ted has to figure out a way to do this. And Jamie Tartt is just a total dick. He's a terrible person. He's racist. He's classist. He's shitbird. But his girlfriend Keeley might be one of the most psychologically advanced humans on the show. She shows up at first, and you think, " Oh, she's like hot, and she's like being super flirty with everyone." This is going to be a problematic character. It's just going to be, " Oh, this is going to be go in a certain way," and then it totally doesn't go in that way. Keeley is amazing. Keeley is. Keeley considers herself the equal of anyone she meets, and she totally is. And there's a, a level of beautiful confidence to her that's remarkable.
 
 [00:18:12] Joey: There's a lot of like. There's a lot. It feels to me like her and Ted Lasso are kind of cut from the same cloth. Just they operate differently. They're very differently.
 
@@ -206,9 +206,9 @@ Episode URL: https://www.youtube.com/watch?v=3sVWJThNzrI
 
 [00:22:22] Norm: the one that I say, oh, right, looks like a combination of what's his name from Office Space, Milton from Office Space, Milton from Office Space with Stephen Colbert blended together.
 
-[00:22:37] Adam: The big boss from News Radio.
+[00:22:37] Adam: The big boss from NewsRadio.
 
-[00:22:39] Norm: Yes, yes, Jimmy James from News Radio. Milton from Office Space combined with Stephen Colbert is how I imagined him.
+[00:22:39] Norm: Yes, yes, Jimmy James from NewsRadio. Milton from Office Space combined with Stephen Colbert is how I imagined him.
 
 [00:22:47] Adam: Nice,
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=3sVWJThNzrI
 
 [00:32:13] Adam: and you know that that's what's going to happen. You know that this like jaded bohemian reporter Trent Kim of the Independent or whatever his name is, and that crazy like mop of hair he's got. And you know that, like, oh, Ted's going to win him over in this episode. But still, the way Ted wins him over, you really get the the psychological weight of what it is for the reporter to like really witness. Wow, this guy's trying to win me over, and it's freaking working because he's remarkable.
 
-[00:32:39] Norm: He was the only character where I felt like was a little bit just cliche. The reporter writing that article is very much like the end of Ratatouille, right? That the voiceover, right? Of like he's won over my heart, and now you can win over yours too. I'll be rooting for him. Like, yeah, yeah, yeah. And there are some cliche characters that are great. Like, you know, Sam is a little bit of a cliche. Danny Rojas, football is life. Like, the great little comedic moments.
+[00:32:39] Norm: He was the only character where I felt like was a little bit just cliche. The reporter writing that article is very much like the end of Ratatouille, right? That the voiceover, right? Of like he's won over my heart, and now you can win over yours too. I'll be rooting for him. Like, yeah, yeah, yeah. And there are some cliche characters that are great. Like, you know, Sam is a little bit of a cliche. Dani Rojas, football is life. Like, the great little comedic moments.
 
 [00:33:07] Joey: What did you guys think of? I'm blanking on his name. Jamie, Jamie's the hot, the
 

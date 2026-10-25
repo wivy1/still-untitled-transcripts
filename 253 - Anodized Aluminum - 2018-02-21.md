@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:13:27] Will: And there's holes that line up with the ribs and the and the outer pieces.
 
-[00:13:33] Norm: And they all just zip tight, and that perfectly bends the boat, the wood, the plywood.
+[00:13:33] Norm: And they all just zip tied, and that perfectly bends the boat, the wood, the plywood.
 
 [00:13:33] Will: Huh.
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:22:23] Adam: Oh yeah,
 
-[00:22:23] Will: and because Gina wants to see Itania, and it's only in theaters. We watched. We're in the pre-Oscar
+[00:22:23] Will: and because Gina wants to see I, Tonya, and it's only in theaters. We watched. We're in the pre-Oscar
 
 [00:22:23] Adam: Right.
 
@@ -636,7 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:24:34] Norm: even though they inhabit the same New York world, production design beautiful, beautiful. The costumes are beautiful. The apartments they live in are amazing, and the lead actress Rachel Brosnahan, who is in House of Cards as as as I guess also Rachel, is it? I think she is. She's wonderful.
 
-[00:25:00] Adam: I have also been listening to a lot of podcasts. I've mentioned Pod Save America, haven't I? I've listened to a whole bunch of that. I'm pretty religiously listening to Love It or Leave It.
+[00:25:00] Adam: I have also been listening to a lot of podcasts. I've mentioned Pod Save America, haven't I? I've listened to a whole bunch of that. I'm pretty religiously listening to Lovett or Leave It.
 
 [00:25:11] Norm: It’s all under the Crooked Media.
 
@@ -732,7 +732,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:27:58] Adam: I don't know.
 
-[00:27:59] Will: I started reading * Neuromancer*. It is it's astounding. Like the the do you want me to spoil? Do you want me to spoil the one thing that William Gibson completely missed?
+[00:27:59] Will: I started reading * Neuromancer*. It is it's astounding. Like the the do you want me to spoil the one thing that William Gibson completely missed?
 
 [00:27:59] Adam: Yeah,
 

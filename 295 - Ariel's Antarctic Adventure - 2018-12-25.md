@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:04:51] Norm: And so I would love
 
-[00:04:52] Will: Watch it out that you're back.
+[00:04:52] Will: Watch it now that you're back.
 
 [00:04:54] Norm: Yeah, totally. I would love to hear from you about one what the living conditions and what that base was like, and then two, just the logistics of getting there.
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:08:51] Ariel: It definitely did, but in I would say a positive way. So a lot of people equate McMurdo to being like a mining town, and certainly in appearance it has that because yeah, there's a lot of tractors, there's a lot of like industrial machines around and everything. But you know, life at McMurdo is actually kind of comfortable. Like if if you're not doing field work a lot, so you know they've got two bars, they've got a coffee shop, they've got a huge laboratory which I worked in, and they've got the galley, which is the big cafeteria where everyone has the same meal times and everything. And so you know, it's it's I don't know. It was really it was comfy. And the thing that really struck me about McMurdo the most that I wasn't expecting was just how friendly everyone is. Just everyone is extremely friendly, and I wasn't really expecting that. Not that I thought they were going to be unfriendly, but in a lot of science communities, there's a lot of you know prove yourself sort of behavior and and things like that. And I just didn't get that at all in McMurdo. Like everyone like everyone was here in Antarctica, and everyone respected everyone else, and it was just really fantastic.
 
-[00:09:59] Will: I mean, I have to imagine if a if you've been there for a while, new faces are really exciting, right? Like, but but also like everybody's on the same team there, right? You're if you're in Antarctica, it's because you're interested in You know, climate science or or disappearing ecologies or you know whatever it happens to be, and when you're surrounded by a giant group of really smart people, it's like it's like when you go to a really good conference. It's full of people that are really a lot more interesting than you. Like, oh man, everybody here I can talk to is really interesting, and and I have to imagine it's the same kind of same kind of vibe there. Like, I got to imagine the conversations of the calf are pretty good.
+[00:09:59] Will: I mean, I have to imagine if a if you've been there for a while, new faces are really exciting, right? Like, but but also like everybody's on the same team there, right? You're if you're in Antarctica, it's because you're interested in You know, climate science or or disappearing ecologies or you know whatever it happens to be, and when you're surrounded by a giant group of really smart people, it's like it's like when you go to a really good conference. It's full of people that are really a lot more interesting than you. Like, oh man, everybody here I can talk to is really interesting, and and I have to imagine it's the same kind of same kind of vibe there. Like, I got to imagine the conversations in the caf are pretty good.
 
 [00:10:33] Ariel: Yeah, like so, this is really something no one can relate to except for myself. But when I was there, I was like, oh, it's like like getting to spend the night at NASA.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:25:52] Norm: The area around the base, I imagine, is pretty well explored. And so, what are the expeditions like when people leave base? How far they go out, and where are there set destinations people go to, or are is there actually new new places they go?
 
-[00:26:07] Ariel: Yeah, so usually there's set field camps for a lot of the people who do go off base. So most people stay in McMurdo, and and a lot of science is done like in the sea ice area and surrounding area. And most of the support staff and everyone stays in McMurdo, but there are set field camps. So in the Dry Valleys, there's three main camps. There's Lake Bonney, which has Blood Falls, which is that like if you've ever seen a picture of red stuff coming out of a glacier. Yeah. There's Lake Hoar, which has
+[00:26:07] Ariel: Yeah, so usually there's set field camps for a lot of the people who do go off base. So most people stay in McMurdo, and and a lot of science is done like in the sea ice area and surrounding area. And most of the support staff and everyone stays in McMurdo, but there are set field camps. So in the Dry Valleys, there's three main camps. There's Lake Bonney, which has Blood Falls, which is that like if you've ever seen a picture of red stuff coming out of a glacier. Yeah. There's Lake Hoare, which has
 
 [00:26:07] Will: the algae, right?
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:26:50] Will: Wow.
 
-[00:26:52] Ariel: There is bacteria living in it, though, which which is why it's really interesting to study. So yeah, you've got Lake Bonney, Lake Hoar, and then Lake Fryxell. Those are all kind of right next to each other, and yeah, this area called the Dry Valleys is it's you know a 30 minute helicopter ride away from McMurdo. So in one instance, you would think, well, maybe it's you know only the most interesting thing like close to McMurdo. But it's actually really fascinating for the entire continent. It's the largest area in all of Antarctica that is not covered by ice or snow. The entire continent, and the continent is nearly the size of North America. So you've got this one patch that's near McMurdo that has no ice or snow, and it's really fascinating to go there because you're walking around on all this ice and snow all the time in Antarctica, and you start wondering like, what does the land itself look like? Like, what if I could like get rid of all the ice and snow and actually see the continent?
+[00:26:52] Ariel: There is bacteria living in it, though, which which is why it's really interesting to study. So yeah, you've got Lake Bonney, Lake Hoare, and then Lake Fryxell. Those are all kind of right next to each other, and yeah, this area called the Dry Valleys is it's you know a 30 minute helicopter ride away from McMurdo. So in one instance, you would think, well, maybe it's you know only the most interesting thing like close to McMurdo. But it's actually really fascinating for the entire continent. It's the largest area in all of Antarctica that is not covered by ice or snow. The entire continent, and the continent is nearly the size of North America. So you've got this one patch that's near McMurdo that has no ice or snow, and it's really fascinating to go there because you're walking around on all this ice and snow all the time in Antarctica, and you start wondering like, what does the land itself look like? Like, what if I could like get rid of all the ice and snow and actually see the continent?
 
 [00:27:47] Will: Just geologists walking around.
 

@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:12:18] Will: Yeah.
 
-[00:12:18] Adam: On the on the first night we were there, we arrived. On the first night we were there, we arrived at like 11 o'clock at night, and then we had a day of doing some rehearsals. And on the first night, Julia found this place called. Hold on, let me find this out. I know this is going to be thrilling to watch me research something on my phone.
+[00:12:18] Adam: On the first night we were there, we arrived at like 11 o'clock at night, and then we had a day of doing some rehearsals. And on the first night, Julia found this place called. Hold on, let me find this out. I know this is going to be thrilling to watch me research something on my phone.
 
 [00:12:39] Will: Fact-checking ruins podcasts. I heard.
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:25:38] Adam: wow.
 
-[00:25:38] Will: I think flying in a U two is pretty cool,
+[00:25:38] Will: I think flying in a U-2 is pretty cool,
 
 [00:25:52] Adam: but an SR-71.
 
@@ -750,9 +750,9 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:32:03] Adam: Thanks. Hey. Also, obviously, we'll talk more about Abu Dhabi. I have more things to tell about. And if anybody has any specific questions, go ahead and ask and address them in the next week's podcast.
 
-[00:32:13] Will: And Norm has finished Seven Eves.
+[00:32:13] Will: And Norm has finished Seveneves.
 
-[00:32:15] Adam: Oh yes, we got to talk part three of Seven Eves.
+[00:32:15] Adam: Oh yes, we got to talk part three of Seveneves.
 
 [00:32:18] Will: We'll tack that on the end of next week's episode.
 

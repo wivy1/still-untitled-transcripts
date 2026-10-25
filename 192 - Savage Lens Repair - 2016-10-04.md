@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:03:02] Adam: No. All of a sudden, I turned into Jerry Seinfeld. What's the deal with dating?
 
-[00:03:05] Will: What about rental cars? I also had a good piece of advice from another podcast I listened to, which is. Unattended consequences, the Pat Rothfuss Max Stepin thing, and they talked about actually on one of the first episodes of this season.
+[00:03:05] Will: What about rental cars? I also had a good piece of advice from another podcast I listened to, which is. Unattended consequences, the Pat Rothfuss Max Temkin thing, and they talked about actually on one of the first episodes of this season.
 
 [00:03:20] Adam: You know that was one of the first comments I made a mistake of reading. Go ahead.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:04:12] Adam: [speaker unclear: Norm / Adam] get
 
-[00:04:12] Adam: my way there. I have a. Poetic bend. I want to get something right out of it, and actually shows up as one of those. Look, there's a bunch of words that are the words you say when you're thinking about the next thing to say. I'm one of those people who visualizes what they're about to say, so I think in paragraphs and I scroll to the next one and I use some filler words to get there.
+[00:04:12] Adam: my way there. I have a. Poetic bent. I want to get something right out of it, and actually shows up as one of those. Look, there's a bunch of words that are the words you say when you're thinking about the next thing to say. I'm one of those people who visualizes what they're about to say, so I think in paragraphs and I scroll to the next one and I use some filler words to get there.
 
 [00:04:34] Will: Actually,
 
@@ -556,7 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:19:57] Will: The one, the one that we rented.
 
-[00:19:59] Norm: There was one on hate. Yeah, there's, there's.
+[00:19:59] Norm: There was one on Haight. Yeah, there's, there's.
 
 [00:20:00] Will: Yeah,
 
@@ -716,7 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:26:52] Adam: exactly the same thing, Norm. I think you're totally right.
 
-[00:26:55] Norm: And it's you know, Master of None and Louis, like this show I want to watch.
+[00:26:55] Norm: And it's you know, Master of None and Louie, like this show I want to watch.
 
 [00:26:59] Adam: Look, I think that the kind of the kind of stripping bare you have to do to be a great comedian, to be able to hear a crowd and bring your material and bring your game and interact with that crowd, I think by and large. Seems to me the best acting training there could be.
 
@@ -894,7 +894,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:32:00] Adam: Really?
 
-[00:32:01] Norm: So yep, tickets are on sale now. October 29th is a Saturday. It's at the Castro Theater. It's gonna be awesome.
+[00:32:01] Norm: So yep, tickets are on sale now. October 29th is a Saturday. It's at the Castro Theatre. It's gonna be awesome.
 
 [00:32:07] Adam: We will 
 

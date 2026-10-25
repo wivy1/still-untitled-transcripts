@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:20:03] Adam: it was like here is a tree. I am like, no helicopter does that.
 
-[00:20:09] Norm: So I thought you would appreciate those two things at least for for test listeners. Yes,
+[00:20:09] Norm: So I thought you would appreciate those two things at least for for Tested listeners. Yes,
 
 [00:20:14] Will: there we go.
 
@@ -720,7 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:27:23] Will: Yeah, and and that that has served me well many many times over the last thirty years, twenty years.
 
-[00:27:29] Adam: It's so funny on this on on tested what what resonates deeply. Like you just never, I never have, I've never write about my expectations, and I'm always surprised, and it's awesome.
+[00:27:29] Adam: It's so funny on this on on tested what what resonates deeply. Like you just never, I never have, I've never right about my expectations, and I'm always surprised, and it's awesome.
 
 [00:27:39] Will: Yeah, it's all it's we love seeing that kind of feedback.
 

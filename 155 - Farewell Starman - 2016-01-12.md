@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:03:24] Adam: Yeah, no, I know, and a genuinely wonderful actor, a genuinely terrific personality. I mean, very. You never felt like he was rigorously controlling his brand. You just felt like he was existing. We were in his world. He and Iman would walk around, and everyone would just be like, " How is such beauty possible?" As they, it is literally like we're being allowed to view unicorns in the wild as they as they move around.
 
-[00:03:52] Rebecca: A friend of mine just said she was hanging out in a bar once when they walked in and you know, I don’t know, I don’t know, I don’t know, I don’t know, I don’t know, I don’t know, I don’t know. It was like in the old west when a gunslinger walks in and the entire bar just falls silent. It was like royalty walking in.
+[00:03:52] Rebecca: A friend of mine just said she was hanging out in a bar once when they walked in and you know. It was like in the old west when a gunslinger walks in and the entire bar just falls silent. It was like royalty walking in.
 
 [00:04:04] Adam: So this this week, the amazing and wonderful sketch fest is happening in San Francisco, and it's taking over San Francisco and taking over some of our lives for days here and there. We all have good friends who come into town, and we get to see them and spend time with them. And yesterday, there was a lot of time spent with Ben Acker and Ben Blacker from the Thrilling Adventure Hour, Mark Gagliardi, Hal Lublin,
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:34:17] Rebecca: Yeah,
 
-[00:34:17] Norm: I want to see more Carrie Ann Moss.
+[00:34:17] Norm: I want to see more Carrie-Anne Moss.
 
 [00:34:40] Adam: Yeah, absolutely, Carrie-Anne Moss, fantastic.
 

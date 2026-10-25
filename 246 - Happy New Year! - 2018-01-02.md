@@ -160,11 +160,11 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:05:23] Norm: It was wonderful to see, yeah, people in their dynamics and have extended conversations with some of our friends that we only could see a couple times a year.
 
-[00:05:30] Adam: Yeah, my mom, my mom was there. She was the life of the party. James Randy, the amazing Randy,
+[00:05:30] Adam: Yeah, my mom, my mom was there. She was the life of the party. James Randi, the Amazing Randi,
 
 [00:05:30] Unknown speaker (Will or Norm): Wow.
 
-[00:05:30] Adam: came with with some friends of mine and some friends of his, and that was that was lovely. He held court over in the over by my couch in the living room. Perfect. I was thinking because the previous year was it the previous year that Phil Tippett sat close to that same spot, pretended to be cranky. I Phil pretends to be cranky, but Phil is just a sweet pussy cat of a man, and he's not actually cranky. So I was thinking Randy was like the white bearded guy over there in the corner.
+[00:05:30] Adam: came with with some friends of mine and some friends of his, and that was that was lovely. He held court over in the over by my couch in the living room. Perfect. I was thinking because the previous year was it the previous year that Phil Tippett sat close to that same spot, pretended to be cranky. I Phil pretends to be cranky, but Phil is just a sweet pussy cat of a man, and he's not actually cranky. So I was thinking Randi was like the white bearded guy over there in the corner.
 
 [00:05:58] Norm: Yes, yes, He'd watch over the tree. Yeah. I was very impressed that you had much of your house open, and I know we've done like one video a long time ago about your home office, but you had your your home office. It was great to see.
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:14:05] Norm: It's the one I had. I literally had one more thing this year.
 
-[00:14:07] Will: I hid I hid the tin pot in my office and then pulled it out after all the presents were opened.
+[00:14:07] Will: I hid I hid the Instant Pot in my office and then pulled it out after all the presents were opened.
 
 [00:14:11] Adam: We go back and forth on that. This year, my wife and I. I mean, you know, we have a very we have a nice life and we we have a lot about what we need and so sometimes we we go out on Christmas and do stuff and this was one of those years where we each bought each other just some small lovely little things like really very it was a very minor Christmas on that regard. I bought the boys watches.
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:17:19] Adam: That's this intersection that we're talking about
 
-[00:17:20] Norm: because it had the weirdness of a Spike Jones premise,
+[00:17:20] Norm: because it had the weirdness of a Spike Jonze premise,
 
 [00:17:20] Adam: Mm-hmm.
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:20:31] Adam: and like Mike is a master sculptor who's done some of the large, beautiful pieces that you've seen in photo essays of Bleak House, Guillermo's amazing compendium of collection of stuff,
 
-[00:20:43] Norm: unveils something new at a Monster Palooza every year, and he understands creature anatomy,
+[00:20:43] Norm: unveils something new at a Monsterpalooza every year, and he understands creature anatomy,
 
 [00:20:49] Adam: yeah,
 
@@ -770,7 +770,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:28:46] Adam: Just charging for time and materials because it punishes you for being fast. You have to. There's an industry standard for what you pay for X with this amount of rights, and that's what that should encompass. And you know that it was delightful on both halves of the equation.
 
-[00:29:09] Will: This is the thing that that Brian, our friend Brian Lamb, figured out with Wirecutter before anybody else. He was like, " Look, advertising sucks. It's not a model that's going to pay for the work that needs to be done if you want to actually review products.
+[00:29:09] Will: This is the thing that that Brian, our friend Brian Lam, figured out with Wirecutter before anybody else. He was like, " Look, advertising sucks. It's not a model that's going to pay for the work that needs to be done if you want to actually review products.
 
 [00:29:19] Adam: Yeah,
 

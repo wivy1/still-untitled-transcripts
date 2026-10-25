@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:07:14] Unknown speaker (Adam or Andy): Right, right, right,
 
-[00:07:14] Andy: yeah. I mean, the expanse is great, but they're they're science fiction, in my opinion. And I'm a grumpy little cave troll, so take it for what what it is. But I'm really annoyed that science fiction seems to have been like hijacked by dystopian misery escapes of the future, where everything's got to be like you know plucky teens versus a fascist government. And I'm like, okay, there's a place for those stories.
+[00:07:14] Andy: yeah. I mean, the expanse is great, but they're they're science fiction, in my opinion. And I'm a grumpy little cave troll, so take it for what what it is. But I'm really annoyed that science fiction seems to have been like hijacked by dystopian miseryscapes of the future, where everything's got to be like you know plucky teens versus a fascist government. And I'm like, okay, there's a place for those stories.
 
 [00:07:14] Unknown speaker (Adam or Andy): Are you talking about
 

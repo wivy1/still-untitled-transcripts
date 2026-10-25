@@ -4,7 +4,7 @@
 **Duration:** 28m 39s  
 Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
-[00:00:04] Will: This week's Still Untitled is sponsored by Casper Mattresses, obsessively engineered American-made mattresses at a shockingly fair price. And now you can get fifty dollars toward any mattress purchase by going to casper dot com slash untitled and using offer code untitled. Listen, you spend about a third of your life sleeping. Let's make sure you're doing it on a good mattress. Casper brings together two comfy technologies for better nights and brighter days: latex foam and memory foam. They've got all the foams, so they've got just the right sink, just the right bounce, no matter how you sleep. Casper's got a risk-free trial and return policy. They'll deliver the mattress straight to you. You can try it for one hundred days, and if you're not happy, they'll pick it back up at the store. You get maybe a minute to try a mattress with Casper. You actually get to sleep on it. It's five hundred bucks for a twin size mattress, nine fifty for a king size mattress. Comparing that to industry averages, that's an outstanding price point. So get fifty dollars toward any mattress purchase by going to casper dot com slash untitled and using offer code untitled. Terms and conditions apply. And now on with the show. Welcome to Still Untitled: The Adam Savage Project. I'm Will.
+[00:00:04] Will: This week's Still Untitled is sponsored by Casper Mattresses, obsessively engineered American-made mattresses at a shockingly fair price. And now you can get fifty dollars toward any mattress purchase by going to casper dot com slash untitled and using offer code untitled. Listen, you spend about a third of your life sleeping. Let's make sure you're doing it on a good mattress. Casper brings together two comfy technologies for better nights and brighter days: latex foam and memory foam. They've got all the foams, so they've got just the right sink, just the right bounce, no matter how you sleep. Casper's got a risk-free trial and return policy. They'll deliver the mattress straight to you. You can try it for one hundred days, and if you're not happy, they'll pick it back up. At the store, you get maybe a minute to try a mattress with Casper. You actually get to sleep on it. It's five hundred bucks for a twin size mattress, nine fifty for a king size mattress. Comparing that to industry averages, that's an outstanding price point. So get fifty dollars toward any mattress purchase by going to casper dot com slash untitled and using offer code untitled. Terms and conditions apply. And now on with the show. Welcome to Still Untitled: The Adam Savage Project. I'm Will.
 
 [00:01:09] Adam: I'm Adam.
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:11:25] Norm: Do you like that idea when when actors play versions of themselves?
 
-[00:11:29] Adam: Well, I think it's actually. So I think it's really cool. I think Emily Mortimer is fearless because she does not. There's no no no cure is taken for her dignity in this. To quote Mary Karr, quoting Tobias Wolff. Anyway, um, she uh, so you know, it's a very complicated relationship, but you really do love both women, and there's it's fascinating watching it play out. Um, and wait, there was one more thing I was going to say, but oh, right, everybody's in it. Everybody, because it's just like there's this whole new thing. There's no more any stigma for movie stars to appear on television,
+[00:11:29] Adam: Well, I think it's actually. So I think it's really cool. I think Emily Mortimer is fearless because she does not. There's no no no care is taken for her dignity in this. To quote Mary Karr, quoting Tobias Wolff. Anyway, um, she uh, so you know, it's a very complicated relationship, but you really do love both women, and there's it's fascinating watching it play out. Um, and wait, there was one more thing I was going to say, but oh, right, everybody's in it. Everybody, because it's just like there's this whole new thing. There's no more any stigma for movie stars to appear on television,
 
 [00:12:06] Norm: That’s right.
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:16:59] Adam: Oh,
 
-[00:16:59] Will: opening scene in a pilot I've probably ever seen. Maybe the side of Lost.
+[00:16:59] Will: opening scene in a pilot I've probably ever seen. Maybe this side of Lost.
 
 [00:17:04] Adam: I maybe I'll maybe have to watch that tonight.
 

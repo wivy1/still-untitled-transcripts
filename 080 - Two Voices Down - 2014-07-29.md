@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:04:23] Adam: This year we had a wonderful sponsor.
 
-[00:04:24] Will: Well, so this year, this year, Whale Rock, which is the company that owns Tested, and AOL and Mandatory, which is one of our sister sites with Whale Rock, said, " You know what? Here's a here's some some money.
+[00:04:24] Will: Well, so this year, this year, Whalerock, which is the company that owns Tested, and AOL and Mandatory, which is one of our sister sites with Whalerock, said, " You know what? Here's a here's some some money.
 
 [00:04:37] Adam: Yeah.
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:09:23] Adam: Oh my god!
 
-[00:09:23] Norm: To meet each other. I mean, Mike McMaster, who built the giant WALL-E robot, was there. Yeah. Chris Reiff and Chris Trevas, the two Star Wars dudes who know all the parts, they do all the books were there. Um, and you know, Fon Davis, John Eblen from ILM Miniature Shop, all all the people from
+[00:09:23] Norm: To meet each other. I mean, Mike McMaster, who built the giant WALL-E robot, was there. Yeah. Chris Reiff and Chris Trevas, the two Star Wars dudes who know all the parts, they do all the books were there. Um, and you know, Fon Davis, John Eblan from ILM Miniature Shop, all all the people from
 
 [00:09:23] Adam: Matt Winston and a bunch of folks from Legacy were there.
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:10:36] Will: Oh, really? Yeah. I did get to meet him. I'm so bummed.
 
-[00:10:49] Norm: The prop store guys, Brandon Allinger, who started the RPF, was there.
+[00:10:49] Norm: The prop store guys, Brandon Alinger, who started the RPF, was there.
 
 [00:10:52] Adam: Stephen Lane, yeah, who owns Prop Store of London, yeah, was there.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:11:38] Will: Now, Skrillex case.
 
-[00:11:40] Norm: No, no, no, no. Yeah, now there's a bit. Don't bear the lead because we had some awesome people.
+[00:11:40] Norm: No, no, no, no. Yeah, now there's a bit. Don't bury the lead because we had some awesome people.
 
 [00:11:40] Will: Oh.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:17:55] Will: Well, and And I mean, if you're Brad and Angelina, you you can't like you get in the normal elevator, you're gonna get killed. So,
 
-[00:17:55] Adam: but you know, I Jamie and I did Jamie and I was were surprise guests on Zach Levy's Nerd HQ mystery panel yesterday, along with some amazing people like Breckin Meyer and Colin Ferguson and Nathan Fillion, and we had so much fun. It was just like a solid hour of just laughing hysterically. And these guys are all guys that love the con, that love the love the community.
+[00:17:55] Adam: but you know, I Jamie and I did Jamie and I was were surprise guests on Zach Levi's Nerd HQ mystery panel yesterday, along with some amazing people like Breckin Meyer and Colin Ferguson and Nathan Fillion, and we had so much fun. It was just like a solid hour of just laughing hysterically. And these guys are all guys that love the con, that love the love the community.
 
 [00:18:26] Norm: So let's talk about the actual convention because you did some walking incognito, and we have videos of that. But what were things that you saw that you got to see?
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:22:52] Will: Yeah,
 
-[00:22:58] Adam: you know, it's funny because Corey and I have. I I don't think we've actually officially met in person. I know most of the folks at Boing Boing pretty well, but Corey and I have emailed and we've corresponded, and we have similar passions. We had some we had some representatives from the Electronic Frontier Foundation at the party last night.
+[00:22:58] Adam: you know, it's funny because Cory and I have. I I don't think we've actually officially met in person. I know most of the folks at Boing Boing pretty well, but Cory and I have emailed and we've corresponded, and we have similar passions. We had some we had some representatives from the Electronic Frontier Foundation at the party last night.
 
 [00:23:17] Will: Oh, really?
 
@@ -536,9 +536,9 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:23:42] Adam: communal,
 
-[00:23:42] Will: yeah, it's a perfect overlap. I I talked to Mike Masters about this last night, and he was like, " Look, the R two guys have been on this early because we realize that if one guy learns something about building an R two and we share it with everyone else, then the fourteen thousand people that are in the R two Builders Club get stronger as a whole, and and at At the most selfish level, like that's that's motivation to to share and share alike.
+[00:23:42] Will: yeah, it's a perfect overlap. I I talked to Mike McMasters about this last night, and he was like, " Look, the R two guys have been on this early because we realize that if one guy learns something about building an R two and we share it with everyone else, then the fourteen thousand people that are in the R two Builders Club get stronger as a whole, and and at At the most selfish level, like that's that's motivation to to share and share alike.
 
-[00:24:06] Adam: Well, and here's here's another that I'm going to say because surprisingly they are not horn tutors, but the 501st, right? The group of guys that dress up as as stormtroopers and Darth Vader, and then their sister sister the Rebel Legion, which dresses up as the good guys from Star Wars. Those are all they do all that stuff for charity. None of them get paid. If you bring them to your event, and we've had them come to our events, they refuse payment. They do not want it. They go to hospitals. They go to birthday parties. They help out kids in cancer wards, and they go to fundraisers. I mean, that is absolutely again like the R two group, the early adopters of the recognition that that kind of passion can be used for a certain awesome kind of activism.
+[00:24:06] Adam: Well, and here's here's another that I'm going to say because surprisingly they are not horn tooters, but the 501st, right? The group of guys that dress up as as stormtroopers and Darth Vader, and then their sister sister the Rebel Legion, which dresses up as the good guys from Star Wars. Those are all they do all that stuff for charity. None of them get paid. If you bring them to your event, and we've had them come to our events, they refuse payment. They do not want it. They go to hospitals. They go to birthday parties. They help out kids in cancer wards, and they go to fundraisers. I mean, that is absolutely again like the R two group, the early adopters of the recognition that that kind of passion can be used for a certain awesome kind of activism.
 
 [00:24:48] Will: Well, and they they also are sharing information about how to make armor and where to get it. Do they do parts runs and the whole thing?
 

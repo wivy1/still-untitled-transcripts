@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:17:39] Will: Wrung out.
 
-[00:17:40] Adam: Wrung out. I immediately crawled into the captain Dunkleberger's office. Titus Dunkleberger was the captain at the point at that point. I crawled into his office and fell asleep on his floor and slept for like two and a half solid hours, bang like that. I mean, just—because it just—it took everything out of me. It was excruciating. It was exhausting. And the idea that these guys are flying every single day, you know, multiple hours—it's rare that you get to intersect with such a high level of both technical technical excellence and, uh, you know, people at the peak of their physical excellence to be able to perform these incredible tasks.
+[00:17:40] Adam: Wrung out. I immediately crawled into the captain Dunkelberger's office. Titus Dunkelberger was the captain at the point at that point. I crawled into his office and fell asleep on his floor and slept for like two and a half solid hours, bang like that. I mean, just—because it just—it took everything out of me. It was excruciating. It was exhausting. And the idea that these guys are flying every single day, you know, multiple hours—it's rare that you get to intersect with such a high level of both technical technical excellence and, uh, you know, people at the peak of their physical excellence to be able to perform these incredible tasks.
 
 [00:18:20] Will: Were you wearing glasses when you did this, or did you have your contacts on?
 

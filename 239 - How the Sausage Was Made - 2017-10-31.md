@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:05:18] Kishore: I was wondering if there's a wrestling connection.
 
-[00:05:19] Adam: Totally the same Albano family. Yeah, Lou Albano was famously Andre the Giant's manager, and shows up in a lot of Cindy Lauper's early '80s videos. Anyway, Lou Albano's brother Vinny was my first inspirational art teacher, and Vinny was like, " Today we're going to have a contest. We're going to have a drawing contest. Everyone's going to draw something." And I was like, " I have no idea what to draw. All right, I'm just not even going to care about this contest. I'm just going to draw that wall." And I literally drew the wall, but I drew everything on the wall—the art and the coats and the coat hangers—and I won. Now, this is not to say that like that it doesn't matter that I won. What was interesting to me was that I did something that was just completely present. I wasn't thinking about a contest and something. Honest came out of that, and the same thing happened with the with the with the chair talk. Was that the audience got really quiet, and I was thinking I expected maybe some more laughs for this. Seriously, and then I realize it's because they're all there, like, wow, he goes
+[00:05:19] Adam: Totally the same Albano family. Yeah, Lou Albano was famously Andre the Giant's manager, and shows up in a lot of Cyndi Lauper's early '80s videos. Anyway, Lou Albano's brother Vinny was my first inspirational art teacher, and Vinny was like, " Today we're going to have a contest. We're going to have a drawing contest. Everyone's going to draw something." And I was like, " I have no idea what to draw. All right, I'm just not even going to care about this contest. I'm just going to draw that wall." And I literally drew the wall, but I drew everything on the wall—the art and the coats and the coat hangers—and I won. Now, this is not to say that like that it doesn't matter that I won. What was interesting to me was that I did something that was just completely present. I wasn't thinking about a contest and something. Honest came out of that, and the same thing happened with the with the with the chair talk. Was that the audience got really quiet, and I was thinking I expected maybe some more laughs for this. Seriously, and then I realize it's because they're all there, like, wow, he goes
 
 [00:06:20] Adam: deep, man. That is. Even Simone came up afterwards and said, " I really, even knowing you, I didn't know that level of."
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:06:58] Norm: The whole show is going to be on the site, so you can you'll be able to watch that as a part of the whole sequence for testing premium members.
 
-[00:07:06] Kishore: There's one segment I have to ask about one finale. So we did this segment with Kenji Lopez Alt, chef friend of ours, and it was literally about how the sausage is made and how salted meats like bind better than unsalted, and that makes a difference at sausage. And it ends with some sausage projectiles.
+[00:07:06] Kishore: There's one segment I have to ask about one finale. So we did this segment with Kenji López-Alt, chef friend of ours, and it was literally about how the sausage is made and how salted meats like bind better than unsalted, and that makes a difference at sausage. And it ends with some sausage projectiles.
 
 [00:07:06] Norm: Yep,
 
@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:08:16] Norm: No, you're on tour. You're traveling.
 
-[00:08:18] Adam: I was traveling a lot, but I passed you guys off to Tori Fink, our wonderful shop manager from MythBusters, and drew a diagram which I did not expect you guys to tweet. The diagram, and I was like, boy, I hope I didn't miss anything there, and like, am all of a sudden an idiot, and I did miss something, which was an accumulator. That's the reason that Kenji's cannon did not fire. It's that there's only so much air you can move through a certain sized orifice, and with the the equation as you guys had it, that I had diagrammed for you, I hadn't included an accumulator right behind the solenoid to make sure there was some pressurized air right at the solenoid to move quickly into the chamber.
+[00:08:18] Adam: I was traveling a lot, but I passed you guys off to Tory Fink, our wonderful shop manager from MythBusters, and drew a diagram which I did not expect you guys to tweet. The diagram, and I was like, boy, I hope I didn't miss anything there, and like, am all of a sudden an idiot, and I did miss something, which was an accumulator. That's the reason that Kenji's cannon did not fire. It's that there's only so much air you can move through a certain sized orifice, and with the the equation as you guys had it, that I had diagrammed for you, I hadn't included an accumulator right behind the solenoid to make sure there was some pressurized air right at the solenoid to move quickly into the chamber.
 
 [00:08:56] Norm: And it moves
 
@@ -386,13 +386,13 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:20:24] Unknown speaker: It was worth it just to see that happen.
 
-[00:20:33] Norm: And the night before our show, there was a BaFest, right? You were part of Adam, right?
+[00:20:33] Norm: And the night before our show, there was a BAHFest, right? You were part of Adam, right?
 
-[00:20:36] Adam: I was BaFest is scientists get up and defend absurd hypotheses, and that was really thrilling, deeply thrilling. Not just because of the distinguished, not just because of the distinguished panel of judges.
+[00:20:36] Adam: I was BAHFest is scientists get up and defend absurd hypotheses, and that was really thrilling, deeply thrilling. Not just because of the distinguished panel of judges.
 
 [00:20:52] Kishore: Yeah. Carl Zimmer, who's the lead science reporter for the New York Times, was one of the judges.
 
-[00:20:56] Adam: My my and someone I'm a huge fan of Maggie Koerth-Baker, and she I'm actually she's now another person that I know in Minneapolis, along with my Rift Tracks friends and some other folks like Anna Marie. So we're gonna see her, and when I travel through Minneapolis on a brain candy tour. But but but but watching the the the the presentations each of the scientists gave of their absurd hypotheses was great. But watching them defend that hypothesis against questioning from the panel of judges was super great.
+[00:20:56] Adam: My my and someone I'm a huge fan of Maggie Koerth-Baker, and she I'm actually she's now another person that I know in Minneapolis, along with my RiffTrax friends and some other folks like Anna Marie. So we're gonna see her, and when I travel through Minneapolis on a brain candy tour. But but but but watching the the the the presentations each of the scientists gave of their absurd hypotheses was great. But watching them defend that hypothesis against questioning from the panel of judges was super great.
 
 [00:21:32] Kishore: It was so they have to face a Q and A, and it's like a deadpan scientific seminar.
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:26:36] Kishore: Most shows, I do.
 
-[00:26:36] Adam: So the other we've talked about this before, but the the my mom was in town this weekend, and so she was at BA Fest and it tested live, and we've been watching lots of television with her that she hasn't seen. So we showed her over the past few days three episodes of of Master of None, and the episodes we chose were the dinner party
+[00:26:36] Adam: So the other we've talked about this before, but the the my mom was in town this weekend, and so she was at BAHFest and it tested live, and we've been watching lots of television with her that she hasn't seen. So we showed her over the past few days three episodes of of Master of None, and the episodes we chose were the dinner party
 
 [00:27:04] Kishore: Okay, great, great.
 
@@ -556,7 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:28:17] Adam: A little close to home,
 
-[00:28:18] Kishore: Very close to home. And my dad is like Aziz's dad. I think a lot of like first generation immigrants like can relate to that, and that's why that episode works so well. Is t here is universality in just how your parents talk to you? Just everyone gets, and then t here is some special tweaks that that you see, and so they were clearly, I mean, beyond the fact that his actual parents there, they clearly wrote from experience into that, and in such a deep way. And I I got a call the other night during the tested live show from my dad. I didn't take it, but I listened to the voicemail when I got home. It was literally a question about fixing his computer, and like he knows I am doing a show.
+[00:28:18] Kishore: Very close to home. And my dad is like Aziz's dad. I think a lot of like first generation immigrants like can relate to that, and that's why that episode works so well. Is there is universality in just how your parents talk to you? Just everyone gets, and then there is some special tweaks that that you see, and so they were clearly, I mean, beyond the fact that his actual parents there, they clearly wrote from experience into that, and in such a deep way. And I I got a call the other night during the tested live show from my dad. I didn't take it, but I listened to the voicemail when I got home. It was literally a question about fixing his computer, and like he knows I am doing a show.
 
 [00:29:01] Norm: Wow.
 
@@ -592,7 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:30:10] Kishore: It still spoke to her.
 
-[00:30:16] Adam: Of course, it's. In fact, actually, I think it may speak more strongly to my mom, who's like who came of her. My mom was born in nineteen thirty-five. She's eighty-three, but she's deeply and she was deeply part of the the scene in New York in the in the late fifties and mostly the sixties. So that like these guys, both Louis and Aziz, are referring deeply to American cinema and foreign cinema in the in the sixties. Right, they're they're looking at Jean Luc Godard. Jean Luc Godard, yes, they're looking at Godard. They're looking at filmmakers like like Fassbender, and also I see Cassavetes in their work. I see you know it's really it's thrilling how much they're getting to stretch those muscles, and I mean I'll I'll wager Aziz is like, hey man, I am being paid to learn how to be a filmmaker. This is great.
+[00:30:16] Adam: Of course, it's. In fact, actually, I think it may speak more strongly to my mom, who's like who came of her. My mom was born in nineteen thirty-five. She's eighty-three, but she's deeply and she was deeply part of the the scene in New York in the in the late fifties and mostly the sixties. So that like these guys, both Louis and Aziz, are referring deeply to American cinema and foreign cinema in the in the sixties. Right, they're they're looking at Jean Luc Godard. Jean Luc Godard, yes, they're looking at Godard. They're looking at filmmakers like like Fassbinder, and also I see Cassavetes in their work. I see you know it's really it's thrilling how much they're getting to stretch those muscles, and I mean I'll I'll wager Aziz is like, hey man, I am being paid to learn how to be a filmmaker. This is great.
 
 [00:31:10] Norm: Yeah, I hope he I hope he's happy in real life because he's not happy on the show.
 

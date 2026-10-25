@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:14:12] Will: Okay, no, we don't know.
 
-[00:14:13] Adam: No, it's not Adam Rogers. And yeah, basically, they went all in on the they went all in on the turn. Turned over their cards, and we realized there was one card in the deck with which Adam could be beaten. And
+[00:14:13] Adam: No, it's not Adam Rogers. And yeah, basically, they went all in on the turn. Turned over their cards, and we realized there was one card in the deck with which Adam could be beaten. And
 
 [00:14:30] Will: [unclear: that's the card that came up / it's like 2%, is a 2%]. That's amazing,
 
@@ -758,7 +758,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:29:29] Adam: Oh, really?
 
-[00:29:29] Will: From people that we have covered on the past, Norm. I know you talked to Zach from Inventables. About the Carvey, which is a desktop router, a desktop CNC router, yeah, milling machine that looks rad. But I also saw, I also met Brooke from PrinterBot. Oh, we've covered his 3D printers in the past. He they make the PrinterBot Metal Simple, which is a 530 printer printer kit, 3D printer kit that's a great way to learn about 3D printers if you want to get into that and start making stuff. You can tune it to make some incredible things. Jeremy and I both had pretty good success with it. But he has a variable size router that you can basically CNC router that rides on top of a piece of four by eight plywood. It has rails you can extend it in and out.
+[00:29:29] Will: From people that we have covered on the past, Norm. I know you talked to Zach from Inventables. About the Carvey, which is a desktop router, a desktop CNC router, yeah, milling machine that looks rad. But I also saw, I also met Brook from Printrbot. Oh, we've covered his 3D printers in the past. He they make the Printrbot Metal Simple, which is a 530 printer printer kit, 3D printer kit that's a great way to learn about 3D printers if you want to get into that and start making stuff. You can tune it to make some incredible things. Jeremy and I both had pretty good success with it. But he has a variable size router that you can basically CNC router that rides on top of a piece of four by eight plywood. It has rails you can extend it in and out.
 
 [00:30:14] Unknown speaker: Oh my gosh.
 

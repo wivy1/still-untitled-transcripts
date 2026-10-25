@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:05:19] Will: I know. Topher Grace getting hit in the face is. I'm down with that. I will watch him get hit in the face anytime.
 
-[00:05:24] Adam: Grace is awesome, and I'll go to Matt for Topher.
+[00:05:24] Adam: Grace is awesome, and I'll go to mat for Topher.
 
 [00:05:26] Will: No, no, I love him. Okay. He took the face hit real well. That’s hard to do.
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:21:52] Adam: Will’s fantasies notwithstanding. No, no,
 
-[00:21:55] Norm: no, no, no. It's totally true. There's a there's a theory. Sci-fi actually has a new show coming out called Ascension, which is a it's like their Mad Men Battlestar Galactica show. It's what if, and you know that sounds that sounds crazy.
+[00:21:55] Norm: no, no, no. It's totally true. There's a there's a theory. Syfy actually has a new show coming out called Ascension, which is a it's like their Mad Men Battlestar Galactica show. It's what if, and you know that sounds that sounds crazy.
 
 [00:22:07] Will: I was just thinking. I want to know what Don Draper and and and and Adama would do in a room together.
 
@@ -686,7 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:23:21] Norm: Yes. Oh, it looks terrible. Oh my god,
 
-[00:23:24] Adam: I I don't know. Apparently, I was talking to one of the actors, and he said they had a lot of fun. It's called " Got the Greatest Name," Galavant.
+[00:23:24] Adam: I I don't know. Apparently, I was talking to one of the actors, and he said they had a lot of fun. It's called—got the greatest name—Galavant.
 
 [00:23:30] Will: Wow.
 

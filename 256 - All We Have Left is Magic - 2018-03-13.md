@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:04:02] Will: Like the toy manufacturer,
 
-[00:04:03] Adam: the toy manufacturers, they were pissed that the Ed Two Hundred Nine just showed up everywhere after RoboCop, and so Cain was like the anti-copy. Kane has built-in DRM.
+[00:04:03] Adam: the toy manufacturers, they were pissed that the Ed Two Hundred Nine just showed up everywhere after RoboCop, and so Cain was like the anti-copy. Cain has built-in DRM.
 
 [00:04:13] Will: Yeah,
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:05:46] Adam: Right, right.
 
-[00:05:46] Will: and and so on and so like it's it's incredible. It's an incredible, incredible thing. This and the canes like this cane. I mean, it'll look cool in the video, but it looks even better up close. So I hope.
+[00:05:46] Will: and and so on and so like it's it's incredible. It's an incredible, incredible thing. This and the canes like this Cain. I mean, it'll look cool in the video, but it looks even better up close. So I hope.
 
 [00:06:10] Adam: I remember being when the movie came out, like doing searches to find out the toys from this. And Hot Toys was supposed to do a version of this. A figure came out a couple years ago, which I have in my collection, and it's lovely. But but this is really this is one of the best pieces in my whole collection, and you know I love Phil. I I owe him I owe him a deep life debt. Someday he will call upon me,
 
@@ -418,11 +418,11 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:16:52] Will: You are magician adjacent,
 
-[00:16:52] Adam: but within card magic, most of all the tricks in card magic went started their lives with card hustlers and cheats, and made their way to magicians. There is a unique outlier out there, a type of shuffle called the zero shuffle that actually went from magicians to card cheats. And Derek Delgaudio, one of his early bits of fame was in modifying and coming up with a thing he calls the Delgaudio shuffle, which is a shuffle in which he takes cards, riffle shuffles them, bridge shuffles them, and they are still in the exact same order as when he started.
+[00:16:52] Adam: but within card magic, most of all the tricks in card magic went started their lives with card hustlers and cheats, and made their way to magicians. There is a unique outlier out there, a type of shuffle called the Zarrow shuffle that actually went from magicians to card cheats. And Derek Delgaudio, one of his early bits of fame was in modifying and coming up with a thing he calls the Delgaudio shuffle, which is a shuffle in which he takes cards, riffle shuffles them, bridge shuffles them, and they are still in the exact same order as when he started.
 
 [00:17:33] Will: How in the hell does he?
 
-[00:17:34] Adam: Okay, I’ve I’ve seen him do it right in front of me, and it's mind-bending. and He's a he's truly a beautiful card mechanic, as well as. A deeply thoughtful storyteller, and so the Delgadio Shuffle is something you can see on YouTube. You can see people doing it. You can see how remarkable it really is. You can you can purchase, I think, a guide on how to on how to do it. I don't want to know how it's done. And he had another previous run at the Geffen, which was another kind of unmagic show. But Derek is a major. Like, he’s a disclosure. He's a friend of mine. Went out to dinner last time I was in New York and saw the show along with a Carbonaro from the Carbonaro Effect. Okay. And like, it's just it's such a refreshing bit of theater that's totally unique. Let's just say that it's a refreshing bit of theater that's completely unique.
+[00:17:34] Adam: Okay, I’ve I’ve seen him do it right in front of me, and it's mind-bending. and He's a he's truly a beautiful card mechanic, as well as. A deeply thoughtful storyteller, and so the DelGaudio Shuffle is something you can see on YouTube. You can see people doing it. You can see how remarkable it really is. You can you can purchase, I think, a guide on how to on how to do it. I don't want to know how it's done. And he had another previous run at the Geffen, which was another kind of unmagic show. But Derek is a major. Like, he’s a disclosure. He's a friend of mine. Went out to dinner last time I was in New York and saw the show along with a Carbonaro from the Carbonaro Effect. Okay. And like, it's just it's such a refreshing bit of theater that's totally unique. Let's just say that it's a refreshing bit of theater that's completely unique.
 
 [00:18:28] Will: Currently scheduled to end in August.
 
@@ -526,9 +526,9 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:20:55] Adam: But you know, anything that exposes the world to Evan Rachel Wood and her incredible acting, I'm. We've been fans of hers since she was a genius on Once and Again. She's in, just an unbelievable talent, and actually, the entire cast of that James Marsden and and
 
-[00:21:15] Will: Tandy Newton,
+[00:21:15] Will: Thandie Newton,
 
-[00:21:17] Adam: Tandy Newton. Oh my God!
+[00:21:17] Adam: Thandie Newton. Oh my God!
 
 [00:21:17] Will: Yeah,
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:25:57] Adam: Kinnaman. Yeah, I wanted to say Edgerton, Kinnaman. Um, one of my favorite voices in Hollywood right now.
 
-[00:26:03] Will: He's got a good. He's got a. He's got a real face for acting, Like he's got a Carl Urban kind of like very unique look.
+[00:26:03] Will: He's got a good. He's got a. He's got a real face for acting, Like he's got a Karl Urban kind of like very unique look.
 
 [00:26:10] Adam: But his like at one point his body is so sculpted it's actually disconcertingly pushed me out of the narrative.
 
@@ -748,7 +748,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:28:08] Adam: Oh, really?
 
-[00:28:09] Norm: Where they followed. I forget the name of the documentarian, but followed Ryan Johnson and the cast and crew, where every day on set everyone was mic'd up.
+[00:28:09] Norm: Where they followed. I forget the name of the documentarian, but followed Rian Johnson and the cast and crew, where every day on set everyone was mic'd up.
 
 [00:28:18] Adam: Oh wow!
 

@@ -146,15 +146,15 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:03:25] Adam: Okay.
 
-[00:03:25] Will: Definitely worth watching. Um, but I saw the Draft House.
+[00:03:25] Will: Definitely worth watching. Um, but I saw the Drafthouse.
 
 [00:03:25] Adam: Yeah.
 
-[00:03:25] Will: Which was my first trip to the Draft House. Holy cow, that is an amazing way to see a film.
+[00:03:25] Will: Which was my first trip to the Drafthouse. Holy cow, that is an amazing way to see a film.
 
 [00:03:36] Adam: Yes.
 
-[00:03:37] Norm: Alamo Draft House, which is new, the new one, the new mission, opened in San Francisco last December, based in Austin, Texas. They have a whole chain of them.
+[00:03:37] Norm: Alamo Drafthouse, which is new, the new one, the new mission, opened in San Francisco last December, based in Austin, Texas. They have a whole chain of them.
 
 [00:03:37] Will: Yeah.
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:10:36] Will: I think it was much worse than the Gimp.
 
-[00:10:37] Adam: I'm not so sure it was much worse. Here's the thing: is when I was watching Pulp Fiction for the first time in '94, and we, you know, Marcellus Wallace and Butch wake up in the basement of the with the ball gags in their mouth, and I'm thinking, oh, oh my God, how bad could this get? And it gets worse than I could possibly imagine.
+[00:10:37] Adam: I'm not so sure it was much worse. Here's the thing: is when I was watching Pulp Fiction for the first time in '94, and we, you know, Marsellus Wallace and Butch wake up in the basement of the with the ball gags in their mouth, and I'm thinking, oh, oh my God, how bad could this get? And it gets worse than I could possibly imagine.
 
 [00:10:58] Will: That's true.
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:12:28] Adam: No, no,
 
-[00:12:30] Norm: the movie was very brunt in the dialogue, and also I mean it felt cold. Also.
+[00:12:30] Norm: the movie was very blunt in the dialogue, and also I mean it felt cold. Also.
 
 [00:12:30] Unknown speaker: It did feel cold,
 
@@ -622,7 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:20:23] Adam: Right.
 
-[00:20:23] Will: And she's just a gas.
+[00:20:23] Will: And she's just aghast.
 
 [00:20:24] Adam: And so that could be that she's not making an actor choice. She's literally. Oh my God! They just broke the absolutely priceless guitar.
 

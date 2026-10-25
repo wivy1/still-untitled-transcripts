@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:05:20] Adam: so good. I was very distracted by Chidi’s perfect specimen of a sculpted body.
 
-[00:05:30] Norm: That yes, the the character Chee Dee—
+[00:05:30] Norm: That yes, the the character Chidi—
 
 [00:05:32] Adam: very distracting and
 
@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:06:49] Joey: especially the third season. I mean, every episode they're going through some different existential crisis or becoming other people, and it seemed like a lot of the writers doing that must been a lot of fun just to be a part of or watch.
 
-[00:07:00] Adam: I've started to listen to the podcast. Mark Evan Jackson's podcast of the Good Place. There's a so there's a podcast episode for each episode of the show. They actually discuss them in detail. And so apparently, I haven't listened to this one yet, but there's a whole episode when all the character. Okay, this is a little bit of a spoiler for the season, but it doesn't tell you anything about the plot. There's a an episode where all the characters become Janet.
+[00:07:00] Adam: I've started to listen to the podcast. Marc Evan Jackson's podcast of the Good Place. There's a so there's a podcast episode for each episode of the show. They actually discuss them in detail. And so apparently, I haven't listened to this one yet, but there's a whole episode when all the character. Okay, this is a little bit of a spoiler for the season, but it doesn't tell you anything about the plot. There's a an episode where all the characters become Janet.
 
 [00:07:00] Joey: Mm-hmm. Right. Yep.
 
@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:08:12] Adam: There's a lot going on.
 
-[00:08:14] Norm: Um, two characters. I'll say that will mean nothing to you. Philip and Barof have finally met, and that's a weird thing. So,
+[00:08:14] Norm: Um, two characters. I'll say that will mean nothing to you. Philip and Burov have finally met, and that's a weird thing. So,
 
 [00:08:25] Adam: oh, Alexei, yes.
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:09:28] Norm: Rezidentura.
 
-[00:09:28] Adam: getting to know those characters and understanding how they work and what they're doing. And the last season, you spend a lot less time there. But when Boroff shows up,
+[00:09:28] Adam: getting to know those characters and understanding how they work and what they're doing. And the last season, you spend a lot less time there. But when Burov shows up,
 
 [00:09:41] Norm: so the point is that these characters that were a lot of a lot of the threads are coming together finally, and it's very satisfying to watch.
 
@@ -442,7 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:24:39] Norm: while it grows back than it is to try to cover what you have right now and make it look like. I, I think you should do it,
 
-[00:24:52] Adam: Joey. What have you been? What have What have you been? What have you been cooking lately?
+[00:24:52] Adam: Joey. What have you been cooking lately?
 
 [00:24:58] Joey: Cooking. Oh man, just before I came, right? I got back from New York. I did a, I did a whole bunch of a seafood pasta. I've been been implementing stuff into my pasta doughs. So I got a bunch of squid ink and cuttlefish ink from Amazon. So I've been rolling that out.
 

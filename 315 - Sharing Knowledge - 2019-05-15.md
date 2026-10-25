@@ -4,7 +4,7 @@
 **Duration:** 36m 3s  
 Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
-[00:00:00] Norm: This week's episode of Still Entitled is made possible by Netgear. When's the last time you upgraded your home's Wi-Fi? Turn your Wi-Fi up a notch with Netgear's new line of Nighthawk Wi-Fi six routers. Whether you're gaming online or watching Netflix in four K, it's like giving your streaming the VIP treatment. You'll enjoy buffer-free streaming and zero lag, no matter how many devices are connected to your network. Upgrade your router at netgear.com/slash Wi-Fi six. Again, netgear.com/slash Wi-Fi six. Make your Wi-Fi feel young again. Now on with the show. Welcome to Still Entitled, the Adam Savage Project. I'm Norm.
+[00:00:00] Norm: This week's episode of Still Untitled is made possible by Netgear. When's the last time you upgraded your home's Wi-Fi? Turn your Wi-Fi up a notch with Netgear's new line of Nighthawk Wi-Fi six routers. Whether you're gaming online or watching Netflix in four K, it's like giving your streaming the VIP treatment. You'll enjoy buffer-free streaming and zero lag, no matter how many devices are connected to your network. Upgrade your router at netgear.com/slash Wi-Fi six. Again, netgear.com/slash Wi-Fi six. Make your Wi-Fi feel young again. Now on with the show. Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
 
 [00:00:40] Adam: I'm Adam.
 
@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:01:50] Adam: signal-to-noise ratio.
 
-[00:01:50] Adam: When I explore a project like the ZF one from the Fifth Element, for instance, and then I write about it, I wrote about it in Wired, I talked about it in a talk, and then I start to and then we did a tested video on it. Then I start to do research on it a year later, and I find oh that's oh that's mine, yeah. Oh this is oh wait that's mine.
+[00:01:50] Adam: When I explore a project like the ZF-1 from the Fifth Element, for instance, and then I write about it, I wrote about it in Wired, I talked about it in a talk, and then I start to and then we did a tested video on it. Then I start to do research on it a year later, and I find oh that's oh that's mine, yeah. Oh this is oh wait that's mine.
 
 [00:02:17] Kevin: Exactly. I had that same experience. I was looking up the word superorganism for a talk, and I went to Wikipedia, and there was the definition was my quoting me, and it was like wait a minute this is like this is not very reliable if you're quoting me.
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:15:36] Adam: So speaking of that, I um, I I watched. I said to Kevin earlier that I watched Aliens the other night. I was so wired from my talk in Cleveland, I went back to my hotel room and I didn't sleep for another four hours. So I was like, I better watch Aliens, and I loved it. And then I was like, I want to watch a making of Aliens. So I found this video from two thousand and four, the making of Aliens, and it's funny that now you go on the you you. Take a video tour of the set of the Marvel Universe, and it's all rosy, and everyone's like, " This is great." But two thousand four, they were removed enough from the production of Aliens that everyone was really talking openly about what a shitty production it was for so many of the people on it. And it was sort of really refreshing to hear these people complain and say, " Oh yeah, no, I did the best work of my career." [unclear: ∅ / and] Man, what a nightmare! And they, they, every single one of them appreciates the final product and under like, this is a thing, and it's a real abiding thing. But holy hell, it was it was hard to get there. It's like it's like reading the early issues of Cinefex when people were like, " Well, the art director didn't really know what he wanted, so he figured it out." They won't say that now, but back then you you now you have to kind of read between the lines.
 
-[00:16:44] Norm: Hey everybody! Before we continue, I want to let you know that Still Entitled this week is also made possible by TripleByte because applying to programming jobs sucks. You have to put in the right keywords in your resume. You spend hours and hours on phone screens and take home projects, and that's assuming the company even responds to your application. Well, if you're a software engineer, TripleByte can help. They work with over 400 top tech companies, from big names like Dropbox and Adobe to exciting startups. You do one brief online interview with them, and if you do well, you get to go straight to final interviews with the companies on their platform. It's like the common app for software engineers. Triplebyte does not look at your resume or where you went to school. All they care about is if you can code, because that's what really matters. You are not just your credentials, a piece of paper, or a web profile. You are your ability. Apply now at triplebyte.com/untitled. Again, that's triplebyte, b y t e, byte as in eight bits. And as a special offer for listeners of the show, if you take a job through Triplebyte, they'll offer you a one thousand dollar signing bonus. Now back to the conversation.
+[00:16:44] Norm: Hey everybody! Before we continue, I want to let you know that Still Untitled this week is also made possible by TripleByte because applying to programming jobs sucks. You have to put in the right keywords in your resume. You spend hours and hours on phone screens and take home projects, and that's assuming the company even responds to your application. Well, if you're a software engineer, TripleByte can help. They work with over 400 top tech companies, from big names like Dropbox and Adobe to exciting startups. You do one brief online interview with them, and if you do well, you get to go straight to final interviews with the companies on their platform. It's like the common app for software engineers. Triplebyte does not look at your resume or where you went to school. All they care about is if you can code, because that's what really matters. You are not just your credentials, a piece of paper, or a web profile. You are your ability. Apply now at triplebyte.com/untitled. Again, that's triplebyte, b y t e, byte as in eight bits. And as a special offer for listeners of the show, if you take a job through Triplebyte, they'll offer you a one thousand dollar signing bonus. Now back to the conversation.
 
 [00:17:53] Kevin: My experience in working on very complicated projects is that even on a regular basis, like a monthly issue of Wired, each issue. Was a miracle that it actually existed on deadline. I mean, every time you think after years and years of doing on a regular basis that it would get easier, it doesn't. All that happens is that you move up the threshold of what you accept, and so each one is has a near death experience before the end. And you're like, it's a miracle that it came out this month.
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:22:12] Kevin: Right, and if you know that it exists, that gives you new power.
 
-[00:22:15] Norm: [unclear: Well / With] that whole category. I mean, that's what I love about cool tools and recommendo. It's like I love you know sites like the Wire Cutter, and they do they exhaustive research, but that's about the best.
+[00:22:15] Norm: [unclear: Well / With] that whole category. I mean, that's what I love about cool tools and Recomendo. It's like I love you know sites like the Wire Cutter, and they do they exhaustive research, but that's about the best.
 
 [00:22:15] Kevin: Right,
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:26:40] Kevin: Yes, they have a great parking system for bikes there, and I highly recommend people do that.
 
-[00:26:45] Adam: I I'm really looking forward to it. In the meantime, before I get to Maker Fair, I'm I'm speaking in Santa Cruz tonight. I'm in Seattle. Tomorrow and Thursday.
+[00:26:45] Adam: I I'm really looking forward to it. In the meantime, before I get to Maker Faire, I'm I'm speaking in Santa Cruz tonight. I'm in Seattle. Tomorrow and Thursday.
 
 [00:26:45] Unknown speaker (Kevin or unidentified speaker then Adam): Oh my God.
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:30:27] Adam: Yeah, so I wrote a whole chapter on glues, and I thought I am not sure I can write a comprehensive chapter on the physics of glue. So I am just going to write a chapter on the eight glues that I use and why, and how they serve me within the context. And I give a disclaimer at the beginning about how you know your results may vary, and you may disagree with everything I am saying, and that could also be true. Yeah. And then someone tweeted to me after the book came out, " I love the chapter on glue. What about a chapter on tape?" And I thought, " Holy shit, I didn't think of that!" And I started writing it. I am now about you know fifteen hundred words into a chapter on tape. And I don't know whether it goes in the next edition of Every Tool's a Hammer or it's part of the next book.
 
-[00:31:01] Kevin: Yeah, or maybe you could talk about it, Maker Fair.
+[00:31:01] Kevin: Yeah, or maybe you could talk about it, Maker Faire.
 
 [00:31:03] Adam: Yes,
 
@@ -518,9 +518,9 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:31:03] Norm: Faire.
 
-[00:31:08] Adam: Oh my gosh! Yes, yes, indeed, absolutely. [unclear: I, I, I / I], every year I really look forward to the conversations I get to have with makers at Maker Fair.
+[00:31:08] Adam: Oh my gosh! Yes, yes, indeed, absolutely. [unclear: I, I, I / I], every year I really look forward to the conversations I get to have with makers at Maker Faire.
 
-[00:31:16] Kevin: What are you looking for at Norm Maker Fair? What are you going to seek out? Where Where you first?
+[00:31:16] Kevin: What are you looking for at Norm Maker Faire? What are you going to seek out? Where Where you first?
 
 [00:31:20] Norm: I always go to that the big expo hall.
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:32:23] Kevin: Yeah,
 
-[00:32:24] Norm: that is a good place as any to stop on the site this week. We have another shop tips from Sean. Also, a year and a half ago, wow, we filmed a series at Weda Workshop, and that's going to go on the site starting this week.
+[00:32:24] Norm: that is a good place as any to stop on the site this week. We have another shop tips from Sean. Also, a year and a half ago, wow, we filmed a series at Weta Workshop, and that's going to go on the site starting this week.
 
 [00:32:24] Unknown speaker (Norm or Adam): Oh, fabulous!
 
@@ -566,7 +566,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:32:39] Unknown speaker (Kevin or Adam): excellent.
 
-[00:32:39] Kevin: So, so it's a film based on your time at Weda.
+[00:32:39] Kevin: So, so it's a film based on your time at Weta.
 
 [00:32:42] Norm: Uh, kind of. Yes. Um, I guess we should probably explain it. Yeah, we spent a week there with the idea of making a short film that Adam conceived of
 
@@ -586,7 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:33:52] Kevin: Right.
 
-[00:33:52] Adam: because Richard is Richard Taylor who runs Weta Workshop is Always looking for brand new technologies at the very cutting edge. Working with three D printing companies, using their prototypes for stuff that might be useful to him to see what they can do, and yet they're also doing some of the oldest techniques for making there is. I I had one laugh when they were saying, when the Hobbit was shot in four K, and when movies are shot in four K, it puts an extra burden on the makeup artists and the prop makers because there is so much more detail extant on the screen. Um, Weda didn't have to make much of a pivot because they were already layering in all of that storytelling into every object they made. That was just built right into the ethos of the place.
+[00:33:52] Adam: because Richard is Richard Taylor who runs Weta Workshop is Always looking for brand new technologies at the very cutting edge. Working with three D printing companies, using their prototypes for stuff that might be useful to him to see what they can do, and yet they're also doing some of the oldest techniques for making there is. I I had one laugh when they were saying, when the Hobbit was shot in four K, and when movies are shot in four K, it puts an extra burden on the makeup artists and the prop makers because there is so much more detail extant on the screen. Um, Weta didn't have to make much of a pivot because they were already layering in all of that storytelling into every object they made. That was just built right into the ethos of the place.
 
 [00:34:33] Kevin: Well, look forward to the
 

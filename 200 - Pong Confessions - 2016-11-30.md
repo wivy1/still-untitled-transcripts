@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:02:12] Adam: Good morning.
 
-[00:02:12] Simone: Still entitled voice.
+[00:02:12] Simone: Still Untitled voice.
 
 [00:02:13] Norm: I know. We were just talking about ASMR.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:10:38] Simone: It's kind of like dogs catching balls in high speed.
 
-[00:10:42] Norm: And coincidentally, did you know today, the they were recording this, is the anniversary of Pong.
+[00:10:42] Norm: And coincidentally, did you know today, the day we're recording this, is the anniversary of Pong.
 
 [00:10:48] Adam: What?
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:16:21] Unknown speaker: Yeah, yeah, yeah.
 
-[00:16:21] Adam: because you see the drops and the lighting is such that the drops are really bright. Um, it is absolutely gorgeous. I tweeted some photos from it, and the Guillermo exhibit. I managed to catch it on its last day. So I I go to LA like once a week, [unclear: and then… / and then I go to the store, and then] for the last two months, not at all. So it was great. I caught it on the last day. It's a beautiful exhibit. It is, uh. So I don't know if you know, Guillermo del Toro, the filmmaker, released a bunch of art from his collection. So only, I'd say maybe only thirty percent was pieces of stuff and ephemera from Guillermo's films. But there's a lot of super beautiful original artwork, original Mobius, original Edward Gorey, original Drew Struzan stuff, artwork that he found inspiring, books and volumes and automata that he had purchased.
+[00:16:21] Adam: because you see the drops and the lighting is such that the drops are really bright. Um, it is absolutely gorgeous. I tweeted some photos from it, and the Guillermo exhibit. I managed to catch it on its last day. So I I go to LA like once a week, [unclear: and then… / and then I go to the store, and then] for the last two months, not at all. So it was great. I caught it on the last day. It's a beautiful exhibit. It is, uh. So I don't know if you know, Guillermo del Toro, the filmmaker, released a bunch of art from his collection. So only, I'd say maybe only thirty percent was pieces of stuff and ephemera from Guillermo's films. But there's a lot of super beautiful original artwork, original Moebius, original Edward Gorey, original Drew Struzan stuff, artwork that he found inspiring, books and volumes and automata that he had purchased.
 
 [00:17:23] Norm: It's from his cave.
 
@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:21:36] Adam: Absolutely. Um. Since we've last spoken, I interviewed Francis Coppola.
 
-[00:21:40] Norm: Oh, at the Castro Theater. Yes. How was that? No, I didn't go. No.
+[00:21:40] Norm: Oh, at the Castro Theatre. Yes. How was that? No, I didn't go. No.
 
 [00:21:44] Adam: Oh, it was terrific.
 
@@ -814,7 +814,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:33:57] Simone: Yeah,
 
-[00:33:57] Adam: yeah. You should talk to me about that because I. You should talk to me because number one, I I'm actually, like Alamo Draft House reached out to me the other day and said, " Do you have a mannequin we could borrow?" And I said, " I've got a mannequin you can have." I hate mannequins.
+[00:33:57] Adam: yeah. You should talk to me about that because I. You should talk to me because number one, I I'm actually, like Alamo Drafthouse reached out to me the other day and said, " Do you have a mannequin we could borrow?" And I said, " I've got a mannequin you can have." I hate mannequins.
 
 [00:34:08] Simone: Yeah, they're kind of terrifying.
 
@@ -848,7 +848,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:34:46] Unknown speaker: that, really?
 
-[00:34:46] Adam: So you hung out with Carrie for a day, and that came up.
+[00:34:46] Adam: So you hung out with Kari for a day, and that came up.
 
 [00:34:49] Simone: Uh, no, we actually hung out a fair bit. So we hosted Google Science Fair together, and she was so nice and like drove me back and forth. Yeah, she was super kind.
 
@@ -856,7 +856,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:34:58] Simone: But we were stuck in traffic for a lot of hours. Oh yeah, yeah, yeah. She was so sweet. Like first time I met her, she gave me this like pair of earrings that she and her daughter had made for me, and she was just yeah, she's such, she's such a darling. Yeah.
 
-[00:35:10] Adam: Yeah, love Carrie. I’m, I can’t wait that their their White Rabbit project airs very soon.
+[00:35:10] Adam: Yeah, love Kari. I’m, I can’t wait that their their White Rabbit project airs very soon.
 
 [00:35:16] Norm: Yeah, there's a trailer for it for on Netflix. So please check that out.
 

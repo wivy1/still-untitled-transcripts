@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:05:21] Norm: Yeah.
 
-[00:05:21] Will: Um. So so like New York Comic Con has always been really interesting to me because I assume it's like like when we go to Maker Fair here and when we went to Maker Fair in New York, they kind of have it's like going to Canada, right? Everybody speaks the same language, everything's the same. It's the same event. It's
+[00:05:21] Will: Um. So so like New York Comic Con has always been really interesting to me because I assume it's like like when we go to Maker Faire here and when we went to Maker Faire in New York, they kind of have it's like going to Canada, right? Everybody speaks the same language, everything's the same. It's the same event. It's
 
 [00:05:34] Adam: a little twisted, right?
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:05:48] Will: that's cool.
 
-[00:05:48] Adam: Yeah, no, it was totally cool. Um, I went out on the on Saturday, my last day at the con, and put on an incredible mask that was built by my friend Steve Neal down in Los Angeles, who's a Old school effects tech cut his teeth with Rick Baker on animatronics and mask and gorilla stuff for you know thirty forty years, and Steve made a Moonwatcher mask. From Moonwatcher is the lead ape from two thousand and one, a space Odyssey, and it's incredible with animatronics. So when you open the mouth, the lips curl back. It's totally mind blowing.
+[00:05:48] Adam: Yeah, no, it was totally cool. Um, I went out on the on Saturday, my last day at the con, and put on an incredible mask that was built by my friend Steve Neill down in Los Angeles, who's a Old school effects tech cut his teeth with Rick Baker on animatronics and mask and gorilla stuff for you know thirty forty years, and Steve made a Moonwatcher mask. From Moonwatcher is the lead ape from two thousand and one, a space Odyssey, and it's incredible with animatronics. So when you open the mouth, the lips curl back. It's totally mind blowing.
 
 [00:06:22] Will: How does it? Does it?
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:08:18] Will: Okay.
 
-[00:08:18] Norm: Uh, I was just using a Novos helmet and a costume that we had from some friends. Um. It you know gaskets and all the armor pieces.
+[00:08:18] Norm: Uh, I was just using a ANOVOS helmet and a costume that we had from some friends. Um. It you know gaskets and all the armor pieces.
 
 [00:08:28] Norm: No, no, no, no.
 
@@ -316,13 +316,13 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:11:01] Adam: Because I totally understand that.
 
-[00:11:02] Norm: Totally understand it. If it's big costume like Chewy or a big big foam costume, typically wait till they're going to be in a place like you said. These people are in costume because they want to have their photos taken, and they're smart enough to know that they're going to move into an open area, especially a place like New York Comic Con where there is a large lobby, well lit, that they're going to find their way there and situate themselves there. You will get your turn. Don't do it while you're in the aisle when they're trying to get to the photo place because it's going to be a worse photo and everyone’s going to be unhappy. That's one. Two, they have handlers. Ask the handler. Tap the shoulder of the handler and ask them.
+[00:11:02] Norm: Totally understand it. If it's big costume like Chewie or a big big foam costume, typically wait till they're going to be in a place like you said. These people are in costume because they want to have their photos taken, and they're smart enough to know that they're going to move into an open area, especially a place like New York Comic Con where there is a large lobby, well lit, that they're going to find their way there and situate themselves there. You will get your turn. Don't do it while you're in the aisle when they're trying to get to the photo place because it's going to be a worse photo and everyone’s going to be unhappy. That's one. Two, they have handlers. Ask the handler. Tap the shoulder of the handler and ask them.
 
 [00:11:02] Unknown speaker (Adam or Norm): Right, that's true. Yeah,
 
 [00:11:38] Adam: big big elaborate costumes often have a friend and a handler,
 
-[00:11:41] Norm: and the handler will make sure you get ushered in. It's not about the person in the costume always. And then three, if they're walking away, you can. I mean, it's tough for like a Chewy to get down an aisle. In a reasonable time, it's going to take a couple of minutes. You can plan your route. You can take the long way and get ahead of it, as opposed to poking from behind.
+[00:11:41] Norm: and the handler will make sure you get ushered in. It's not about the person in the costume always. And then three, if they're walking away, you can. I mean, it's tough for like a Chewie to get down an aisle. In a reasonable time, it's going to take a couple of minutes. You can plan your route. You can take the long way and get ahead of it, as opposed to poking from behind.
 
 [00:11:59] Adam: Also, let's just say this: if you're asking for a photo, the answer is always going to be yes. So go ahead and get your phone out and get it ready. Don't say, " Hey, can I have a photo?" And then when they say yes, start rooting around in your purse for the photo because this happened a whole bunch of times. And I'm standing there. I'm respectfully going to wait for you because we now have an oral agreement, and I appreciate that. But man, I also suffered through several people who were like not ready, and it took a long time for them to scroll through the apps and find the photo thing. One woman with a DSLR camera sat there and took probably like 15 photos over a full two minutes with this giant crowd around me, and she's like literally taking pictures and checking them each one. And it's like, look, take your picture and move on. There's a lot of people who want. Well, the goal is to spread the love, not to concentrate it on your camera.
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:19:07] Adam: It's awful. I tweeted about it, so hopefully someone in IMAX woke up and took care of that because it's ridiculous. I am sorry, but like I, we love IMAX. We go see a lot of movies on real IMAX, and it's awesome. But that was ridiculous.
 
-[00:19:19] Will: I saw it at the draft. I saw it at the Draft House, and it was a lovely presentation in the big theater downstairs.
+[00:19:19] Will: I saw it at the Drafthouse, and it was a lovely presentation in the big theater downstairs.
 
 [00:19:22] Norm: The other difference is because we've both now seen it in a Dolby, uh, a Dolby theater and Dolby Vision and IMAX is the Dolby image. I think looks better too. The HDR of the Dolby
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:23:27] Adam: right?
 
-[00:23:27] Norm: Like if you look at the structure of the first movie, not a lot happens, and if you break down, and we're in spoiler territory now, what Ryan Gosling does, what Kay does in this film, it's he's following a logical progression of events based on his job, but there's no Big meeting the girl,
+[00:23:27] Norm: Like if you look at the structure of the first movie, not a lot happens, and if you break down, and we're in spoiler territory now, what Ryan Gosling does, what K does in this film, it's he's following a logical progression of events based on his job, but there's no Big meeting the girl,
 
 [00:23:49] Will: [unclear: falling in love / Well, it’s a noir].
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:24:04] Norm: let's each take turns calling out something we want to talk about, and then discussing those things one at a time.
 
-[00:24:10] Adam: Okay. Um, I was fascinated by two. There's two aspects that that I found really interesting. One was, Ryan Gosling's relationship with his effectively holographic flashlight, played by Ana de Armas
+[00:24:10] Adam: Okay. Um, I was fascinated by two. There's two aspects that that I found really interesting. One was, Ryan Gosling's relationship with his effectively holographic fleshlight, played by Ana de Armas
 
 [00:24:28] Norm: Joi,
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:26:20] Norm: I thought it was essential,
 
-[00:26:22] Will: a really, really, really weird, like to beat the weirdest sex scene title from Team America Anomaly.
+[00:26:22] Will: a really, really, really weird, like to beat the weirdest sex scene title from Team America and Anomalisa.
 
 [00:26:30] Adam: [unclear speaker: Will or Adam] Actually, I thought that sex scene was was beautiful and really brilliantly done. Actually,
 
@@ -660,13 +660,13 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:27:00] Will: I didn't dislike it. I thought everybody was really good.
 
-[00:27:03] Norm: So to talk, the sex scenes itself conceptually a whole separate thing. Like, I think that was one of those big ideas of like that was piggybacking off of her also. And I think her laid the foundation for a lot of that. But going back to the character of Joi, it's a it's a little bit interesting how everyone responds differently to her death scene because whose perspective? Like, how real do you feel? What was what is the realness of this relationship? Right. And one of the central themes is very clearly K playing human, doing as much because everything surrounding him is making him aware that he's not human. From his boss, the Madame Rum Red Pen, to his coworkers calling him skin jobs, to his neighbors writing Skinner on his door. But once he's in his home, he plays house. He's a little a Doll in a dollhouse,
+[00:27:03] Norm: So to talk, the sex scenes itself conceptually a whole separate thing. Like, I think that was one of those big ideas of like that was piggybacking off of her also. And I think her laid the foundation for a lot of that. But going back to the character of Joi, it's a it's a little bit interesting how everyone responds differently to her death scene because whose perspective? Like, how real do you feel? What was what is the realness of this relationship? Right. And one of the central themes is very clearly K playing human, doing as much because everything surrounding him is making him aware that he's not human. From his boss, the Madame Rum Wright Penn, to his coworkers calling him skin jobs, to his neighbors writing Skinner on his door. But once he's in his home, he plays house. He's a little a Doll in a dollhouse,
 
 [00:27:03] Adam: right?
 
 [00:27:03] Norm: And so she is the doll that plays doll with him.
 
-[00:28:00] Adam: But and let's, and let's go further with this, with this, because the Tyrell introduced memories into the replicants to help give them some foundation for their emotional experiences to make them more controllable. I think this product exists for the same reason. The product of Joi giving K a life, and I actually think it is central to the theme of the film, which is to me, it is about not only what it is to be human, of course, it's about what it means to be a sentient being with agency, but it's really about love. And I think that the idea of what it means to love another being is the central theme of the film. And I think the joy arc exemplifies that. And that sex scene is actually Kay drifting out of his virtual love world of meaningless. Of again, she's a holographic fleshlight into a real into again, it's another replicant, but. Into something more tangible, and also, by the way, it helps me frame these scenes if I remember that all these replicants are effectively like five years old,
+[00:28:00] Adam: But and let's, and let's go further with this, with this, because the Tyrell introduced memories into the replicants to help give them some foundation for their emotional experiences to make them more controllable. I think this product exists for the same reason. The product of Joi giving K a life, and I actually think it is central to the theme of the film, which is to me, it is about not only what it is to be human, of course, it's about what it means to be a sentient being with agency, but it's really about love. And I think that the idea of what it means to love another being is the central theme of the film. And I think the Joi arc exemplifies that. And that sex scene is actually K drifting out of his virtual love world of meaningless. Of again, she's a holographic fleshlight into a real into again, it's another replicant, but. Into something more tangible, and also, by the way, it helps me frame these scenes if I remember that all these replicants are effectively like five years old,
 
 [00:29:07] Norm: right?
 
@@ -820,7 +820,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:34:39] Norm: Right, and then at the end of the
 
-[00:34:40] Adam: movie, there's Kay, and the snowflakes are landing on. And this is what what they're saying. I think. He's adapting to his surroundings, but this is real, and this is and
+[00:34:40] Adam: movie, there's K, and the snowflakes are landing on. And this is what what they're saying. I think. He's adapting to his surroundings, but this is real, and this is and
 
 [00:34:50] Norm: he does it twice. So there's two points in the film where he holds his hands out and the snowflakes, and he self realizes he feels differently about the world. The first is when he thinks he's the child, and that's when I think the snowflakes make him feel like he's a real person. In the end, it's like the opposite.
 
@@ -830,7 +830,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:35:09] Will: I, okay, okay, I can go, I can go along with that. Going back
 
-[00:35:13] Norm: to the joy thing, she says. I love you, early in the film, and he says you don't have to say that because
+[00:35:13] Norm: to the Joi thing, she says. I love you, early in the film, and he says you don't have to say that because
 
 [00:35:19] Adam: she says I love, I love, I love being here with you or something like that. She doesn’t say I love you
 
@@ -874,7 +874,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:36:28] Norm: Sylvia. Sylvia,
 
-[00:36:29] Adam: Hooks, yeah, who’s amazing.
+[00:36:29] Adam: Hoeks, yeah, who’s amazing.
 
 [00:36:31] Will: Really good. This movie, fucking terrifying.
 
@@ -1014,7 +1014,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:41:36] Unknown speaker (Norm or Will): really
 
-[00:41:36] Norm: you know when Mark Duboe when we were sitting here and Mark was describing that scene and I, the film opened with a teapot I'm like God damn it Mark you're such a nerd
+[00:41:36] Norm: you know when Mark Dubeau when we were sitting here and Mark was describing that scene and I, the film opened with a teapot I'm like God damn it Mark you're such a nerd
 
 [00:41:46] Adam: yeah he hadn't even seen it but he was like did they put the film the part in about the teapot that's going when he walks I mean it's literally that whole opening scene was magnificent
 
@@ -1064,7 +1064,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:43:04] Adam: Right.
 
-[00:43:04] Norm: But we don't know how many sevens there are. And then after Tyrrell dies, Tyrrell Corp tries to. Tries to salvage the company by making eights that can live indefinitely, open-ended lifespan, and that's Sapper. And then, then the blackout happens because there's a robot uprising. This is in the anime short film. Okay. And then there's no numbering afterward. But then the Wallace comes in, and then those are just the new controllable replicants.
+[00:43:04] Norm: But we don't know how many sevens there are. And then after Tyrell dies, Tyrell Corp tries to. Tries to salvage the company by making eights that can live indefinitely, open-ended lifespan, and that's Sapper. And then, then the blackout happens because there's a robot uprising. This is in the anime short film. Okay. And then there's no numbering afterward. But then the Wallace comes in, and then those are just the new controllable replicants.
 
 [00:43:38] Adam: Now, let's also point out to me the the logic of the world speaks to Deckard being a replicant as well. If you're Tyrell and you've just made an unspotable, undetect nearly undetectable replicant, and the best replicant hunter that existed in L.A. Holden was defeated by the first Nexus Six he encounters, you are duty bound in your own mind to create something that can hunt down what you've made and help contain it because quote embarrassing. No, it's not embarrassing because you're going to find them and you're going to air them out. Yeah. So again, the world, the world logic says the Deckards are replicant to me just as much as
 
@@ -1198,7 +1198,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:51:20] Adam: Uh, Ally Sheedy.
 
-[00:51:20] Will: Ally Sheedy she looked like young Ali Sheedy which is I always get young Ali Sheedy and young Sean Young mixed up
+[00:51:20] Will: Ally Sheedy she looked like young Ally Sheedy which is I always get young Ally Sheedy and young Sean Young mixed up
 
 [00:51:20] Adam: Interesting.
 
@@ -1740,7 +1740,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [01:13:38] Adam: Yeah, man. No, I mean that's yeah. Raiders is a perfect film. Raiders has never left my top three.
 
-[01:13:44] Will: Did you guys do the five the five movies you'd give to a perspective significant other to find out who you are?
+[01:13:44] Will: Did you guys do the five the five movies you'd give to a prospective significant other to find out who you are?
 
 [01:13:49] Adam: I saw your list.
 

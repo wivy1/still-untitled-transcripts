@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:08:53] Adam: Look, I thought that Emma Gonzalez's speech, where she and look, I appreciate that some of you are getting pissed off that we're talking about this, but that's
 
-[00:09:01] Will: like an unsubscribe.
+[00:09:01] Will: like and unsubscribe.
 
 [00:09:02] Adam: What it's gonna be. Um, Emma Gonzalez is standing up there for six minutes and twenty seconds in total silence
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:15:40] Norm: What are you working on, Adam, in the shop these days?
 
-[00:15:42] Adam: I just received a sculpture from Steve Neal, who made my beautiful Moonwatcher mask. It is a. I think we tweeted a picture of it yesterday. It is a the Star Child. It is a full size sculpture of the Star Child.
+[00:15:42] Adam: I just received a sculpture from Steve Neill, who made my beautiful Moonwatcher mask. It is a. I think we tweeted a picture of it yesterday. It is a the Star Child. It is a full size sculpture of the Star Child.
 
 [00:15:55] Will: It's lovely.
 
@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:20:19] Norm: It's a short one this week.
 
-[00:20:20] Adam: It's a short one today. I have a heart out. It's my bad. I really apologize.
+[00:20:20] Adam: It's a short one today. I have a hard out. It's my bad. I really apologize.
 
 [00:20:24] Norm: Would you want to give some shoutouts?
 

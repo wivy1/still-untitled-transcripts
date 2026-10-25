@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:01:01] Will: Nope,
 
-[00:01:02] Adam: The process of discovery is all there, and more than that, because they're revealing their process of discovery, they have actually run a bunch of things off at the past that you don't have to waste your time on, so that you can say, " Oh, I'd like to replace this with that because now I know it'll add the sweetness that I prefer."
+[00:01:02] Adam: The process of discovery is all there, and more than that, because they're revealing their process of discovery, they have actually run a bunch of things off at the pass that you don't have to waste your time on, so that you can say, " Oh, I'd like to replace this with that because now I know it'll add the sweetness that I prefer."
 
 [00:01:16] Will: And they tell you what what to do to make the changes you want.
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:09:42] Will: Muscle control matters, but it is something that anyone can learn. And so he taught me when I was probably 14 years old, 13 years old, and we every time we went over at his house, we would play for a few hours, and and I mean, we would actually play until he was kind of sick of playing. He'd be like, " Well, I'm going to go do something else now. You guys can keep playing if you want."
 
-[00:10:00] Adam: Well, I grew up with a pool table. My parents bought my parents. I'm sure I've said this before. They were part of the first exodus of Bohemians out of New York in the early '70s to parts outside. So they moved us an hour north into Tarrytown, where in this neighborhood I grew up in, Phillips Manor, which is now in Sleepy Hollow, New York. Phillips Manor was actually gridded out by Rockefeller, whose property was effectively next door, and they built five houses by the same architect for executives within the Rockefellers' organization.
+[00:10:00] Adam: Well, I grew up with a pool table. My parents bought my parents. I'm sure I've said this before. They were part of the first exodus of Bohemians out of New York in the early '70s to parts outside. So they moved us an hour north into Tarrytown, where in this neighborhood I grew up in, Philipse Manor, which is now in Sleepy Hollow, New York. Philipse Manor was actually gridded out by Rockefeller, whose property was effectively next door, and they built five houses by the same architect for executives within the Rockefellers' organization.
 
 [00:10:35] Will: That must be nice.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:11:41] Will: Might have been a Radiolab, but I think it was.
 
-[00:11:42] Adam: I love telling that story. But so it had all original 1910 Brunswick-Balke-Collender equipment. I've still got the Kelly pool board, which is an incredibly rare piece. We sold the table a few a few years ago. I think my mom got a good amount of money for it at auction, but I grew up playing on that table, playing poorly. And then, when I was, I think, about sixteen, my dad's Randy friend—he really has no other way to describe this crazy Irishman named Bob Clatworthy—I think he was Irish, might have been British anyway. Bob Clatworthy,
+[00:11:42] Adam: I love telling that story. But so it had all original 1910 Brunswick-Balke-Collender equipment. I've still got the Kelly pool board, which is an incredibly rare piece. We sold the table a few a few years ago. I think my mom got a good amount of money for it at auction, but I grew up playing on that table, playing poorly. And then, when I was, I think, about sixteen, my dad's randy friend—he really has no other way to describe this crazy Irishman named Bob Clatworthy—I think he was Irish, might have been British anyway. Bob Clatworthy,
 
 [00:12:18] Will: wonderful artist. The story's better if he's Irish.
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:13:35] Will: This is this is my picture of my grandfather is changing a little bit based on the the the pool hall stories we're getting now because I never really thought about it, but like growing up playing billiards when you were in the thirties, a little bit of a rough thing.
 
-[00:13:48] Adam: Oh no, no, no, always. Yeah, like if you go hang out in pool halls, you are going to meet some interesting characters, and you’re going to learn some, you’re going to learn some, you’re going to learn some really cool stuff. There’s there’s. Pool played an incredibly important role in my life. It is one of those skills that helped me learn how to learn other skills. And the best, I have a huge library of billiard books going back to the 1800s. I think my favorite book I ever read on pool is Tim Gallwey's " The Inner Game of Tennis." It is a fantastic diatribe on getting yourself into the headspace of playing the sport that you're concentrating on and physicalizing it rather than mentalizing it. And I'm teaching thing one and thing two how to be darn good pool players.
+[00:13:48] Adam: Oh no, no, no, always. Yeah, like if you go hang out in pool halls, you are going to meet some interesting characters, and you’re going to learn some really cool stuff. There’s there’s. Pool played an incredibly important role in my life. It is one of those skills that helped me learn how to learn other skills. And the best, I have a huge library of billiard books going back to the 1800s. I think my favorite book I ever read on pool is Tim Gallwey's " The Inner Game of Tennis." It is a fantastic diatribe on getting yourself into the headspace of playing the sport that you're concentrating on and physicalizing it rather than mentalizing it. And I'm teaching thing one and thing two how to be darn good pool players.
 
 [00:14:33] Will: Oh, that's awesome!
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:15:46] Will: People don't like that.
 
-[00:15:47] Adam: I have told my kids about it. I said, you know, if you go into the thing that I love, and I've run into this many times, and I actually ran I ran into it at the Whale Rock Christmas party last year.
+[00:15:47] Adam: I have told my kids about it. I said, you know, if you go into the thing that I love, and I've run into this many times, and I actually ran I ran into it at the Whalerock Christmas party last year.
 
 [00:15:58] Norm: I remember. I remember this.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:16:47] Norm: A challenger approaches.
 
-[00:16:48] Adam: And this happened at the Whale Rock Christmas party. There was an attendee there. There was a full size pool table. Yeah. There was a guy who was drunk as a skunk holding that table. I got up. I beat him one game, and I never got another shot on that guy because he sobered up so right quick. But I had his respect for the rest of the night.
+[00:16:48] Adam: And this happened at the Whalerock Christmas party. There was an attendee there. There was a full size pool table. Yeah. There was a guy who was drunk as a skunk holding that table. I got up. I beat him one game, and I never got another shot on that guy because he sobered up so right quick. But I had his respect for the rest of the night.
 
 [00:17:09] Norm: That handshake was serious.
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:25:56] Will: Right, right. A shot that leaves you in bad position for your next shot, and your opponent in great position, you might as well have not made the shot.
 
-[00:26:03] Adam: I've seen people hold tables all night at bars, and they barely made balls. They just kept on corralling their balls over near the pockets and then sinking them with lots of gimmies.
+[00:26:03] Adam: I've seen people hold tables all night at bars, and they barely made balls. They just kept on corralling their balls over near the pockets and then sinking them with lots of gimmes.
 
 [00:26:11] Will: Yeah, yeah. Well, that's as good a place as I need to wrap it up. Lots of gimmes.
 

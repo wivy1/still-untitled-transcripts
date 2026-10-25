@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:05:51] Will: No.
 
-[00:05:52] Adam: Oh yeah, it was hey, it's that guy. It was was part of fame tracker, two stars, one slot, and damn hell, Last Kings. It was this whole web ring of movie self-reference. Hey, it's that guy. Dot com was be like, you know, they would point out that Joe Don Baker was the early. Er, hey, it's that guy who was in everything, and then after that it was J.D. Walsh,
+[00:05:52] Adam: Oh yeah, it was hey, it's that guy. It was was part of fame tracker, two stars, one slot, and damn hell, Ass Kings. It was this whole web ring of movie self-reference. Hey, it's that guy. Dot com was be like, you know, they would point out that Joe Don Baker was the early. Er, hey, it's that guy who was in everything, and then after that it was J.D. Walsh,
 
 [00:06:15] Will: okay,
 
@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:13:39] Will: They'll let you know if you're wrong. Don't worry.
 
-[00:13:40] Adam: The illustrator of Hard Boiled. Hard Boiled's a fantastic three issue motherfucker of a comic. It's totally amazing and super dense visually. The illustrator ended up being one of the key illustrators for the Matrix, and it's totally clear that that visual style is all there. It's layered in pieces of tritus and all sorts of stuff going on. But the the there was this massive delay between issues two and three because you thought, we thought it was going to be four issues, and then you know it was like almost a year had. Elapsed, and you were going and finding out. No, it's delayed another month. And the cover of the third one is a picture of the lead character, I believe, with his foot crushing a car, holding a gun, saying, " Sorry, I am late." It was this great conversation between the author and. the man.
+[00:13:40] Adam: The illustrator of Hard Boiled. Hard Boiled's a fantastic three issue motherfucker of a comic. It's totally amazing and super dense visually. The illustrator ended up being one of the key illustrators for the Matrix, and it's totally clear that that visual style is all there. It's layered in pieces of detritus and all sorts of stuff going on. But the the there was this massive delay between issues two and three because you thought, we thought it was going to be four issues, and then you know it was like almost a year had. Elapsed, and you were going and finding out. No, it's delayed another month. And the cover of the third one is a picture of the lead character, I believe, with his foot crushing a car, holding a gun, saying, " Sorry, I am late." It was this great conversation between the author and. the man.
 
 [00:14:35] Will: Oh, that's fantastic.
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:20:29] Norm: So, what, when if you go to a comic book store and you're looking for recommendations or you're browsing the shelf, what jumps out at you, and what are you likely to buy?
 
-[00:20:37] Adam: Um, I, well, like I said, you know, I, so I go to I shop at Comics Experience on Divisadero as I have for freaking twenty five years. I love those guys, um, and you know, I will go and see what's new for Frank Miller. Uh, I really like, you know, I look for artists that I really like. Uh, I'm a huge fan of Chris Ware. I, I have a ton of his stuff. I'm a huge fan of Dan Clowes, um. I think, well, Dan's local. Dan's in, in, over in Oakland.
+[00:20:37] Adam: Um, I, well, like I said, you know, I, so I go to I shop at Comix Experience on Divisadero as I have for freaking twenty five years. I love those guys, um, and you know, I will go and see what's new for Frank Miller. Uh, I really like, you know, I look for artists that I really like. Uh, I'm a huge fan of Chris Ware. I, I have a ton of his stuff. I'm a huge fan of Dan Clowes, um. I think, well, Dan's local. Dan's in, in, over in Oakland.
 
 [00:21:09] Norm: I think he pops up at Ape very pretty frequently. the Alternative Press Expo.
 
@@ -862,7 +862,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:30:20] Adam: Oh, okay.
 
-[00:30:20] Will: The skeleton book's a little, little early. Graveyard, graveyard book. No, Chu story is a story about a panda that when she sneezes, bad things happen. When he sneezes, bad things happen. So it tells the story of Chu. is this book, it's fantastic. If you have a kid, it's a great good night story. Because it ends with the end of Tuesday, and he says good night, and you say good night, and then you turn off the light and put the kid to bed.
+[00:30:20] Will: The skeleton book's a little, little early. Graveyard, graveyard book. No, Chu story is a story about a panda that when she sneezes, bad things happen. When he sneezes, bad things happen. So it tells the story of Chu. is this book, it's fantastic. If you have a kid, it's a great good night story. Because it ends with the end of Chu's day, and he says good night, and you say good night, and then you turn off the light and put the kid to bed.
 
 [00:30:37] Adam: So I'm going to make the case that those who are into comic books out there should look up Krazy Kat.
 

@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:15:13] Adam: right?
 
-[00:15:14] Will: But it ended up being a good it ended up being a good conversational gambit,
+[00:15:14] Will: But it ended up being a good conversational gambit,
 
 [00:15:17] Adam: and that is actually I often if I am I was at a cocktail party a couple days ago, a little barbecue, and almost most of the people at the party didn't know who I was.
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:17:44] Will: Oh yeah.
 
-[00:17:45] Adam: What I mean is, we Rothfuss is a friend of Woodstock, and he he was at Comic Con this year, and I walked up to the backstage while he was on stage, and I had forgotten it was him that was up, and I was like, who has this beautiful voice?
+[00:17:45] Adam: What I mean is, we Rothfuss is a friend of w00tstock, and he he was at Comic Con this year, and I walked up to the backstage while he was on stage, and I had forgotten it was him that was up, and I was like, who has this beautiful voice?
 
 [00:18:01] Will: Kind of a deep, rumbly.
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:18:08] Will: Yeah, it's very multi. Yeah, he's a he's the kind of I imagine that he tells wonderful stories to his children.
 
-[00:18:14] Adam: And speaking of Woodstock-friendly authors, I just finished the Androids Androids Dream by by by Scalzi. Is it
+[00:18:14] Adam: And speaking of w00tstock-friendly authors, I just finished the Androids Androids Dream by by by Scalzi. Is it
 
 [00:18:21] Will: not the best?
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:18:42] Will: I think Seveneves
 
-[00:18:43] Adam: maybe. And then I jumped into Scalzi with both feet because red shirts just looked too exciting. And as soon as I read that, I was like, " Gotta read more of this."
+[00:18:43] Adam: maybe. And then I jumped into Scalzi with both feet because Redshirts just looked too exciting. And as soon as I read that, I was like, " Gotta read more of this."
 
 [00:18:50] Will: Did you? Is is Android's Dream the one that starts with the description of the extreme improbability of complete solar eclipses?
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:19:46] Adam: I'm going out to buy it after this because I was going to go out and get some more Scalzi books, and I'll pick that up.
 
-[00:19:51] Will: So the only problem with King Killer is it's going to ruin you for all other fantasy because he writes such such such lovely prose. Um, like I, I, speaking of your fanboy interactions, when I was at Woodstock the first or second time, and and Pat was there. I walked up to him and said something like, " Oh, I love your book. Your, your, your book is the only book I don't feel ashamed to recommend that's fantasy." And then I just ran away.
+[00:19:51] Will: So the only problem with King Killer is it's going to ruin you for all other fantasy because he writes such such such lovely prose. Um, like I, I, speaking of your fanboy interactions, when I was at w00tstock the first or second time, and and Pat was there. I walked up to him and said something like, " Oh, I love your book. Your, your, your book is the only book I don't feel ashamed to recommend that's fantasy." And then I just ran away.
 
 [00:20:19] Adam: Thanks. I think is the response to that.
 
@@ -720,7 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:31:22] Adam: Yeah,
 
-[00:31:22] Adam: I was in your Only Human." And he goes, " Ah, wait, were you the kid on the bridge?" And I'm like, " No, I'm the kid who drowns." And he goes, " Ah, yeah, it's terrible video." And I said, " Yes, it was." He goes, " I hated making those things." And I said, " I said, well, you were very nice. I drowned out there at Far Rockaway, and it was like November, and I got hypothermia. And you let me warm up in your trailer, and you gave me a cigarette. And he was like, 'Ah, corrupting youth.' We took a picture. I took a picture with him and the boys. They were beside themselves. Oh man! And then we got to watch the opening act turned out to be another musician I'm a huge fan of, Gavin DeGraw.
+[00:31:22] Adam: I was in You're Only Human." And he goes, " Ah, wait, were you the kid on the bridge?" And I'm like, " No, I'm the kid who drowns." And he goes, " Ah, yeah, it's terrible video." And I said, " Yes, it was." He goes, " I hated making those things." And I said, " I said, well, you were very nice. I drowned out there at Far Rockaway, and it was like November, and I got hypothermia. And you let me warm up in your trailer, and you gave me a cigarette. And he was like, 'Ah, corrupting youth.' We took a picture. I took a picture with him and the boys. They were beside themselves. Oh man! And then we got to watch the opening act turned out to be another musician I'm a huge fan of, Gavin DeGraw.
 
 [00:32:03] Will: Oh, really?
 
@@ -838,4 +838,4 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:36:53] Adam: bye.
 
-[00:36:59] Will: Today's episode is brought to you by Wix.com. Used by 60 million people throughout the world, Wix.com empowers business owners to create their own professional websites with the drag and drop builder and hundreds of designer-made templates to choose from. You can get your website live today. It's easy and free. Go to Wix.com and create your stunning website today. It's easy and free. Go to wix.com and create your stunning website today.
+[00:36:59] Will: Today's episode is brought to you by Wix.com. Used by 60 million people throughout the world, Wix.com empowers business owners to create their own professional websites with the drag and drop builder and hundreds of designer-made templates to choose from. You can get your website live today. It's easy and free. Go to wix.com and create your stunning website today.

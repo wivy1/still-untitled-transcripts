@@ -608,9 +608,9 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:22:25] Adam: Oh yeah,  yeah,
 
-[00:22:26] Norm: and we talked about True Detective. We name dropped that Hannah has one the movie Hannah.
+[00:22:26] Norm: and we talked about True Detective. We name dropped that Hanna has one the movie Hanna.
 
-[00:22:30] Adam: Oh, that movie again. We talked about that. Oh, I just watched it like a week ago, and Hannah is totally like I loved it when it came out. I genuinely loved it. Watching it again, I loved it even more. And I think that actually Hannah is a it's almost like an art movie disguised as an action movie,
+[00:22:30] Adam: Oh, that movie again. We talked about that. Oh, I just watched it like a week ago, and Hanna is totally like I loved it when it came out. I genuinely loved it. Watching it again, I loved it even more. And I think that actually Hanna is a it's almost like an art movie disguised as an action movie,
 
 [00:22:48] Norm: which I think so.
 
@@ -622,7 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:22:55] Norm: really. I also think that movie does not stick the ending. At the end, when she’s the [unclear: plane].
 
-[00:23:00] Will: we didn't promise Hannah spoilers. We should watch that on a Friday. Maybe add that to a commentary.
+[00:23:00] Will: we didn't promise Hanna spoilers. We should watch that on a Friday. Maybe add that to a commentary.
 
 [00:23:04] Adam: I didn't find myself unsatisfied at the end. I want to see a sequel. Yeah, I think there's
 
@@ -754,7 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:27:18] Will: that they're just repeating identically.
 
-[00:27:20] Norm: And your brain knows that it's not perfect because it can never be 100 perfect. But
+[00:27:20] Norm: And your brain knows that it's not perfect because it can never be 100 percent perfect. But
 
 [00:27:26] Adam: I will tell you
 
@@ -764,7 +764,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:27:28] Will: Right, right.
 
-[00:27:28] Adam: My, I immediately start looking for the artifacts of the sloppy mats
+[00:27:28] Adam: My, I immediately start looking for the artifacts of the sloppy mattes
 
 [00:27:28] Will: Right.
 
@@ -784,13 +784,13 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:27:49] Norm: The Infinite Man.
 
-[00:27:49] Will: The Infinite Man. John Wick. What was the other one? Hannah. We added to the list.
+[00:27:49] Will: The Infinite Man. John Wick. What was the other one? Hanna. We added to the list.
 
 [00:28:03] Adam: Yeah.
 
 [00:28:03] Norm: Hugo.
 
-[00:28:04] Will: Hannah. Did you watch Hugo, Norm?
+[00:28:04] Will: Hanna. Did you watch Hugo, Norm?
 
 [00:28:06] Norm: I've seen it many times. I like it. I love it.
 
@@ -836,7 +836,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:29:37] Norm: Probably. Although I think the Getty Images photos are much better than quality in that.
 
-[00:29:41] Will: Okay, so what if I want a picture of a man walking across the street while using an old school Zach Morris kind of cell phone?
+[00:29:41] Will: Okay, so what if I want a picture of a man walking across the street while using an old school Zack Morris kind of cell phone?
 
 [00:29:47] Norm: Absolutely. I think there's a rule in internet: if you can think of it, if it exists, then Getty Images has a photo of it.
 

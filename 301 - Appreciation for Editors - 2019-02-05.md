@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:00:32] Norm: So the Midwest.
 
-[00:00:33] Will: I was in Chicago this weekend. Every year, I've been lucky enough to be invited to a thing that's put on by some friends of ours, Zach from Inventables, and Fitz from Talk, formerly of Google, who I think everybody here knows. And we they do this thing called Ord Camp, and I went to Chicago in the middle of January. When you go in, they have a sign that says " [unclear: takes / It takes] a special kind of person to come to Chicago in January." Welcome, you badass. And
+[00:00:33] Will: I was in Chicago this weekend. Every year, I've been lucky enough to be invited to a thing that's put on by some friends of ours, Zach from Inventables, and Fitz from Tock, formerly of Google, who I think everybody here knows. And we they do this thing called Ord Camp, and I went to Chicago in the middle of January. When you go in, they have a sign that says " [unclear: takes / It takes] a special kind of person to come to Chicago in January." Welcome, you badass. And
 
 [00:01:00] Adam: the very first time I ever went to Chicago was in January.
 
@@ -188,11 +188,11 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:08:01] Adam: [unclear: ∅ / Right], Because I mean, you're gone if you get nauseous. That's the next. Two hours,
 
-[00:08:05] Will: well, and so we were talking because we were talking about VR stuff for obvious reasons. And I was like, " Look, I've noticed that t here is a real spectrum on the VR world of people who feel no motion sickness, like me, to people who feel a lot of motion sickness, like my wife. And you are pretty sensitive too, Norm. Somewhere in the middle, a little further in. So, but the the thing I never, I felt both of those kinds of motion sickness before of spinning before. The third one was brand new. So you tilt it so your ear is perpendicular, is parallel to the floor,
+[00:08:05] Will: well, and so we were talking because we were talking about VR stuff for obvious reasons. And I was like, " Look, I've noticed that there is a real spectrum on the VR world of people who feel no motion sickness, like me, to people who feel a lot of motion sickness, like my wife. And you are pretty sensitive too, Norm. Somewhere in the middle, a little further in. So, but the the thing I never, I felt both of those kinds of motion sickness before of spinning before. The third one was brand new. So you tilt it so your ear is perpendicular, is parallel to the floor,
 
 [00:08:05] Adam: right,
 
-[00:08:05] Will: and then spin in the office chair and stop suddenly, and like you have no sense of forward and backwards. Like, do don't do this if you don't don't do this if you don't have somebody there to catch you when you get up out of the chair
+[00:08:05] Will: and then spin in the office chair and stop suddenly, and like you have no sense of forward and backwards. Like, do don't do this if you don't have somebody there to catch you when you get up out of the chair
 
 [00:08:05] Adam: You’re gonna fall down.
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:14:51] Norm: Post- event FOMO.
 
-[00:14:53] Will: Yeah, but look, FOMO is a real FOMO is real. Imposter syndrome also real. Um, but you roll in, you roll in. The next time I went a couple years later, I made a point to go up and introduce myself to everybody who I thought was interesting, anybody I wanted to meet, and it was a, it was a. I mean, both of them were transformative experiences, but that second one, and it's hard to do. Like, yeah, no matter no matter who you are or what you do. It's always like, oh God! I introduced myself to Scalzi again while we were there this weekend. It's like, hey, I met you at at Woodstock, and he's like, oh right, yeah, I remember being at Woodstock. But I'm sorry, I was like, that's okay.
+[00:14:53] Will: Yeah, but look, FOMO is a real FOMO is real. Imposter syndrome also real. Um, but you roll in, you roll in. The next time I went a couple years later, I made a point to go up and introduce myself to everybody who I thought was interesting, anybody I wanted to meet, and it was a, it was a. I mean, both of them were transformative experiences, but that second one, and it's hard to do. Like, yeah, no matter no matter who you are or what you do. It's always like, oh God! I introduced myself to Scalzi again while we were there this weekend. It's like, hey, I met you at at Wootstock, and he's like, oh right, yeah, I remember being at Wootstock. But I'm sorry, I was like, that's okay.
 
 [00:15:26] Adam: [unclear: It’s a lot of he meets / It’s a lot of, it’s / I don’t expect you to. He meets] a lot of people. John does,
 
@@ -498,13 +498,13 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:25:58] Will: Derek [unclear: ∅ / thanks].
 
-[00:26:04] Adam: Oh right, yeah, Derek. Derek, whose dialogue, Mark Evan Jackson told me they translate into another language and then back into English.
+[00:26:04] Adam: Oh right, yeah, Derek. Derek, whose dialogue, Marc Evan Jackson told me they translate into another language and then back into English.
 
 [00:26:12] Will: Yeah. Which it seems perfect.
 
 [00:26:14] Adam: Oh, it does.
 
-[00:26:15] Will: I always wonder how editor directors do their thing, and I know because Ryan Johnson does that, right? He edits his own movies. I think, or maybe I'm making that up.
+[00:26:15] Will: I always wonder how editor directors do their thing, and I know because Rian Johnson does that, right? He edits his own movies. I think, or maybe I'm making that up.
 
 [00:26:23] Norm: I'm not sure.
 
@@ -558,9 +558,9 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:28:28] Will: Okay, so the documentary, the editing documentary is cutting edge. Anything else?
 
-[00:28:35] Adam: Has Tony, has Tony Joe
+[00:28:35] Adam: Has Tony, has Tony Zhou
 
-[00:28:35] Adam: ever done a thing on editing? He must have done a thing on editing in every frame of painting. I’m just not calling
+[00:28:35] Adam: ever done a thing on editing? He must have done a thing on editing in Every Frame a Painting. I’m just not calling
 
 [00:28:42] Adam: [unclear: one / the one / anyone] up to my head.
 
@@ -730,7 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:35:04] Will: Oh my god!
 
-[00:35:15] Norm: So head cannon, wow, Easter egg,
+[00:35:15] Norm: So headcanon, wow, Easter egg,
 
 [00:35:18] Adam: Yes. Yeah.
 
@@ -820,7 +820,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:38:03] Adam: Yeah, yeah, yeah, yeah.
 
-[00:38:03] Will: That's that's my that's. Send your comments to normanattested.com.
+[00:38:03] Will: That's that's my that's. Send your comments to norman@tested.com.
 
 [00:38:03] Adam: Is the Rainmaker Grisham?
 

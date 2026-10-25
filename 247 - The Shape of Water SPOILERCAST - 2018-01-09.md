@@ -20,7 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:00:22] Adam: You know, it's it's actually great. It took forty minutes to drive this morning because San Franciscans all lose their minds in the rain.
 
-[00:00:32] Will: Totally true. Carl the Fog this morning tweeted, and and just to be clear, we realize the irony of complaining about weather here on the West Coast when right now,
+[00:00:32] Will: Totally true. Karl the Fog this morning tweeted, and and just to be clear, we realize the irony of complaining about weather here on the West Coast when right now,
 
 [00:00:39] Adam: I'm not complaining about weather. I love the rain. I love the rain.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:08:04] Adam: I haven't seen that,
 
-[00:08:04] Norm: and I can give you the premise. It's called Archangel. Jodie Foster directed it. It's not a big twist, long episode. It's one of those watching the performances of how these the technology, but simple premise. If you have the ability to implant in your child, and I'll give this to both of you, and the implant lets you through some type of tablet device see anything they see.
+[00:08:04] Norm: and I can give you the premise. It's called Arkangel. Jodie Foster directed it. It's not a big twist, long episode. It's one of those watching the performances of how these the technology, but simple premise. If you have the ability to implant in your child, and I'll give this to both of you, and the implant lets you through some type of tablet device see anything they see.
 
 [00:08:29] Will: Oh, I absolutely wouldn't do that.
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:19:31] Unknown speaker: Monster,
 
-[00:19:33] Will: Monster versus Robots. Yeah, yeah, but but also you're going to see something you've probably never seen before. Like when you go into Penn's Labyrinth, he took us into a world of I I like it's a world that I didn't know existed. It's a world I'd never even imagined existing,
+[00:19:33] Will: Monster versus Robots. Yeah, yeah, but but also you're going to see something you've probably never seen before. Like when you go into Pan's Labyrinth, he took us into a world of I I like it's a world that I didn't know existed. It's a world I'd never even imagined existing,
 
 [00:19:47] Adam: like Spirited Away.
 
@@ -948,7 +948,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:34:42] Adam: Yep.
 
-[00:35:03] Will: Okay. Well, safe travels, gentlemen. We'll see you when you're back, and this will be the last still in time. Well, you guys will do still in time. Yeah, yeah. I'll be away for a while. All right. See you guys next time. Thanks for watching.
+[00:35:03] Will: Okay. Well, safe travels, gentlemen. We'll see you when you're back, and this will be the last Still Untitled. Well, you guys will do Still Untitled. Yeah, yeah. I'll be away for a while. All right. See you guys next time. Thanks for watching.
 
 [00:35:03] Will: Bye.
 

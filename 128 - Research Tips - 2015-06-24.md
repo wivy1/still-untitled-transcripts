@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=gPE-cLUiVqE
 
 [00:01:15] Adam: You saw Art and the gang,
 
-[00:01:16] Norm: Yes, and yeah, and and Brad Fife, and so the RPF, which we talk about extensively, the Replica Prop Forum. Every once in a while, they get members together, regional. So this is their Southern California meetup, and it was actually held at Frank Ippolito's shop.
+[00:01:16] Norm: Yes, and yeah, and and Brad Fyfe, and so the RPF, which we talk about extensively, the Replica Prop Forum. Every once in a while, they get members together, regional. So this is their Southern California meetup, and it was actually held at Frank Ippolito's shop.
 
 [00:01:32] Adam: Oh, I didn't realize that.
 
@@ -34,9 +34,9 @@ Episode URL: https://www.youtube.com/watch?v=gPE-cLUiVqE
 
 [00:01:37] Will: he had a big pizza,
 
-[00:01:38] Norm: and they the organized Brad Fife, who's one of the RPF guys.
+[00:01:38] Norm: and they the organized Brad Fyfe, who's one of the RPF guys.
 
-[00:01:43] Adam: Jedi Five.
+[00:01:43] Adam: Jedifyfe.
 
 [00:01:43] Norm: Yeah, he he. I think so. He got ordered the biggest pizza I've ever seen. I don't know how they bake this. It was
 
@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=gPE-cLUiVqE
 
 [00:03:46] Adam: Yes. Well, I wanted to talk about research because all three of us are people who have done it for a living and do it as a hobby and really enjoy. Really enjoy delving into a subject and learning and gathering what we can about it on a deep level, and I just I wanted to talk about that because we've talked some about my research techniques, but I'd like to talk about your guys as well.
 
-[00:04:09] Will: Well, so when I one of the things I realized really quickly in college was that having access to a a lib the university library at a major American major you know university wherever it is in this of course I went to so to date myself I went to college in the fall of nineteen ninety three. So we when we checked into school we were the first wave of kids that were issued a Unix or a VAX account. We had access to Usenet, IRC, Gopher, Archie, Telnet, like basic console shell commands. Links, I don't think they had on the system at that point because nobody could use. Why would you use the web? It makes no sense. And email, so so so we had
+[00:04:09] Will: Well, so when I one of the things I realized really quickly in college was that having access to a a lib the university library at a major American major you know university wherever it is in this of course I went to so to date myself I went to college in the fall of nineteen ninety three. So we when we checked into school we were the first wave of kids that were issued a Unix or a VAX account. We had access to Usenet, IRC, Gopher, Archie, Telnet, like basic console shell commands. Lynx, I don't think they had on the system at that point because nobody could use. Why would you use the web? It makes no sense. And email, so so so we had
 
 [00:04:51] Adam: The web was for amateurs,
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=gPE-cLUiVqE
 
 [00:10:03] Adam: Oh, you know, it's
 
-[00:10:04] Norm: There's a technical name. There is the common, you know, in this form, people call it one thing.
+[00:10:04] Norm: There's a technical name. There is the common, you know, in this forum, people call it one thing.
 
 [00:10:08] Adam: I'm writing a book right now. I guess you could call it a book because I'm thirty-five, forty thousand words into it about the research of a specific prop. And in this prop, there's a small little article, of which there are gazillion in the world. So go ahead and try and search for this article. It's a bottle. It's a little glass bottle. Go ahead and search for little glass bottle, and then lose your mind. Try and find a specific shape of glass bottle. I searched for weeks, hundreds of searches, hundreds of searches on Google, hundreds of searches on eBay, searches on Amazon, searches on Flickr, searches on Pinterest, yielding nothing. So then I start doing. When I yield nothing after all of that, because the noise to signal ratio is so high, I started thinking, " Well, let me actually stop being so specific."
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=gPE-cLUiVqE
 
 [00:19:29] Adam: I think I might have said that on the podcast.
 
-[00:19:31] Will: Brody. Wow.
+[00:19:31] Will: Grody. Wow.
 
 [00:19:33] Will: Anyway.
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=gPE-cLUiVqE
 
 [00:22:43] Adam: Yeah, I will say. So, talking about the internet as the surface of things, I just want to give a practical example that came up recently. I am obsessed with armor, arms, and armor, chainmail, old stuff like that, and I frequently will left my own devices on a plane just do an extensive image search on armor. And I recently, while doing it, found a lovely catalog from one of the best armor collections in the world, is at the Metropolitan Museum of Art in New York. And if you didn't know that, you should go there and check out their armor room because it will blow your freaking mind. And they release they release catalogs over the years of new acquisitions. And I saw one on Amazon for a pretty good deal, you know, fifteen bucks. And so I grabbed it, and immediately was confronted by a little catalog, seventy pages full of images that I'd never seen before, never seen anything remotely like it. Filigreed shotguns from the nineteenth century and inlaid bits of of internal armor that I'd never found in all of my Google searches. And this is exactly what I mean. We can become complacent, thinking, " Oh, I'm seeing all there is." But really, you are seeing the stuff that people are selling and doing in their research. Your people aren't digitizing these catalogs and throwing those images up in an indexable way. So you've got to realize, you've got to just understand. That there are deeper places to go, and catalogs and stuff like that for auctions and for museum collections are a great place to go.
 
-[00:24:09] Will: Another one that's great, especially if you're dealing with old hardware and stuff like that, are like the Kovels antique books that tell you how to price and guide different eras of antiques. Yeah, will will give you the names for bits and pieces that you never knew. Like if you want to know what mortis, if you I know what mortis and tenon is, but if you didn't know what mortis and tenon is, five minutes with a Kovels book will let you know how to distinguish mortis and tenon and and and fifteen other things.
+[00:24:09] Will: Another one that's great, especially if you're dealing with old hardware and stuff like that, are like the Kovels antique books that tell you how to price and guide different eras of antiques. Yeah, will will give you the names for bits and pieces that you never knew. Like if you want to know what mortise, if you I know what mortise and tenon is, but if you didn't know what mortise and tenon is, five minutes with a Kovels book will let you know how to distinguish mortise and tenon and and and fifteen other things.
 
 [00:24:32] Adam: And speaking of actual positive and negative results of research, I have to say Prop Store of London has some great archives of imagery. But when you're searching movie props, one of the main things you're going to come up with is a site called Your Props, where people archive their own collections. I hate that site. The resolution of the photos on that site is so tiny as to be completely useless. Useless for any research purposes. Now, I also understand that there is a certain faction of prop collectors who don't want high-resolution images of their props out there online, and I say to hell with you.
 

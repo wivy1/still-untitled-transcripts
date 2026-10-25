@@ -6,7 +6,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:00:00] Adam: Did you hear something? I just heard like a farting sound.
 
-[00:00:00] Unknown speaker: Adam / Unknown]: Okay.
+[00:00:00] [unclear: Adam / Unknown]: Okay.
 
 [00:00:03] Will: Pretty normal.
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:01:54] Norm: what if it's all the matrix?
 
-[00:01:55] Will: What if what if Avogadro's constant Avogadro's number was off by one? You know, and you get to like the plank constant.
+[00:01:55] Will: What if what if Avogadro's constant Avogadro's number was off by one? You know, and you get to like the Planck constant.
 
 [00:01:55] Adam: Right.
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:03:49] Will: and it is it's the first in a series. I haven't read the second one. It may go to hell, and the third one comes out this August.
 
-[00:03:54] Adam: This is very exciting to me to discover that it was the first book of a trilogy because it's the first book of a trilogy because as soon as I finished it, I wanted more.
+[00:03:54] Adam: This is very exciting to me to discover that it was the first book of a trilogy because as soon as I finished it, I wanted more.
 
 [00:04:00] Will: I don't know that. I think I might be okay, but I'll read the next one.
 
@@ -304,9 +304,9 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:10:20] Will: Yeah,
 
-[00:10:20] Norm: Norm / Will / Adam]: we'll talk
+[00:10:20] [unclear: Norm / Will / Adam]: we'll talk
 
-[00:10:20] Norm: Adam / Norm]: about that.
+[00:10:20] [unclear: Adam / Norm]: about that.
 
 [00:10:22] Norm: Yes, but there's also another story. This is because I was talking with a Kishore Hari, who's our who's our science correspondent, and he's a science educator, and he said, totally agree that you know it's it's kind of wild and inconceivable that there's societies that believe this proven scientific fact, but the way Neil deGrasse Tyson went about it to make it almost like a shaming to have the mic drop, he felt that that was too much.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:14:27] Adam: Right.
 
-[00:14:30] Adam: Adam / Will]: I agree.
+[00:14:30] [unclear: Adam / Will]: I agree.
 
 [00:14:30] Will: It's it's.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:15:26] Will: Um, and it's the techniques that you use to to to do that. In a lot of cases, it's interesting because when you know what they are, that along with a decent, healthy sense of empathy, lets you understand the world around you better than anything else you can do. I think.
 
-[00:15:48] Unknown speaker: Adam / Norm]: Right, right.
+[00:15:48] [unclear: Adam / Norm]: Right, right.
 
 [00:15:49] Norm: But it's still uphill. You ever get to fight it every time?
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:20:20] Norm: See you later.
 
-[00:20:21] Unknown speaker: Will / Adam]: It's
+[00:20:21] [unclear: Will / Adam]: It's
 
 [00:20:21] Norm: you're a lost.
 

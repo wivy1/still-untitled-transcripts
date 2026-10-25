@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:00:43] Adam: What was that?
 
-[00:00:43] Will: I said that Marvel villains have traditionally been very bad, and I was correct up until like Thor Ragnarok. I think Thor Ragnarok, hello, is a fantastic villain. Killmonger and Black Panther is an incredible villain.
+[00:00:43] Will: I said that Marvel villains have traditionally been very bad, and I was correct up until like Thor Ragnarok. I think Thor Ragnarok, Hela, is a fantastic villain. Killmonger and Black Panther is an incredible villain.
 
 [00:00:43] Adam: Killmonger is insane.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:04:05] Norm: Yeah, I was going to say once you get beyond spacesuits, and I know next year is a big anniversary, of course, and in the obsession may never end. Do you expand into other types of pressure suits, whether it's high altitude for aerospace or underwater?
 
-[00:04:19] Adam: I could obtain if I could obtain a a David Clark yellow U two high altitude suit. I would. Yeah, that is a one came up on eBay shortly after I flew in the U two, but it was incredibly expensive, as they should be. They're big, incredible pieces of equipment, and I couldn't afford to pull the trigger on it.
+[00:04:19] Adam: I could obtain if I could obtain a a David Clark yellow U-2 high altitude suit. I would. Yeah, that is a one came up on eBay shortly after I flew in the U-2, but it was incredibly expensive, as they should be. They're big, incredible pieces of equipment, and I couldn't afford to pull the trigger on it.
 
 [00:04:39] Will: Yeah, I was going to ask if you thought about buying actual because all yours are costume at this point?
 
@@ -876,7 +876,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:31:38] Norm: So we'll hope to see you there.
 
-[00:31:40] Will: Yes, and also, oh, two tips for Maker Fair: if you're going for the first time, park offsite. Like, look at look on their website beforehand. There's all sorts of offsite parking locations. They're coming down 101, two eighty, or from the south, wherever you would come there. They have buses that run constantly. It's very humane. It's much better way to get there than to try to park on location.
+[00:31:40] Will: Yes, and also, oh, two tips for Maker Faire: if you're going for the first time, park offsite. Like, look at look on their website beforehand. There's all sorts of offsite parking locations. They're coming down 101, two eighty, or from the south, wherever you would come there. They have buses that run constantly. It's very humane. It's much better way to get there than to try to park on location.
 
 [00:32:01] Adam: Over a hundred thousand people are attending.
 
@@ -908,7 +908,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:33:00] Adam: Yeah.
 
-[00:33:00] Will: And we talk about some of your favorite props. So we talk about the we talk about the A7. We talk about um the Blade Runner gun, Blade Runner gun, Maltese Falcon, uh the Born stunt pistol that you have, uh Akbar, uh Frank's Lego creepy nightmare Lego head, um and a bunch of other stuff. Captain America shield, some stuff that you bought, some stuff that you made, some stuff that you've collected. Uh, that'll be out on Monday. Uh, Monday of next week, not this Monday, but but Monday a week from now.
+[00:33:00] Will: And we talk about some of your favorite props. So we talk about the we talk about the A7. We talk about um the Blade Runner gun, Blade Runner gun, Maltese Falcon, uh the Bourne stunt pistol that you have, uh Ackbar, uh Frank's Lego creepy nightmare Lego head, um and a bunch of other stuff. Captain America shield, some stuff that you bought, some stuff that you made, some stuff that you've collected. Uh, that'll be out on Monday. Uh, Monday of next week, not this Monday, but but Monday a week from now.
 
 [00:33:36] Norm: All right.
 

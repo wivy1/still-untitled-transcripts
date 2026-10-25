@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:08:15] Will: I’m familiar with Greek or Roman, right?
 
-[00:08:15] Max: you know the idea of kayfabe you know the idea of kayfabe
+[00:08:15] Max: you know the idea of kayfabe
 
 [00:08:19] Unknown (Adam, Max or Will): Olympic sport, no
 
@@ -264,11 +264,11 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:12:37] Will: and and and this is the thing. Like I, there's a lot of talk in journalism circles about how we cover presidential elections, how journalists cover presidential elections, and there's a lot of talk about horse race journalism and what and and I feel like a lot of people that don't follow that that specific subset of politics don't know what that means. But it's the idea that there are opinion polls right now that have Biden and and and Harris in the lead and Elizabeth Warren in the lead. But it's it's literally just because of that. It's because people recognize those names. So when somebody calls, when Gallup calls them during dinner time and says, " Hey, who do you think is going to win the Democratic primary?" and they're like, " I don't know. What about that Biden guy?"
 
-[00:13:14] Adam: Yeah, no, it's going to be President Bodie McBoatface.
+[00:13:14] Adam: Yeah, no, it's going to be President Boaty McBoatface.
 
 [00:13:16] Unknown (Adam or Will): Yeah, eventually.
 
-[00:13:17] Will: God, if only we'd be so lucky. I would vote. I take him. I'd vote for Bodie McBoatface. Better than what we have now.
+[00:13:17] Will: God, if only we'd be so lucky. I would vote. I take him. I'd vote for Boaty McBoatface. Better than what we have now.
 
 [00:13:23] Max: I take him.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:18:51] Max: I like
 
-[00:18:51] Adam: Shishin Liu.
+[00:18:51] Adam: Cixin Liu.
 
 [00:18:51] Adam: I've just read Ball Lightning, the the Three Body Problem trilogy.
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:24:54] Max: Oh,
 
-[00:24:54] Will: that are all animated. It's kind of like the Animatrix in that each seems to have their own unique art style. It's unclear to me so far if they live in the same world, and the tone has varied dramatically from like, like Game of Thrones, not not exactly sex position, but kind of like early Game of Thrones, uncomfortable violence and nudity.
+[00:24:54] Will: that are all animated. It's kind of like the Animatrix in that each seems to have their own unique art style. It's unclear to me so far if they live in the same world, and the tone has varied dramatically from like, like Game of Thrones, not not exactly sexposition, but kind of like early Game of Thrones, uncomfortable violence and nudity.
 
 [00:25:15] Adam: It's love, sex, and robots. Officially,
 
@@ -716,7 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:29:31] Adam: By all means.
 
-[00:29:31] Max: Okay. Here's I have on the topic of attention span length thing. I'm actually very I'm actually really interested in this. So I'm I'm a I'm a I'm a big fan. I've been following your career for a long time, and I watched MythBusters all boy. I mean, at least all through college, but if not if not before. And it really helped. It it made it gave me a feeling of uh it gave me a feeling of I could do it. I could just do it. That there were that there are these big things out. There are these big impossible things out there that are so huge in their ambition and so crazy and so dumb in some cases.
+[00:29:31] Max: Okay. Here's I have on the topic of attention span length thing. I'm actually very I'm actually really interested in this. So I'm I'm a I'm a I'm a big fan. I've been following your career for a long time, and I watched MythBusters all boy. I mean, at least all through college, but if not if not before. And it really helped. It it made it gave me a feeling of I could do it. I could just do it. That there were that there are these big things out. There are these big impossible things out there that are so huge in their ambition and so crazy and so dumb in some cases.
 
 [00:30:05] Adam: Yeah, totally.
 
@@ -1092,11 +1092,11 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:50:44] Max: It's a good shirt. I've been admiring that shirt.
 
-[00:50:46] Adam: I I'm really psyched about this. And it was one of those we sit around here, Kristen and I and Norman Will and other folks, and we like talk about what the next Cotton Bureau shirt's going to be. And then it's you know the one of the things I love, and Jamie and I always love this is you can argue and discuss and brainstorm ways to do things. And then when the right idea shows up in the room, if you're paying attention, everyone knows.
+[00:50:46] Adam: I I'm really psyched about this. And it was one of those we sit around here, Kristen and I and Norm and Will and other folks, and we like talk about what the next Cotton Bureau shirt's going to be. And then it's you know the one of the things I love, and Jamie and I always love this is you can argue and discuss and brainstorm ways to do things. And then when the right idea shows up in the room, if you're paying attention, everyone knows.
 
 [00:51:10] Will: Yeah.
 
-[00:51:10] Adam: And that was sort of my favorite moments. And Heineman and I used to really value. You'd fight for your idea. You fight, fight, fight. And it's fun to argue and say no, that's not how we should do it. This is how we should do it. And someone else goes, what if we use rubber bands? And everyone looks over and goes. Oh yeah, that's how we're doing it. And often we can't even remember who came up with the idea because it doesn't even matter. It's just like it's the collective.
+[00:51:10] Adam: And that was sort of my favorite moments. And Hyneman and I used to really value. You'd fight for your idea. You fight, fight, fight. And it's fun to argue and say no, that's not how we should do it. This is how we should do it. And someone else goes, what if we use rubber bands? And everyone looks over and goes. Oh yeah, that's how we're doing it. And often we can't even remember who came up with the idea because it doesn't even matter. It's just like it's the collective.
 
 [00:51:32] Will: That there is a fundamental one of my fundamental precepts about coming up with good ideas for content is that if you don't have a conversation, if you don't discuss, if you don't fight about it, then you are not you are not doing the most you can to get the the to chisel the good thing out of the bad.
 
@@ -1114,7 +1114,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:52:24] Adam: but we derailed back into a podcast. Sorry.
 
-[00:52:28] Will: Max, we'll have to have you back next time you're in San Francisco. We're in Chicago.
+[00:52:28] Will: Max, we'll have to have you back next time you're in San Francisco. Or we're in Chicago.
 
 [00:52:31] Max: Okay.
 

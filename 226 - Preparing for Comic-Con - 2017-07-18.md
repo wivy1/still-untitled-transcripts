@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:06:39] Will: Those were great. Dogs love those. Kids love those too. It’s terrific. Everybody, people who get those are bad, but the ones that make the pretty lights are are you know it's fun.
 
-[00:06:59] Norm: Um, you know, speaking of leads, we are bearing the lead. This is the week of San Diego Comic Con.
+[00:06:59] Norm: Um, you know, speaking of leads, we are burying the lead. This is the week of San Diego Comic Con.
 
 [00:07:05] Will: What? Boom!
 

@@ -622,7 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:19:21] Adam: The episode three Vader's helmet.
 
-[00:19:23] Norm: Episode three Vader's helmet, which splits off into three parts, and tying back into all-time wantlets. Now, in terms of models, two models I would want. One is the Enterprise D model from Star Trek Next Generation, the full-size six-foot model.
+[00:19:23] Norm: Episode three Vader's helmet, which splits off into three parts, and tying back into all-time want list. Now, in terms of models, two models I would want. One is the Enterprise D model from Star Trek Next Generation, the full-size six-foot model.
 
 [00:19:43] Will: It's gorgeous,
 
@@ -720,7 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:23:03] Norm: Wow,
 
-[00:23:03] Adam: that has been figured out. Every nut, every bolt, every wheel rim, every everything. And if you purchased all of the hundred and thirty some odd kits that it came from, you'd spend something like seven or eight thousand dollars. It's ridiculous. And some people have made castings of stuff, and on the RPF parts slots show up from time to time. Like you know, I managed to get the Porsche transmission that is on both the right and left side of the loading mandibles for the Falcon and stuff like that. But I am not going for a perfect fidelity to the three-foot shooting model, because the three-foot shooting model does not have a perfect fidelity to the six-foot shooting model. Does not have a perfect fidelity to the two-foot, one-foot. At ILM, when you had to do this, you'd get the major details right, and you'd fill the other stuff in because nobody's really paying that close attention.
+[00:23:03] Adam: that has been figured out. Every nut, every bolt, every wheel rim, every everything. And if you purchased all of the hundred and thirty some odd kits that it came from, you'd spend something like seven or eight thousand dollars. It's ridiculous. And some people have made castings of stuff, and on the RPF parts lots show up from time to time. Like you know, I managed to get the Porsche transmission that is on both the right and left side of the loading mandibles for the Falcon and stuff like that. But I am not going for a perfect fidelity to the three-foot shooting model, because the three-foot shooting model does not have a perfect fidelity to the six-foot shooting model. Does not have a perfect fidelity to the two-foot, one-foot. At ILM, when you had to do this, you'd get the major details right, and you'd fill the other stuff in because nobody's really paying that close attention.
 
 [00:23:03] Norm: Well,
 

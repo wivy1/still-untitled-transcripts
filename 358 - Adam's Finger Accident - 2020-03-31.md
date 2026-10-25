@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:09:01] Norm: and that's bad.
 
-[00:09:03] Adam: Yeah, I am meeting my feelings at night. Certainly, having snacking up on the sugar. Hold on, I do have one interesting physical change, which is that Julia pointed out.
+[00:09:03] Adam: Yeah, I am eating my feelings at night. Certainly, having snacking up on the sugar. Hold on, I do have one interesting physical change, which is that Julia pointed out.
 
 [00:09:18] Will: Just to be clear, all this coughing and sneezing is making me very anxious, Adam. If you could cool with the allergies, that would be great.
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:18:52] Norm: yeah, exactly right. You were you you had the the wherewithal to get your phone out with your right hand and document
 
-[00:18:58] Adam: I take a picture of every single. I take a picture of every single injury. This is by far the worst injury I have ever sustained in the [unclear: show].
+[00:18:58] Adam: I take a picture of every single injury. This is by far the worst injury I have ever sustained in the [unclear: show].
 
 [00:19:04] Will: Okay, here we go.
 

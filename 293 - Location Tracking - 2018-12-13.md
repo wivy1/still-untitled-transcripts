@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:01:13] Will: Boy, are your arms tired?
 
-[00:01:14] Adam: This morning, I woke up. I took some pictures for a project that I'm working on and did a little bit of writing. Then I took the one wheel all the way down to the Embarcadero to Green Street where I did pickups for an audio project that I'm working on. Then I came back to the Mission, went to fellow barber for my haircut that I get now every couple of months, and then rushed over to test it where I had a phone call meeting and then we recorded my favorite things.
+[00:01:14] Adam: This morning, I woke up. I took some pictures for a project that I'm working on and did a little bit of writing. Then I took the Onewheel all the way down to the Embarcadero to Green Street where I did pickups for an audio project that I'm working on. Then I came back to the Mission, went to Fellow Barber for my haircut that I get now every couple of months, and then rushed over to Tested where I had a phone call meeting and then we recorded my favorite things.
 
 [00:01:14] Will: Yep.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:03:44] Will: Taylor Stitch. I did Taylor Stitch years and years ago, and they're just down the street at Valencia and and 15th, I think. And they they brought they they do jeans manufacturing and they make really amazing jeans that should cost way more money than they do, and they're like one hundred and fifty bucks. I mean, they were cheaper then.
 
-[00:04:01] Adam: And tailor stitch is a terrific gift certificate to buy someone.
+[00:04:01] Adam: And Taylor Stitch is a terrific gift certificate to buy someone.
 
 [00:04:01] Will: Oh, yeah.
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:06:13] Adam: Right. No, seriously.
 
-[00:06:14] Will: And um and yeah, so I'll be interested to see. The clothes were really like cheap. Like you can go to there’s plenty of tailors here I could go to and get custom stuff made, or I could go to tailor stitch or any number of other places. And yeah, well, I mean, we'll see. I'm I'm interested to see what a fifty dollar white button down that's custom made for me looks like.
+[00:06:14] Will: And um and yeah, so I'll be interested to see. The clothes were really like cheap. Like you can go to there’s plenty of tailors here I could go to and get custom stuff made, or I could go to Taylor Stitch or any number of other places. And yeah, well, I mean, we'll see. I'm I'm interested to see what a fifty dollar white button down that's custom made for me looks like.
 
 [00:06:34] Adam: You know, I I was in Mexico City earlier this year, and one of the things I noticed is that many more people in Mexico wear fitted clothing. You can just see, you can tell the difference, and it's very much the same as like in London and in Europe. You see the same thing. We Americans are very much an off the rack culture, and I really appreciate stuff that's been fitted. And
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:20:04] Adam: looks visually incredible.
 
-[00:20:07] Will: It looks like the most exciting animation I've seen in a long time. Like the stuff that they're doing with stretching, like the the the there was a there's a great talk on I think the first season Simpsons DVDs with Al Jean and and Graining and some of the people who did the the work on those early seasons where they had talked about sending the animation off to Asia to be to be done and being really upset when they got it back and all the characters limbs were all stretchy like a Betty Boop cartoon.
+[00:20:07] Will: It looks like the most exciting animation I've seen in a long time. Like the stuff that they're doing with stretching, like the the the there was a there's a great talk on I think the first season Simpsons DVDs with Al Jean and and Groening and some of the people who did the the work on those early seasons where they had talked about sending the animation off to Asia to be to be done and being really upset when they got it back and all the characters limbs were all stretchy like a Betty Boop cartoon.
 
 [00:20:07] Adam: Oh, right.
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:22:51] Adam: It's good.
 
-[00:22:51] Norm: It's Army Hammer and Man from Uncle, and sorry. Henry Cavill, and that I think was what sold the director on casting him.
+[00:22:51] Norm: It's Armie Hammer and Man from Uncle, and sorry. Henry Cavill, and that I think was what sold the director on casting him.
 
 [00:23:04] Adam: The thing about Cavill is, I mean, he is—he plays a—you know—they describe that Tom Cruise is a scalpel and Cavill is a hammer, and he really is. That's how he plays it. But he also, just with the look on, he turns out to to be an actor of incredible subtlety.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:23:50] Will: He's not in this one.
 
-[00:23:51] Norm: But like Elsa, Elsa Faust. To so like it's continuous. He's the new character. And they play off of that, and the other people have a rapport, and he's just the new guy, and that's where a lot of the humor comes from.
+[00:23:51] Norm: But like Ilsa, Ilsa Faust. To so like it's continuous. He's the new character. And they play off of that, and the other people have a rapport, and he's just the new guy, and that's where a lot of the humor comes from.
 
 [00:24:03] Adam: It's I really enjoyed the spit out of that movie.
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:24:32] Norm: yeah.
 
-[00:24:34] Norm: Rogue Nation Fallout, which that itself is, I think, is a trilogy. It's the it's the Ethan Hunt Elsa Faust relationship.
+[00:24:34] Norm: Rogue Nation Fallout, which that itself is, I think, is a trilogy. It's the it's the Ethan Hunt Ilsa Faust relationship.
 
 [00:24:41] Will: The Brad Bird one is going to be like an in betweener.
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:26:54] Will: Yeah, it's really good.
 
-[00:26:54] Adam: Fabulous. I have been. I've spent the last couple of weeks in fervid pre-production on a new show that I'm working on for the Science Channel. I can't tell you much more about it than that, but I will say the production team is firing on every cylinder, and we are bringing in some some some guests on this show that are pretty amazing, and it's it's working. Like like people are having time to come participate and come play, and I'm really looking forward to reveal more details about this show. And of course, MythBusters Junior, which I shot this summer with six amazing new MythBusters. These kids airs on Wednesday, January second, nine p.m. on the Science Channel. Please watch for it. Please watch it. It is such a beautiful show. The first episode is duct tape tires and duct tape parachute. The duct tape tires were inspired by an article on Jalopnik, and parachute came from one of my producers, Jack's Marker. I thought we were all done with duct tape. I thought we'd done everything you could possibly do with duct tape, and the kids tested two brand new things to an incredible effect. Wait,
+[00:26:54] Adam: Fabulous. I have been. I've spent the last couple of weeks in fervid pre-production on a new show that I'm working on for the Science Channel. I can't tell you much more about it than that, but I will say the production team is firing on every cylinder, and we are bringing in some some some guests on this show that are pretty amazing, and it's it's working. Like like people are having time to come participate and come play, and I'm really looking forward to reveal more details about this show. And of course, MythBusters Junior, which I shot this summer with six amazing new MythBusters. These kids airs on Wednesday, January second, nine p.m. on the Science Channel. Please watch for it. Please watch it. It is such a beautiful show. The first episode is duct tape tires and duct tape parachute. The duct tape tires were inspired by an article on Jalopnik, and parachute came from one of my producers, Jax Marker. I thought we were all done with duct tape. I thought we'd done everything you could possibly do with duct tape, and the kids tested two brand new things to an incredible effect. Wait,
 
 [00:27:59] Will: did you throw the kids out of an airplane with a duct tape parachute?
 

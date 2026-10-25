@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:01:54] Will: Oh God, really?
 
-[00:01:56] Adam: Because well, look, I just want to say that like I don't think that the reason that you stated for sacking them way back in the past, I don't think it's a trivial reason because even what they were doing, even though what they were doing was trivial, it's like A mold that means cancer. It's like that trivial thing that they weren't paying attention to is indicative of their commitment to their job, and thus, if they're not willing to do that small thing, they're not really worth keeping around.
+[00:01:56] Adam: Because well, look, I just want to say that like I don't think that the reason that you stated for sacking them way back in the past, I don't think it's a trivial reason because even what they were doing, even though what they were doing was trivial, it's like A mole that means cancer. It's like that trivial thing that they weren't paying attention to is indicative of their commitment to their job, and thus, if they're not willing to do that small thing, they're not really worth keeping around.
 
 [00:02:19] Will: Well, and and and I don't want to give specifics, but so it was it was basically about not following style
 

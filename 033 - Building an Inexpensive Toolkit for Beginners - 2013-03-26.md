@@ -768,7 +768,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:34:21] Will: Okay.
 
-[00:34:21] Adam: It's a cloth tape with with stick them on both sides. It can be incredibly tenacious, but because it's really thin, it doesn't fill any gaps. So you have to have things that mate perfectly to use carpet tape.
+[00:34:21] Adam: It's a cloth tape with with stickum on both sides. It can be incredibly tenacious, but because it's really thin, it doesn't fill any gaps. So you have to have things that mate perfectly to use carpet tape.
 
 [00:34:33] Will: Okay.
 

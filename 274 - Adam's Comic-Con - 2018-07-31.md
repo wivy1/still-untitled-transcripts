@@ -236,7 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:09:51] Norm: right? Or like you know, when for Breaking Bad, when he wore,
 
-[00:09:56] Adam: yeah, when Brian the Brian Cranston mask
+[00:09:56] Adam: yeah, when Bryan the Bryan Cranston mask
 
 [00:09:59] Norm: the hyper realistic mask. Now you also came back about five to six pounds heavier because you have a new appendage.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:13:13] Will: in his youth, yeah, like he's he's had many, he's had a great many fascinating jobs. You should let him tell the story. It's very good.
 
-[00:13:19] Adam: That's like um on the on the Sci-Fi Wire podcast I did last year, Jonathan Frakes revealed that he played Captain America at malls, as a as a thing in his early twenties. Yeah,
+[00:13:19] Adam: That's like um on the on the Syfy Wire podcast I did last year, Jonathan Frakes revealed that he played Captain America at malls, as a as a thing in his early twenties. Yeah,
 
 [00:13:32] Will: pre-bear, I guess. Yeah,
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:20:52] Will: Yeah. What was your high point, Norm?
 
-[00:20:54] Norm: Oh, I love seeing model ships on the floor. So, like Anovos John Eblan, who previously worked for QMX and now works for Anovos, had studio scale Star Trek Discovery ships, New Enterprise, Discovery, the Shenzo.
+[00:20:54] Norm: Oh, I love seeing model ships on the floor. So, like Anovos John Eblan, who previously worked for QMX and now works for Anovos, had studio scale Star Trek Discovery ships, New Enterprise, Discovery, the Shenzhou.
 
 [00:21:08] Adam: God, that must have been huge.
 
@@ -740,7 +740,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:27:07] Will: Yeah.
 
-[00:27:08] Norm: So there, if you're going to watch that, God, I don't want to get this the name of the movie wrong, but the Davy Diggs movie as well. Is both worth watching?
+[00:27:08] Norm: So there, if you're going to watch that, God, I don't want to get this the name of the movie wrong, but the Daveed Diggs movie as well. Is both worth watching?
 
 [00:27:20] Adam: Right, right, right. What is that movie called?
 
@@ -750,11 +750,11 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:27:26] Norm: It's it's not blindness, but it's oh god.
 
-[00:27:31] Will: While you're looking it up, I want to shout something out. My wife took our daughter to see a screening of Ponyo on like their summer kids movie series at the Draft House yesterday morning.
+[00:27:31] Will: While you're looking it up, I want to shout something out. My wife took our daughter to see a screening of Ponyo on like their summer kids movie series at the Drafthouse yesterday morning.
 
 [00:27:40] Adam: Yeah.
 
-[00:27:40] Will: So they they take one of the smaller theaters, fill it up with kids. The normal Draft House rules are off, so like people can talk and because you have a bunch of kids there.
+[00:27:40] Will: So they they take one of the smaller theaters, fill it up with kids. The normal Drafthouse rules are off, so like people can talk and because you have a bunch of kids there.
 
 [00:27:48] Adam: Yeah.
 

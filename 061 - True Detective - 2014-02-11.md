@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:03:12] Adam: No, and it's something I it's that's actually not by that's not by choice. I would love and San Francisco doesn't yet have a sword fighting group.
 
-[00:03:20] Will: We have a kendo. There’s a, there’s a good kendo class that Brian Lamb tried to get me to go to.
+[00:03:20] Will: We have a kendo. There’s a, there’s a good kendo class that Brian Lam tried to get me to go to.
 
 [00:03:25] Adam: Well, I've been trained in kendo and probably get knowing Brian, he probably went to the same guy.
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:08:22] Norm: I've only—I know there was a syndicated TV show Beastmaster in the '90s.
 
-[00:08:25] Adam: No, no, no. Beastmaster, the movie starring Mark Singer and Tanya Roberts
+[00:08:25] Adam: No, no, no. Beastmaster, the movie starring Marc Singer and Tanya Roberts
 
 [00:08:29] Will: from the the Seventh Angel.
 

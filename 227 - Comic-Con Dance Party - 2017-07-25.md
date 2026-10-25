@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:05:25] Danica: All this is happening while we're waiting for the photo booth, which was its own magical experience.
 
-[00:05:29] Adam: Sci-Fi had a they had the Sci-Fi Nerd HQ party had a a bullet time photo booth. I had not seen that.
+[00:05:29] Adam: Syfy had a they had the Syfy Nerd HQ party had a a bullet time photo booth. I had not seen that.
 
 [00:05:36] Norm: It was an array of cameras, DSLRs, all set up not to capture a animation, but a it was a single moment.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:15:03] Norm: Oh, God.
 
-[00:15:03] Adam: and we all went to Cornwall, England. We stayed in St Ives and drove over to Terry's shop every morning for a week. Terry is, of course. You don't know this, but Terry English, Master Armor, he's made armor for a bazillion movies, from the Harry Potter films and Excalibur, most famously for me. And Terry led us into a shop, and we filmed a whole bunch of videos about how to make armor, how Terry makes armor, the history of his creation, and then together he he let me assist him in making my all-time dream suit of armor.
+[00:15:03] Adam: and we all went to Cornwall, England. We stayed in St Ives and drove over to Terry's shop every morning for a week. Terry is, of course. You don't know this, but Terry English, master armorer, he's made armor for a bazillion movies, from the Harry Potter films and Excalibur, most famously for me. And Terry led us into a shop, and we filmed a whole bunch of videos about how to make armor, how Terry makes armor, the history of his creation, and then together he he let me assist him in making my all-time dream suit of armor.
 
 [00:15:44] Norm: It was the learning process. Anyone who's watched the video of you with Peter Lyon at Weta being almost apprentice for a day to make a sword, this was that over the span of ten days almost.
 
@@ -376,9 +376,9 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:16:18] Adam: Right, the castle. What was that castle?
 
-[00:16:19] Danica: Trigenna. Trigenna.
+[00:16:19] Danica: Tregenna. Tregenna.
 
-[00:16:22] Adam: Trigenna. Thank you.
+[00:16:22] Adam: Tregenna. Thank you.
 
 [00:16:22] Norm: Then we have a lot of stories from that. This is not the podcast stuff about that, but just to say that you guys can look forward to tested members can look forward to a whole series of this armor build, and the armor turned out so wonderfully.
 
@@ -396,11 +396,11 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:17:45] Danica: Yeah,
 
-[00:17:45] Adam: he has not, and he has been. I know, I know, because we. It seems like he's been there because the Woodstock, the backstage at Woodstock, which is a regular part of our Comic Con Thursday night. That scene is all of our mutual friends. It's so many people we both know and love. And same thing last night, but I'm sorry, the same thing Thursday night. But John was there. John did a set at Woodstock, a beautiful set where he finished by singing a Modern Lovers song on the ukulele. It was super amazing, just lovely. He He did. He he he's been developing a one man show and book, and they're kind of a similar thing. And the book is coming out soon called Vacation Land. And he did kind of a piece from Vacation Land, talking about the first time he learned that he owned a septic tank and how those worked in his house in Western Massachusetts. That was awesome. So yeah, Hodgman put on the the raccoon makeup, and he and I walked the floor as Wookies. And people were like, " Minds blown." They were like, " Wookie couple."
+[00:17:45] Adam: he has not, and he has been. I know, I know, because we. It seems like he's been there because the w00tstock, the backstage at w00tstock, which is a regular part of our Comic Con Thursday night. That scene is all of our mutual friends. It's so many people we both know and love. And same thing last night, but I'm sorry, the same thing Thursday night. But John was there. John did a set at w00tstock, a beautiful set where he finished by singing a Modern Lovers song on the ukulele. It was super amazing, just lovely. He He did. He he he's been developing a one man show and book, and they're kind of a similar thing. And the book is coming out soon called Vacationland. And he did kind of a piece from Vacationland, talking about the first time he learned that he owned a septic tank and how those worked in his house in Western Massachusetts. That was awesome. So yeah, Hodgman put on the the raccoon makeup, and he and I walked the floor as Wookiees. And people were like, " Minds blown." They were like, " Wookiee couple."
 
 [00:18:52] Norm: Why would they both have bandoliers? I guess that's just the garb they wear. Yeah.
 
-[00:18:57] Adam: Someone was like, you know, there's not two Wookies, and then no one seemed to care.
+[00:18:57] Adam: Someone was like, you know, there's not two Wookiees, and then no one seemed to care.
 
 [00:19:02] Norm: Yeah, I know exactly. It's more more like the people. It meant that they could take photos between you two.
 
@@ -408,9 +408,9 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:19:07] Norm: Yeah.
 
-[00:19:07] Adam: I mean, and children were just like hugging us. It's like Wookies. Wookies elicit like almost Totoro levels of love.
+[00:19:07] Adam: I mean, and children were just like hugging us. It's like Wookiees. Wookiees elicit like almost Totoro levels of love.
 
-[00:19:15] Norm: And we documented in the video, which you guys will see soon. But the costume, the Wookie costume, that John wore was actually fabricated by a new friend of ours.
+[00:19:15] Norm: And we documented in the video, which you guys will see soon. But the costume, the Wookiee costume, that John wore was actually fabricated by a new friend of ours.
 
 [00:19:24] Adam: Yeah, yeah. Sean Calhoun and Anovos are about to release a licensed Chewbacca costume, and as I said in the panel yesterday, it's it's really hard to get a Chewbacca face right. It's really easy to make Chewbacca's like weird cousin, Joebaca, but it's really hard to get the Chewbacca attitude right. And they so totally did. The fur has the fur on the suit on the bodysuit has been hand matched in the most meticulous way to the original ILM hair samples of Chewbacca from Empire Strikes Back and from Jedi, and it's it's masterpiece. It's amazing, and it's built just like mine. the The hair is latch hooked onto netting, so it is a it is relatively cool costume, even though you sweat. Hodgman loved cosplay. It was his first time.
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:20:14] Danica: yeah. When you guys started taking it all off. I was asking, was do you just like hate Adam and nerds and everything nerds like now? And he was just like, no, we're bonded now for life, like forged in sweat.
 
-[00:20:30] Adam: And he pulled off the mask like this in the car, and I think Gunter was shooting. Yeah, and we got this. He pulled it off. I was like, how's that? He's like, that was great.
+[00:20:30] Adam: And he pulled off the mask like this in the car, and I think Gunther was shooting. Yeah, and we got this. He pulled it off. I was like, how's that? He's like, that was great.
 
 [00:20:39] Danica: Those raccoon eyes. It was such a scene.
 
@@ -574,11 +574,11 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:24:42] Adam: Yes, David Silverman took some pictures and showed them to me. That's he's like these guys were stopping the clock wherever they were, which is totally incredible. And that pink Chewbacca, the hot pink, hot pink was like
 
-[00:24:52] Norm: with a really great Akbar companion. That was also hot pink.
+[00:24:52] Norm: with a really great Ackbar companion. That was also hot pink.
 
-[00:24:57] Adam: Yes, the Akbar. The like the like caricature of Akbar.
+[00:24:57] Adam: Yes, the Ackbar. The like the like caricature of Ackbar.
 
-[00:24:59] Norm: Exactly, it was exaggerated, very wore the foam on its sleeve, on its face, but like a great like. The, the yeah the like the the liver spots on Akbar, but just like foam pads.
+[00:24:59] Norm: Exactly, it was exaggerated, very wore the foam on its sleeve, on its face, but like a great like. The, the yeah the like the the liver spots on Ackbar, but just like foam pads.
 
 [00:25:10] Danica: Yeah.
 
@@ -606,9 +606,9 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:25:52] Norm: crazy amount of detail.
 
-[00:25:54] Adam: Yeah. Yeah. I spent some time with John Eblen, who's a master model maker. He did that beautiful model of the of the Firefly.
+[00:25:54] Adam: Yeah. Yeah. I spent some time with John Eblan, who's a master model maker. He did that beautiful model of the of the Firefly.
 
-[00:26:01] Norm: Yeah. So he works at Quantum Mechanics.
+[00:26:01] Norm: Yeah. So he works at Quantum Mechanix.
 
 [00:26:03] Adam: Yes.
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:26:15] Danica: No.
 
-[00:26:15] Norm: So every year, Quantum Mechanics reveals a great miniature, right, from their their effects shop.
+[00:26:15] Norm: So every year, Quantum Mechanix reveals a great miniature, right, from their their effects shop.
 
 [00:26:15] Adam: Yeah.
 
@@ -902,7 +902,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:37:59] Adam: right. Yes.
 
-[00:38:18] Danica: Oh, you were talking about what it is to trust your actors. When I was talking to Michael about it, because I had to at Woodstock, I had to gush a little bit at least about it because it was such a, a nice, experience.
+[00:38:18] Danica: Oh, you were talking about what it is to trust your actors. When I was talking to Michael about it, because I had to at w00tstock, I had to gush a little bit at least about it because it was such a, a nice, experience.
 
 [00:38:18] Adam: Yeah.
 

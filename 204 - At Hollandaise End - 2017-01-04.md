@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:02:14] Norm: No, no,
 
-[00:02:14] Adam: No, no, no. Anyway, it's a it's a real Electra two boiler system, and it was in the house when we bought it.
+[00:02:14] Adam: No, no, no. Anyway, it's a it's a real Elektra two boiler system, and it was in the house when we bought it.
 
 [00:02:25] Norm: So it's it's plugged into your water.
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:03:02] Norm: We're not pod people. No pods.
 
-[00:03:03] Adam: So so we bought the house in 2010. It had this beautiful chrome Electra machine plumbed into it. We stared at that machine for three months.
+[00:03:03] Adam: So so we bought the house in 2010. It had this beautiful chrome Elektra machine plumbed into it. We stared at that machine for three months.
 
 [00:03:13] Will: That's a it's a hard machine. Just to be clear,
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:03:15] Will: Yeah,
 
-[00:03:15] Adam: I mean, it's just everyone feels that there's only one method, and everybody else is an idiot. So there's no way to then or overlap advice in the coffee realm. as far as I can tell,
+[00:03:15] Adam: I mean, it's just everyone feels that there's only one method, and everybody else is an idiot. So there's no way to Venn or overlap advice in the coffee realm. as far as I can tell,
 
 [00:03:39] Will: it's also complicated by the fact that a lot of times what people like in terms of coffee is what they grew up with. So if you grew up in a house where somebody had a percolator, then you're going to prefer horrible, nasty, burned percolator coffee. If you grew up in a house where somebody's making espresso in Australia, then you're going to be into espresso, you know, and
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:21:27] Will: Thinking about it.
 
-[00:21:27] Adam: not being able to talk to your family, not being able to do anything except go into the hotel room for the better part of a year. And it's not like that's an explanation. It's not like that's an explanation, but she's giving you and she has a really impressive way of giving you an insight into how complicated it was for the jury.
+[00:21:27] Adam: not being able to talk to your family, not being able to do anything except go into the hotel room for the better part of a year. And it's not like that's an explanation, but she's giving you and she has a really impressive way of giving you an insight into how complicated it was for the jury.
 
 [00:21:46] Will: Oh, I mean, I can't imagine. Like you look at something like Survivor, where people are taken out on an island and dumped there, away from family and friends, for twenty days. And and this is two hundred and sixty-two nights is insane.
 
@@ -1066,7 +1066,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:41:51] Norm: Happy Holland days.
 
-[00:41:52] Will: Did you? I I did the thing the other day with the immersion. Do you know about the Holland days with the immersion blender?
+[00:41:52] Will: Did you? I I did the thing the other day with the immersion. Do you know about the Hollandaise with the immersion blender?
 
 [00:41:52] Adam: What?
 

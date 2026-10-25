@@ -28,11 +28,11 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:00:48] Kayte: Yeah, I've been hibernating. Basically.
 
-[00:00:50] Adam: Is it time maybe to bring you in to start painting Kane?
+[00:00:50] Adam: Is it time maybe to bring you in to start painting Cain?
 
 [00:00:53] Kayte: I'm I'm always ready to do that.
 
-[00:00:55] Adam: Okay. Okay, I think it might be time to start on Kane
+[00:00:55] Adam: Okay. Okay, I think it might be time to start on Cain
 
 [00:00:55] Kayte: Yay!
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:12:06] Kayte: Well, something I have found about it that is actually a really great balance is that when you're going after it and you're doing this to find your happiness or because it makes you happy, you'll have these down times, and it starts to weigh on you, thinking like, No, all I'm looking for is like to do what I want. But on the other hand, when something really bad happens in your life, and when you're struggling, and you have that to turn to, it becomes your antidepressant. Like it becomes your boost, and all of a sudden, you're getting much more done than you ever thought you could. And it's like by the time you you pause and look around, you realize you've gotten through whatever that hard thing was. So like each time I've struggled with something in my personal life. It's like turning to your craft and your art is such a great motivator, and I feel like I've met a lot of really successful hyper creative people who have said like this is how you stay sane, like having that outlet.
 
-[00:13:03] Adam: There's a there's a wonderful story that Baba Ramdas tells about having been in an ashram in India when his mother died, and flying back to the states dressed in robes of a of a monk, and he sees his dad who's like a Republican businessman, and his dad and he have no idea how to talk to each other, and they certainly have no idea how to help each other through the grief of his mother and his wife dying. And Ramdas is in the house for a couple of days when he initiates with his dad to take care of some canning that his mom hadn't gotten to yet, canning a bunch of food that she'd prepared, and after about a day of it, looking up and seeing his dad. Genuinely smiling at the work they were doing together—that just that labor in the face of something that you can't process or that you need time to to figure out a way through—is really, really healing.
+[00:13:03] Adam: There's a there's a wonderful story that Baba Ram Dass tells about having been in an ashram in India when his mother died, and flying back to the states dressed in robes of a of a monk, and he sees his dad who's like a Republican businessman, and his dad and he have no idea how to talk to each other, and they certainly have no idea how to help each other through the grief of his mother and his wife dying. And Ram Dass is in the house for a couple of days when he initiates with his dad to take care of some canning that his mom hadn't gotten to yet, canning a bunch of food that she'd prepared, and after about a day of it, looking up and seeing his dad. Genuinely smiling at the work they were doing together—that just that labor in the face of something that you can't process or that you need time to to figure out a way through—is really, really healing.
 
 [00:13:59] Kayte: Yeah, definitely.
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:29:40] Melissa: It's okay. We're all crying in a ball.
 
-[00:29:43] Adam: Pretty much, pretty much. Um, Anna Marie Cox on her Twitter feed. On particularly difficult days, like the day the Mueller report came out, she loves asking people, " Okay, everyone, send me pictures of your pets." And that just be this mega thread of pet pictures. Like, we have to do this together.
+[00:29:43] Adam: Pretty much, pretty much. Um, Ana Marie Cox on her Twitter feed. On particularly difficult days, like the day the Mueller report came out, she loves asking people, " Okay, everyone, send me pictures of your pets." And that just be this mega thread of pet pictures. Like, we have to do this together.
 
 [00:30:03] Norm: I'm going to change the topic,
 
@@ -552,7 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:38:52] Adam: What's coming up on the site this week?
 
-[00:38:53] Norm: I have no idea because it will air in two weeks. Oh, yes, probably Monster Palooza, probably this weekend. I don't know, maybe depending on which date it airs, it'll be great stuff. I'm not going to make promises on things.
+[00:38:53] Norm: I have no idea because it will air in two weeks. Oh, yes, probably Monsterpalooza, probably this weekend. I don't know, maybe depending on which date it airs, it'll be great stuff. I'm not going to make promises on things.
 
 [00:38:53] Adam: No, I think that's totally reasonable, Norm.
 

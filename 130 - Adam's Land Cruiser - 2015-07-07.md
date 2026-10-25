@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:16:02] Adam: Oh wow!
 
-[00:16:02] Will: And, and my grandparents' farm up in Northern Virginia when I was a kid, it's, it's left-hand drive, like the same person would would have. But when you put that thing into the low gear, it would drive. You could take a fallen tree tree trunk that was, you know, twenty-four inches diameter, and it would just drive right over it if it if it had clearance to get over. You could go right up on it, no problem. It was amazing.
+[00:16:02] Will: And, and my grandparents' farm up in Northern Virginia when I was a kid, it's, it's left-hand drive, like the sane person would would have. But when you put that thing into the low gear, it would drive. You could take a fallen tree tree trunk that was, you know, twenty-four inches diameter, and it would just drive right over it if it if it had clearance to get over. You could go right up on it, no problem. It was amazing.
 
 [00:16:32] Adam: We, we, I took my boys camping down in a place called the Tumey Hills a few years ago, which is BLM land, which means where we camped there were shell casings everywhere.
 

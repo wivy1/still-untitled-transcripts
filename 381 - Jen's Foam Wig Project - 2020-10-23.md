@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=EEgc5m5LWPk
 
 [00:04:48] Adam: Okay, so when you were doing your research and you found all the pieces, there was a certain point in which you decided, oh, I'm going to do this. So you decided upon the size.
 
-[00:04:55] Jen: Yeah, I did, and and this is covered in the video, but I did a huge cardboard prototype first. So I made I plastic wrapped my whole head to make the pattern. And taped it, and you know, made made the cap, and then I I took actually I have them right here. I made all these paper, you know, I attached paper and cardboard. I made a cardboard thin structure, and then put the the paper pieces on it to figure all of this out before I started cutting it in foam. Right. And then use I used all these to make the patterns for the foam pieces.
+[00:04:55] Jen: Yeah, I did, and and this is covered in the video, but I did a huge cardboard prototype first. So I made I plastic wrapped my whole head to make the pattern. And taped it, and you know, made made the cap, and then I I took actually I have them right here. I made all these paper, you know, I attached paper and cardboard. I made a cardboard fin structure, and then put the the paper pieces on it to figure all of this out before I started cutting it in foam. Right. And then use I used all these to make the patterns for the foam pieces.
 
 [00:05:28] Adam: Ah, was there a point in which you decided on the size where you were like, I'm not sure I'm right about this. This might be too big.
 

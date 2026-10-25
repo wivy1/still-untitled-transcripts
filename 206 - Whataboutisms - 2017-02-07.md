@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:01:25] Simone: What's the biggest thing that's happened?
 
-[00:01:26] Adam: The biggest thing is that I was in. I went to Europe. I just was in Los Angeles and Europe for a couple of weeks. I've been filming a job for a client, which will become apparent in the next few couple of months. Working with a wonderful co-host, science communicator Ali Ward. She's fantastic and really awesome. And so I, my son also, thing two performed in London as part of an a cappella conference that was happening there with his vocal troupe from Oakland School for the Arts. Okay. Um. So. It happened to be that I was able to dovetail a business trip on going to London, so I flew to London on a Friday, saw him perform, hung out there Friday and Saturday, flew to Berlin on Sunday, spent 24 hours in Berlin, saw two of the oldest friends I have in the world, the amazing Stephen and Dagmar, who met because when I got married the first time, Steve Stephen didn't get the address to my bachelor party and was in the wrong hotel
+[00:01:26] Adam: The biggest thing is that I was in. I went to Europe. I just was in Los Angeles and Europe for a couple of weeks. I've been filming a job for a client, which will become apparent in the next few couple of months. Working with a wonderful co-host, science communicator Alie Ward. She's fantastic and really awesome. And so I, my son also, thing two performed in London as part of an a cappella conference that was happening there with his vocal troupe from Oakland School for the Arts. Okay. Um. So. It happened to be that I was able to dovetail a business trip on going to London, so I flew to London on a Friday, saw him perform, hung out there Friday and Saturday, flew to Berlin on Sunday, spent 24 hours in Berlin, saw two of the oldest friends I have in the world, the amazing Stephen and Dagmar, who met because when I got married the first time, Steve Stephen didn't get the address to my bachelor party and was in the wrong hotel
 
 [00:02:26] Simone: Oh.
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:05:06] Adam: Amazing, amazing. My, you know, my boys are so. While thing two was with me in Germany, thing one was enjoying a break from his boarding school down in New York City. He was staying with my mom outside the city and going into the city every day, having a kind of wonderful grown-up vacation. The boys are like they're charming, wonderful adults.
 
-[00:05:26] Simone: I saw things two acapella show here in San Francisco.
+[00:05:26] Simone: I saw Thing Two's a cappella show here in San Francisco.
 
 [00:05:26] Adam: Yes.
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:29:34] Simone: Oh, really?
 
-[00:29:34] Norm: you know, and that's a tease because the guys haven't seen this yet. But one of our new friends is Angus McLean, who's a Pixar director and
+[00:29:34] Norm: you know, and that's a tease because the guys haven't seen this yet. But one of our new friends is Angus MacLane, who's a Pixar director and
 
 [00:29:46] Adam: master Lego builder.
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:33:55] Adam: Okay, um, I I can I can hook you up. I have a couple of extras here.
 
-[00:33:59] Norm: Yeah, and since Adam's been gone, we've been doing a lot of build projects in the office. Things that will be unveiled on the site. Sean and Jeremy, things I want to tell everyone they work. They're working on a new video series for us. It's called Bits to Adams. Their first project we just unveiled last week was a Mame cabinet. They turned a Coleco old school. Like Donkey Kong style, small tabletop arcade cabinet into an arcade Mame machine, and it's all 3D printed. Um, well, you'll be pleased. Sean was able to model and 3D print dovetails into his
+[00:33:59] Norm: Yeah, and since Adam's been gone, we've been doing a lot of build projects in the office. Things that will be unveiled on the site. Sean and Jeremy, things I want to tell everyone they work. They're working on a new video series for us. It's called Bits to Atoms. Their first project we just unveiled last week was a Mame cabinet. They turned a Coleco old school. Like Donkey Kong style, small tabletop arcade cabinet into an arcade Mame machine, and it's all 3D printed. Um, well, you'll be pleased. Sean was able to model and 3D print dovetails into his
 
 [00:33:59] Adam: Awesome.
 
@@ -736,7 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:36:46] Norm: There you go.
 
-[00:36:47] Adam: Still tickets available for most shows. We're sold out of a few of them. So if you're thinking about coming, um, come. Uh, the thing that I've been saying to people is, brain candy is that feeling of understanding in your head, right? So the I came across this while reading a paper about. I came across this one fact I love while reading a paper about combustion because that's the kind of thing I do in my spare time, and this paper said combustion is an exothermic reaction that uses hydrocarbons and oxygen to create heat and light. That's pretty unassailable, and they asked rhetorically, " What is the opposite of combustion? " And they pointed out that photosynthesis. Is an endothermic reaction that uses CO two and light and heat to create oxygen and hydrocarbons. So the opposite of a fire is a plant.
+[00:36:47] Adam: Still tickets available for most shows. We're sold out of a few of them. So if you're thinking about coming, um, come. Uh, the thing that I've been saying to people is, brain candy is that feeling of understanding in your head, right? So the I came across this one fact I love while reading a paper about combustion because that's the kind of thing I do in my spare time, and this paper said combustion is an exothermic reaction that uses hydrocarbons and oxygen to create heat and light. That's pretty unassailable, and they asked rhetorically, " What is the opposite of combustion? " And they pointed out that photosynthesis. Is an endothermic reaction that uses CO two and light and heat to create oxygen and hydrocarbons. So the opposite of a fire is a plant.
 
 [00:37:38] Unknown speaker: Wow!
 

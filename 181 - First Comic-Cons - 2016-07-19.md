@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:09:33] Rebecca: Yeah, I love them.
 
-[00:09:35] Adam: It's hard to you know. There was a time I didn't know Will.
+[00:09:35] Adam: It's hard to you know. There was a time I didn't know Wil.
 
 [00:09:39] Rebecca: What?
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:12:40] Norm: Oh my god!
 
-[00:12:40] Adam: So it was Frakes and Lavar and Brent and
+[00:12:40] Adam: So it was Frakes and LeVar and Brent and
 
 [00:12:44] Norm: Marina.
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:14:13] Adam: We build BSG models here.
 
-[00:14:14] Norm: That's right. Yeah. And then we so we tested entourage along with you know Kishore and Indre from Inquiring Minds. We were going to go to after a big panel to the Aaron Douglas party, and Adam, our producer, knows Aaron, and so we got to his hotel room, knocked door, no one picked up, like no one answers. Oh, maybe it's loud in there, and they couldn't hear. So call call Aaron up. Dialed it, no one picked up, and then we're hovering. How long should we hover out here? You know, we just go to another party, and then down the elevator we hear the door open. The elevator—it's the service elevator, so you know it's someone special when it's a service elevator at DragonCon. And first, and then out comes Jamie Bamber, Apollo. Okay, he's got to be here for the party. But then behind him, it's Gaius, and then Trisha Helfer, and then and then it's Adama comes out, and it's
+[00:14:14] Norm: That's right. Yeah. And then we so we tested entourage along with you know Kishore and Indre from Inquiring Minds. We were going to go to after a big panel to the Aaron Douglas party, and Adam, our producer, knows Aaron, and so we got to his hotel room, knocked door, no one picked up, like no one answers. Oh, maybe it's loud in there, and they couldn't hear. So call call Aaron up. Dialed it, no one picked up, and then we're hovering. How long should we hover out here? You know, we just go to another party, and then down the elevator we hear the door open. The elevator—it's the service elevator, so you know it's someone special when it's a service elevator at DragonCon. And first, and then out comes Jamie Bamber, Apollo. Okay, he's got to be here for the party. But then behind him, it's Gaius, and then Tricia Helfer, and then and then it's Adama comes out, and it's
 
 [00:15:07] Adam: Edward,
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:17:57] Adam: Yeah,
 
-[00:17:57] Rebecca: I am in love with John Benjamin.
+[00:17:57] Rebecca: I am in love with Jon Benjamin.
 
 [00:18:00] Norm: He’s in Master of None, Also,
 
@@ -762,7 +762,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:24:50] Rebecca: Yes.
 
-[00:24:50] Norm: Busy week. We'll have a lot of content from testing on site. There's going to be the Star Trek Beyond premiere. The movie comes out like this Friday.
+[00:24:50] Norm: Busy week. We'll have a lot of content from Tested on site. There's going to be the Star Trek Beyond premiere. The movie comes out like this Friday.
 
 [00:24:56] Adam: That's right. The premiere is at Comic Con Wednesday night with the full orchestra in IMAX outdoors. The first time all of that has happened together.
 

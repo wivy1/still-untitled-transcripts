@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:01:10] Will: Hey, welcome back to San Francisco.
 
-[00:01:12] Adam: Thank you. It's so nice to be back. I rode my one wheel over to Ritual Coffee this morning.
+[00:01:12] Adam: Thank you. It's so nice to be back. I rode my Onewheel over to Ritual Coffee this morning.
 
 [00:01:16] Will: Wow,
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:09:33] Adam: Also, we have to we have to load in the show. You know, it's a full it's a full day of loading in the show, so the crew needs time to do that. And it's amazing the alchemy of how they do it, right? Because they're also choosing cities we've played well in before, cities that have expressed demand, and we're working out deals with different theaters for their availability. It's just, it's I'm I'm amazed that it works.
 
-[00:09:53] Will: Do you do you still like when when you first did this and you first went out on the tour and you were in the bus and you were driving around the country? We talked about almost famous a lot, as I recall. And do you still feel kind of like a rock star when you are tooling around the country and like you get places and t here is a big crowd and they're all excited to see you?
+[00:09:53] Will: Do you do you still like when when you first did this and you first went out on the tour and you were in the bus and you were driving around the country? We talked about almost famous a lot, as I recall. And do you still feel kind of like a rock star when you are tooling around the country and like you get places and there is a big crowd and they're all excited to see you?
 
 [00:10:08] Adam: No, it's yeah, it's awesome. And I will also say, Michael Stevens and I have a very similar. We're quite similar in how we enjoy dealing with people, and so we used to do meet and greets for fifty people every night. But Michael Stevens and I on this tour did a hundred people every night, and it honestly felt almost shorter.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:11:27] Will: He's sitting over there with the with the yeah.
 
-[00:11:29] Norm: Um, but I was down in the Los Angeles area in Pasadena, and the reason I couldn't make the show is because we were at Monster Palooza, which we've been to before. It's convention for makeup and special effects artists, and um, you know, we've been to a bunch of Comic Cons, Wonder Cons, pop culture conventions, and love those shows. But the shows that I love more now are these smaller underground, more industry-based shows, Designer Con, Monster Palooza. One of these days, we're gonna make it over to to Wonderfest, but it's it's not not a lot of media coverage, but the artists and the creative people we meet there are just extremely talented.
+[00:11:29] Norm: Um, but I was down in the Los Angeles area in Pasadena, and the reason I couldn't make the show is because we were at Monsterpalooza, which we've been to before. It's convention for makeup and special effects artists, and um, you know, we've been to a bunch of Comic Cons, Wonder Cons, pop culture conventions, and love those shows. But the shows that I love more now are these smaller underground, more industry-based shows, DesignerCon, Monsterpalooza. One of these days, we're gonna make it over to to Wonderfest, but it's it's not not a lot of media coverage, but the artists and the creative people we meet there are just extremely talented.
 
 [00:11:29] Adam: Wow!
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:12:20] Adam: That's really cool.
 
-[00:12:21] Will: Well, and and it's it's if it's like I've never been to Monster Palooza, but when we went to the coffee convention, we went to some of these smaller things that are for specialty industries. Like it's the people who are the best in the world at the thing that they do, showing off for the other people that are the best in the world at the thing they do, and it's it's like that is awesome every time.
+[00:12:21] Will: Well, and and it's it's if it's like I've never been to Monsterpalooza, but when we went to the coffee convention, we went to some of these smaller things that are for specialty industries. Like it's the people who are the best in the world at the thing that they do, showing off for the other people that are the best in the world at the thing they do, and it's it's like that is awesome every time.
 
 [00:12:38] Adam: Totally agree.
 
@@ -322,11 +322,11 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:13:32] Adam: But so so
 
-[00:13:32] Norm: yes yes so very well attended super well attended we're gonna have videos all throughout this week on the site about it I am gonna call it some highlights we met up with a sculptor named Andrew Freeman who runs Immortal Mass
+[00:13:32] Norm: yes yes so very well attended super well attended we're gonna have videos all throughout this week on the site about it I am gonna call it some highlights we met up with a sculptor named Andrew Freeman who runs Immortal Masks
 
 [00:13:34] Unknown speaker: oh yeah
 
-[00:13:32] Norm: they make the silicone mass and he did a incredibly surreal rendition of Ren and Stimpy
+[00:13:32] Norm: they make the silicone masks and he did a incredibly surreal rendition of Ren and Stimpy
 
 [00:13:51] Adam: oh really
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:16:58] Adam: really, really fun. Even if you don't, if you're not good at sculpting, it's worth trying painting. I, I, when I painted my King Kong and my Fay Wray, that's where I learned that figure painting is done in the same way that we put on clothes, which means you like you paint the naked body first, and then you paint the clothes on top, and you each successive article of clothing is the lay like the outermost layer is the last thing you paint. And it was like I went with some YouTube tub torial tub tutorials tutorials in order to understand that, and then again, just as I've said, you know, many many times, the weathering and the final tying in of stuff is some of the most fun to do.
 
-[00:17:39] Will: Well, when when Frank came up and did we did a week of build with the with the sculpt. I think you bought those at Monster Palooza too.
+[00:17:39] Will: Well, when when Frank came up and did we did a week of build with the with the sculpt. I think you bought those at Monsterpalooza too.
 
 [00:17:39] Adam: Yeah,
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:18:45] Will: like that's on Halloween weekend or something. Usually, is that something else?
 
-[00:18:47] Norm: Some sometime in the fall. I want to make sure exactly. Son of Monster Palooza. But the other thing I want to talk about because I drove down LA,
+[00:18:47] Norm: Some sometime in the fall. I want to make sure exactly. Son of Monsterpalooza. But the other thing I want to talk about because I drove down LA,
 
 [00:18:47] Adam: yeah,
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:25:20] Will: black market theater. scalp those tickets, Adam Savage
 
-[00:25:22] Adam: from Tested.com. I wanted to talk about something you haven't seen, well, but I'm willing to spoil it for you.
+[00:25:22] Adam: from Tested.com. I wanted to talk about something you haven't seen, Will, but I'm willing to spoil it for you.
 
 [00:25:30] Will: Colossal.
 

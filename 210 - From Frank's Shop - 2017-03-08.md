@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:03:44] Norm: Oh. Did they do any funky, funky pressings with different colors or materials?
 
-[00:03:48] Adam: Oh yeah, no, no, no. I'm not going to spoil anything because they're doing some radically cool stuff over there. Suffice to say, tested. We we will visit there and and go cover the amazing thing they're doing in the cast in Detroit. And then I went next door to Shinola, and I bought myself a Shinola watch because it was time.
+[00:03:48] Adam: Oh yeah, no, no, no. I'm not going to spoil anything because they're doing some radically cool stuff over there. Suffice to say, tested. We we will visit there and and go cover the amazing thing they're doing in the Cass in Detroit. And then I went next door to Shinola, and I bought myself a Shinola watch because it was time.
 
 [00:04:12] Norm: The lightning bolt. Did you get to go behind the scenes and see where they assemble the watches?
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:27:18] Adam: Right, right, right, right, right. Okay, I I'll buy that.
 
-[00:27:23] Norm: Yeah, and and it's also one of those categories. Like people say, how sci-fi films will never win Best Picture because that's not what people want to recognize. On makeup, it is. It feels like it's the opposite, where people like they want to see the flashy thing when, or they want to see the most the thing that the most transformative thing when.
+[00:27:23] Norm: Yeah, and and it's also one of those categories. Like people say, how sci-fi films will never win Best Picture because that's not what people want to recognize. On makeup, it is. It feels like it's the opposite, where people like they want to see the flashy thing win, or they want to see the most the thing that the most transformative thing win.
 
 [00:27:41] Frank Ippolito: Yeah, but transformative isn't always what the Academy's looking and what you know what the peers are looking at. We talk about this on my podcast all the time. Like doing a big, bloody, gory makeup is not something that most of my peers are super impressed by. Like, yeah, there's there's really nice ones done, but you know, you can do like really simple nose makeups, like just like super small prosthetics, like things that you'll never ever see, and that's way more impressive. To me and my peers, than big, crazy, over-the-top monsters, and that's I think that's what the academy looks for—is those those little subtle things.
 
@@ -494,9 +494,9 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:34:08] Norm: Yes, we have one teaser. Sorry. Yeah, that's right. Adam, you're coming back in April. Yeah. There's gonna be a bunch of conventions in April. Frank and I are going to be at some as well. Yeah. There's gonna be Silicon Valley Comic Con. There's gonna be WonderCon,
 
-[00:34:22] Frank Ippolito: Monster Palooza,
+[00:34:22] Frank Ippolito: Monsterpalooza,
 
-[00:34:23] Norm: Monster Palooza. Frank is unveiling a new makeup that he's been working on.
+[00:34:23] Norm: Monsterpalooza. Frank is unveiling a new makeup that he's been working on.
 
 [00:34:28] Norm: At
 

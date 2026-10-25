@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=m7aqiOUOibI
 
 [00:19:08] Adam: Oh, are there?
 
-[00:19:08] Norm: Oh, I mean, in cut screen.
+[00:19:08] Norm: Oh, I mean, in flat screen.
 
 [00:19:10] Adam: Oh, yes, yes, yes.
 
@@ -314,11 +314,11 @@ Episode URL: https://www.youtube.com/watch?v=m7aqiOUOibI
 
 [00:34:05] Adam: And for instance, I was looking at. I started looking at what what was available on YouTube on the Oculus browser and the YouTube VR content, and one of the things I found was, you know, when you're looking at the YouTube content not in 360 VR but in the 2D where it's big and wide, there's an aspect to it where the contrast ratio and the the super wide angle looks so compelling and kind of really beautiful. And then when you on a lot of them you click to the full 3D 360 and it it craps the bed, right? You're way closer into it, and the resolution drops significantly, and it doesn't have that same compelling feeling. And again, it's it's it's dependent on going into the environment rather than looking at it from outside.
 
-[00:34:47] Joey Fameli: There was during production, going back to the picture-in-picture when we were shooting the close-ups with the. You know, sixty-nine camera, and then looking at the feed of the of the of the VR camera on the computer screen, iPad, I'd be like, " All right, let me just punch in on this picture in picture camera, get close, and then you put the headset on. I'm like, I see, I'm like, I'm closer in the VR set that I am in that camera,
+[00:34:47] Joey Fameli: There was during production, going back to the picture-in-picture when we were shooting the close-ups with the. You know, 16:9 camera, and then looking at the feed of the of the of the VR camera on the computer screen, iPad, I'd be like, " All right, let me just punch in on this picture in picture camera, get close, and then you put the headset on. I'm like, I see, I'm like, I'm closer in the VR set that I am in that camera,
 
 [00:35:08] Adam: Right.
 
-[00:35:08] Joey Fameli: just because of the way, you know, you're the way you're looking at that on a two D surface. So we were overcompensating by like zooming in on the sixty-nine camera way more than we should have because I knew at that point going into editing, like this is not gonna.
+[00:35:08] Joey Fameli: just because of the way, you know, you're the way you're looking at that on a two D surface. So we were overcompensating by like zooming in on the 16:9 camera way more than we should have because I knew at that point going into editing, like this is not gonna.
 
 [00:35:21] Norm: And so much of this almost analogous to the very early days of film filmmaking because we were essentially like testing daily shots.
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=m7aqiOUOibI
 
 [00:40:19] Adam: Wow.
 
-[00:40:19] Eric Cheng: And so there are a few of these cameras now. Actually, these are all the cameras that are out right now as we're filming this. This is it. And this is a Kanda KuCam, which has three three different lenses, so you can shoot in 180 mode here. Audience is over there, and then. You can flip it up here and shoot in 360. So, you know, these are smaller sensor consumer cameras, generally much less costly than something like this, and they all shoot in formats that look pretty good in headset. You know, you can get close to what we shot. Of course, I think the larger sensor makes things a lot cleaner and sharper in general.
+[00:40:19] Eric Cheng: And so there are a few of these cameras now. Actually, these are all the cameras that are out right now as we're filming this. This is it. And this is a Kandao QooCam, which has three three different lenses, so you can shoot in 180 mode here. Audience is over there, and then. You can flip it up here and shoot in 360. So, you know, these are smaller sensor consumer cameras, generally much less costly than something like this, and they all shoot in formats that look pretty good in headset. You know, you can get close to what we shot. Of course, I think the larger sensor makes things a lot cleaner and sharper in general.
 
 [00:40:55] Norm: Lighting matters a lot.
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=m7aqiOUOibI
 
 [00:44:40] Adam: I put feedback loops in my speakers, and I get whatever I want out of them. And this sounds like digitally, the same thing is happening.
 
-[00:44:46] Eric Cheng: Yeah, I mean, so what I said was was a simplification, but the important thing is that it happens automatically for most of these. So they're all of these cameras ship with some free tool that just converts what comes out of camera to a half-rectangular format, which is the standard for this in this space, and that gets pulled into Premiere, and Premiere can it connects to a headset, and you can view it in you know Oculus Rift, any connected headset in real time. So you can actually edit from from headset.
+[00:44:46] Eric Cheng: Yeah, I mean, so what I said was was a simplification, but the important thing is that it happens automatically for most of these. So they're all of these cameras ship with some free tool that just converts what comes out of camera to a half-equirectangular format, which is the standard for this in this space, and that gets pulled into Premiere, and Premiere can it connects to a headset, and you can view it in you know Oculus Rift, any connected headset in real time. So you can actually edit from from headset.
 
 [00:45:12] Adam: Wow! Wow! From headset.
 

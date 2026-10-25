@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:04:30] Will: okay.
 
-[00:04:32] Adam: Norman Adam, take Japan. I saw a wonderful movie this week.
+[00:04:32] Adam: Norm and Adam take Japan. I saw a wonderful movie this week.
 
 [00:04:32] Norm: Oh,
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:09:38] Will: Yeah, or or um, or what was the what was the?
 
-[00:09:41] Adam: I am not meaning. Will's wife is very old, by the way. I am just saying it's a nice romantic movie.
+[00:09:41] Adam: I am not meaning Will's wife is very old, by the way. I am just saying it's a nice romantic movie.
 
 [00:09:44] Will: Yes, I was going to go the other way and say that it's like the movie about the people that have relationships on the playground or whatever. Anyway, um, what were we going to talk about, Adam?
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:15:58] Adam: Um, I wait. I just paused. Yeah, that Wired article. I want to just do a look. They're friends of mine. Adam Rogers is a good friend of mine, and I haven't met him, but Rhett Allain, who writes a lot of the Wired science stuff, just keeps. Killing it, and because Adam's a friend of mine, when I come across a Wired article, I think is great. I forward it. I like. I basically text him the link and go, " This is awesome," or " Oh, you maybe didn't know about this." But most of the time, it's just to say, " Awesome!" And it's almost always one of Rhett's articles.
 
-[00:16:28] Norm: He writes the physics blog on Wired, kind of like the physics equivalent of what Phil Plait does for Astronomer on Slate.
+[00:16:28] Norm: He writes the physics blog on Wired, kind of like the physics equivalent of what Phil Plait does for astronomy on Slate.
 
 [00:16:36] Adam: He's a wonderful communicator.
 

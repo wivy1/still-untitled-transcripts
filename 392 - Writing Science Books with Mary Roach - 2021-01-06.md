@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:30:10] Mary Roach: Yes.
 
-[00:30:10] Adam: With like the endless forwards, one after the other. X I X I. You know, all the fake page numbering that happens before page one.
+[00:30:10] Adam: With like the endless forewords, one after the other. X I X I. You know, all the fake page numbering that happens before page one.
 
 [00:30:18] Mary Roach: Totally, I would love that. No, I've tried. I've always. I want a boxed set. I want them to do a boxed set, like really gorgeous kind of box. Yeah, I've suggested it. Never happens.
 

@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:01:45] Adam: And the title of the poem is Tablespoons because that's as close as the Newton could get to Jabberwocky.
 
-[00:01:45] Will: Well, so back in the day, I was a pretty accomplished Palm Pilot user. You know, I was a Palm Three, Palm Five. We used them for work, and once you got the knack of that Jot stuff that you used on, or whatever the thing was called Jot, I can't remember, but it was like it was. Almost like stenography, you had a specific set of. It was almost like cording with you know. You made a symbol and it and it translated that and it was really fast.
+[00:01:45] Will: Well, so back in the day, I was a pretty accomplished Palm Pilot user. You know, I was a Palm Three, Palm Five. We used them for work, and once you got the knack of that Jot stuff that you used on, or whatever the thing was called Jot, I can't remember, but it was like it was. Almost like stenography, you had a specific set of. It was almost like chording with you know. You made a symbol and it and it translated that and it was really fast.
 
 [00:01:45] Adam: That language. Yeah, it was very. It was easy to learn.
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:04:22] Will: Okay,
 
-[00:04:22] Adam: John, who's the ethicist of the New York Times? John Mo, who's
+[00:04:22] Adam: John, who's the ethicist of the New York Times? John Moe, who's
 
 [00:04:25] Will: well, he's the is he the ethicist or is he the
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:04:40] Will: absolutely. A person of note.
 
-[00:04:41] Adam: A person of note. A wonderful, wonderful mind. John Mo, who is the host of the awesome NPR show Wits, on which I have appeared singing as Gollum on the phone when Neil Gaiman called me up and asked me to
+[00:04:41] Adam: A person of note. A wonderful, wonderful mind. John Moe, who is the host of the awesome NPR show Wits, on which I have appeared singing as Gollum on the phone when Neil Gaiman called me up and asked me to
 
 [00:04:41] Will: Perfect.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:13:14] Will: And I'll see if we can track it down, and we'll push on the site.
 
-[00:13:14] Adam: It was lovely to finally meet John Mo, who you know I've only met on the phone before, and Chuck Klosterman and I are fans of each other's work.
+[00:13:14] Adam: It was lovely to finally meet John Moe, who you know I've only met on the phone before, and Chuck Klosterman and I are fans of each other's work.
 
 [00:13:14] Will: Cool.
 
@@ -538,11 +538,11 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:18:07] Will: Oh, he's so good, though.
 
-[00:18:09] Adam: Well, not only is he really great in Girls, but like lest you think that that's all he can do, go watch him in Francis Ha, which is by the way, freaking insanely great.
+[00:18:09] Adam: Well, not only is he really great in Girls, but like lest you think that that's all he can do, go watch him in Frances Ha, which is by the way, freaking insanely great.
 
 [00:18:09] Norm: Is that Noah Baumbach?
 
-[00:18:09] Adam: Francis Ha is Noah Baumbach’s new film with Greta Gerwig. They wrote it together. It's beautiful, and frankly, having kind of growing up in New York, this is a perfect depiction of the total self-centeredness of the early twenties and growing up in New York. But Adam Driver has a bit part in it, and he's totally different than his character in Girls, and really excellent. So I, I am, I think he's a wonderful actor.
+[00:18:09] Adam: Frances Ha is Noah Baumbach’s new film with Greta Gerwig. They wrote it together. It's beautiful, and frankly, having kind of growing up in New York, this is a perfect depiction of the total self-centeredness of the early twenties and growing up in New York. But Adam Driver has a bit part in it, and he's totally different than his character in Girls, and really excellent. So I, I am, I think he's a wonderful actor.
 
 [00:18:42] Norm: Wonderful. I mean, there's the speculation now is exactly who these people may be playing,
 

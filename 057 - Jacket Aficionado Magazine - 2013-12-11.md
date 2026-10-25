@@ -504,11 +504,11 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:32:30] Will: Teague.
 
-[00:32:30] Adam: She's Cheryl Teagues, Jacqueline Smith, and Farrah Fawcett. Ah. Then you had Cheryl Ladd as the replacement for for Farrah Fawcett, and I think yeah, Tanya Roberts was late in that game. But yeah, Beastmaster is is abysmally bad. It was made for about a hundred bucks.
+[00:32:30] Adam: She's Cheryl Teagues, Jaclyn Smith, and Farrah Fawcett. Ah. Then you had Cheryl Ladd as the replacement for for Farrah Fawcett, and I think yeah, Tanya Roberts was late in that game. But yeah, Beastmaster is is abysmally bad. It was made for about a hundred bucks.
 
 [00:32:49] Will: Wow.
 
-[00:32:49] Adam: But it stars Mark Singer of If You Could See What I Hear fame.
+[00:32:49] Adam: But it stars Marc Singer of If You Could See What I Hear fame.
 
 [00:32:54] Will: At some point, we need to talk about TV's TV shows replacing. Stars because they got too big or too expensive, and then replacing them with the person with the same first name because that happened a lot. Like the bewitched thing was Dick York, Dick Sargent. Like,
 

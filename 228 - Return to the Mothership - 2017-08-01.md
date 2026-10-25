@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:03:00] Simone: Which Which out of the costumes was the sweatiest one for you?
 
-[00:03:04] Adam: Oh, that's a good question. It was definitely that one. It was definitely the spacesuit was the sweatiest by far because the suit of armor was fairly breathable. Chewy is also fairly breathable, yes, but the
+[00:03:04] Adam: Oh, that's a good question. It was definitely that one. It was definitely the spacesuit was the sweatiest by far because the suit of armor was fairly breathable. Chewie is also fairly breathable, yes, but the
 
 [00:03:16] Simone: really is that breathable?
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:03:35] Norm: party, which is a a really fun gathering of a lot of like the friends you mentioned.
 
-[00:03:39] Adam: It's most of it's the place where yeah. Besides Woodstock, that's where I catch up with all my favorite people,
+[00:03:39] Adam: It's most of it's the place where yeah. Besides w00tstock, that's where I catch up with all my favorite people,
 
 [00:03:45] Norm: and it was really funny because you know you have a lot of people you guys say hi to. The tested team, we kind of huddled together and and ate our desserts
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:04:20] Adam: She's ninety plus and absolutely beautiful and amazing.
 
-[00:04:25] Norm: And she sits down, finds a corner. She and her her handler and her family, and it's one of those things like, do you say hi, you know? And and and Bobek, Bobek, you know Bobek, right? We were talking to Bobek. Bobek's like, yeah, I said I I did an event with her before, and I don't think she remembers me, but I I told her how much she meant to me, and I got my moment, and like that's the awesome. That's that's the that's kind of what I wanted to do, but I also don't want to bug her. Danica said she needed to have some meaningful interaction, and she she worked it, and we watched almost like from from like thirty feet away at a distance. We watched over the span of half an hour as she and and Rebecca,
+[00:04:25] Norm: And she sits down, finds a corner. She and her her handler and her family, and it's one of those things like, do you say hi, you know? And and and Bobak, Bobak, you know Bobak, right? We were talking to Bobak. Bobak's like, yeah, I said I I did an event with her before, and I don't think she remembers me, but I I told her how much she meant to me, and I got my moment, and like that's the awesome. That's that's the that's kind of what I wanted to do, but I also don't want to bug her. Danica said she needed to have some meaningful interaction, and she she worked it, and we watched almost like from from like thirty feet away at a distance. We watched over the span of half an hour as she and and Rebecca,
 
 [00:04:25] Adam: Rebecca Watson,
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:07:25] Norm: No, no, no. Having these awkward social interactions with people you admire.
 
-[00:07:30] Adam: The Spasmatics that played at the the Nerd HQ Sci-Fi Party were fantastic. That was a live band. They did some amazing songs, amazing covers, and some incredible mashups. There was lots of good dancing. I spent a lot of time with my friends on the cast and crew of The Expanse, along Daniel and Ty, the the writers, Naren Shankar, and many of the cast. Wes Chatham, who plays Amos, was on our panel. It was it's all on Tested.
+[00:07:30] Adam: The Spasmatics that played at the the Nerd HQ Syfy Party were fantastic. That was a live band. They did some amazing songs, amazing covers, and some incredible mashups. There was lots of good dancing. I spent a lot of time with my friends on the cast and crew of The Expanse, along Daniel and Ty, the the writers, Naren Shankar, and many of the cast. Wes Chatham, who plays Amos, was on our panel. It was it's all on Tested.
 
 [00:07:30] Norm: Yep, that was great. Okay,
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:12:23] Norm: It's plumbed from two different places.
 
-[00:12:25] Adam: No, just plums from the from the
+[00:12:25] Adam: No, just plumbs from the from the
 
 [00:12:27] Unknown: [unclear: vicinity / in the vicinity / other side].
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:12:33] Simone: But I,
 
-[00:12:57] Simone: I was actually thinking that was one of the ideas that we have for the Swedish TV show. My co-host Nisa and I about you know like those automatic sensor water taps.
+[00:12:57] Simone: I was actually thinking that was one of the ideas that we have for the Swedish TV show. My co-host Nisse and I about you know like those automatic sensor water taps.
 
 [00:13:05] Simone: You,
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:21:17] Norm: from the Blade Runner,
 
-[00:21:17] Adam: the high necked Sheerling line.
+[00:21:17] Adam: the high necked Shearling line.
 
 [00:21:20] Simone: There is a new Blade Runner. I haven't even seen the old Blade Runner yet.
 

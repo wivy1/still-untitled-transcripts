@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:02:02] Will: Oh, they're snap kits. They're not glue.
 
-[00:02:04] Norm: Really, no glue. And the thing we found because it was our first foray, we did a whole premium video series. You guys can check it on test. Com about building this one sixtieth scale kit with over two thousand parts, and it took us five hours with four people.
+[00:02:04] Norm: Really, no glue. And the thing we found because it was our first foray, we did a whole premium video series. You guys can check it on Tested.com about building this one sixtieth scale kit with over two thousand parts, and it took us five hours with four people.
 
 [00:02:19] Adam: Wow, five hours, four people, and it's all snapped together.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:08:36] Will: Oh.
 
-[00:08:38] Adam: For me, it was a a patent tank, a Tamiya the Tamiya patent.
+[00:08:38] Adam: For me, it was a a Patton tank, a Tamiya the Tamiya Patton.
 
 [00:08:42] Will: That's a that's a good one.
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:16:54] Adam: I'm getting a knocking sound.
 
-[00:17:00] Will: Yeah. Oh, it's just the terminal. It's in the trunk. It's fine. John Connor's not anywhere
+[00:17:00] Will: Yeah. Oh, it's just the Terminator. It's in the trunk. It's fine. John Connor's not anywhere
 
 [00:17:03] Norm: Near the freeway. You hear Sarah Connor's voice. This is. If you can teach a man, if you can teach a machine to love, then maybe there's hope for us after all.
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:19:59] Norm: that's the that's
 
-[00:20:00] Adam: amazing! But we're totally bearing the lead. I was at SpaceX last week. I got to see some of the rocket factory, which is incredible. And I was there on Thursday.
+[00:20:00] Adam: amazing! But we're totally burying the lead. I was at SpaceX last week. I got to see some of the rocket factory, which is incredible. And I was there on Thursday.
 
 [00:20:09] Will: They ship those rockets from the west coast to the east coast to launch.
 

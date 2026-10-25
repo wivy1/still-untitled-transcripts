@@ -38,7 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:00:41] Will: It's dull.
 
-[00:00:42] Adam: Yeah, it's totally dull. In fact, that is we've talked about this, but that is precisely what they were using in the movie because that's the same blade from the same iato maker. Who this is? This is a blade maker who makes swords specifically for learning the art of drawing and handling a samurai sword.
+[00:00:42] Adam: Yeah, it's totally dull. In fact, that is we've talked about this, but that is precisely what they were using in the movie because that's the same blade from the same iaito maker. Who this is? This is a blade maker who makes swords specifically for learning the art of drawing and handling a samurai sword.
 
 [00:01:00] Will: I love. The kind of the the wavy nature of the edge,
 

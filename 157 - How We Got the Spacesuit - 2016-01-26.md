@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:01:57] Norm: Yeah, and the cops stopped them, and the video is great because it ends with the cop stopping him, and then the cop pulls up, and they're like, " Oh, we're in trouble." And the cop says, " Some." Someone was complaining about you, so pretend we're talking to each other.
 
-[00:02:10] Adam: You know, when I worked in a restaurant, that was a repeated thing. Of the owner would come over to me, Russ. I worked in this restaurant in Tarrytown, New York, called Horse Feathers, which I believe might still be there. Yeah,
+[00:02:10] Adam: You know, when I worked in a restaurant, that was a repeated thing. Of the owner would come over to me, Russ. I worked in this restaurant in Tarrytown, New York, called Horsefeathers, which I believe might still be there. Yeah,
 
 [00:02:21] Will: I worked in a restaurant in Bristol, Tennessee, called Bull Feathers.
 
@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:02:24] Norm: What is with the feathers?
 
-[00:02:24] Adam: This Horse Feathers was a literary-themed restaurant.
+[00:02:24] Adam: This Horsefeathers was a literary-themed restaurant.
 
 [00:02:29] Will: Oh, this was a drinking-themed restaurant.
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:06:40] Norm: but restaurant, Customers.
 
-[00:06:41] Adam: restaurant. Sorry, so right, so yeah. To go back, I read worst restaurant customer stories, and I read them with the same glee that anyone does about entitled, crazy people. But then I also realize that we are systematically in this country destroying the middle class, and that there's a whole bunch of people. There's a whole bunch of people that just think I need to get something for free. I need to screw somebody over to get something for free. So there is just a whole type of person who is like, " Well, if I complain." I'll get precisely what I want, and then they've built their identity around the " I need the fresh cup of coffee" because that's just the kind of precision person I am. And it, it ends up making me not mad at them; it just makes me a little sad.
+[00:06:41] Adam: restaurant. Sorry, so right, so yeah. To go back, I read worst restaurant customer stories, and I read them with the same glee that anyone does about entitled, crazy people. But then I also realize that we are systematically in this country destroying the middle class, and that there's a whole bunch of people that just think I need to get something for free. I need to screw somebody over to get something for free. So there is just a whole type of person who is like, " Well, if I complain." I'll get precisely what I want, and then they've built their identity around the " I need the fresh cup of coffee" because that's just the kind of precision person I am. And it, it ends up making me not mad at them; it just makes me a little sad.
 
 [00:07:18] Unknown speaker: So,
 
@@ -442,7 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:24:57] Will: video, right? Yeah.
 
-[00:24:58] Adam: So for the Martian suit, this is all by way of. I'm going to make a Martian suit. I'm going to make a Martian suit, put it in my collection, and with the reference that we've now got, and we're going to use some amazing tools. In addition to taking pictures with color charts and rulers and measuring and taking notes, we also did photogrammetry.
+[00:24:58] Adam: So for the Martian suit, this is all by way of. I'm going to make a Martian suit, put it in my collection, and with the reference that we've now got, and we're going to use some amazing tools. In addition to taking pictures with color charts and rulers and measuring and taking notes, we also did photogrammetry.
 
 [00:24:58] Unknown speaker: Yep.
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:28:00] Will: So by telling people this, though, you're going to burn it as a Comic-Con.
 
-[00:28:02] Adam: I have no idea how to deal. I have no idea how to deal with that aspect.
+[00:28:02] Adam: I have no idea how to deal with that aspect.
 
 [00:28:06] Will: Yeah. Do you need to make a half dozen? Send out six people at once.
 

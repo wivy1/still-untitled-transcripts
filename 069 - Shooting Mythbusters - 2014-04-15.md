@@ -428,23 +428,23 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:12:33] Norm: Yeah.
 
-[00:12:33] Adam: Well, so what we've done this season that we started filming in January, is we've replaced most of the GoPros with Black Magics,
+[00:12:33] Adam: Well, so what we've done this season that we started filming in January, is we've replaced most of the GoPros with Blackmagics,
 
 [00:12:42] Norm: the pocket Cinema Cam,
 
 [00:12:43] Adam: the pocket Cinema Cam. We have three or four of them in some really bulletproof housings that are just covered everywhere with. Quarter twenty and three eight sixteen tapped holes. They're fantastic cameras from broadcast quality standpoint. They're not great in low light, and their audio is terrible. But they're beautiful. Plus they they take our they take all of our different lenses. Yes, right. So we have a lens package that all works with those guys.
 
-[00:13:09] Norm: Yeah, they're a micro four thirds camera mount. Black Magic had a Cinema Cam from two years ago, and this is the pocket version, thousand dollars, and you can shoot in ProRes or RAW, basically.
+[00:13:09] Norm: Yeah, they're a micro four thirds camera mount. Blackmagic had a Cinema Cam from two years ago, and this is the pocket version, thousand dollars, and you can shoot in ProRes or RAW, basically.
 
 [00:13:18] Will: So it's basically three times the price of of the high end GoPro three, but in a real camera with again bad audio.
 
 [00:13:21] Unknown speaker: Yeah. Mm-hmm.
 
-[00:13:24] Adam: Well, the fact is, is that one of the things we're doing this season that you'll start to see next year is we're filming we're we're filming some. I want to say this in the broadest way possible, so as not to giving anything away, but there are certain things we're doing in a more cinematic style, and the Black Magics with the real what do you call it prime glass on it. You know, a nice eighty-five one-two gives us that real cinematic look, and that's just that's where the Black Magic exceeds almost any other camera we could use, except for you know DSLRs, which frankly we have used a few times on the show, but it's a real pain in the ass from a from a editing chain standpoint.
+[00:13:24] Adam: Well, the fact is, is that one of the things we're doing this season that you'll start to see next year is we're filming we're we're filming some. I want to say this in the broadest way possible, so as not to giving anything away, but there are certain things we're doing in a more cinematic style, and the Blackmagics with the real what do you call it prime glass on it. You know, a nice eighty-five one-two gives us that real cinematic look, and that's just that's where the Blackmagic exceeds almost any other camera we could use, except for you know DSLRs, which frankly we have used a few times on the show, but it's a real pain in the ass from a from a editing chain standpoint.
 
 [00:13:24] Norm: Yes,
 
-[00:13:24] Adam: the Black Magic is actually the easiest camera for our editing chain.
+[00:13:24] Adam: the Blackmagic is actually the easiest camera for our editing chain.
 
 [00:14:06] Will: Yeah, well, because it outputs it outputs editor-ready
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:15:04] Norm: So Duncan’s the guy. So, so anyway,
 
-[00:15:05] Adam: so black magics are totally what Duncan flies on the octocopter.
+[00:15:05] Adam: so Blackmagics are totally what Duncan flies on the octocopter.
 
 [00:15:09] Norm: Okay.
 
@@ -586,7 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:18:42] Will: Your eyebrows grew back faster than the high speed came in.
 
-[00:18:44] Adam: So much faster. So, over the years, you know, the Sony's cameras are just. They're so robust. We've burnt them. We've dipped them in water. They still work. It's really been one of our main go-to, one of our main go-to brands. I we still use HC3s because their audio is so excellent.
+[00:18:44] Adam: So much faster. So, over the years, you know, the Sony's cameras are just. They're so robust. We've burnt them. We've dipped them in water. They still work. It's really been one of our main go-to brands. I we still use HC3s because their audio is so excellent.
 
 [00:19:07] Will: Okay.
 
@@ -718,15 +718,15 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:23:43] Norm: Looks like we're so good. We're good this week.
 
-[00:23:45] Adam: I laughed. I made the triple. I made the little triple.
+[00:23:45] Adam: I laughed. I made the tribble. I made the little tribble.
 
-[00:23:48] Will: That's yeah. That's the problem with triples, Adam. Trouble,
+[00:23:48] Will: That's yeah. That's the problem with tribbles, Adam. Trouble,
 
 [00:23:50] Adam: trouble.
 
 [00:23:50] Will: Oh, my bad.
 
-[00:23:53] Adam: But the the the latest thing that that has been really exciting has been uh has been the Black Magics and Duncan's octocopter.
+[00:23:53] Adam: But the the the latest thing that that has been really exciting has been uh has been the Blackmagics and Duncan's octocopter.
 
 [00:24:02] Norm: So before for aerial footage, did you guys have to rent helicopters?
 
@@ -886,11 +886,11 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:30:53] Adam: He's he's really good. He's gotten to be a really good pilot, and really, it's not just teaching yourself piloting; it's also teaching yourself camera work. So, in a film, right? There is like every time you are filming something, you have to think about the fact that how do I say this? In the beginning, you get a camera and you take a picture, and you think that represents the thing you are taking a picture of, but it doesn't necessarily. And the photographer learns that every picture is a story, and that you are composing to tell a story to your brain about this thing, either to limit what you can see or increase what you see. And then, when you are filming something that's moving. Specifically, a doco style show like ours, scripted reality, is the category. Your shots have to tell a story, and that's been a learning curve for Duncan. Right? I mean, he's you know, it's an important thing that everybody, every cameraman, has to learn. Is what is the story I'm telling of this? I'm not just shooting a building from above. Am I zooming out from the door? Are we circling the building? If we are, then we need one type of circle, not not a compound circle, because the audience doesn't know what to do with that kind of shot. Right. So it it ends up being like working with the editors to know here's the kind of thing we want to get, and you know, now we're getting this beautiful footage. But it's it's it's like the new technology. You not only need to learn how to pilot it, and also to pilot and take pictures, but take pictures that you can use in the edit as as the final piece.
 
-[00:32:23] Will: Well, and I know a lot of times when when people use this kind of these kind of rotors or even like traditional jibs, there'll be one person operating the jib. There's another person operating the camera at the end of the jib, so they have a whole plan. With the quadroter, you don't necessarily have that.
+[00:32:23] Will: Well, and I know a lot of times when when people use this kind of these kind of rotors or even like traditional jibs, there'll be one person operating the jib. There's another person operating the camera at the end of the jib, so they have a whole plan. With the quadrotor, you don't necessarily have that.
 
 [00:32:36] Adam: You don't necessarily have that, but it might be a good idea to be able to do that.
 
-[00:32:39] Adam: Yeah. Have a separate operator as well as a flyer, so that you know, because when he's flying it, he is literally, you know, I am panning and tilting the camera at the same time as moving the quadroter.
+[00:32:39] Adam: Yeah. Have a separate operator as well as a flyer, so that you know, because when he's flying it, he is literally, you know, I am panning and tilting the camera at the same time as moving the quadrotor.
 
 [00:32:51] Will: Does he do the one with the like four sticks, or does he have the?
 

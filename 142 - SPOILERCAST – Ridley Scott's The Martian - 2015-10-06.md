@@ -400,11 +400,11 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:20:20] Will: Didn't even occur to me.
 
-[00:20:21] Norm: Yeah, Mitch, Mitch is Sean Bean. He's Bormir. Oh my goodness.
+[00:20:21] Norm: Yeah, Mitch, Mitch is Sean Bean. He's Boromir. Oh my goodness.
 
 [00:20:24] Adam: Sorry, I don't mean to yell. That was
 
-[00:20:25] Will: Bormir.
+[00:20:25] Will: Boromir.
 
 [00:20:26] Adam: Oh, that's why I was laughing so hysterically.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:20:36] Adam: sorry,
 
-[00:20:36] Norm: yeah, um, in the book and essentially in the film is not for Sean Bean and for Jeff Daniels and Van Ket before poor and those characters, but it's for the benefit of Kristen Wiig to show that how she is so. It's more—of a
+[00:20:36] Norm: yeah, um, in the book and essentially in the film is not for Sean Bean and for Jeff Daniels and Venkat before poor and those characters, but it's for the benefit of Kristen Wiig to show that how she is so. It's more—of a
 
 [00:20:49] Will: reflection
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:23:51] Will: hair. I mean, that's the way. That's the way.
 
-[00:23:53] Norm: That's astronauts do in space. And in Gravity. The hair when she first got on the space station, it does not go out, and that was a big complaint that people had about the the bad science of gravity. And so they had Jessica Chastain's hair down when they were in the the we'll call it the banana because just like Seven Eves, that was the banana.
+[00:23:53] Norm: That's astronauts do in space. And in Gravity. The hair when she first got on the space station, it does not go out, and that was a big complaint that people had about the the bad science of gravity. And so they had Jessica Chastain's hair down when they were in the the we'll call it the banana because just like Seveneves, that was the banana.
 
 [00:24:10] Will: Yeah.
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:31:15] Norm: There was Times Square and the cheering, but not like the looking up at the bars.
 
-[00:31:21] Adam: I actually, it's funny. It's funny that you say that. I also felt that that was they left a little bit of drama on the table there. The other place I felt that drama was left on the table was in Watney's first hearing of Commander Lewis's voice in his calm.
+[00:31:21] Adam: I actually, it's funny. It's funny that you say that. I also felt that that was they left a little bit of drama on the table there. The other place I felt that drama was left on the table was in Watney's first hearing of Commander Lewis's voice in his comm.
 
 [00:31:36] Will: I, I thought
 
@@ -748,7 +748,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:36:28] Adam: Okay. DVD comes out.
 
-[00:36:29] Will: A few more things. The guy who's the head of JPL, Bruce Bruce Eng,
+[00:36:29] Will: A few more things. The guy who's the head of JPL, Bruce Bruce Ng,
 
 [00:36:34] Adam: wonderful.
 

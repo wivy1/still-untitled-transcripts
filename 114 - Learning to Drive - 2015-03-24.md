@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:18:57] Will: oh that's funny.
 
-[00:18:57] Adam: 2004, and I recently mentioned it to Tracey, and she's like, " Oh my god, that was you! I totally remember that happening."
+[00:18:57] Adam: 2004, and I recently mentioned it to Traci, and she's like, " Oh my god, that was you! I totally remember that happening."
 
 [00:19:06] Will: The the the learning the learning from the mistakes I think the thing that my parents did that I felt was important was that they tried my dad had a was a used, was a car dealer when he finished high school and didn't want to go to college for a few years and then ended up going to college but as a result he had loaner cars from the dealership all the time and it was the like late fifties early sixties so they were you know it was basically madmen for car dealers and they were crashing cars left and right all the time and as a result of that he shared a lot of valuable stories and and things that I learned to avoid what was it like for you learning learning to drive in San Francisco Norm
 

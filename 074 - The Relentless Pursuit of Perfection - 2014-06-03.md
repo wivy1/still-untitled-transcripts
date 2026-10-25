@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:09:49] Will: and absolutely every time. Um,
 
-[00:10:01] Norm: We're working equivalent of doing something while the microwave is going down, right?
+[00:10:01] Norm: Woodworking equivalent of doing something while the microwave is going down, right?
 
 [00:10:05] Adam: Yes,
 
@@ -324,7 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:14:39] Norm: because that's not how it works.
 
-[00:14:43] Adam: No, you can't. But I mean, you you you know, it's like the number of times I've gotten to the end of machining something for three hours, I'm tapping with a 256 tap, which is a really fine little tap, and I'm going too fast because I'm impatient, and it's like I got five minutes left before I got to go meet somebody at dinner, and I snap the tap in this piece and thus lose six hours worth of work. I've done that. I think I did that four weeks ago. The the my solution on that front was because I was tapping I was tapping a hole for a screw that was dressing. I I ground the top of the tap. I took the screw that goes there. I cut off the head and glued
+[00:14:43] Adam: No, you can't. But I mean, you you you know, it's like the number of times I've gotten to the end of machining something for three hours, I'm tapping with a 2-56 tap, which is a really fine little tap, and I'm going too fast because I'm impatient, and it's like I got five minutes left before I got to go meet somebody at dinner, and I snap the tap in this piece and thus lose six hours worth of work. I've done that. I think I did that four weeks ago. The the my solution on that front was because I was tapping I was tapping a hole for a screw that was dressing. I I ground the top of the tap. I took the screw that goes there. I cut off the head and glued
 
 [00:15:21] Adam: it over the tap.
 

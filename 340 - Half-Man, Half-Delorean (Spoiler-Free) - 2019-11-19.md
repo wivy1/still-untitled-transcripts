@@ -16,7 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:00:06] Norm: That's all right. How was your How are your respective weekends?
 
-[00:00:09] Adam: Um, excellent. I did a lot of catching up on television. That was the main thing. What? Oh, I also went to a friend's son's bar mitzvah in Los Angeles. A young man. Uh, it was exceptionally articulate and lovely, uh, bar mitzvah. I saw my friends Wil and Ann Wheaton there, and some of my other writer friends from Hollywood. It was delightful. Uh, and I did one of those trips to L.A. where I never actually went over the hill into Los Angeles. I was staying at the Garland in Burbank, uh, and the, the, uh, the bar mitzvah was over in Tarzana. Uh, and so I got to say, there are times when, uh, I just love flying into Burbank and not leaving.
+[00:00:09] Adam: Um, excellent. I did a lot of catching up on television. That was the main thing. What? Oh, I also went to a friend's son's bar mitzvah in Los Angeles. A young man. Uh, it was exceptionally articulate and lovely, uh, bar mitzvah. I saw my friends Wil and Anne Wheaton there, and some of my other writer friends from Hollywood. It was delightful. Uh, and I did one of those trips to L.A. where I never actually went over the hill into Los Angeles. I was staying at the Garland in Burbank, uh, and the, the, uh, the bar mitzvah was over in Tarzana. Uh, and so I got to say, there are times when, uh, I just love flying into Burbank and not leaving.
 
 [00:00:52] Norm: Localized trips in L.A. are my favorite because you never have to embrace. The freeway traffic, even on weekends,
 
@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:01:26] Will: and so that's an on-time event.
 
-[00:01:28] Adam: So it's already happening. I sneak in from the back, and I'm like feeling kind of crappy because I'm late. Luckily, a whole bunch of people showed up after me. But as I'm sitting down, I look all the way across the temple, and there's Wil and Ann Wheaton looking over and giving me a little bit of a wave. And I was like, Oh, I don't feel so bad. There's my friends. So yeah, and I caught up on some TV.
+[00:01:28] Adam: So it's already happening. I sneak in from the back, and I'm like feeling kind of crappy because I'm late. Luckily, a whole bunch of people showed up after me. But as I'm sitting down, I look all the way across the temple, and there's Wil and Anne Wheaton looking over and giving me a little bit of a wave. And I was like, Oh, I don't feel so bad. There's my friends. So yeah, and I caught up on some TV.
 
 [00:01:52] Norm: Nice. Well, we're going to talk about some of that TV today. It's. I don't think we should go full spoiler cast. So let's be let's be clear. You talk about. You set up TV. We have Disney Plus now. Disney Plus launched last week, and the big flagship show is The Mandalorian.
 
@@ -340,9 +340,9 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:11:50] Norm: Yeah.
 
-[00:11:50] Adam: I totally didn't. You know, this is also like it took me forever to realize that Shepherd Book from Serenity was Sergeant Harris from Barney Miller. It took me a million years to discover that. Louis Gossett Jr. , one of the like truly great actors of my generation, right? Like, not my generation. He's older than me, but like, I grew up with him in Office and a Gentleman, and all these amazing. Yeah, he's incredible.
+[00:11:50] Adam: I totally didn't. You know, this is also like it took me forever to realize that Shepherd Book from Serenity was Sergeant Harris from Barney Miller. It took me a million years to discover that. Louis Gossett Jr. , one of the like truly great actors of my generation, right? Like, not my generation. He's older than me, but like, I grew up with him in Officer and a Gentleman, and all these amazing. Yeah, he's incredible.
 
-[00:12:14] Norm: It's quite a get for the show. Yeah. Also, did you like the Long Now Clock and the Long Now show? Oh, so now Denny Hillis.
+[00:12:14] Norm: It's quite a get for the show. Yeah. Also, did you like the Long Now Clock and the Long Now show? Oh, so now Danny Hillis.
 
 [00:12:20] Adam: I noticed that.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:17:10] Adam: But I will also say that the slapstick and comedic parts of the fight scenes don't feel any less dangerous for our characters. Like sometimes you get slapstick, like hobbits and barrels going through things that are so impossible they don't feel like there are any stakes. Right in this, even though there's some funny bits, it's sort of shocking how much you're like, " Damn, this is he's in trouble."
 
-[00:17:38] Norm: And every modern action film that takes that trope of the hero, unbeatable hero, carrying a baby—you know, Clive Owen's shooter was all about that. Shoot him up, sorry, and
+[00:17:38] Norm: And every modern action film that takes that trope of the hero, unbeatable hero, carrying a baby—you know, Clive Owen's shooter was all about that. Shoot ’Em Up, sorry, and
 
 [00:17:51] Will: Transporter. Uh,
 
@@ -722,7 +722,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:30:37] Adam: Oh, sounds awesome!
 
-[00:30:37] Norm: A lot of fun. And this weekend is Designer Con. I'll be down in Anaheim. Wow, back in Anaheim, and it'll be three days. If you're in the Southern California area, it is one of my favorite conventions of the year. A lot of our friends of Tested are going to be there. Melissa Ng is going to have a booth there and sell some exclusive stuff. Jason Freeny is going to be there, signing his figures.
+[00:30:37] Norm: A lot of fun. And this weekend is DesignerCon. I'll be down in Anaheim. Wow, back in Anaheim, and it'll be three days. If you're in the Southern California area, it is one of my favorite conventions of the year. A lot of our friends of Tested are going to be there. Melissa Ng is going to have a booth there and sell some exclusive stuff. Jason Freeny is going to be there, signing his figures.
 
 [00:30:59] Adam: You've got to get me some Jason Freeny exclusives.
 
@@ -780,6 +780,6 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:33:21] Adam: Okay.
 
-[00:33:21] Norm: And you can find all other stuff at Test.com. Thanks so much for listening this week, and we'll see you next time.
+[00:33:21] Norm: And you can find all other stuff at Tested.com. Thanks so much for listening this week, and we'll see you next time.
 
 [00:33:25] Will: Bye, guys.

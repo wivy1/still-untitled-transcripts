@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:10:02] Norm: I was going to say one one thing that I had wished for, and I was kind of hoping for, is that they had to and to try to bring some of that tension of a live performance was to have a single shot for one song, and I would have chosen " Burn." I would have, if, to let a camera linger for three minutes, and you get the full range of emotion, and you get that tension of of not breaking for a cut. I would have loved to have seen that.
 
-[00:10:30] Adam: Um, and you talked about " Burn." I one of the other things that comes across is just how mind-blowingly remarkable the entire cast and ensemble cast is in the show. It is astounding to see how much power and voice comes out of the small frame of Renee Elise Goldsberry.
+[00:10:30] Adam: Um, and you talked about " Burn." I one of the other things that comes across is just how mind-blowingly remarkable the entire cast and ensemble cast is in the show. It is astounding to see how much power and voice comes out of the small frame of Renée Elise Goldsberry.
 
 [00:10:53] Norm: She's the powerhouse. I mean,
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:11:30] Adam: Right.
 
-[00:11:30] Norm: For me, it was a big family vacation trip that Dan and I went to to China. Like we we like in the hotels that we went to on those days were different songs, and we have these intense ties. But we also have these sense memories of the first time we saw live, like a live concert. And I think the the sound systems in musical theater are just so powerful, and and the combination of that with the you know, you're
+[00:11:30] Norm: For me, it was a big family vacation trip that Danica and I went to to China. Like we we like in the hotels that we went to on those days were different songs, and we have these intense ties. But we also have these sense memories of the first time we saw live, like a live concert. And I think the the sound systems in musical theater are just so powerful, and and the combination of that with the you know, you're
 
 [00:11:53] Adam: feeling it in your chest,
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:19:24] Adam: Interesting. Yeah, I think. I mean, it's so deeply embedded in my head. I, I, I, I didn't. It didn't even occur to me. But it is. It's such a rich tapestry. A friend of mine who's a writer is like, " Who ever thought that you could rhyme 'cuckold' with 'unbuckled'?"
 
-[00:19:49] Norm: Oh, I mean, there are so many things. You know, when when they switch from you know " son of a horse" to " horse son" to Jefferson,
+[00:19:49] Norm: Oh, I mean, there are so many things. You know, when when they switch from you know " son of a whore" to " whoreson" to Jefferson,
 
 [00:19:56] Adam: right?
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:25:40] Norm: yes,
 
-[00:25:40] Adam: yeah. Is she so? In the beginning of the show, one of he's writing, and a bullet goes over his head. He doesn't notice that she's carrying it. At the end of the show, she carries the bullet during his entire pre-death soliloquy that hits him. But then, if you pay attention, apparently, and I didn't. If you pay attention, every character she speaks to dies soon after. She's one of the girls who flirts with Philip Schuyler and tells him where George Eaker is. She whispers in the ear of Madison. Oh, she whispers in the ear also of King George before George goes mad.
+[00:25:40] Adam: yeah. Is she so? In the beginning of the show, one of he's writing, and a bullet goes over his head. He doesn't notice that she's carrying it. At the end of the show, she carries the bullet during his entire pre-death soliloquy that hits him. But then, if you pay attention, apparently, and I didn't. If you pay attention, every character she speaks to dies soon after. She's one of the girls who flirts with Philip Schuyler and tells him where George Eacker is. She whispers in the ear of Madison. Oh, she whispers in the ear also of King George before George goes mad.
 
 [00:26:11] Norm: Yes, and she also does the assassination as one of the, um, uh, one of the officers um, when right after the first King George song.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:33:41] Norm: and there is no easy through line for what makes a Morricone score his score, but the it's the swelling of emotion is in every you know ecstasy of gold is forever something. I I know today it's like associated with beer commercials and car commercials, right? Ripped on so many times, and and even filmmakers like Tarantino, but to watch it in the original context, like
 
-[00:34:08] Adam: well, and that's something everyone should do. That the the I didn't know this until I was reading on him last night that he wrote the score for Once Upon a Time in for Once Upon a Time in the West, my personal favorite western, before they shot the movie that more that that Leone was playing the score for the actors so they could hear how their themes would play in the theater.
+[00:34:08] Adam: well, and that's something everyone should do. That the the I didn't know this until I was reading on him last night that he wrote the score for Once Upon a Time in the West, my personal favorite western, before they shot the movie that more that that Leone was playing the score for the actors so they could hear how their themes would play in the theater.
 
 [00:34:32] Norm: Yeah,
 

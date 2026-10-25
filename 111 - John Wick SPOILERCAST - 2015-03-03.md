@@ -8,7 +8,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:00:11] Norm: Yeah.
 
-[00:00:11] Will: But I, we basically paid a dude a few thousand dollars, and he built a movable type website for us. You know, it was okay, but it was a real pain in the butt, and it like I couldn't go in and change stuff. It was difficult. With Squarespace, you don't have that problem.
+[00:00:11] Will: But I, we basically paid a dude a few thousand dollars, and he built a Movable Type website for us. You know, it was okay, but it was a real pain in the butt, and it like I couldn't go in and change stuff. It was difficult. With Squarespace, you don't have that problem.
 
 [00:00:24] Norm: CMSs today are amazing. Real time editing, responsive design automatically, and just tons of templates and assets.
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:03:54] Will: I'm in based on the name.
 
-[00:03:56] Adam: Yeah. Uh, and they talked about the fact that Liam Neeson does a couple of maybe one or two important movies every year. By important, I mean like dramatically interesting and you know probably for no money. And then he also does one or two of his you know old guy getting revenge on everybody, and he does it right now better than anyone alive. So we've got The Gray, and you've got the Taken movies, which are really the weakest of his.
+[00:03:56] Adam: Yeah. Uh, and they talked about the fact that Liam Neeson does a couple of maybe one or two important movies every year. By important, I mean like dramatically interesting and you know probably for no money. And then he also does one or two of his you know old guy getting revenge on everybody, and he does it right now better than anyone alive. So we've got The Grey, and you've got the Taken movies, which are really the weakest of his.
 
 [00:04:22] Norm: Taken one was great.
 
@@ -798,7 +798,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:27:51] Adam: and he's just wreaking all of this havoc in the dark. And this is where you're like, holy crap, this guy is like the best thing I've ever seen. And then at like towards the end of this, there's a ding dong
 
-[00:28:01] Will: right after the last guy is right after the last guy is killed.
+[00:28:01] Will: right after the last guy is killed.
 
 [00:28:02] Adam: the last guy's killed, and he goes to the door, and you see before he opens the door that there's flashing lights of a cop car. So clearly, there's been a noise complaint, and he opens the door, and this is one of my favorite bits in the movie.
 

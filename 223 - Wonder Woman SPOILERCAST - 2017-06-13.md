@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:13:13] Adam: Not very often.
 
-[00:14:03] Norm: Danica is a big fan of Wonder Woman. Right, forever, from Linda Carter on. And did you guys ever watch the the leaked pilot for that TV, David E. Kelly Wonder Woman?
+[00:14:03] Norm: Danica is a big fan of Wonder Woman. Right, forever, from Lynda Carter on. And did you guys ever watch the the leaked pilot for that TV, David E. Kelley Wonder Woman?
 
 [00:14:03] Adam: No.
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:14:32] Danica: And the the costume was super shitty looking, like vinyl or pleather pants. Pants. I mean, there's nothing right about this. Like it looked like a joke from the beginning. Like you're just being trolled.
 
-[00:14:47] Norm: It was her in modern day, after running a corporation, but also still being fighting as Wonder Woman. And at the end, it was very David E. Kelly. I don't want to say like Ali McBeal Wonder Woman, but at the end, she's on her computer. Signing up for like a social media account or like a dating account or something, yeah.
+[00:14:47] Norm: It was her in modern day, after running a corporation, but also still being fighting as Wonder Woman. And at the end, it was very David E. Kelley. I don't want to say like Ally McBeal Wonder Woman, but at the end, she's on her computer. Signing up for like a social media account or like a dating account or something, yeah.
 
 [00:14:47] Adam: Wow.
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:22:13] Norm: Well, let's get in the spoiler territory.
 
-[00:22:14] Adam: Wait, wait, wait! I actually just want to ask one question. From your standpoint, because it felt to me, as I'm watching, yes, Gal Gadot is surpassingly lovely, but I also felt like I'm not seeing the kind of cheesecakey shots I would expect in this movie. And by cheesecakey, I mean the shot of Black Widow's perfect tiny waist and butt sashing away from Captain America, which is all over all of the movies that Scarlett Johansson is in. There's, am I right?
+[00:22:14] Adam: Wait, wait, wait! I actually just want to ask one question. From your standpoint, because it felt to me, as I'm watching, yes, Gal Gadot is surpassingly lovely, but I also felt like I'm not seeing the kind of cheesecakey shots I would expect in this movie. And by cheesecakey, I mean the shot of Black Widow's perfect tiny waist and butt sashaying away from Captain America, which is all over all of the movies that Scarlett Johansson is in. There's, am I right?
 
 [00:22:46] Norm: And Gal Gadot has done that role.
 
@@ -366,7 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:22:58] Danica: you're gonna give Zack Snyder doing it,
 
-[00:22:59] Adam: one woman looks just like Megan Fox.
+[00:22:59] Adam: Wonder Woman looks just like Megan Fox.
 
 [00:23:01] Danica: And and here's her vagina. Like those those gynecological shots are so grating to me. Like how do these get through? How do they think this is okay? How is this not obvious? Do they want it to be obvious? Do you not see how offensive that is? So you see something like that, and this is what you're used to. And you see how a a woman, this very talented director, handles these action sequences, and there's no exploitation in it. None. It's not gynecological. Doesn't feel like you're being enticed in this way.
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:25:05] Norm: Yes, the Amazons were portrayed so so wonderfully. Robin Wright is fierce.
 
-[00:25:10] Adam: Is fierce, and the casting of the young one woman was also a beautiful bit of casting and performance.
+[00:25:10] Adam: Is fierce, and the casting of the young Wonder Woman was also a beautiful bit of casting and performance.
 
 [00:25:16] Norm: Both, both,
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:33:42] Norm: We gotta talk about the ending.
 
-[00:33:43] Adam: Okay, actually, I also want to talk about a couple of the. There's there's three villains in this film. Danny Houston is the one who plays the general. He's the one most prominently featured in the trailer, and then there's the actress whose name escapes me who plays Doctor Poison with the with the mask, and she wears this creepy mask you've seen in the trailers. I love that mask. It has real historical precedents. There's a character from Boardwalk Empire.
+[00:33:43] Adam: Okay, actually, I also want to talk about a couple of the. There's there's three villains in this film. Danny Huston is the one who plays the general. He's the one most prominently featured in the trailer, and then there's the actress whose name escapes me who plays Doctor Poison with the with the mask, and she wears this creepy mask you've seen in the trailers. I love that mask. It has real historical precedents. There's a character from Boardwalk Empire.
 
 [00:34:11] Danica: My favorite character from Boardwalk Empire,
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:35:34] Norm: Yes. Who
 
-[00:35:36] Adam: David Doolittle's big breakthrough was the Mike Leigh film * Naked*, which if you haven't seen it is a mind-blowing tour de force of acting. He has been in; he was in the Harry Potter films. He's been in a bunch of stuff. I feel like he falls into my head like Oliver Platt, like an amazing, incredible actor that never quite
+[00:35:36] Adam: David Thewlis's big breakthrough was the Mike Leigh film * Naked*, which if you haven't seen it is a mind-blowing tour de force of acting. He has been in; he was in the Harry Potter films. He's been in a bunch of stuff. I feel like he falls into my head like Oliver Platt, like an amazing, incredible actor that never quite
 
 [00:35:36] Danica: breaks through.
 
@@ -692,11 +692,11 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:37:28] Adam: which is and the the the the ambivalence about the goodness of man is a central theme in the DC universe films.
 
-[00:37:35] Norm: And her coming back in Batman v Superman is to To you know, be a champion again. Like he does, Aries doesn't need to die to to you know for this to happen. Like Aries can, Aries can, it can, it can, he can be scary. Wonder Woman doesn’t need to die for Aries to win.
+[00:37:35] Norm: And her coming back in Batman v Superman is to To you know, be a champion again. Like he does, Ares doesn't need to die to to you know for this to happen. Like Ares can, Ares can, it can, it can, he can be scary. Wonder Woman doesn’t need to die for Ares to win.
 
 [00:37:35] Adam: Right.
 
-[00:37:35] Norm: Aries can win by making her disillusioned.
+[00:37:35] Norm: Ares can win by making her disillusioned.
 
 [00:37:59] Adam: Right. Oh, okay.
 
@@ -748,7 +748,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:38:52] Norm: but yeah, like let him be like his true form.
 
-[00:38:54] Adam: And actually, yeah, that would be cool because Vigo, one of Vigo's early films, is in a film called Prophecy, where Christopher Walken plays the archangel Gabriel. Do you know this film?
+[00:38:54] Adam: And actually, yeah, that would be cool because Viggo, one of Viggo's early films, is in a film called Prophecy, where Christopher Walken plays the archangel Gabriel. Do you know this film?
 
 [00:39:06] Danica: Yeah, no, I was obsessed with it. It's amazing.
 
@@ -772,7 +772,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:39:55] Adam: Is it really good?
 
-[00:39:55] Danica: I don't know if it holds up, but it was. But it was wonderful. Elizabeth Shue.
+[00:39:55] Danica: I don't know if it holds up, but it was. But it was wonderful. Elisabeth Shue.
 
 [00:40:00] Adam: I had.
 
@@ -798,13 +798,13 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:40:11] Danica: Yeah.
 
-[00:40:14] Norm: But Vigo.
+[00:40:14] Norm: But Viggo.
 
-[00:40:15] Adam: Yeah, Vigo is amazing.
+[00:40:15] Adam: Yeah, Viggo is amazing.
 
 [00:40:15] Norm: That's why I would have wanted.
 
-[00:40:16] Adam: Vigo's amazing as the devil. You're right. I could see that. Right, you get a second actor like the Kevin Spacey reveal in Seven.
+[00:40:16] Adam: Viggo's amazing as the devil. You're right. I could see that. Right, you get a second actor like the Kevin Spacey reveal in Seven.
 
 [00:40:22] Danica: Where you get the danger, you get more like you kind of strip away the. I don't want to call him a schlub, but like the unoffensive. doughy white man
 

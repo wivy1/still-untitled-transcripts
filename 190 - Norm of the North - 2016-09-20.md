@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:10:52] Will: Was it curious about the ship.
 
-[00:10:54] Norm: Very curious. It was. It was walking around on a large ice sheet hunting. We sought hunt for seals. Wow! You know, there's a whole non-disturbance policy, so everyone would be very quiet.
+[00:10:54] Norm: Very curious. It was. It was walking around on a large ice sheet hunting. We saw it hunt for seals. Wow! You know, there's a whole non-disturbance policy, so everyone would be very quiet.
 
 [00:11:04] Adam: don't throw a drone in the air and buzz them.
 

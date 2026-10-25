@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:14:11] Will: here. They seem okay. They I don't know if that's equivalent to restaurants. I don't know if
 
-[00:14:14] Adam: That's indicative. Yeah, it's self-selected here, but you know I got a lot out of wandering around and seeing stuff. If anyone's ever ordered from McMaster Carr, the difference between flipping through their print catalog and looking at them online, and McMaster was one of the earliest big companies, and they sell a little bit of everything, to have an incredibly navigable website that felt very much like navigating the catalog. They really worked hard on that interface, and they nailed it. And still, I think browsing that catalog is twice as useful. As going online because when you're looking a when you're looking at a a wall of shelves or you're flipping through a catalog you're making connections that you wouldn't make normally you know you're looking for the micro switches but the micro switches are end are at the end of a ninety page chapter on switches of every kind oh I didn't know that wait they've got one I didn't even know you could get oh wait oh my god that one does twelve double pull double throw this and all of a sudden problems were solved you didn't know you had
+[00:14:14] Adam: That's indicative. Yeah, it's self-selected here, but you know I got a lot out of wandering around and seeing stuff. If anyone's ever ordered from McMaster Carr, the difference between flipping through their print catalog and looking at them online, and McMaster was one of the earliest big companies, and they sell a little bit of everything, to have an incredibly navigable website that felt very much like navigating the catalog. They really worked hard on that interface, and they nailed it. And still, I think browsing that catalog is twice as useful. As going online because when you're looking a when you're looking at a a wall of shelves or you're flipping through a catalog you're making connections that you wouldn't make normally you know you're looking for the micro switches but the micro switches are end are at the end of a ninety page chapter on switches of every kind oh I didn't know that wait they've got one I didn't even know you could get oh wait oh my god that one does twelve double pole double throw this and all of a sudden problems were solved you didn't know you had
 
 [00:15:16] Will: you find a better solution for a problem that you didn't know you had
 
@@ -250,7 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:16:49] Adam: Yeah.
 
-[00:16:50] Adam: Let me let me make it. There's a wonderful model makers catalog called MicroMark. There's another one called the Small Parts Catalog. Both of them, I recommend you go to their websites and order a catalog from each. They're delicious catalogs. Sit there; they're both probably about fifty, sixty pages, and you can sit there and browse through every kind of tool and knife and little ball bearing and rods and you know rod ends and electronics and just fantastic, fantastic catalogs for learning about new ways that are being developed to make things in ways that the website's not necessarily going to lead you to, because websites are all what do you need to find here? It is
+[00:16:50] Adam: Let me let me make it. There's a wonderful model makers catalog called Micro-Mark. There's another one called the Small Parts Catalog. Both of them, I recommend you go to their websites and order a catalog from each. They're delicious catalogs. Sit there; they're both probably about fifty, sixty pages, and you can sit there and browse through every kind of tool and knife and little ball bearing and rods and you know rod ends and electronics and just fantastic, fantastic catalogs for learning about new ways that are being developed to make things in ways that the website's not necessarily going to lead you to, because websites are all what do you need to find here? It is
 
 [00:17:33] Will: well. I mean, they're they're they're very transactional. Like it's it's intentionally that way because they want you to find something, and their goal is to get you to click buy on something in as few clicks as possible and as less time because the more you click buy, the more money they make.
 
@@ -432,7 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:24:08] Will: and their vertical integration partners. You have to enhance your core competencies so you can lean into new verticals and you know expand into emerging markets around the world.
 
-[00:24:19] Adam: You're so. Do you know about battle decks?
+[00:24:19] Adam: You're so. Do you know about Battledecks?
 
 [00:24:21] Will: Ah, no.
 

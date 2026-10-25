@@ -32,9 +32,9 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:00:35] Will: The unresolved sexual tension is my. I think we've talked. Have we talked about this before? It is my least favorite thing in the world as a TV trope.
 
-[00:00:42] Adam: I totally agree. Do you know that that's the reason that Maura Tierney and Dave Foley got together in the pilot of News Radio?
+[00:00:42] Adam: I totally agree. Do you know that that's the reason that Maura Tierney and Dave Foley got together in the pilot of NewsRadio?
 
-[00:00:51] Will: News Radio, yeah.
+[00:00:51] Will: NewsRadio, yeah.
 
 [00:00:52] Adam: Because they didn't want to do that. They're like, hell with it. Let's just have them have a relationship.
 
@@ -52,9 +52,9 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:01:06] Adam: Yeah, I know. Phil Hartman is a goddamn genius.
 
-[00:01:09] Norm: John Lovitz was no, not an adequate substitute.
+[00:01:09] Norm: Jon Lovitz was no, not an adequate substitute.
 
-[00:01:11] Will: Phil Hartman, John Lovitz had no hope coming into that. They should have just
+[00:01:11] Will: Phil Hartman, Jon Lovitz had no hope coming into that. They should have just
 
 [00:01:15] Adam: no, no, no. It was a Thankless job. Nobody, nobody, nobody could have done it.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:05:50] Will: good jobs.
 
-[00:05:50] Adam: Good jobs. So one of the things about bad jobs, how they define you, is in Is not only what they teach you, not only what they teach you about hard work and about dealing with people you don't like, which is all really valuable, but they also inform you in terms of how you respond to them. Your response shapes you, you know. So when you have a job in high school, boy, it's like you know, I'm watching my kids. How you do that job shapes how you do all jobs after that because it's the first one and it's the one you'll refer back to. And so I wanted to call out a couple of amazing employers I had early on that showed me a different way of thinking about things. Now, my dad was a filmmaker in New York in the '60s and a commercial director, and he was big in advertising. He was a madman, He was a Madman, and he was one of the creatives, like the big bearded Irish creative.
+[00:05:50] Adam: Good jobs. So one of the things about bad jobs, how they define you, is in Is not only what they teach you about hard work and about dealing with people you don't like, which is all really valuable, but they also inform you in terms of how you respond to them. Your response shapes you, you know. So when you have a job in high school, boy, it's like you know, I'm watching my kids. How you do that job shapes how you do all jobs after that because it's the first one and it's the one you'll refer back to. And so I wanted to call out a couple of amazing employers I had early on that showed me a different way of thinking about things. Now, my dad was a filmmaker in New York in the '60s and a commercial director, and he was big in advertising. He was a madman, He was a Madman, and he was one of the creatives, like the big bearded Irish creative.
 
 [00:06:41] Will: When you went to his office, did he have the drinks cart in the corner?
 
@@ -236,11 +236,11 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:11:11] Norm: And then you can stay within the lines,
 
-[00:11:13] Adam: right? You stay within the lines. Now, when there's another element like Wilma, she's not painted on the same cell.
+[00:11:13] Adam: right? You stay within the lines. Now, when there's another element like Wilma, she's not painted on the same cel.
 
 [00:11:19] Will: She's on a different.
 
-[00:11:20] Adam: She's on a different cell, which means that she's either over or under Fred. And every cell you put over another cell, the colors on the cell that's under have to be mixed one shade brighter because the acetate kills the color one one half shade. Wow. So you might have as many as six elements sometimes.
+[00:11:20] Adam: She's on a different cel, which means that she's either over or under Fred. And every cel you put over another cel, the colors on the cel that's under have to be mixed one shade brighter because the acetate kills the color one one half shade. Wow. So you might have as many as six elements sometimes.
 
 [00:11:38] Will: So you were you were filling you were color you were. This is this is very much like a chasing Amy discussion, but but so you were you were painting in the lines.
 

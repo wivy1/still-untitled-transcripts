@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:02:09] Adam: I was up on my roof with thing one and thing two here in the mission,
 
-[00:02:12] Norm: and then you came rolling by on a one wheel with three welding masks and threw them at us.
+[00:02:12] Norm: and then you came rolling by on a Onewheel with three welding masks and threw them at us.
 
 [00:02:18] Jeremy Williams: You were looking at the sky with your naked eyes.
 
@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:02:25] Adam: And we
 
-[00:02:25] Adam: Tweeted it wearing the welding masks, and then I rode back to the shop with all the welding helmets. And lo, as I pull up on the one wheel, the whole tested crew is out front looking at the thing. So I handed out I handed out welding helmets, and Danica said that is maybe the most Adam Savage moment I've ever experienced.
+[00:02:25] Adam: Tweeted it wearing the welding masks, and then I rode back to the shop with all the welding helmets. And lo, as I pull up on the Onewheel, the whole tested crew is out front looking at the thing. So I handed out I handed out welding helmets, and Danica said that is maybe the most Adam Savage moment I've ever experienced.
 
 [00:02:50] Jeremy Williams: Yeah, sounds about right. So, does a welding helmet look the same as the glasses that you got?
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:06:37] Norm: I didn't realize the culture of eclipse chasing was so obsessive.
 
-[00:06:41] Adam: Well, so when you read, I was telling my wife about this on the phone last night. There's a great book called Longitude about the attempt to solve the problem of longitude that finishes with the invention of one of the most accurate clocks up until that point ever designed, using bimetallic springs and all these ways to to offset the movement of a ship. But longitude includes all these astronomical observational stories. As people were trying to figure out, is there a way to cite my longitude just from looking at the sky? And so, astronomers would venture out. From England was one of the primary exporters of astronomers to go take astronomical readings of occlusions of different planets at different times from different parts of the world to see what they could learn. And all of these stories are rife with people who spent their entire lives taking boats for years and decades to locations only to have a cloudy day.
+[00:06:41] Adam: Well, so when you read, I was telling my wife about this on the phone last night. There's a great book called Longitude about the attempt to solve the problem of longitude that finishes with the invention of one of the most accurate clocks up until that point ever designed, using bimetallic springs and all these ways to to offset the movement of a ship. But longitude includes all these astronomical observational stories. As people were trying to figure out, is there a way to sight my longitude just from looking at the sky? And so, astronomers would venture out. From England was one of the primary exporters of astronomers to go take astronomical readings of occlusions of different planets at different times from different parts of the world to see what they could learn. And all of these stories are rife with people who spent their entire lives taking boats for years and decades to locations only to have a cloudy day.
 
 [00:06:41] Jeremy Williams: Right.
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:19:10] Adam: Laura Linney, about a money launderer in the Midwest.
 
-[00:19:18] Norm: Netflix says Breaking Bad.
+[00:19:18] Norm: Netflix's Breaking Bad.
 
 [00:19:19] Adam: Yeah, yes, so clearly that it's almost a little annoying.
 
@@ -434,11 +434,11 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:20:14] Norm: It looks good, and I, I think this resurgence. I mean, there's there's Black Mirror, which is fantastic, but this resurgence of anthology series, anthology sci-fi,
 
-[00:20:24] Adam: which is super exciting because we, I grew up on the Twilight Zone and Tales of Ordinary Madness, Outer Limits, Outer Limits, and it's really exciting that this is happening. If you want to feel better about the world, if you need that as a pill just to take, you should watch a trailer for a film called Patty Cakes.
+[00:20:24] Adam: which is super exciting because we, I grew up on the Twilight Zone and Tales of Ordinary Madness, Outer Limits, Outer Limits, and it's really exciting that this is happening. If you want to feel better about the world, if you need that as a pill just to take, you should watch a trailer for a film called Patti Cake$.
 
 [00:20:42] Jeremy Williams: Okay.
 
-[00:20:42] Adam: And the S on Patty Cakes is a money is a dollar sign, and it's about a young woman who wants to be a rapper, and it's
+[00:20:42] Adam: And the S on Patti Cake$ is a money is a dollar sign, and it's about a young woman who wants to be a rapper, and it's
 
 [00:20:50] Norm: oh yes, yes,
 
@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:21:25] Jeremy Williams: For me, that was Dream a Little Dream, a Corey Haim, Corey Feldman flick.
 
-[00:21:33] Adam: Two Corries.
+[00:21:33] Adam: Two Coreys.
 
 [00:21:34] Jeremy Williams: You know, it's whatever you watch at that age.
 
@@ -594,7 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:26:55] Adam: Those guys are amazing.
 
-[00:26:55] Norm: Luca, one of the two guys who were working on it, reached out. They're from Croatia. They like have this. No budget, but they're all doing things in miniatures, in camera.
+[00:26:55] Norm: Luka, one of the two guys who were working on it, reached out. They're from Croatia. They like have this. No budget, but they're all doing things in miniatures, in camera.
 
 [00:27:05] Adam: They're doing actual miniature work, and it looks freaking fantastic. I'm overwhelmed by it.
 

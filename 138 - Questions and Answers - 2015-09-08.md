@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:01:00] Will: But from what everyone's told me over the years, it's a it's it starts off kind of serious and there's panels and then it increasingly devolves into party by the end of the third day.
 
-[00:01:10] Adam: Dragon Con makes Comic Con look like amateur night from a costuming perspective. Yeah, Dragon Con is a just deeply embedded costuming culture. So no matter when you're wandering through your hotel, you are it. It is just everyone's in costume, and down in the lobby, it's crazy. It's like people playing D anD D on the carpet and drinking games and sing-alongs and karaoke and. I think nobody takes their costumes off for a couple of days, which you can smell when you get into the elevators.
+[00:01:10] Adam: Dragon Con makes Comic Con look like amateur night from a costuming perspective. Yeah, Dragon Con is a just deeply embedded costuming culture. So no matter when you're wandering through your hotel, you are it. It is just everyone's in costume, and down in the lobby, it's crazy. It's like people playing D&D on the carpet and drinking games and sing-alongs and karaoke and. I think nobody takes their costumes off for a couple of days, which you can smell when you get into the elevators.
 
 [00:01:46] Will: That's fun.
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:16:49] Adam: Sorry. Next question.
 
-[00:16:49] Will: Don says, " Hey guys, I'm looking to do some projects that require a lot of sanding, but I live in a New York City apartment without access to a yard or garage. Do you have any suggestions for dust management in a small enclosed space? Also, do you have suggestions for small reciprocating saw like the one Norman Frank used to cut their vacuum form shadow shadow stormtrooper pieces that weren't driven that aren't driven by compressed air? The electrical ones seem too big for small work. Thanks. Always be testing. Ah,
+[00:16:49] Will: Don says, " Hey guys, I'm looking to do some projects that require a lot of sanding, but I live in a New York City apartment without access to a yard or garage. Do you have any suggestions for dust management in a small enclosed space? Also, do you have suggestions for small reciprocating saw like the one Norm and Frank used to cut their vacuum form shadow shadow stormtrooper pieces that weren't driven that aren't driven by compressed air? The electrical ones seem too big for small work. Thanks. Always be testing. Ah,
 
 [00:17:13] Adam: okay. Um,
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:18:07] Will: or at least a garage.
 
-[00:18:08] Adam: Yeah, yeah. But in the meantime, I'm a. I've done projects in tiny apartments where it took months, weeks of sanding. So there's a couple of things. One is MicroMark, which is a model making catalog, and I think they have they definitely have a website. They sell a lovely little spray hood for doing airbrushing in an apartment that is actually also wonderful for sanding in front of.
+[00:18:08] Adam: Yeah, yeah. But in the meantime, I'm a. I've done projects in tiny apartments where it took months, weeks of sanding. So there's a couple of things. One is Micro-Mark, which is a model making catalog, and I think they have they definitely have a website. They sell a lovely little spray hood for doing airbrushing in an apartment that is actually also wonderful for sanding in front of.
 
 [00:18:36] Will: Oh.
 
@@ -394,7 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:19:13] Will: Well, watchmakers do the same thing. So if they lose a tiny little sprocket, the odds of it popping off and going in the apron is sometimes they can find it. Yeah.
 
-[00:19:20] Adam: So I have I have usually when I when I was working in an apartment, I had a towel dedicated to the sanding, and it was great. So I'd sand into the towel, and because it was terry cloth, it held the dust nicely until I took it outside and boom, boom, shook it out. I had a problem with the free floating dust, which meant that I would occasionally wipe down all the surfaces in my office to kind of keep them clean. But MicroMark sells this lovely little spray hood, which would be ideal for capturing that free floating dust.
+[00:19:20] Adam: So I have I have usually when I when I was working in an apartment, I had a towel dedicated to the sanding, and it was great. So I'd sand into the towel, and because it was terry cloth, it held the dust nicely until I took it outside and boom, boom, shook it out. I had a problem with the free floating dust, which meant that I would occasionally wipe down all the surfaces in my office to kind of keep them clean. But Micro-Mark sells this lovely little spray hood, which would be ideal for capturing that free floating dust.
 
 [00:19:50] Will: And do you hook it up to like a shop vac or something like that.
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:25:17] Will: Okay,
 
-[00:25:17] Adam: it is a masterpiece, and my wife and I watched it. We were totally blown away by it. I walked into work the next day, and I was talking to Steve, my director, my co-director, my producer, Steve Christensen, and we're talking about Let the Right One In, and he says, " Oh yeah, I really liked the fact that at the end you realize blah blah blah." And I was like, " Oh my God, he's totally right." I missed what might be the central theme of the film somehow. And I called up my wife, and I was like, " Hey, baby, get this. Listen to this. What do you think?" Blah blah blah. And I told her Steve's conclusion. And she was like, " Oh my God!" And we both were like, " We're idiots. How did we not get that?" So it's not like it's not like you just like get a bone and all of a sudden you're able to deeply analyze film. It's a process of talking through it and figuring out like what you liked, what resonated with you, why it resonated, whether it was on purpose from a filmmaker or not, because both happen all the time.
+[00:25:17] Adam: it is a masterpiece, and my wife and I watched it. We were totally blown away by it. I walked into work the next day, and I was talking to Steve, my director, my co-director, my producer, Steve Christiansen, and we're talking about Let the Right One In, and he says, " Oh yeah, I really liked the fact that at the end you realize blah blah blah." And I was like, " Oh my God, he's totally right." I missed what might be the central theme of the film somehow. And I called up my wife, and I was like, " Hey, baby, get this. Listen to this. What do you think?" Blah blah blah. And I told her Steve's conclusion. And she was like, " Oh my God!" And we both were like, " We're idiots. How did we not get that?" So it's not like it's not like you just like get a bone and all of a sudden you're able to deeply analyze film. It's a process of talking through it and figuring out like what you liked, what resonated with you, why it resonated, whether it was on purpose from a filmmaker or not, because both happen all the time.
 
 [00:26:15] Will: Yeah. Yeah,
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:26:57] Will: And that sends a very specific message.
 
-[00:27:00] Adam: Right, and these tend to be very famous shots, but Every Frame a Picture took a took a took fifteen minutes to educate the public on the fact that Steven Spielberg regularly uses minute plus long shots, but never draws attention to them. Just uses them as really efficient bits of filmmaking, and so does Woody Allen. There's an entire scene in Bullets Over Broadway where the camera walks into a bar and sits at the bar watching Chaz Palminteri and John Cusack have a conversation for like. Ten minutes,
+[00:27:00] Adam: Right, and these tend to be very famous shots, but Every Frame a Picture took a took a took fifteen minutes to educate the public on the fact that Steven Spielberg regularly uses minute plus long shots, but never draws attention to them. Just uses them as really efficient bits of filmmaking, and so does Woody Allen. There's an entire scene in Bullets Over Broadway where the camera walks into a bar and sits at the bar watching Chazz Palminteri and John Cusack have a conversation for like. Ten minutes,
 
 [00:27:32] Will: and they're in the mirror, right, or something.
 

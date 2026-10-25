@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:04:49] Will: Great content there.
 
-[00:04:51] Adam: Dude, there was a point, ah, God, season three or four, where Jamie got a serious flu, a bronchial flu that had him couldn't keep any food down for two weeks. I mean, it was really yeah. What would keep Jamie out of the shop for two weeks is serious, like losing a limb, right? And we managed to shoot around it and cover it and all that stuff, but Jamie came back in and he was like, " It was pretty hairy." I mean, Jamie doesn't get seasick ever. He's so he's like, you know, the last time I threw up was about thirty years ago, and I definitely didn't have this mustache, which is its own horror show. And I was like, " Stop talking right now! I don't want to think about your vomit kegged mo."
+[00:04:51] Adam: Dude, there was a point, ah, God, season three or four, where Jamie got a serious flu, a bronchial flu that had him couldn't keep any food down for two weeks. I mean, it was really yeah. What would keep Jamie out of the shop for two weeks is serious, like losing a limb, right? And we managed to shoot around it and cover it and all that stuff, but Jamie came back in and he was like, " It was pretty hairy." I mean, Jamie doesn't get seasick ever. He's so he's like, you know, the last time I threw up was about thirty years ago, and I definitely didn't have this mustache, which is its own horror show. And I was like, " Stop talking right now! I don't want to think about your vomit caked mo."
 
 [00:05:40] Will: Oh, that's the worst thing I've ever heard.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:21:00] Will: And cardboard is was a was the great equalizer. That's why we chose cardboard.
 
-[00:21:04] Adam: It really was. It really was. It was, it was one of the first times I felt like I was like picking above the clouds and realizing, oh, I could. I actually have a skill here, and I I can utilize it to do some really impressive stuff, and it's very exciting. It's an exciting sort of, um. Well, Jung always talked about the Parsifal Grail legend as a great analogy for male upbringing.
+[00:21:04] Adam: It really was. It really was. It was, it was one of the first times I felt like I was like peeking above the clouds and realizing, oh, I could. I actually have a skill here, and I I can utilize it to do some really impressive stuff, and it's very exciting. It's an exciting sort of, um. Well, Jung always talked about the Parsifal Grail legend as a great analogy for male upbringing.
 
 [00:21:27] Will: Was this the like the Indiana Jones and the Last Crusade?
 

@@ -368,11 +368,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:12:01] Will: No, no, it's okay. I turned the volume down on you. You've been punished now.
 
-[00:12:04] Adam: But you know, I joked. So, I did work in the food service industry. I worked as a busboy at a little restaurant in Tarrytown, New York, called Horse Feathers, which is still there.
+[00:12:04] Adam: But you know, I joked. So, I did work in the food service industry. I worked as a busboy at a little restaurant in Tarrytown, New York, called Horsefeathers, which is still there.
 
 [00:12:14] Will: Oh. That’s interesting.
 
-[00:12:15] Adam: Do you know Horse Feathers?
+[00:12:15] Adam: Do you know Horsefeathers?
 
 [00:12:15] Will: No, no, no. But I let me guess. It is a small town. There's like twenty seat, twenty tables. There's a bar. They have a big lunch crowd from like the local hospital or maybe attorneys' offices, and they have a pretty good fry cook. Yeah, short order line with hamburgers, French dip, your club sandwich.
 

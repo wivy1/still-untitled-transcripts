@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:08:34] Will: For me, the iconic is iconic. It’s that it's an icon of the film, like right, like it's it's a it's a thing from a thing that I saw in a theater, and wanted to have my own.
 
-[00:08:47] Adam: Look, Jim, I think that there's also something that's compelling to. It tends to be gendered, but it's not necessarily. But the the the action at a distance that a gun provides is like a magical power for human beings. Jim Jeffries, in his amazing like twenty minute stand up about stand up about American gun gun culture, and boy, you should go look at it because it's brilliant. He says, " Look, there's only one really good argument for guns, and it's boy, I really like guns." And he goes, " And that's a reasonable argument. I get it, and I get it. I totally get that." So I think it's twofold. I think it's multifold. I think there is the to me the Blade Runner blaster is my favorite weapon from a film because it feels so different and weird compared to what we normally have, yet it doesn't feel so fantastical like a ray gun from Lost in Space.
+[00:08:47] Adam: Look, Jim, I think that there's also something that's compelling to. It tends to be gendered, but it's not necessarily. But the the the action at a distance that a gun provides is like a magical power for human beings. Jim Jefferies, in his amazing like twenty minute stand up about stand up about American gun gun culture, and boy, you should go look at it because it's brilliant. He says, " Look, there's only one really good argument for guns, and it's boy, I really like guns." And he goes, " And that's a reasonable argument. I get it, and I get it. I totally get that." So I think it's twofold. I think it's multifold. I think there is the to me the Blade Runner blaster is my favorite weapon from a film because it feels so different and weird compared to what we normally have, yet it doesn't feel so fantastical like a ray gun from Lost in Space.
 
 [00:09:46] Norm: With an aesthetic appreciation,
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:27:40] Will: It's a quantity. It's a calories per dollar evaluation.
 
-[00:27:44] Norm: So to set it up, this is an old tested video, but we at one point were able to bring David Chang along with Tracy Chan to Houston to NASA, and
+[00:27:44] Norm: So to set it up, this is an old tested video, but we at one point were able to bring David Chang along with Traci Chan to Houston to NASA, and
 
 [00:27:55] Will: there was, we got to eat food from outer space. It wasn't from outer space, but we got to eat the food they eat in outer space.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:29:00] Will: peach cobbler.
 
-[00:29:01] Adam: Most people who. Who end up eating with a chef of Tracy or Dave's caliber ends up wondering, was I able to contribute to Dave's overall enjoyment of food?
+[00:29:01] Adam: Most people who. Who end up eating with a chef of Traci or Dave's caliber ends up wondering, was I able to contribute to Dave's overall enjoyment of food?
 
 [00:29:01] Will: No.
 

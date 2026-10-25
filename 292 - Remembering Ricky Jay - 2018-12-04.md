@@ -14,7 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:00:46] Jeremy: Hey,
 
-[00:00:47] Norm: out of order. Anytime you listen to the podcast and it starts off with not will, you realize it's going to be a special guest.
+[00:00:47] Norm: out of order. Anytime you listen to the podcast and it starts off with not Will, you realize it's going to be a special guest.
 
 [00:00:53] Adam: I'm in a different [unclear: character / territory]. Well, I guess if you're watching, you already know, but when you're listening, it's like a surprise.
 
@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:02:19] Norm: She can’t know that.
 
-[00:02:19] Adam: This is when I was at Industrial Light and Magic. A whole bunch of us, Dave Fogler Aaron Hay, Fon Davis. We all had kids at about the same time, and so we'd be in the computer room because it was a bunch of the Laser Boys. That's that's what we they kind of called me. And you know we would commiserate and talk about raising kids because again, just like six, seven people all with infants at home. And at one point, there's like a lunch, and I pick up the phone. Yeah, yeah, yeah, and I hang up the phone, and I went, man, that was a tough call. And my John Duncan turns to me and he goes, " Is that one of the I've locked myself in the bathroom to keep from killing your children?" Call. And I said, " Yeah, that was the call."
+[00:02:19] Adam: This is when I was at Industrial Light and Magic. A whole bunch of us, Dave Fogler Aaron Haye, Fon Davis. We all had kids at about the same time, and so we'd be in the computer room because it was a bunch of the Laser Boys. That's that's what we they kind of called me. And you know we would commiserate and talk about raising kids because again, just like six, seven people all with infants at home. And at one point, there's like a lunch, and I pick up the phone. Yeah, yeah, yeah, and I hang up the phone, and I went, man, that was a tough call. And my John Duncan turns to me and he goes, " Is that one of the I've locked myself in the bathroom to keep from killing your children?" Call. And I said, " Yeah, that was the call."
 
 [00:03:03] Norm: And today, with with with text messaging and FaceTime, you can't. You can't not pick up those and.
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:16:37] Norm: story.
 
-[00:16:38] Adam: and then there's a there's an early 80s there's sorry there's a 90s HBO documentary of a stage show he did called Ricky Jay and His 52 Assistants, which is absolutely worth watching. I mean, the thing that he would do with his card magic, he really appreci-. You know. Ricky Jay, one of his mentors was Dai Vernon, this really important 20th century magician who really advocated a naturalistic style, not a David Copperfield kind of whoa things are happening, but much more of a you know learned from [unclear: card sheets]. So you know these are the magicians that are like you don't move a coin from one hand to the other. Nobody nobody does that. You do the natural things, the things that don't draw your attention, and so that people like Derek DelGaudio, who's also are adepts of that that style. When you watch them do stuff, it's twice as mysterious because it just feels you don't see any flourishes of cards like you know doing incredible things. You're just watching the impossible happen by what seems like someone just naturally shuffling cards,
+[00:16:38] Adam: and then there's a there's an early 80s there's sorry there's a 90s HBO documentary of a stage show he did called Ricky Jay and His 52 Assistants, which is absolutely worth watching. I mean, the thing that he would do with his card magic, he really appreci-. You know. Ricky Jay, one of his mentors was Dai Vernon, this really important 20th century magician who really advocated a naturalistic style, not a David Copperfield kind of whoa things are happening, but much more of a you know learned from [unclear: card cheats]. So you know these are the magicians that are like you don't move a coin from one hand to the other. Nobody nobody does that. You do the natural things, the things that don't draw your attention, and so that people like Derek DelGaudio, who's also are adepts of that that style. When you watch them do stuff, it's twice as mysterious because it just feels you don't see any flourishes of cards like you know doing incredible things. You're just watching the impossible happen by what seems like someone just naturally shuffling cards,
 
 [00:17:40] Jeremy: right? Which took 10,000 hours of practice,
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:21:41] Adam: Amazing.
 
-[00:21:41] Jeremy: Super. I mean, it's super cool, and all these things People have been messing around with this for five, six years now in the maker community. But I just finally got into it because of this project. I'm working on another project with Mike Mica over at Other Ocean. Where we're driving tanks around over the internet, and we want
+[00:21:41] Jeremy: Super. I mean, it's super cool, and all these things People have been messing around with this for five, six years now in the maker community. But I just finally got into it because of this project. I'm working on another project with Mike Mika over at Other Ocean. Where we're driving tanks around over the internet, and we want
 
 [00:21:55] Unknown speaker (Jeremy or Norm or Adam): like you do,
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:26:02] Unknown speaker (Norm then Adam or Norm): And [unclear: yeah, yeah / and yeah],
 
-[00:26:03] Adam: We have you before the podcast. We were looking at a beautiful object that Kayte Sabicer has been working on for several months with me, and I hope I want to do a. We're going to do a test video where we interview Kate about the work and this final object because it's a pretty amazing object.
+[00:26:03] Adam: We have you before the podcast. We were looking at a beautiful object that Kayte Sabicer has been working on for several months with me, and I hope I want to do a. We're going to do a Tested video where we interview Kayte about the work and this final object because it's a pretty amazing object.
 
 [00:26:19] Jeremy: This is one not to miss. I'm telling you, like I mean that from the heart. This is amazing.
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:28:26] Norm:  Spielberg, Lawrence Kasdan, and and Francis Ford Coppola.
 
-[00:28:51] Adam: Your memory norm is really something to marvel at.
+[00:28:51] Adam: Your memory Norm is really something to marvel at.
 
 [00:28:54] Jeremy: He's He's lost ten percent.
 

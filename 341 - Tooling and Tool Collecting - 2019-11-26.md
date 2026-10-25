@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:03:52] Zach: Put some extra smoke in, and it's a whole new place.
 
-[00:03:53] Adam: Well, and actually, when we were in Covenant, there was a hallway we saw a model of it first uh, out of foam core, and I think it was probably 1:24 scale, and it was about this long, and I was like. Well, there's no way they built the actual set. Yeah, they did. Not only did they build the actual set that long, but they had mirrors at the end so that it looked like a 300 foot long hallway. And and I mentioned visiting the Covenant set several times to the set deck team on the Expanse because they're having so much fun. You could, I mean, the amount of iteration they're carving up old sets to make new ones. They're repurposing. They're storing. They're
+[00:03:53] Adam: Well, and actually, when we were in Covenant, there was a hallway we saw a model of it first uh, out of foam core, and I think it was probably 1:24 scale, and it was about this long, and I was like. Well, there's no way they built the actual set. Yeah, they did. Not only did they build the actual set that long, but they had mirrors at the end so that it looked like a 300 foot long hallway. And and I mentioned visiting the Covenant set several times to the set dec team on the Expanse because they're having so much fun. You could, I mean, the amount of iteration they're carving up old sets to make new ones. They're repurposing. They're storing. They're
 
 [00:04:29] Zach: They're kit bashing.
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:05:26] Norm: Hilarious!
 
-[00:05:27] Adam: So we visited that set, which is amazing. Paul Simms is the showrunner. He was the creator of one of my favorite old sitcoms, News Radio.
+[00:05:27] Adam: So we visited that set, which is amazing. Paul Simms is the showrunner. He was the creator of one of my favorite old sitcoms, NewsRadio.
 
 [00:05:37] Zach: Oh yeah.
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:06:50] Norm: I think so. Okay. Yeah.
 
-[00:06:50] Adam: Um, it was a lovely set. Again, we visited a lot of sets on on tested, and a movie set is a high pressure place full of people who are. Busting their ass to do their best work, and it's always really exciting. I have rarely visited a set that is as much of a family as the Expanse. What we do in the Shadows felt similar. And actually, when they brought us over to sit down in Video Village and watch the takes, they were like, " You can sit here." And I look at the name on the chair; it's Bob Monroe, my friend, who was the effects director for the Expanse when we were there for season two. Bob actually directed my death, and now he's working on Shadows.
+[00:06:50] Adam: Um, it was a lovely set. Again, we visited a lot of sets on on tested, and a movie set is a high pressure place full of people who are. Busting their ass to do their best work, and it's always really exciting. I have rarely visited a set that is as much of a family as the Expanse. What we do in the Shadows felt similar. And actually, when they brought us over to sit down in Video Village and watch the takes, they were like, " You can sit here." And I look at the name on the chair; it's Bob Munroe, my friend, who was the effects director for the Expanse when we were there for season two. Bob actually directed my death, and now he's working on Shadows.
 
 [00:07:26] Norm: It's the Toronto film community.
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:25:42] Adam: Dude, Mandalorian episode three is fantastic. Also, Watchmen remains phenomenal.
 
-[00:25:48] Norm: Oh God, that last— I got back from Designer Con at like twelve thirty a.m. last night, and I still had to stay up to watch the latest episode, episode six of Watchmen. That that should win all the Emmys. That episode
+[00:25:48] Norm: Oh God, that last— I got back from DesignerCon at like twelve thirty a.m. last night, and I still had to stay up to watch the latest episode, episode six of Watchmen. That that should win all the Emmys. That episode
 
 [00:25:59] Adam: it is. There are levels of cultural intersection of talking about important issues that television can do in a way that is way deeper than films can do because you can carry things across long arcs like. Breaking Bad,
 

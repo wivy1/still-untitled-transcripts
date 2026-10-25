@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:02:39] Will: You're just charging at that point, officer.
 
-[00:02:40] Adam: It was just after it was just after Waz had gotten pulled over for doing a hundred and two on two eighty. So I took a picture of my dashboard with one hundred and fourteen on it, and I the finger, and I sent it to Waz.
+[00:02:40] Adam: It was just after it was just after Woz had gotten pulled over for doing a hundred and two on two eighty. So I took a picture of my dashboard with one hundred and fourteen on it, and I the finger, and I sent it to Woz.
 
 [00:02:54] Will: Still Untitled is not an advice podcast, and the things that Adam are saying should not be tested by anyone.
 
@@ -110,9 +110,9 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:03:27] Will: Yeah, Mola Ram,
 
-[00:03:28] Norm: Kalama,
+[00:03:28] Norm: Kali Ma,
 
-[00:03:29] Will: Kalama.
+[00:03:29] Will: Kali Ma.
 
 [00:03:30] Adam: What a terror!
 
@@ -682,7 +682,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:22:47] Unknown speaker: Yeah. Yeah.
 
-[00:22:47] Adam: I haven't seen it, but in the the almost religious awe episode ends with her revealing to Angela Abar that the Seventh Cavalry's plan is to kidnap Doctor Manhattan, who turns out to have been living as a person.
+[00:22:47] Adam: I haven't seen it, but in the the almost religious awe episode ends with her revealing to Angela Abar that the Seventh Kavalry's plan is to kidnap Doctor Manhattan, who turns out to have been living as a person.
 
 [00:23:01] Norm: Human, yes,
 

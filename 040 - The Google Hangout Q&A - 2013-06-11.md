@@ -242,11 +242,11 @@ Episode URL: https://www.youtube.com/watch?v=rkUj3lomdMw
 
 [00:25:11] Will: That's terrible.
 
-[00:25:12] Adam: It gets better. So, a friend I used to work with, his name is Kundo Rabadi, and I'm not sure where Kundo's working right now, but Kundo and I were talking about this one day, and he said, "No, I've got it. I figured out the worst possible thing you could do that would cause the most amount of damage and wreck the most amount of dollars of man hours built." And it was when he was working on The Nightmare Before Christmas, and everyone in San Francisco worked on that film. So, you know, there's hundreds of model makers working, and people might not realize that it's not stop motion—well, it is stop motion animated, but it's not claymation. Those faces of Jack Skellington, every single one, is a separate sculpt. So every—where he moves his face is a separately sculpted Jack Skellington head that's been sculpted and painted.
+[00:25:12] Adam: It gets better. So, a friend I used to work with, his name is Cundo Rabaudi, and I'm not sure where Cundo's working right now, but Cundo and I were talking about this one day, and he said, "No, I've got it. I figured out the worst possible thing you could do that would cause the most amount of damage and wreck the most amount of dollars of man hours built." And it was when he was working on The Nightmare Before Christmas, and everyone in San Francisco worked on that film. So, you know, there's hundreds of model makers working, and people might not realize that it's not stop motion—well, it is stop motion animated, but it's not claymation. Those faces of Jack Skellington, every single one, is a separate sculpt. So every—where he moves his face is a separately sculpted Jack Skellington head that's been sculpted and painted.
 
 [00:26:01] Will: So somewhere there's a room with like thousands and thousands of heads.
 
-[00:26:04] Adam: Precisely, there was a room with thousands of—I—I don't even remember how many thousands of Jack, but there was Jack and Sally and every other character in this locked room at Skellington Productions, because they were the most important assets. People had spent years making these, and Kundo's idea was, "What if you went into that room with a handful of glitter?"
+[00:26:04] Adam: Precisely, there was a room with thousands of—I—I don't even remember how many thousands of Jack, but there was Jack and Sally and every other character in this locked room at Skellington Productions, because they were the most important assets. People had spent years making these, and Cundo's idea was, "What if you went into that room with a handful of glitter?"
 
 [00:26:26] Will: Oh my God! Oh, that's terrible.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=rkUj3lomdMw
 
 [00:26:56] Will: Sparkles everywhere, right?
 
-[00:26:57] Adam: Absolutely. This would be wrecking literally man years—man years of work, man and woman years of work. That—I have to give it up to Kundo. That's the worst I've ever thought of.
+[00:26:57] Adam: Absolutely. This would be wrecking literally man years—man years of work, man and woman years of work. That—I have to give it up to Cundo. That's the worst I've ever thought of.
 
 [00:27:06] Will: That's horrible. That is absolutely monstrous. Um, we have time for a couple more questions. Let's see, uh, oop, I lost the window there. Sorry. People are asking what you think about the NSA leaks. Do we want to talk about that, or should we devote the whole episode to that?
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=rkUj3lomdMw
 
 [00:29:44] Will: Exactly. Exactly. A couple more questions. Eric Glossy says, "Adam, do you have any formal education machining?" In the video we posted a few days ago where you're doing the flashlight, you reached under the spinning head—the spinning chuck—and he had a heart attack. Yes. We've talked about shop safety before. I—I was there, and I gasped. I think you can hear me on the video if you listen real hard. Um, yeah, yeah. Go ahead.
 
-[00:30:10] Adam: You know, in his—in—in—in his great film, A Love Letter to Plywood, Tom Sachs talks about the table saw as a witch that will take your fingers if you do not respect her. That when you are working on these machines, you are thinking only of what they could do to you. I have bruised my knuckles on a—on the spinning head of a lathe, and you're right, that wasn't the best practice. I don't have formal education on the—on the milling machines and the lathes. I used to work with a great machinist named Chris Rand, and Chris worked on Skeleton and a whole bunch of other ILM projects over the years. He's an amazing machinist, and his technique for teaching me was as I was setting something up on the mill, and I'd be like, you know, locking something down into the mill—the vise—and measuring it and getting ready. I'd look over at him, and he'd be watching me carefully, and he'd either go. Or like this, and if he gave you this, this you could keep on going. But sometimes he'd just be like, "No, not at all." Um, yes.
+[00:30:10] Adam: You know, in his—in—in—in his great film, A Love Letter to Plywood, Tom Sachs talks about the table saw as a witch that will take your fingers if you do not respect her. That when you are working on these machines, you are thinking only of what they could do to you. I have bruised my knuckles on a—on the spinning head of a lathe, and you're right, that wasn't the best practice. I don't have formal education on the—on the milling machines and the lathes. I used to work with a great machinist named Chris Rand, and Chris worked on Skellington and a whole bunch of other ILM projects over the years. He's an amazing machinist, and his technique for teaching me was as I was setting something up on the mill, and I'd be like, you know, locking something down into the mill—the vise—and measuring it and getting ready. I'd look over at him, and he'd be watching me carefully, and he'd either go. Or like this, and if he gave you this, this you could keep on going. But sometimes he'd just be like, "No, not at all." Um, yes.
 
 [00:31:14] Will: Oh, never this, right?
 

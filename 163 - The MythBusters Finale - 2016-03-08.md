@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:08:29] Will: Yeah.
 
-[00:08:29] Adam: So we decided lightweight RV and and we'll use that. But you got to watch it light up from the inside. And just as a note, that was the same amount of explosives we used to dispose of the first cement truck: 850 pounds of ammo.
+[00:08:29] Adam: So we decided lightweight RV and and we'll use that. But you got to watch it light up from the inside. And just as a note, that was the same amount of explosives we used to dispose of the first cement truck: 850 pounds of ANFO.
 
 [00:08:29] Will: Yeah.
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:13:19] Adam: Well, and there's lots of decisions to be made. So they'll say you can't put a camera there, and then
 
-[00:13:25] Will: day meaning New Mexico Tech.
+[00:13:25] Will: they meaning New Mexico Tech.
 
 [00:13:26] Adam: New Mexico Tech will say we can't put a camera there. It's not safe. We have to have you over here. We only have two miles of cord to go over there, and so then all of this has to be worked out by all of us, right? So narratively, what's important to me to see out of this? What are the three key shots I want? They can get all these other shots that they want, but I've got a couple I want on my list. Okay, so we can't get one of mine. How are we going to get something similar to it? Et cetera, et cetera, et cetera. It's all of this back and forth. Okay, turns out we can't get this up until then. What do we do about this and that?
 
@@ -406,13 +406,13 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:18:59] Adam: That was that was that was the last time we filmed there, and I can. Barely describe to you how much work the crew put into assembling all that stuff,
 
-[00:19:09] Norm: right? Because it's not like they were just in, like, ready in in five to dig out.
+[00:19:09] Norm: right? Because it's not like they were just in, like, ready in M5 to dig out.
 
 [00:19:13] Adam: No, no, no, no. In fact, most of the time they were making a lot of that stuff from scratch in in
 
 [00:19:13] Norm: wow
 
-[00:19:13] Adam: bulk, and so it was. We hired extra people. Old friends of mine from ILM came down and worked for us, and it was just weeks and weeks of poor Tori Fink, our main shop guy, and his team just assembling this stuff and putting it together, painting, cutting out mannequins, duct tape boats, asking for solutions. So I was on tour during some of that. Was I on tour? I can't remember where I was. I was on. I was somewhere where I was like literally dipping in constantly to put out fires and give them simple solutions for putting stuff together. But it was the most monumental effort on behalf of the crew.
+[00:19:13] Adam: bulk, and so it was. We hired extra people. Old friends of mine from ILM came down and worked for us, and it was just weeks and weeks of poor Tory Fink, our main shop guy, and his team just assembling this stuff and putting it together, painting, cutting out mannequins, duct tape boats, asking for solutions. So I was on tour during some of that. Was I on tour? I can't remember where I was. I was on. I was somewhere where I was like literally dipping in constantly to put out fires and give them simple solutions for putting stuff together. But it was the most monumental effort on behalf of the crew.
 
 [00:20:01] Norm: Because for some, you have a whole series of things, two hundred objects or so.
 
@@ -472,11 +472,11 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:20:59] Will: Yeah,
 
-[00:20:59] Adam: I don't want to air towards the camera car. I can't see on my right because I don't want to. I don't want to hurt him. Now that's being driven by a professional cop training driver, Brian. So I know he knows enough to stay safe. But again, I'm in the sixty thousand pound vehicle. I want to keep it away from everybody. So I'm using touch. I'm using sight, and I'm. We put up street signs that had each year on them, and I'm using those to gauge my my direction. It was. I said this to you guys on the podcast right afterwards. It was without a doubt the best driving I've ever done in my professional life.
+[00:20:59] Adam: I don't want to err towards the camera car. I can't see on my right because I don't want to. I don't want to hurt him. Now that's being driven by a professional cop training driver, Brian. So I know he knows enough to stay safe. But again, I'm in the sixty thousand pound vehicle. I want to keep it away from everybody. So I'm using touch. I'm using sight, and I'm. We put up street signs that had each year on them, and I'm using those to gauge my my direction. It was. I said this to you guys on the podcast right afterwards. It was without a doubt the best driving I've ever done in my professional life.
 
 [00:21:36] Will: Did you guys put the last couple of vans in the funnel on purpose, or was that just a happy accident?
 
-[00:21:40] Adam: was no. It was it wasn't that we we didn't put them in that orientation to funnel me towards the Impala. We did that because we weren't sure how much impetus I would have, and we didn't want them to stop me. So that was a compromise that Steve O, Steve Christensen, my director, and I came up with at the very end. We just we moved them. It was really fun using a forklift. On cars, I didn't care about.
+[00:21:40] Adam: was no. It was it wasn't that we we didn't put them in that orientation to funnel me towards the Impala. We did that because we weren't sure how much impetus I would have, and we didn't want them to stop me. So that was a compromise that Steve O, Steve Christiansen, my director, and I came up with at the very end. We just we moved them. It was really fun using a forklift. On cars, I didn't care about.
 
 [00:22:03] Will: Oh my god! I can't imagine. Between that and when you did the the vacuum lifter and then just dropped it from sixty feet or whatever, how much? How much fun?
 
@@ -680,7 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:30:02] Adam: Yeah, no, it was absolutely amazing. That's one of my producers, Yvette is the one sweeping up in the background,
 
-[00:30:08] Norm: and you had Tori with a hand over the mouth, covering his beard, it's
+[00:30:08] Norm: and you had Tory with a hand over the mouth, covering his beard, it's
 
 [00:30:12] Norm: like Chris covering over the beard that Chris Evans had to do.
 
@@ -732,7 +732,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:34:15] Will: I love I love learning about that stuff.
 
-[00:34:16] Adam: And Jim Fife, the producer that I was working with, was so like everyone was amazing. But you know, just like willing to try stuff. Okay, do you want to get shot in the ass? You want your pants up? I was thinking about having my pants up. Okay, what if would you be willing if we got you some like pink Spanx or something? You willing? And then on the day of, he's like, so we're talking about it, and if we can get permission, how do you feel about just dropping trou for real? And I'm like, I'll do it.
+[00:34:16] Adam: And Jim Fyfe, the producer that I was working with, was so like everyone was amazing. But you know, just like willing to try stuff. Okay, do you want to get shot in the ass? You want your pants up? I was thinking about having my pants up. Okay, what if would you be willing if we got you some like pink Spanx or something? You willing? And then on the day of, he's like, so we're talking about it, and if we can get permission, how do you feel about just dropping trou for real? And I'm like, I'll do it.
 
 [00:34:16] Unknown speaker: Wow,
 

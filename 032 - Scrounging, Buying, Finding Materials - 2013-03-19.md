@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:04:18] Norm: Or try to sell to?
 
-[00:04:18] Adam: I used to live across the street from a rubber company called Darkoid Rubber. They moved out to the East Bay like everybody else did, um, but back when they were across the street from a rubber company, they moved across the street from me, um, I actually first I would grab stuff out of their dumpster, and then I would just go over and be like, can I buy some more sheets of that stuff you guys punch all the circles out of? And they're like, yeah, and they were just, and then you know, if you get a friendly a friendly person over there, they'll just hand you
+[00:04:18] Adam: I used to live across the street from a rubber company called Darcoid Rubber. They moved out to the East Bay like everybody else did, um, but back when they were across the street from a rubber company, they moved across the street from me, um, I actually first I would grab stuff out of their dumpster, and then I would just go over and be like, can I buy some more sheets of that stuff you guys punch all the circles out of? And they're like, yeah, and they were just, and then you know, if you get a friendly a friendly person over there, they'll just hand you
 
 [00:04:44] Will: if they're going to throw it out,
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:08:28] Will: Oh, like a like a like go to the junkyard.
 
-[00:08:31] Adam: Yeah. You so so I, again, I'm not sure how many there are in other cities, but in San Francisco there's a couple in San Francisco. There's a couple out in the East Bay, uh, out on Hagenberger Road. And when I had my Volvo, that's where I was buying new window motors and stuff. But when you're making robots, R2-D2 here is pow—was powered at one point by a couple of, uh, window motors in his feet.
+[00:08:31] Adam: Yeah. You so so I, again, I'm not sure how many there are in other cities, but in San Francisco there's a couple in San Francisco. There's a couple out in the East Bay, uh, out on Hegenberger Road. And when I had my Volvo, that's where I was buying new window motors and stuff. But when you're making robots, R2-D2 here is pow—was powered at one point by a couple of, uh, window motors in his feet.
 
 [00:08:45] Unknown speaker: Yeah.
 

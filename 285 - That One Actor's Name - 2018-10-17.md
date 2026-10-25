@@ -234,25 +234,25 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:08:51] Will: So, so that's the thing: is they don't end up. Almost all the characters end up getting redemptive arcs.
 
-[00:08:56] Adam: Ah, so I, I stopped once I met Sofia Butella.
+[00:08:56] Adam: Ah, so I, I stopped once I met Sofia Boutella.
 
 [00:08:57] Will: And they don't telegraph that at all.
 
 [00:08:58] Adam: And she was right.
 
-[00:09:00] Will: Yeah, Sophia Boutella.
+[00:09:00] Will: Yeah, Sofia Boutella.
 
-[00:09:01] Adam: I saw Sophia Boutella being kind of a jerk, and I was like, I just, I don't, I don't have it right now.
+[00:09:01] Adam: I saw Sofia Boutella being kind of a jerk, and I was like, I just, I don't, I don't have it right now.
 
 [00:09:05] Will: So,
 
 [00:09:05] Adam: but it's
 
-[00:09:05] Will: it's it's Charlie Day, Sophia Boutella, um, uh,
+[00:09:05] Will: it's it's Charlie Day, Sofia Boutella, um, uh,
 
 [00:09:11] Norm: Jodie Foster,
 
-[00:09:11] Will: Jodie Foster, Jenny Slates, Dave Batista, Jeff Goldblum.
+[00:09:11] Will: Jodie Foster, Jenny Slates, Dave Bautista, Jeff Goldblum.
 
 [00:09:11] Adam: Jenny Slate’s in it?
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:11:30] Norm: or an immersive theater.
 
-[00:11:38] Will: Like, just to be clear, I think I I really like Hotel Artemis. I felt rewarded at the end for pushing through. Right. Okay. I had the same moment early on when when when Sophia Sophia. Patel is talking to Charlie Day in the bar. Like these, these characters are all bad. Everybody here is bad,
+[00:11:38] Will: Like, just to be clear, I think I I really like Hotel Artemis. I felt rewarded at the end for pushing through. Right. Okay. I had the same moment early on when when when Sofia Sofia. Boutella is talking to Charlie Day in the bar. Like these, these characters are all bad. Everybody here is bad,
 
 [00:11:53] Adam: and it's almost like they're wearing cards that go, " I'm bad."
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:17:13] Will: yeah, it's it is. I like I got yeah I got armchills
 
-[00:17:16] Adam: and and Chakino's score is yeah phenomenal. Okay, but we're not talking about that kind of space. We're talking not we're talking nonfiction.
+[00:17:16] Adam: and and Giacchino's score is yeah phenomenal. Okay, but we're not talking about that kind of space. We're talking not we're talking nonfiction.
 
 [00:17:25] Will: Zachary Quinto is in Hotel Artemis as well.
 
@@ -658,15 +658,15 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:21:58] Norm: He runs into the room every time.
 
-[00:22:02] Adam: Um, and uh, parts of right stuff were shot here in San Francisco because Gary Gutierrez, who used to be my boss at Colossal Pictures, was the effects director. Really, on the film. So, yeah, if you look at old episodes of MythBusters, you'll see some airplanes on the wall, and some of those were from the Wright Stuff special effects shots.
+[00:22:02] Adam: Um, and uh, parts of right stuff were shot here in San Francisco because Gary Gutierrez, who used to be my boss at Colossal Pictures, was the effects director. Really, on the film. So, yeah, if you look at old episodes of MythBusters, you'll see some airplanes on the wall, and some of those were from the Right Stuff special effects shots.
 
 [00:22:19] Norm: Oh, that's amazing!
 
-[00:22:20] Adam: In fact, the giant globe that hung above Jamie's machine shop was built for one of the looking back at the planet shots from Wright Stuff.
+[00:22:20] Adam: In fact, the giant globe that hung above Jamie's machine shop was built for one of the looking back at the planet shots from Right Stuff.
 
 [00:22:20] Norm: Really?
 
-[00:22:28] Norm: Now, the framing of those two films, with Apollo thirteen and the Wright Stuff, are very different. Also, right? Wright Stuff is about Mercury, and Apollo thirteen is about one mission, and you can fill two hours, two and a half hours, with either of those. First Man is interesting in that it is not one mission or one program; it is one person's journey.
+[00:22:28] Norm: Now, the framing of those two films, with Apollo thirteen and the Right Stuff, are very different. Also, right? Right Stuff is about Mercury, and Apollo thirteen is about one mission, and you can fill two hours, two and a half hours, with either of those. First Man is interesting in that it is not one mission or one program; it is one person's journey.
 
 [00:22:47] Adam: Well, that's exactly the process. It's an incredibly personal, incredibly personal film in which that leaps forward in time, sometimes abruptly five years, but each of those leaps is not done by oh, see how far they've gone in the Apollo program. Each of those leaps involves Armstrong's family. And in that, it is a very quiet. If you are going expecting either right stuff or Apollo thirteen, this isn't either of those. It's a very quiet and personal film.
 
@@ -680,7 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:23:51] Will: But the crux of the film is, hey, here is here is this human being. Here is the story of him and his family, and here is the toll it took on these normal human beings who were thrust into extraordinary circumstances.
 
-[00:24:03] Adam: And that's the thing that I found the most affecting about it was they. Shazelle shows really, really clearly how, what it is to be the spearpoint of new inventions to do impossible things.
+[00:24:03] Adam: And that's the thing that I found the most affecting about it was they. Chazelle shows really, really clearly how, what it is to be the spearpoint of new inventions to do impossible things.
 
 [00:24:18] Will: The, um, we Gina and I went and saw it in the screening, and Ariel was there. Afterwards, I think she said that it's it reminded her of the quote that he's famous for about being just the man on the at the point of a hundred thousand people, and that's very much what the film felt like.
 
@@ -806,9 +806,9 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:27:39] Adam: I think this is a movie where we're not really worrying about spoilers. In fact, we could talk about scene after scene.
 
-[00:27:44] Norm: Jason Clark.
+[00:27:44] Norm: Jason Clarke.
 
-[00:27:45] Adam: Jason Clark.
+[00:27:45] Adam: Jason Clarke.
 
 [00:27:45] Will: Yes.
 
@@ -832,7 +832,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:28:30] Norm: And I think exhausting is good. We describe the the three main flight sequences because the way that Damien Chazelle and his cinematography cinematographer works on this is makes you feel like you're in the in the cockpit, in the space. It's very claustrophobic.
 
-[00:28:46] Adam: I will have to tell you in a tiny way in which I've been lucky enough in my life to sit in devices that I have built to do ridiculous things. Um, the movie is full of these little moments of camaraderie between naturally um untalkative astronauts. These moments where Two people and who are excellent at their jobs stop and are like, " Wow, like, right?" And I, I, I connected with that moment because I've been there with Heidemann.
+[00:28:46] Adam: I will have to tell you in a tiny way in which I've been lucky enough in my life to sit in devices that I have built to do ridiculous things. Um, the movie is full of these little moments of camaraderie between naturally um untalkative astronauts. These moments where Two people and who are excellent at their jobs stop and are like, " Wow, like, right?" And I, I, I connected with that moment because I've been there with Hyneman.
 
 [00:28:46] Will: Yeah,
 
@@ -936,7 +936,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:35:44] Norm: well, there's a thread. There's one thread thematically from Whiplash to La La Land to First Man, and it's that these professions and these accomplishments that are glamorized in public. He pulls the curtain back. A little bit on that, whether it's from musicians to acting Hollywood to the heroes in our space history, he does he definitely pulls that curtain a little back.
 
-[00:36:06] Will: I mean, it's it's definitely not like the thing. The thing Gina said after we saw this was that it seemed like the kind of movie that couldn't be made until now, right? It's it's a more honest, raw look at this at this time in history. It was now forty, fifty years ago than we maybe were capable of it when we were kids. Um, and and I'm I'm you know I I kind of feel like like Shazal's taking a um like the Danny Boyle path, right? Like instead of instead of getting bogged down in one genre and becoming a genre director, he seems to be kind of like spreading his wings and trying a little bit of everything, which I I really appreciate.
+[00:36:06] Will: I mean, it's it's definitely not like the thing. The thing Gina said after we saw this was that it seemed like the kind of movie that couldn't be made until now, right? It's it's a more honest, raw look at this at this time in history. It was now forty, fifty years ago than we maybe were capable of it when we were kids. Um, and and I'm I'm you know I I kind of feel like like Chazelle's taking a um like the Danny Boyle path, right? Like instead of instead of getting bogged down in one genre and becoming a genre director, he seems to be kind of like spreading his wings and trying a little bit of everything, which I I really appreciate.
 
 [00:36:43] Adam: I do too. I do too. I so I as a space nut, I really enjoyed this film. As a film nut, I thought it was really lovely, and I thought I was surprised as a person with kids how sensitively it really showed the toll on a family of of that kind of endeavor.
 
@@ -958,7 +958,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:37:13] Norm: well dedicated, determined, absolutely people, and the toll that takes.
 
-[00:37:20] Will: I, I, I, I, I really, I walked away from the singing. It was a really unkind portrait of, like, probably honest, but but he he did not paint a a wonderful picture. You know, he painted Neil Armstrong as a bad dad, well a good dad, and also a bad dad at the same time, which is, I think, how most dads probably feel like they are at the end of the day.
+[00:37:20] Will: I, I, I, I, I really, I walked away from the screening. It was a really unkind portrait of, like, probably honest, but but he he did not paint a a wonderful picture. You know, he painted Neil Armstrong as a bad dad, well a good dad, and also a bad dad at the same time, which is, I think, how most dads probably feel like they are at the end of the day.
 
 [00:37:39] Adam: There but for the grace.
 

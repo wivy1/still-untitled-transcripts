@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:00:24] Adam: There was no traffic through the city for like the whole last week.
 
-[00:00:27] Will: We went to the Presidio picnic yesterday, which is like a big. There's a million food trucks out on the Presidio Green near Tracy's restaurant.
+[00:00:27] Will: We went to the Presidio picnic yesterday, which is like a big. There's a million food trucks out on the Presidio Green near Traci's restaurant.
 
 [00:00:35] Adam: Oh yeah, in that quadrangle
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:13:06] Will: Amazon.
 
-[00:13:07] Adam: Amazon. I bought it on Amazon. Oh, and there's, yeah, there's there's the the lead actress in this the the mall the girlfriend of the villain, the poor this poor actress is basically scantily clad in almost every scene. It’s basi- basically she’s the phys- her costumes are the physical equivalent of side boob for the entire series, and I just kept thinking she's got to be cold. Like,
+[00:13:07] Adam: Amazon. I bought it on Amazon. Oh, and there's, yeah, there's there's the the lead actress in this the the moll the girlfriend of the villain, the poor this poor actress is basically scantily clad in almost every scene. It’s basi- basically she’s the phys- her costumes are the physical equivalent of side boob for the entire series, and I just kept thinking she's got to be cold. Like,
 
 [00:13:35] Will: no, it's Cairo, man.
 
@@ -684,7 +684,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:24:26] Will: Yeah, the very last minute. Like the suiting up. Like a couple of days ago, it was the suiting up, the the suit, the donning the suit trial and and practice and the egress tests, and like it's amazing.
 
-[00:24:39] Adam: Well, and then because I've poured over so many thousands of photos of this entire period of time for so long, I have mental images in my head of each one of these events that they're tweeting. It's it's
+[00:24:39] Adam: Well, and then because I've pored over so many thousands of photos of this entire period of time for so long, I have mental images in my head of each one of these events that they're tweeting. It's it's
 
 [00:24:51] Will: so cool.
 

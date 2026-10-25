@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:04:04] Will: Well, it's they've been doing it for ninety years, and and the Academy Motion Picture Arts and Sciences is like, I mean they're they're movies.
 
-[00:04:13] Norm: Ah, now I know you didn't see this because you didn't watch it, but Adam, did you see the commercial for the museum? That was the the rift on the shining.
+[00:04:13] Norm: Ah, now I know you didn't see this because you didn't watch it, but Adam, did you see the commercial for the museum? That was the the riff on the shining.
 
 [00:04:21] Adam: Yes. So here's what happened. We're fast forwarding through
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:07:54] Adam: She did win for Fargo. Good, good. She deserved that too.
 
-[00:07:57] Will: I mean, so one of the things that Jean and I were talking about because she gives me the rundown afterwards after we tuck the kiddo into bed and I watch the last few minutes. Is that last year there were so many incredible performances by women like over the age of fifty?
+[00:07:57] Will: I mean, so one of the things that Gina and I were talking about because she gives me the rundown afterwards after we tuck the kiddo into bed and I watch the last few minutes. Is that last year there were so many incredible performances by women like over the age of fifty?
 
 [00:08:09] Adam: Yeah,
 
@@ -464,7 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:18:40] Norm: it's a riff on the Batman. You know, at the end of you know Batman Dark Knight, right? It's it's a riff on all that that trope of the superhero revealing
 
-[00:18:48] Adam: Self factualization.
+[00:18:48] Adam: Self-actualization.
 
 [00:18:49] Norm: exactly, but it's much more powerful because it's about what the the person asking the question sees in the character.
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:19:48] Adam: loveliest thing about the idea of this type of cultural normalization of bringing people closer together by giving them things to enjoy together.
 
-[00:19:57] Norm: Extremely efficient and competent in its action and its sequences. There is a great video that I think director Ryan Coogler did with Friday or Vanity Fair, where he maps out the casino scene, the fight scene in the casino, and it was one of the first scenes they shot. And it's a series on on that YouTube channel where directors talk, and I think Taika Waititi did same thing for Thor.
+[00:19:57] Norm: Extremely efficient and competent in its action and its sequences. There is a great video that I think director Ryan Coogler did with Variety or Vanity Fair, where he maps out the casino scene, the fight scene in the casino, and it was one of the first scenes they shot. And it's a series on on that YouTube channel where directors talk, and I think Taika Waititi did same thing for Thor.
 
 [00:20:20] Will: Okay.
 
@@ -646,7 +646,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:25:29] Adam: I think I'm going to take it out to a. But there's a lot of jewelry places here in San Francisco, and have it gold plated to make it extra awesome.
 
-[00:25:35] Norm: And that's the thing with like proper places like these because they're they're high end. They're several hundred dollars. Sometimes they're limited edition. When you read the description on their website, I think everything has to be read with a little grain of salt because they say, you know, designed with access to the original prop, but that can mean so many things, right? Did they get the original files? Are they were they given just photos of it? Like how accurate? And that doesn't tell you whether their manufacturing process, you know, all the seam lines that you got rid of in this replica were they in the original prop?
+[00:25:35] Norm: And that's the thing with like prop replicas like these because they're they're high end. They're several hundred dollars. Sometimes they're limited edition. When you read the description on their website, I think everything has to be read with a little grain of salt because they say, you know, designed with access to the original prop, but that can mean so many things, right? Did they get the original files? Are they were they given just photos of it? Like how accurate? And that doesn't tell you whether their manufacturing process, you know, all the seam lines that you got rid of in this replica were they in the original prop?
 
 [00:26:07] Adam: Look, I mean, and and the the simplest logical case to make for how hard it is is that master replicas repeatedly had access. To original props and still managed to regularly piss off their fans for getting large details wrong, and by wrong I mean they might have had one detail from one movie on a prop that was in the wrong movie of the franchise, because that happens when you go into the archives. Often the people managing these archives don't know as much as your as your as your base level obsessed fan like me or you,
 

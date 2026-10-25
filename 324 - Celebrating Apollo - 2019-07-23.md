@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:05:46] Will: Oh wow,
 
-[00:05:46] Adam: yeah, which is Okay. Okay. So. You know the Steinhardt Aquarium has an incredible collection of specimens, over I think a million and a half specimens going back to 1850.
+[00:05:46] Adam: yeah, which is Okay. Okay. So. You know the Steinhart Aquarium has an incredible collection of specimens, over I think a million and a half specimens going back to 1850.
 
 [00:06:01] Norm: That’s at
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:07:54] Adam: I got. I wore Tom's Tom's regular Mars Yard shoes the whole week, and the two times people noticed it was like young men on the street, like, " Hey, man, nice sneaks."
 
-[00:08:05] Will: One of the things from the build was I heard somebody on on like in the crowd on mic going, " Hey, those are Tom Sacks' Mars Yards."
+[00:08:05] Will: One of the things from the build was I heard somebody on on like in the crowd on mic going, " Hey, those are Tom Sachs' Mars Yards."
 
 [00:08:13] Will: It's it's it was it seemed like an incredible like just just how like how do you celebrate one of humanity's greatest achievements? Well, or if not humanity's greatest achievement,
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:17:07] Adam: Was it Friday or Thursday? That was Thursday.
 
-[00:17:09] Adam: We did Project Egress. We assembled with a good team of some tested favorites: Kayte Sabicer, Sophie Wong, Mel Melho, Jen Schachter, and Andrew Barth. All of us on stage assembling the forty-five pieces of the command module hatch, and it was exactly the calico exquisite corpse construction that we were hoping it would be.
+[00:17:09] Adam: We did Project Egress. We assembled with a good team of some tested favorites: Kayte Sabicer, Sophie Wong, Mel Mel Ho, Jen Schachter, and Andrew Barth. All of us on stage assembling the forty-five pieces of the command module hatch, and it was exactly the calico exquisite corpse construction that we were hoping it would be.
 
 [00:17:34] Will: It was fascinating. Like I was sitting and watching.
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:19:22] Will: Open these boxes faster,
 
-[00:19:23] Adam: right? Yeah. And you know, there was there was a moment at which I turned to Jen quietly, and I was like, " We're in the hump stretch." She's like, " Really?" I was like, " Yeah, yeah." Once that thing went, everything else is going to be easy. Just to kind of like give her a little bit of succor from all the stress, because Jen Schachter has really been holding all of this project in her head.
+[00:19:23] Adam: right? Yeah. And you know, there was there was a moment at which I turned to Jen quietly, and I was like, " We're in the home stretch." She's like, " Really?" I was like, " Yeah, yeah." Once that thing went, everything else is going to be easy. Just to kind of like give her a little bit of succor from all the stress, because Jen Schachter has really been holding all of this project in her head.
 
 [00:19:42] Will: You had six hours to do it, seven hours,
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:21:20] Will: is all that. Anyway, we're talking about video in space.
 
-[00:21:32] Adam: So the the one that build on the floor couldn't have gone better. Microsoft Microsoft Prototype Design Group provided the base, which was just so beautifully built and so simple, and the main core of the door, which was gorgeous. Although I I split it on a couple of seams, hammering the outside of the window into it.
+[00:21:32] Adam: So the the one-day build on the floor couldn't have gone better. Microsoft Microsoft Prototype Design Group provided the base, which was just so beautifully built and so simple, and the main core of the door, which was gorgeous. Although I I split it on a couple of seams, hammering the outside of the window into it.
 
 [00:21:53] Will: Audible gasps in the crowd on that one. By the way, that was that was the when I I tuned in just in time for that. I was like, oh wow, this is so. So that's how this is going to go.
 
@@ -394,7 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:23:17] Will: lovely.
 
-[00:23:17] Adam: But everybody, everybody, turned, I mean, Evan and Caitlin turned out these like mood strut covered in mood paint. So when you held onto it, the heat changed the color.
+[00:23:17] Adam: But everybody, everybody, turned, I mean, Evan and Katelyn turned out these like mood strut covered in mood paint. So when you held onto it, the heat changed the color.
 
 [00:23:27] Will: Did did Kate do the galaxy paint on her piece?
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:24:17] Adam: right? It's all based on it's all based on desire.
 
-[00:24:19] Will: So I mean, the tested stage show this fall, October, you can do it on the Castro Theater.
+[00:24:19] Will: So I mean, the tested stage show this fall, October, you can do it on the Castro Theatre.
 
 [00:24:24] Adam: Exactly.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:32:21] Adam: As far as I know, he was the first one to have the etched stainless steel business card that was a set of lock picks.
 
-[00:32:27] Will: I had to pay for mine from the tool guys years ago at Maker Fair.
+[00:32:27] Will: I had to pay for mine from the TOOOL guys years ago at Maker Faire.
 
 [00:32:30] Adam: Oh, yes, and that's I have that set too.
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:34:27] Adam: yeah.
 
-[00:34:27] Norm: Oh, that's and one of my favorite parts. I mean, the suits are great. There's also, I think we mentioned last time, Steve Neal, the model maker. He made a 2001 the the the space station.
+[00:34:27] Norm: Oh, that's and one of my favorite parts. I mean, the suits are great. There's also, I think we mentioned last time, Steve Neill, the model maker. He made a 2001 the the the space station.
 
 [00:34:37] Adam: He did a 30.
 
@@ -754,7 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:39:00] Adam: Yeah.
 
-[00:39:01] Will: On film. Even with like even IMAX doesn't come close to standing, you know, in Yosemite Valley looking at Al Cap or or whatever.
+[00:39:01] Will: On film. Even with like even IMAX doesn't come close to standing, you know, in Yosemite Valley looking at El Cap or or whatever.
 
 [00:39:07] Adam: And when you see that at the end of the film when he does that 360 pano of the moon's surface. It just feels so immediate and so. Every choice made about that documentary was amazing to me. Not using any narration, the long cuts, the incredible weirdness and wonderfulness of the footage, the ways in which they built narrative elements like Neil thinking about his kids
 

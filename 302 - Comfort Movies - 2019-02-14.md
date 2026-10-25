@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:12:56] Adam: She's wonderful, and again, lots of coincidences to get her out of trouble.
 
-[00:13:00] Norm: Okay, the villain in that one, Sylvia Hoyt, is the is Luv in Blade Runner twenty forty nine.
+[00:13:00] Norm: Okay, the villain in that one, Sylvia Hoeks, is the is Luv in Blade Runner twenty forty nine.
 
 [00:13:11] Will: Hold on is is she the robot?
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:13:40] Adam: Now, comfort,
 
-[00:13:41] Will: Demi.
+[00:13:41] Will: Demme.
 
 [00:13:42] Adam: I know comfort is a weird term.
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:14:53] Will: this is like what like 1993, supposed to take place in the late 80s, I think.
 
-[00:14:57] Adam: But I mean, yeah, so it's it's a it's a 25 year old film, right? And after that. They're in the car, and he says to her, " Look, you know I had to do that. I just had to get him out of our hair." And she goes, " Yeah, but they all watch what you do to see how to behave. It matters, just that." And then he hears that, and they move on. This is a deeply woke little movie about female empowerment and being present with your competence and knowing and trusting yourself. It's it's way more that than I remembered. Also, there's a there's a I can't remember whether it's Tony Joe or somebody else that did a breakdown of Demme’s technique of reverse angle conversations, where instead of over the shoulder angles for conversations, he went to direct characters staring directly into frame.
+[00:14:57] Adam: But I mean, yeah, so it's it's a it's a 25 year old film, right? And after that. They're in the car, and he says to her, " Look, you know I had to do that. I just had to get him out of our hair." And she goes, " Yeah, but they all watch what you do to see how to behave. It matters, just that." And then he hears that, and they move on. This is a deeply woke little movie about female empowerment and being present with your competence and knowing and trusting yourself. It's it's way more that than I remembered. Also, there's a there's a I can't remember whether it's Tony Zhou or somebody else that did a breakdown of Demme’s technique of reverse angle conversations, where instead of over the shoulder angles for conversations, he went to direct characters staring directly into frame.
 
 [00:15:51] Will: Yeah,
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:16:19] Norm: I need to go back and watch this.
 
-[00:16:19] Adam: Yeah, so the point at which Clarice and her partner, the the other FBI female FBI agent, realize that Buffalo Bill is is knew the first victim. That conversation, they're looking off camera until the last like five lines, and then they're like Clarice, he knew him, and they're they're staring right at you, and you're part of that conversation. And they do the same thing with the Clarice Lector conversations. It's a stunning, such a good.
+[00:16:19] Adam: Yeah, so the point at which Clarice and her partner, the the other FBI female FBI agent, realize that Buffalo Bill is is knew the first victim. That conversation, they're looking off camera until the last like five lines, and then they're like Clarice, he knew him, and they're they're staring right at you, and you're part of that conversation. And they do the same thing with the Clarice Lecter conversations. It's a stunning, such a good.
 
 [00:16:50] Will: I mean, I remember seeing that movie in the theater and being so uncomfortable by the Hannibal Lecter by Anthony Hopkins talking to the Talking to Clarice because he's talking to you.
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:19:50] Norm: Okay,
 
-[00:19:50] Adam: like it goes to other places. I was. Talking to Tested’s own [unclear: Kaylo / Kelo] yesterday on the phone, and she was pointing out that Natasha Leone's character is basically a man. Like she has all these male. When you watch it, you'll see she has all these male attributes. She drinks too much. She sleeps around. Like you could easily portray
+[00:19:50] Adam: like it goes to other places. I was. Talking to Tested’s own [unclear: Kaylo / Kelo] yesterday on the phone, and she was pointing out that Natasha Lyonne's character is basically a man. Like she has all these male. When you watch it, you'll see she has all these male attributes. She drinks too much. She sleeps around. Like you could easily portray
 
 [00:20:19] Will: traditionally male. Yeah,
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:20:58] Norm: yeah. It's totally worth watching.
 
-[00:21:00] Adam: Darren Chris was just tweeting about it this morning.
+[00:21:00] Adam: Darren Criss was just tweeting about it this morning.
 
 [00:21:02] Norm: It's very fast paced, very funny.
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:22:11] Adam: Where he talks about in the history of cinema, there's all this talk about great long shots, like the opening of " Touch of Evil" and the absolute beginners and " Goodfellas." And Tony points out that Spielberg has one and a half to two minute shots in almost every one of his films, but he doesn't draw attention to them because they're just excellent storytelling devices. And he points out that the entire conversation with the mayor in Jaws takes place in a single shot, where two cars arrive on the shore, people climb onto a barge, the barge travels across a bay, all in a single shot.
 
-[00:22:45] Norm: I will say it's not the case with he works with Tom Cruise because. Both the wonders in Minority Report and War of the Worlds are glaring, and they are technical. They are like, look at what we can do with the camera here, and move it through the car.
+[00:22:45] Norm: I will say it's not the case with he works with Tom Cruise because. Both the oners in Minority Report and War of the Worlds are glaring, and they are technical. They are like, look at what we can do with the camera here, and move it through the car.
 
 [00:22:58] Will: War of the Worlds. I've been. I wanted to go back and rewatch World War of the Worlds because
 
@@ -654,11 +654,11 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:28:09] Norm: Johnny Knoxville.
 
-[00:28:12] Will: Oh no, I, I must like the first one then. It's definitely not the Johnny Knoxville, Laura, Laura
+[00:28:12] Will: Oh no, I, I must like the first one then. It's definitely not the Johnny Knoxville, Lara, Lara
 
-[00:28:18] Norm: Flanboyle,
+[00:28:18] Norm: Flynn Boyle,
 
-[00:28:19] Will: Laura Flanboyle.
+[00:28:19] Will: Lara Flynn Boyle.
 
 [00:28:20] Adam: Yeah. You know, I, I briefly met Vincent D'Onofrio at the Mortal Engines premiere.
 
@@ -1088,7 +1088,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:41:28] Unknown speaker (Will or Adam): what End Game trailer?
 
-[00:41:28] Norm: Avengers End Game..
+[00:41:28] Norm: Avengers Endgame..
 
 [00:41:35] Will: I don’t, I don’t.
 
@@ -1118,7 +1118,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:42:08] Will: Is it next weekend? Is it this weekend?
 
-[00:42:08] Adam: I don't. I haven't watched the Academy Awards in so long. I don't. I kind of don't want to start now. I don't want to encourage them.
+[00:42:08] Will: I don't. I haven't watched the Academy Awards in so long. I don't. I kind of don't want to start now. I don't want to encourage them.
 
 [00:42:16] Norm: Twitter will let me know.
 

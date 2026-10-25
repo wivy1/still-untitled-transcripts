@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:11:02] Will: It turns out you can't eat exposure. Yeah, the end of the day, exposure won't pay your rent.
 
-[00:11:06] Adam: I remember a musician friend of mine going, " If one more person calls me from Cafe de Nord and tells me it'll be for great exposure, I'm going to kill them." An old venue here in San Francisco.
+[00:11:06] Adam: I remember a musician friend of mine going, " If one more person calls me from Cafe du Nord and tells me it'll be for great exposure, I'm going to kill them." An old venue here in San Francisco.
 
 [00:11:16] Will: It's gone, isn't it?
 
@@ -376,7 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:17:29] Adam: Oh my god,
 
-[00:17:29] Will: gets nasty. We, I remember Norm. Remember in early days of testing, we first started putting stuff on YouTube. People would steal our long videos and put them up with the audio, with our audio gone and the audio of a film. I think slowed down or sped up. I can't remember which one.
+[00:17:29] Will: gets nasty. We, I remember Norm. Remember in early days of Tested, we first started putting stuff on YouTube. People would steal our long videos and put them up with the audio, with our audio gone and the audio of a film. I think slowed down or sped up. I can't remember which one.
 
 [00:17:45] Adam: Why?
 
@@ -566,7 +566,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:27:06] Will: No,
 
-[00:27:08] Norm: If you get in on a run, it is a risk, and that's and it's not like licensees like don't sell kits of their own. Like Novo sells kits and stuff like that. But what you're also paying for there is some amount of trust that they have quality control and it's been approved by a licensor. And so it is a gamble. Yeah.
+[00:27:08] Norm: If you get in on a run, it is a risk, and that's and it's not like licensees like don't sell kits of their own. Like ANOVOS sells kits and stuff like that. But what you're also paying for there is some amount of trust that they have quality control and it's been approved by a licensor. And so it is a gamble. Yeah.
 
 [00:27:27] Adam: You know, when you buy something from Dave Goldberg, like he has a reputation that even though people buy his kits and rip them off all the time, you know that when you're buying from Dave, you get A high quality product that requires very little extra finishing before you can start to do the fun stuff.
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:30:52] Adam: right?
 
-[00:30:52] Will: Because that their whole kusu slash ideas line,
+[00:30:52] Will: Because that their whole CUUSOO slash ideas line,
 
 [00:30:55] Adam: yeah,
 
@@ -718,7 +718,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:32:58] Adam: I have. I'm a terrible son and have forgotten to do that. I know.
 
-[00:33:02] Will: My wife even has a premium tested membership at them.
+[00:33:02] Will: My wife even has a premium tested membership Adam.
 
 [00:33:06] Adam: So will you just help me do that right after this?
 
@@ -778,7 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:34:12] Will: Okay. Because the G looks good. The E, it's okay.
 
-[00:34:16] Adam: It's lead speak. It's a three.
+[00:34:16] Adam: It's leet speak. It's a three.
 
 [00:34:17] Will: Yeah. It's backwards three.
 

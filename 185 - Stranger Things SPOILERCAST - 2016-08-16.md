@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:00:53] Norm: Hence the coffee
 
-[00:00:53] Adam: at 30.
+[00:00:53] Adam: 8:30.
 
 [00:00:53] Rebecca: Close enough. Close enough.
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:10:37] Rebecca: Yeah.
 
-[00:10:37] Adam: Because John Donne is like so one of my favorite John Donne poems is called a Valediction for Bidding Mourning and. Towards the end, um, he uses this metaphor of a compass, of a you know a compass for measuring distance.
+[00:10:37] Adam: Because John Donne is like so one of my favorite John Donne poems is called A Valediction: Forbidding Mourning and. Towards the end, um, he uses this metaphor of a compass, of a you know a compass for measuring distance.
 
 [00:10:52] Rebecca: Oh yeah.
 
@@ -666,7 +666,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:26:01] Adam: because of the
 
-[00:26:01] Rebecca: time-space continuum.. Just like Nancy couldn't hear me when I screamed, " Don't climb in that tree, vagina!"
+[00:26:01] Rebecca: time-space continuum.. Just like Nancy couldn't hear me when I screamed, " Don't climb in that tree vagina!"
 
 [00:26:05] Adam: Oh my god, I can't believe. So the upside down. Wait, let's talk about one of my favorite special effects, which is Matthew Modine's hair.
 
@@ -974,7 +974,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:37:15] Rebecca: Does she?
 
-[00:37:15] Adam: She does. Oh. But her her her range of acting and the again the level of complexity that she has to carry is astounding. The the ambivalence, the fear, the terror, the courage, the anger, all of that sometimes extend in a single scene.
+[00:37:15] Adam: She does. Oh. But her her her range of acting and the again the level of complexity that she has to carry is astounding. The the ambivalence, the fear, the terror, the courage, the anger, all of that sometimes extant in a single scene.
 
 [00:37:33] Rebecca: Yeah.
 

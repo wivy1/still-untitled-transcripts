@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:04:16] Will: There's better stuff to do in this space,
 
-[00:04:17] Adam: so it's it's like years ago. I worked for a machine artist in San Francisco named Chico McMurtry of Amorphic Robot Works, and he's now in Red Hook, Brooklyn. But I was in his assistant for about a year and a half in the very early 90s, and Chico lived in a space down in Hunters Point, a building that I eventually lived in for a couple years. But Chico's shop was, if you think this is like a kind of a cave, Chico's was like this, except it was all robots and machine art and greasy hydraulic cylinders and stuff just filling this room,
+[00:04:17] Adam: so it's it's like years ago. I worked for a machine artist in San Francisco named Chico MacMurtrie of Amorphic Robot Works, and he's now in Red Hook, Brooklyn. But I was in his assistant for about a year and a half in the very early 90s, and Chico lived in a space down in Hunters Point, a building that I eventually lived in for a couple years. But Chico's shop was, if you think this is like a kind of a cave, Chico's was like this, except it was all robots and machine art and greasy hydraulic cylinders and stuff just filling this room,
 
 [00:04:17] Adam: this giant room, like three thousand square feet,
 
@@ -302,17 +302,17 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:11:49] Will: seems right. Yeah.
 
-[00:11:49] Adam: Um, I just I wanted to announce that tomorrow night at 7 p.m. at the uh piano fight in the Tenderloin, I'll be participating in Rebecca Watson's Quizotron.
+[00:11:49] Adam: Um, I just I wanted to announce that tomorrow night at 7 p.m. at the uh piano fight in the Tenderloin, I'll be participating in Rebecca Watson's Quiz-o-Tron.
 
-[00:12:00] Will: Piano fight is a great venue for Quizotron.
+[00:12:00] Will: Piano fight is a great venue for Quiz-o-Tron.
 
-[00:12:02] Adam: I have not been there, and Rebecca, just one of my favorite humans, and every single time she's invited me to do Quizotron, I have not been able to do it, and this time she invited me a couple weeks ago, and Frankly, I I looked at my calendar and was like, " Oh, I can do it." And then something shiny distracted me, and I forgot to respond. So this last night, she texted me, " I can take a hint," and I was like, " Oh, no, no, no, no, I can do it." Oh,
+[00:12:02] Adam: I have not been there, and Rebecca, just one of my favorite humans, and every single time she's invited me to do Quiz-o-Tron, I have not been able to do it, and this time she invited me a couple weeks ago, and Frankly, I I looked at my calendar and was like, " Oh, I can do it." And then something shiny distracted me, and I forgot to respond. So this last night, she texted me, " I can take a hint," and I was like, " Oh, no, no, no, no, I can do it." Oh,
 
 [00:12:28] Norm: surprise guest!
 
-[00:12:29] Will: So we should explain what Quizatron is.
+[00:12:29] Will: So we should explain what Quiz-o-Tron is.
 
-[00:12:31] Adam: Quizatron is Rebecca's. It's Rebecca's quiz show.
+[00:12:31] Adam: Quiz-o-Tron is Rebecca's. It's Rebecca's quiz show.
 
 [00:12:34] Will: Yes.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:13:07] Will: And you have to justify which which one is the correct one.
 
-[00:13:21] Adam: They've been doing real and fake stories on Pod Save and Love It or Leave It, and some of them are so so crazy difficult.
+[00:13:21] Adam: They've been doing real and fake stories on Pod Save and Lovett or Leave It, and some of them are so so crazy difficult.
 
 [00:13:30] Will: It's a very difficult game to play.
 
@@ -400,17 +400,17 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:14:37] Adam: and it will be awesome. And we don't want to,
 
-[00:14:39] Norm: yes, yeah, spoil it right now. But it was a lot of downtime. We were in the desert, and during that downtime, almost everyone learned a little bit of riding the one wheel.
+[00:14:39] Norm: yes, yeah, spoil it right now. But it was a lot of downtime. We were in the desert, and during that downtime, almost everyone learned a little bit of riding the Onewheel.
 
-[00:14:51] Adam: Yeah, I brought my one wheel, and Margie, Margie,
+[00:14:51] Adam: Yeah, I brought my Onewheel, and Margie, Margie,
 
 [00:14:51] Norm: who
 
 [00:14:54] Norm: helps on Tested,
 
-[00:14:56] Adam: also brought her one wheel, and yeah, we were riding them all over the place.
+[00:14:56] Adam: also brought her Onewheel, and yeah, we were riding them all over the place.
 
-[00:15:00] Norm: Everyone had a chance to ride around the one wheel and
+[00:15:00] Norm: Everyone had a chance to ride around the Onewheel and
 
 [00:15:03] Will: Did you do races and stuff.
 
@@ -432,7 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:15:12] Adam: I didn't know about this.
 
-[00:15:14] Norm: The one wheel turns out is a fantastic. Like production vehicle, yeah, to getting around on a big on a set on on location,
+[00:15:14] Norm: The Onewheel turns out is a fantastic. Like production vehicle, yeah, to getting around on a big on a set on on location,
 
 [00:15:22] Adam: going to check a camera five hundred feet away,
 
@@ -452,9 +452,9 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:15:40] Adam: and and it's also look being out, you know, doing production is both exciting and boring, right? There's a lot of downtime while you're waiting on cameras to be set up or cars to cool down and things like that, and having something like that to kind of move around. I got I I gave myself some new skills of turning in very very tight radii, like less than a few inches.
 
-[00:16:02] Will: Did you get your your guest on the on the one wheel?
+[00:16:02] Will: Did you get your your guest on the on the Onewheel?
 
-[00:16:04] Adam: No, I did not actually. Funnily enough, but yeah, the one wheel, awesome. It's just coming with me on every shoot ever.
+[00:16:04] Adam: No, I did not actually. Funnily enough, but yeah, the Onewheel, awesome. It's just coming with me on every shoot ever.
 
 [00:16:12] Will: It's funny. I heard. Well, actually, never mind. So there was a 50th anniversary segue. There are two 50th anniversaries today.
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:17:54] Norm: Oh, it's so creepy. For people who are not watching the video, Adam was holding his star child replica that he's working on, which has a mechanized eye, an eye mech that moves left and right.
 
-[00:18:08] Adam: And this sculpt is by my friend Steve Neal, who did, as we said last week, the beautiful Moonwatcher mask with the Stuart Freeborn correct mechanics in it. This is this is such a beautiful object, and I have so coveted one of these since I saw the full size one at the Kubrick exhibit. And I had so much reference material, really helped Steve be able to see this from every angle. Because in one of the places I saw the Kubrick exhibit, I had access to the full round of the figure, and so I took photos at like every twenty degrees all the way around.
+[00:18:08] Adam: And this sculpt is by my friend Steve Neill, who did, as we said last week, the beautiful Moonwatcher mask with the Stuart Freeborn correct mechanics in it. This is this is such a beautiful object, and I have so coveted one of these since I saw the full size one at the Kubrick exhibit. And I had so much reference material, really helped Steve be able to see this from every angle. Because in one of the places I saw the Kubrick exhibit, I had access to the full round of the figure, and so I took photos at like every twenty degrees all the way around.
 
 [00:18:08] Unknown speaker: Oh, man.
 
@@ -802,7 +802,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:31:06] Adam: Yeah.
 
-[00:31:06] Will: Um, I learned yesterday. This is a bit of a tangent, but talking about authorial intent film, I think it's relevant that the Last Jedi has a director's commentary from Ryan Johnson on the disc.
+[00:31:06] Will: Um, I learned yesterday. This is a bit of a tangent, but talking about authorial intent film, I think it's relevant that the Last Jedi has a director's commentary from Rian Johnson on the disc.
 
 [00:31:06] Adam: Oh,
 
@@ -838,9 +838,9 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:32:01] Adam: Every now and then,
 
-[00:32:03] Will: This is me and my buddy Ryan watching this movie.
+[00:32:03] Will: This is me and my buddy Rian watching this movie.
 
-[00:32:03] Adam: every now and then. You should lean into your binaural ear, and Ryan will go. This guy was an asshole.
+[00:32:03] Adam: every now and then. You should lean into your binaural ear, and Rian will go. This guy was an asshole.
 
 [00:32:10] Will: Well, yeah,
 

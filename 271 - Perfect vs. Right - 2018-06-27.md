@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:05:11] Norm: It's one of those things once you see it, you can't see. But I'm not going to reveal until Adam list your movie is some 1981 ish.
 
-[00:05:17] Adam: This is why it was a great thing to be a 14 year old boy in 1981. We had Raiders of the Lost Ark, Stripes, Escape from New York, Evil Dead, American Werewolf in London, Halloween II, Cannonball Run, Road Warrior, Excalibur, Body Heat, Das Boot, Victory, Postman's Always Rings Twice, Ragtime, Endless Love, Heavy Metal, Friday the Thirteenth Part Two, Clash of the Titans. Time Bandits, Dragon Slayer, History of the World Part One for Your Eyes Only. That was the Bond movie that came out that year. Let's see, Scanners.
+[00:05:17] Adam: This is why it was a great thing to be a 14 year old boy in 1981. We had Raiders of the Lost Ark, Stripes, Escape from New York, Evil Dead, American Werewolf in London, Halloween II, Cannonball Run, Road Warrior, Excalibur, Body Heat, Das Boot, Victory, Postman's Always Rings Twice, Ragtime, Endless Love, Heavy Metal, Friday the Thirteenth Part Two, Clash of the Titans. Time Bandits, Dragonslayer, History of the World Part One for Your Eyes Only. That was the Bond movie that came out that year. Let's see, Scanners.
 
 [00:05:55] Norm: Wow.
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:07:29] Kishore: So let's see if Adam actually knows this fact.
 
-[00:07:31] Norm: Oh my god! Okay, wait, hold on. So we're going to set it up. There are three things I saw on the internet last night that were. I think Ryan Johnson had retweeted one of them. And there were things I had no idea. Like two of them are gaffes, and one of them is a revelation. We'll start with the gaffes, like because and and for people listening to the podcast, these are things that once you see you or hear next time you watch the movie, you will not be able to not see them.
+[00:07:31] Norm: Oh my god! Okay, wait, hold on. So we're going to set it up. There are three things I saw on the internet last night that were. I think Rian Johnson had retweeted one of them. And there were things I had no idea. Like two of them are gaffes, and one of them is a revelation. We'll start with the gaffes, like because and and for people listening to the podcast, these are things that once you see you or hear next time you watch the movie, you will not be able to not see them.
 
 [00:07:54] Adam: You won't be like the rainbow stripes of a DLP projector. once you know it’s there,
 
@@ -162,9 +162,9 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:08:27] Adam: Yep. Okay.
 
-[00:08:27] Norm: Another scene is when they're chasing Marion in the marketplace, and the end of the scene after the truck flips over, and you can see like the pole, the bottom of the truck flip it over. That's a common thing. Arnold, the villain, Tott.
+[00:08:27] Norm: Another scene is when they're chasing Marion in the marketplace, and the end of the scene after the truck flips over, and you can see like the pole, the bottom of the truck flip it over. That's a common thing. Arnold, the villain, Toht.
 
-[00:08:43] Adam: Tott, yeah.
+[00:08:43] Adam: Toht, yeah.
 
 [00:08:44] Norm: He's in the car, but not really. What you see is it's it's a stand-in, and the stand-in is just his hat and a coat, facing away from you.
 
@@ -178,7 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:09:04] Adam: I've never seen that.
 
-[00:09:04] Kishore: It's the scene where like Belloc stands up and is like flustered that they got away, and you like you look down and it's like it's clearly not even a mannequin there. It's just a hat and a coat sitting in the front seat.
+[00:09:04] Kishore: It's the scene where like Belloq stands up and is like flustered that they got away, and you like you look down and it's like it's clearly not even a mannequin there. It's just a hat and a coat sitting in the front seat.
 
 [00:09:18] Adam, Kishore uncertain: Wow.
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:13:03] Adam: Okay, so you've seen the whale and you've gone to Squid and Whale and all that.
 
-[00:13:04] Norm: Yes, yes. I've done. I'm going there again. Going to the Momey again for sure. Got a recommendation for the Brooklyn Museum, which apparently is a hidden gem.
+[00:13:04] Norm: Yes, yes. I've done. I'm going there again. Going to the MoMI again for sure. Got a recommendation for the Brooklyn Museum, which apparently is a hidden gem.
 
 [00:13:13] Adam: Brooklyn Museum is wonderful. I was there a couple times ago, and I was there.
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:13:25] Adam: But have you been to the the the World's Fair fairgrounds out in Queens with the model of New York City?
 
-[00:13:31] Norm: No, I have not been in the model because that's where Maker Fair New York is out in Flushing. But I've never had a chance to see the the Futurama right.
+[00:13:31] Norm: No, I have not been in the model because that's where Maker Faire New York is out in Flushing. But I've never had a chance to see the the Futurama right.
 
 [00:13:40] Adam: The model is. Is shocking.
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:34:09] Kishore: Low, low, low, low price of eight hundred eighty-five thousand.
 
-[00:34:12] Adam: So, yeah, the first film that got Stephen—I'm going to tell a story that ties back into this. The first movie that Steven Soderbergh got famous for was * Sex, Lies, and Videotape*, which is a masterpiece and is still a wonderful and weird and intense movie. And it stars Peter Gallagher, Annie McDowell, Laura San Giacomo, and. Come on, the guy, James Spader. Excuse me. And Spader,
+[00:34:12] Adam: So, yeah, the first film that got Steven—I'm going to tell a story that ties back into this. The first movie that Steven Soderbergh got famous for was * Sex, Lies, and Videotape*, which is a masterpiece and is still a wonderful and weird and intense movie. And it stars Peter Gallagher, Andie MacDowell, Laura San Giacomo, and. Come on, the guy, James Spader. Excuse me. And Spader,
 
 [00:34:39] Norm: Ultron.
 

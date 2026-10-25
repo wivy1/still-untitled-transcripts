@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=SqndNdkYKtg
 
 [00:29:37] Dave Miller: That's right. Exactly. I'll leave it at that.
 
-[00:29:41] Will: I think that that is as good a place as any to wrap it up. Thanks to the Bay Area Science Festival for having us out here on Nerd Night at Alcatraz.
+[00:29:41] Will: I think that that is as good a place as any to wrap it up. Thanks to the Bay Area Science Festival for having us out here on Nerd Nite at Alcatraz.
 
 [00:29:49] Adam: Absolutely.
 

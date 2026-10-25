@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:05:17] Will: It's like any other tool of of film, right? Like it took it took ten years before we learned how to use the crash zoom and and you know stuff like that.
 
-[00:05:25] Adam: And it's it's one of the things Duncan and I were talking about. He said he wanted to make one that was that was that had a payload large enough to be able to handle a red camera. And I thought about that overnight. I thought, well, first I thought that's really cool because you know red is a cinema cinema quality ready camera. Then I realized you don't need to put a red on that. You you don't need to make it any heavier, any more of a payload than can hold a Blackmagic with a nice prime lens on it. First of all, because you're almost Ninety-nine percent of what you're going to do is in daylight. Second of all, if you're if it's a flying shot, it's a master shot, which means you're not going to use more than four or five seconds of it at the most. Right. So with the black magic at daylight, that's where it shines.
+[00:05:25] Adam: And it's it's one of the things Duncan and I were talking about. He said he wanted to make one that was that was that had a payload large enough to be able to handle a red camera. And I thought about that overnight. I thought, well, first I thought that's really cool because you know red is a cinema cinema quality ready camera. Then I realized you don't need to put a red on that. You you don't need to make it any heavier, any more of a payload than can hold a Blackmagic with a nice prime lens on it. First of all, because you're almost Ninety-nine percent of what you're going to do is in daylight. Second of all, if you're if it's a flying shot, it's a master shot, which means you're not going to use more than four or five seconds of it at the most. Right. So with the Blackmagic at daylight, that's where it shines.
 
 [00:06:07] Norm: And you shoot in ProRes?
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:12:44] Adam: And and our camera crew, it's comprised of Scott Sorensen, who's our A camera. He started with us as a runner.
 
-[00:12:50] Will: He was on October Cast 2013. I think.
+[00:12:50] Will: He was on Octoberkast 2013. I think.
 
 [00:12:53] Adam: Yeah, I came here. Willie Nail, who also started with us as a runner. He's our second camera, and Duncan Clark, who also started as an intern. We we we have a real farm team on MythBusters,
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:13:43] Will: Okay.
 
-[00:13:43] Adam: And that was shot inside a wood shop in an X wood shop in an abandoned military base here in the Bay Area.
+[00:13:43] Adam: And that was shot inside a wood shop in an ex-wood shop in an abandoned military base here in the Bay Area.
 
 [00:13:43] Will: Wow!
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:14:17] Will: So Norm alluded to you. You guys, you've changed the way you're shooting the show. You're showing a
 
-[00:14:22] Adam: oh right sorry so that's when we talked about the camera crew. One of the things that we we went to them and said you know what what kind of things could we do to get a different look, and understand if camera is your passion, you're reading and inculcating yourself with your favorite cameraman, your favorite movies. So they wanted and we wanted to give the show a different look, and the look was much more cinematic. And by that I mean specifically more bokeh, more depth of field, and that means where the foreground elements are in focus and the background isn't. Now that's anathema to standard reality television, where those Sony cameras those guys wear over their hold on their shoulders. The lens is more expensive than the camera. It's like a fifty thousand dollar lens, and it's that expensive because it's incredibly good in low light, fast focus, fast iris change, and you want that. You don't want something to happen in the background, and then you've got to zoom in, focus, and iris to get it right. It automates stuff like that for you. But on MythBusters, where we're setting up shots of the car driving by, we don't have to use infinite focus GoPros and those a cameras. We can use Black Magics with primes. We can use much more.
+[00:14:22] Adam: oh right sorry so that's when we talked about the camera crew. One of the things that we we went to them and said you know what what kind of things could we do to get a different look, and understand if camera is your passion, you're reading and inculcating yourself with your favorite cameraman, your favorite movies. So they wanted and we wanted to give the show a different look, and the look was much more cinematic. And by that I mean specifically more bokeh, more depth of field, and that means where the foreground elements are in focus and the background isn't. Now that's anathema to standard reality television, where those Sony cameras those guys wear over their hold on their shoulders. The lens is more expensive than the camera. It's like a fifty thousand dollar lens, and it's that expensive because it's incredibly good in low light, fast focus, fast iris change, and you want that. You don't want something to happen in the background, and then you've got to zoom in, focus, and iris to get it right. It automates stuff like that for you. But on MythBusters, where we're setting up shots of the car driving by, we don't have to use infinite focus GoPros and those a cameras. We can use Blackmagics with primes. We can use much more.
 
 [00:15:32] Will: FS700 or
 
@@ -354,11 +354,11 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:17:55] Will: I assume what, like ten or twelve hours, twenty hours, probably.
 
-[00:17:58] Adam: Well, it depends. On of main camera footage and second camera coverage, it's probably not a ton. But when you talk about ten GoPros and Black Magics placed all over the Alameda runway, each is rolling for its full battery or SD card of footage. Sometimes we we we we hone that before sending it. But sometimes we run out of time, and someone's just got to sift through it.
+[00:17:58] Adam: Well, it depends. On of main camera footage and second camera coverage, it's probably not a ton. But when you talk about ten GoPros and Blackmagics placed all over the Alameda runway, each is rolling for its full battery or SD card of footage. Sometimes we we we we hone that before sending it. But sometimes we run out of time, and someone's just got to sift through it.
 
 [00:17:58] Norm: Wow!
 
-[00:17:58] Adam: So there's definitely times though where we bring the A camera and we wave so that they know this is important. And we're like, editors, editors, pay attention. What we're about to do is this and this and this. Now you realize you could cut it in one of two ways. You might want to cut this bit before that bit, but you might want to cut it after. So I'm going to give you two pieces of camera, so you can cut it either way.
+[00:17:58] Adam: So there's definitely times though where we bring the A camera and we wave so that they know this is important. And we're like, editors, editors, pay attention. What we're about to do is this and this and this. Now you realize you could cut it in one of two ways. You might want to cut this bit before that bit, but you might want to cut it after. So I'm going to give you two pieces of to-camera, so you can cut it either way.
 
 [00:18:44] Norm: Oh my goodness!
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:24:26] Will: Before the thing implodes.
 
-[00:24:27] Adam: But we use tons of GoPros this season. We got many more Black Magic cameras with prime lenses on them, and we use them much more as our GoPros. So there's some driving myths coming up this year. I think this. Current season ends with an episode about drifting, which is amazing. And Jamie and I got trained how to drift by Formula One drift champion Conrad Grunwald, who became a good friend. And he's an amazing guy. Wow. We have stuff from inside with Black Magic's close up from inside the cars. It's just like, it's so beautiful.
+[00:24:27] Adam: But we use tons of GoPros this season. We got many more Blackmagic cameras with prime lenses on them, and we use them much more as our GoPros. So there's some driving myths coming up this year. I think this. Current season ends with an episode about drifting, which is amazing. And Jamie and I got trained how to drift by Formula One drift champion Conrad Grunewald, who became a good friend. And he's an amazing guy. Wow. We have stuff from inside with Blackmagic's close up from inside the cars. It's just like, it's so beautiful.
 
 [00:25:01] Will: No distortion. No distortion.
 
@@ -502,9 +502,9 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:25:04] Adam: And again, that cinematic feel to it.
 
-[00:25:07] Will: Are you guys using those Black Magic cameras? Like, like I mean, because I know you kind of use the GoPros. Like they're they're not exactly disposable, but they're kind of disposable.
+[00:25:07] Will: Are you guys using those Blackmagic cameras? Like, like I mean, because I know you kind of use the GoPros. Like they're they're not exactly disposable, but they're kind of disposable.
 
-[00:25:13] Adam: We're not using the Black Magic's in place where we expect bad things to happen. But again, we also have camera housings that we've built for stuff, padded camera housings, and Black Magic's. There's a there's an aluminum over case you can buy for them. All of ours have are heavily armored for this. But yeah, we so let's see, let's see, process the camera work, the camera look. The extra time to put in, the more facts, more supporting material that helps the audience understand. I mean, for us, it's it's not like it's it's not at all like we've been chomping at the bit to make the show this way. It's more like you get used to making something in a certain way, and that's not always good. You can get vanilla, you can get comfortable.
+[00:25:13] Adam: We're not using the Blackmagic's in place where we expect bad things to happen. But again, we also have camera housings that we've built for stuff, padded camera housings, and Blackmagic's. There's a there's an aluminum over case you can buy for them. All of ours have are heavily armored for this. But yeah, we so let's see, let's see, process the camera work, the camera look. The extra time to put in, the more facts, more supporting material that helps the audience understand. I mean, for us, it's it's not like it's it's not at all like we've been chomping at the bit to make the show this way. It's more like you get used to making something in a certain way, and that's not always good. You can get vanilla, you can get comfortable.
 
 [00:26:01] Will: Well, you. I mean, you said something a couple of years ago when when you first started talking about this, I think privately.
 
@@ -652,7 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:32:43] Will: Um. Let's see. Fred Smith wants to know what's the hardest thing about the new format. Is it just the the extra onus on you guys to be the connective tissue?
 
-[00:32:54] Adam: For me, yeah. For me personally, you know, the the I work hand in glove with my executive producer Dan Tapster about how these stories fit together, and I love working with Dan on the ground. Dan's not in San Francisco. He's across the world, and it's not like we can be in constant communication. So every sequence has to follow every other sequence. You have to tell a cohesive story when you're not sure how the editors are going to cut it, and you're not sure what the result of your experiment is going to be, which is usually. So that means the mental calisthenics that I have to do in working with my director Steve Christensen and Jamie is significantly greater.
+[00:32:54] Adam: For me, yeah. For me personally, you know, the the I work hand in glove with my executive producer Dan Tapster about how these stories fit together, and I love working with Dan on the ground. Dan's not in San Francisco. He's across the world, and it's not like we can be in constant communication. So every sequence has to follow every other sequence. You have to tell a cohesive story when you're not sure how the editors are going to cut it, and you're not sure what the result of your experiment is going to be, which is usually. So that means the mental calisthenics that I have to do in working with my director Steve Christiansen and Jamie is significantly greater.
 
 [00:33:39] Will: Because you have to, you have to keep all avenues open.
 

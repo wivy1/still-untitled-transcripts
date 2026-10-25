@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:03:58] Kayte: Totally.
 
-[00:03:59] Adam: Exactly. Um. Yeah. You're reminding me that we when we bought our house here in the mission, it came with a. An Electra single station espresso machine built into the wall.
+[00:03:59] Adam: Exactly. Um. Yeah. You're reminding me that we when we bought our house here in the mission, it came with a. An Elektra single station espresso machine built into the wall.
 
 [00:04:10] Kayte: Whoa!
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:17:12] Will: Are you doing anything exciting? Are you doing? Do you doing like a talk or anything at NomCon?
 
-[00:17:17] Adam: I am. I am doing a build with the amazing Jen Schacter.
+[00:17:17] Adam: I am. I am doing a build with the amazing Jen Schachter.
 
 [00:17:21] Will: Oh, cool!
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:21:24] Will: really,
 
-[00:21:24] Adam: which was when when they get to the well of souls and they really start uncovering it, and the lightning's happening, and it's very dramatic up there on that little hilly top. They cut several times to Harrison Ford in the throes of zeal. That's the best way to describe it, like this. You know, just the close up on his face where he's like, " Ah, I'm getting the thing I always wanted," and it's a. I want to watch it again because Spielberg cuts to this shot for many of the characters. Bella gets that look just before he dies, and so do the other two Nazis told, and the other guy whose name never gets told. But it happens to Ford. Too, so you get to see his
+[00:21:24] Adam: which was when when they get to the well of souls and they really start uncovering it, and the lightning's happening, and it's very dramatic up there on that little hilly top. They cut several times to Harrison Ford in the throes of zeal. That's the best way to describe it, like this. You know, just the close up on his face where he's like, " Ah, I'm getting the thing I always wanted," and it's a. I want to watch it again because Spielberg cuts to this shot for many of the characters. Belloq gets that look just before he dies, and so do the other two Nazis Toht, and the other guy whose name never gets told. But it happens to Ford. Too, so you get to see his
 
 [00:22:12] Will: raw avarice.
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:27:37] Adam: blowing my mind. Huh? The idea is that humanity has at this point in the future spread out to you know dozens of not like something like eighty planets. It's been going for thousands of years, tens of thousands of years, and there's kind of a benevolent group of planets that sort of manage manage themselves. It's not a government. There are no rules. There's no enforcement. What's that?
 
-[00:28:03] Will: A narco-cynicalist commune?
+[00:28:03] Will: An anarcho-syndicalist commune?
 
 [00:28:05] Adam: It's it's more like it's more like they they commerce is their common goal, and it's not like it's not like avaricious commerce. It's just like to the benefit of all, right? But the book takes place with an envoy visiting a planet that has not yet been brought into the fold, so they don't know other planets exist. Full of sentient beings, they're all effectively humanoid because of seeding done long time ago. I guess or some plot thing.
 

@@ -84,13 +84,13 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:09:00] Will: Oh no!
 
-[00:09:01] Unknown speaker, possibly Adam or Norm: Oh, everyone, everyone was sitting [alternative wording: a lot of black, thousand-yard stares].
+[00:09:01] Unknown speaker, possibly Adam or Norm: Oh, everyone, everyone was sitting [alternative wording: a lot of blank, thousand-yard stares].
 
 [00:09:02] Adam: It was all like this. Everyone was like, and I was like, " You all look like I feel." and everyone was like, " Yeah, pretty much." Wow!
 
 [00:09:13] Norm: And and that's because you know there's a there's so much, and we're all internalizing it, and as active as we can be, and it's it's very draining, right? Which is why we know that a lot of people tune in and watch what we make as a way to kind of balance what's going on in the world and in their own lives. And
 
-[00:09:35] Adam: well, right, like, right, right. I mean, I very much appreciate that people feel like the videos that we're putting out are a safe space to kind of down regulate, and that that's a that feels important, right? That's—I use these videos that I watch for the same exact reason. Kind of get my head straight, and you know, every day carries with it so. Every day carries with it so many weird, hidden, strange feelings, and it was fascinating to see the whole tested team kind of feel downtrodden because it. We're three months into this. We're we're we're it's about the twelfth week. Am I right?
+[00:09:35] Adam: well, right, like, right, right. I mean, I very much appreciate that people feel like the videos that we're putting out are a safe space to kind of down regulate, and that that's a that feels important, right? That's—I use these videos that I watch for the same exact reason. Kind of get my head straight, and you know, every day carries with it so many weird, hidden, strange feelings, and it was fascinating to see the whole tested team kind of feel downtrodden because it. We're three months into this. We're we're we're it's about the twelfth week. Am I right?
 
 [00:10:14] Norm: That's right. Yeah.
 
@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:15:24] Adam: indeed.
 
-[00:15:25] Will: It it's um it's funny the paper towel paper towels have become kind of a metaphor for for the way we've changed in our house because you know we used to use paper towels completely thoughtlessly and and you you you need you need something to wipe up three dots of water on the counter you grab a paper towel you swipe and it goes in the compost I'm like wow what a Christ what an asshole Cady Coleman at ORD Camp a few years ago did a talk, and she was telling us how, like, she and Chell, Chell Lundgren, were talking about how they bathed and how they use consumable stuff on the space station. And Cady said she would get a paper towel when she was on orbit, and she would use it. She'd use one little tiny corner one day, and then she'd fold it up and put it someplace in a Ziploc and use it the next day to wipe her mouth when she was eating lunch or whatever. And then, you know, and she would use every single piece of the paper towel. That's amazing. And and during the first like two two months of this, when paper goods were in kind of tight supply, I think we used two rolls of paper towels, and most of them were for things that like you really don't want to use. Like we we we got out we got out a bunch of rags and you know got some dish rags out and started using that stuff for more things than we ever would before. Really, no change. No, I mean, it meant that it meant that when we washed the towels every other day, there was a few more things in the washing machine using paper towel paper nap sorry cloth towels cloth napkins
+[00:15:25] Will: It it's um it's funny the paper towel paper towels have become kind of a metaphor for for the way we've changed in our house because you know we used to use paper towels completely thoughtlessly and and you you you need you need something to wipe up three dots of water on the counter you grab a paper towel you swipe and it goes in the compost I'm like wow what a Christ what an asshole Cady Coleman at ORD Camp a few years ago did a talk, and she was telling us how, like, she and Kjell, Kjell Lindgren, were talking about how they bathed and how they use consumable stuff on the space station. And Cady said she would get a paper towel when she was on orbit, and she would use it. She'd use one little tiny corner one day, and then she'd fold it up and put it someplace in a Ziploc and use it the next day to wipe her mouth when she was eating lunch or whatever. And then, you know, and she would use every single piece of the paper towel. That's amazing. And and during the first like two two months of this, when paper goods were in kind of tight supply, I think we used two rolls of paper towels, and most of them were for things that like you really don't want to use. Like we we we got out we got out a bunch of rags and you know got some dish rags out and started using that stuff for more things than we ever would before. Really, no change. No, I mean, it meant that it meant that when we washed the towels every other day, there was a few more things in the washing machine using paper towel paper nap sorry cloth towels cloth napkins
 
 [00:16:46] Adam: Yeah.
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:18:52] Adam: It's I've never seen him this angry. Not even close. And it's it's rhetorically beautiful. And also Seth Meyers and his team who just got back. They all Colbert and Seth Meyers took a week long break last week. They're back this week, and all of them are on fire. They are. They have dispensed with the idea of comedy. Not. It's not that they're not funny. It's that they are speaking truth to power. We've been watching tons of Colbert and Seth this week, and it's just been amazing. Um,
 
-[00:19:29] Norm: well, you mentioned Chell and astronauts, and one thing we didn't talk about last week was the SpaceX launch.
+[00:19:29] Norm: well, you mentioned Kjell and astronauts, and one thing we didn't talk about last week was the SpaceX launch.
 
 [00:19:36] Adam: Yes,
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:31:53] Norm: Awesome.
 
-[00:31:54] Adam: But it means also that I think I'm going to have to get rid of one of these benches. I don't know [whether to live it Tested or we will].
+[00:31:54] Adam: But it means also that I think I'm going to have to get rid of one of these benches. I don't know [whether it'll live it Tested or we will].
 
 [00:31:59] Norm: I think we'll take it. Yeah, we'll find a way to move it over. We'll figure it out. Yeah, whenever we get a chance to get back in there. Um, but yeah, that's that's a lot. I mean, there's so much going on. Um, it's good to see you guys. Of course, you know,
 

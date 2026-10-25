@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:00:24] Will: Okay.
 
-[00:00:25] Adam: So this song is by Brandi Carlile, not Belinda Carlile.
+[00:00:25] Adam: So this song is by Brandi Carlile, not Belinda Carlisle.
 
 [00:00:29] Will: Heaven is a place on earth.
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:20:22] Adam: Here's a tweet from a couple weeks ago: The first rule of Dunning Kruger. Club is that you don't know you're in Dunning-Kruger Club. Oh boy!
 
-[00:20:34] Norm: Hey everyone, Norm here. Before we continue on with the conversation, I want to let you know that this episode of Still Untitled is made possible by the podcast Hackable. Cybercrime has been all over the news and TV shows. Hackable, an original podcast from McAfee, answers the question: How worried should I really be about cybercrime? In each episode, host Jeff Siskind invites a hacker to try and hack a device he's using. Think Mr. Robot. In season three, Jeff straps on a virtual reality headset, puts his laptop password on the line, investigates drones, and more. Listen to Hackable now on all major podcast platforms, and thank them for sponsoring this week's episode. Now back to the conversation.
+[00:20:34] Norm: Hey everyone, Norm here. Before we continue on with the conversation, I want to let you know that this episode of Still Untitled is made possible by the podcast Hackable. Cybercrime has been all over the news and TV shows. Hackable, an original podcast from McAfee, answers the question: How worried should I really be about cybercrime? In each episode, host Geoff Siskind invites a hacker to try and hack a device he's using. Think Mr. Robot. In season three, Geoff straps on a virtual reality headset, puts his laptop password on the line, investigates drones, and more. Listen to Hackable now on all major podcast platforms, and thank them for sponsoring this week's episode. Now back to the conversation.
 
 [00:21:18] Adam: Hey Mythbusters,
 
@@ -562,9 +562,9 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:26:49] Adam: Yeah.
 
-[00:26:50] Norm: So much influx.
+[00:26:50] Norm: So much in flux.
 
-[00:26:51] Adam: There is so much influx. Holy hell! How exciting is it to see the most distant object NASA has ever?
+[00:26:51] Adam: There is so much in flux. Holy hell! How exciting is it to see the most distant object NASA has ever?
 
 [00:27:00] Adam: I
 
@@ -710,7 +710,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:31:11] Norm: Ah, they probably left themselves an opening for just like Breaking Bad.
 
-[00:31:14] Adam: I would watch a sequel to this show. Yeah. I would watch. T here is a lot about it that I would that I would jump into. I've been obsessed with um a YouTube channel that I am a Patreon supporter of, Numberphile.
+[00:31:14] Adam: I would watch a sequel to this show. Yeah. I would watch. There is a lot about it that I would that I would jump into. I've been obsessed with um a YouTube channel that I am a Patreon supporter of, Numberphile.
 
 [00:31:26] Will: Oh yeah,
 
@@ -960,4 +960,4 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:36:57] Will: Happy New Year.
 
-[00:36:59] Norm: Thanks for listening this week. And once again, I want to let you know that this episode was made possible by the podcast Hackable from McAfee. Cyber crime has been all over the news and TV shows. Hackable, an original podcast from McAfee, answers the question: How worried should I really be about cyber crime? In each episode, host Jeff Siskind invites a hacker to try and hack a device he's using, kind of like in * Mr. Robot*. In season three, Jeff straps on a virtual reality headset, puts his laptop password on the line, investigates drones, and more. Listen to * Hackable* now on all major podcast platforms, and thank them for making this episode possible. We'll see you next week.
+[00:36:59] Norm: Thanks for listening this week. And once again, I want to let you know that this episode was made possible by the podcast Hackable from McAfee. Cyber crime has been all over the news and TV shows. Hackable, an original podcast from McAfee, answers the question: How worried should I really be about cyber crime? In each episode, host Geoff Siskind invites a hacker to try and hack a device he's using, kind of like in * Mr. Robot*. In season three, Geoff straps on a virtual reality headset, puts his laptop password on the line, investigates drones, and more. Listen to * Hackable* now on all major podcast platforms, and thank them for making this episode possible. We'll see you next week.

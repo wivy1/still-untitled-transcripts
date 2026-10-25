@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:02:28] Will: I think it's the. I think that that is a symbol that the world is like wrapped back around on itself, and we're all getting ready to just poof and disappear.
 
-[00:02:35] Norm: It's the perfect use of Jean Claude Van Damme. It's not like he hasn't been a spokesperson for commercials. There have been commercials. He's known for splits, and there have been like parodies and jokes made of him that he's guessing on, like lighthearted
+[00:02:35] Norm: It's the perfect use of Jean Claude Van Damme. It's not like he hasn't been a spokesperson for commercials. There have been commercials. He's known for splits, and there have been like parodies and jokes made of him that he's guesting on, like lighthearted
 
 [00:02:45] Will: stuff. It's been there've been Family Guy bits, I'm sure, about him doing splits,
 

@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:07:32] Adam: Well, so nation of makers is to help the the the the directors. It's helped anyone who wants to start a makerspace share best practices, curricula, fundraising tips, the legal aspects, the insurance aspects. All of these are something just setting up your own hackerspace includes this whole cascade of stuff.
 
-[00:07:51] Will: It's like an instruction manual for start, and it's something that didn't exist before. I mean, Dale Doherty over at Make had done some work with that with schools and stuff like that years ago.
+[00:07:51] Will: It's like an instruction manual for start, and it's something that didn't exist before. I mean, Dale Dougherty over at Make had done some work with that with schools and stuff like that years ago.
 
 [00:07:51] Adam: Sure, Absolutely,
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:11:22] Will: Oh, that's so good.
 
-[00:11:22] Adam: So they rattled around. People signed it. People wrote special things on them. I mean, it was the the the the feeling of group involvement was infused throughout the whole thing, and that is terrifically indicative of the whole of Namcon. It it really felt like that all the way through. And in the beginning, many of the members of the board of directors and other friends of Namcon got to Santa Fe by taking the train from Los Angeles.
+[00:11:22] Adam: So they rattled around. People signed it. People wrote special things on them. I mean, it was the the the the feeling of group involvement was infused throughout the whole thing, and that is terrifically indicative of the whole of NOMCON. It it really felt like that all the way through. And in the beginning, many of the members of the board of directors and other friends of NOMCON got to Santa Fe by taking the train from Los Angeles.
 
 [00:11:22] Norm: Yes,
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:14:04] Norm: California Zephyr five.
 
-[00:14:06] Adam: Yep. Yep. So we got to do a Tested train. I'm totally, totally down with that. Namcon was amazing. There were all sorts of phenomenal talks. Kipp Bradford did an amazing one. Jen Schachter also did a really incredible one on intersectionality and privilege. And then our friends at Magic Wheelchair gave a presentation. After which there was not a dry eye in the house, as there usually isn't when Magic Wheelchair is showing its wonderful.
+[00:14:06] Adam: Yep. Yep. So we got to do a Tested train. I'm totally, totally down with that. NOMCON was amazing. There were all sorts of phenomenal talks. Kipp Bradford did an amazing one. Jen Schachter also did a really incredible one on intersectionality and privilege. And then our friends at Magic Wheelchair gave a presentation. After which there was not a dry eye in the house, as there usually isn't when Magic Wheelchair is showing its wonderful.
 
 [00:14:35] Will: What's Magic Wheelchair, Adam?
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:15:33] Norm: and then they've done Jurassic Park they've done like dinosaurs
 
-[00:15:37] Adam: Sounds good. Oh, so the dinosaur one of the big dinosaur chairs was at NumCon and it was gorgeous and it was all carved out of mattress foam and painted with acrylics but it looked amazing
+[00:15:37] Adam: Sounds good. Oh, so the dinosaur one of the big dinosaur chairs was at NOMCON and it was gorgeous and it was all carved out of mattress foam and painted with acrylics but it looked amazing
 
 [00:15:37] Unknown speaker: Oh man.
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:16:44] Will: That's awesome.
 
-[00:16:44] Adam: Yeah, it's really great. So, uh, yeah, Namcom was really inspirational, and again, the the confluence of different people from all over the world. Um, I I I met some kids from the Navajo Nation and their makerspace and stuff that they're doing was really inspiring. Uh, actually, some of the folks I met there were. We're actively donating tools to MythBusters Junior, and I got to see them again this week as they were setting some of those rapid prototyping tools up on our set.
+[00:16:44] Adam: Yeah, it's really great. So, uh, yeah, NOMCON was really inspirational, and again, the the confluence of different people from all over the world. Um, I I I met some kids from the Navajo Nation and their makerspace and stuff that they're doing was really inspiring. Uh, actually, some of the folks I met there were. We're actively donating tools to MythBusters Junior, and I got to see them again this week as they were setting some of those rapid prototyping tools up on our set.
 
 [00:16:44] Norm: Oh, awesome!
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:22:56] Unknown speaker: Okay.
 
-[00:22:56] Adam: But it's a resin bird, and I start. I did a bunch of research into, and I did a bunch of research into resins from the '40s. They'd be what they would have used, and even whether they were using polyester or epoxies, the shrinkage would have been somewhere between like ten and between like seven and twelve percent
+[00:22:56] Adam: But it's a resin bird, and I start. I did a bunch of research into resins from the '40s. They'd be what they would have used, and even whether they were using polyester or epoxies, the shrinkage would have been somewhere between like ten and between like seven and twelve percent
 
 [00:23:48] Will: because it cures.
 
@@ -572,7 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:23:49] Will: Wow.
 
-[00:23:49] Adam: Yeah, big shrinkage because it's these big thermo thermoset reactions where it gets it's a exothermic reaction. So there's a yeah. So. Then I knowing that the bird that sold at Bonhams recently for millions of dollars was said to be about twelve inches tall, I thought, oh, you know what, eleven and eight inches tall plus the shrinkage, so I went with eleven and three quarter inches tall.
+[00:23:49] Adam: Yeah, big shrinkage because it's these big thermo thermoset reactions where it gets it's a exothermic reaction. So there's a yeah. So. Then I knowing that the bird that sold at Bonhams recently for millions of dollars was said to be about twelve inches tall, I thought, oh, you know what, eleven and eighth inches tall plus the shrinkage, so I went with eleven and three quarter inches tall.
 
 [00:23:49] Will: Okay.
 
@@ -728,7 +728,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:29:03] Norm: you guys watch any movies lately?
 
-[00:29:04] Will: I saw. I watched two things actually. One is old. I watched the Robert Rodriguez Predators movie with Adrian Brody and Topher Grace the other night.
+[00:29:04] Will: I saw. I watched two things actually. One is old. I watched the Robert Rodriguez Predators movie with Adrien Brody and Topher Grace the other night.
 
 [00:29:12] Adam: How is What wow!
 
@@ -744,7 +744,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:29:17] Adam: Yeah,
 
-[00:29:17] Will: it is. Adrian Brody doing like the full bore Adrian Brody
+[00:29:17] Will: it is. Adrien Brody doing like the full bore Adrien Brody
 
 [00:29:28] Norm: as an action hero
 
@@ -754,7 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:29:34] Will: No.
 
-[00:29:34] Adam: Adrian Brody
+[00:29:34] Adam: Adrien Brody
 
 [00:29:38] Will: no, but but so the setup for the movie is that like the predators from the predator movie
 
@@ -840,7 +840,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:31:18] Will: Go hit me.
 
-[00:31:19] Norm: Hold on, hold on. One of our friends, Mike Mica, wrote this. In Home Alone, Kevin McCallister's mother's maiden name is Schaefer. In Predator, Arnold Schwarzenegger is Dutch Schaefer.
+[00:31:19] Norm: Hold on, hold on. One of our friends, Mike Mika, wrote this. In Home Alone, Kevin McCallister's mother's maiden name is Schaefer. In Predator, Arnold Schwarzenegger is Dutch Schaefer.
 
 [00:31:38] Will: You think that you think that?
 
@@ -902,7 +902,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:32:42] Will: Yeah.
 
-[00:32:42] Adam: It's the first time we met Ted Shaw.
+[00:32:42] Adam: It's the first time we met Ted Chaough.
 
 [00:32:54] Will: Okay.
 
@@ -988,7 +988,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:36:06] Will: Right. Like
 
-[00:36:06] Adam: so, my dad was in that era, and my dad, I remember him telling me about getting hired in the mid to late fifties for I think NWA or as a quote television art director, and just like Harry. Is on the show. It's super accurate. My dad was like, " They hired me with that job title, and no one knew what that was or what I was supposed to do."
+[00:36:06] Adam: so, my dad was in that era, and my dad, I remember him telling me about getting hired in the mid to late fifties for I think N. W. Ayer as a quote television art director, and just like Harry. Is on the show. It's super accurate. My dad was like, " They hired me with that job title, and no one knew what that was or what I was supposed to do."
 
 [00:36:28] Will: Yeah,
 
@@ -1172,13 +1172,13 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:41:34] Adam: Anything coming up on the site this week?
 
-[00:41:35] Norm: Yeah, we along we visited the One Wheel Factory.
+[00:41:35] Norm: Yeah, we along we visited the Onewheel Factory.
 
 [00:41:35] Unknown speaker: Yes,
 
-[00:41:35] Norm: that was long overdue. You love the One Wheel.
+[00:41:35] Norm: that was long overdue. You love the Onewheel.
 
-[00:41:44] Adam: Oh, so sorry. Yeah, just just a couple of minutes to cover this. We built the XR, which is the One Wheel guys. Let me come in and build my own XR. I built an orange one, the only orange one. They laser etched it with its custom name. Julia came up with this. My wife, Sugar Glider.
+[00:41:44] Adam: Oh, so sorry. Yeah, just just a couple of minutes to cover this. We built the XR, which is the Onewheel guys. Let me come in and build my own XR. I built an orange one, the only orange one. They laser etched it with its custom name. Julia came up with this. My wife, Sugar Glider.
 
 [00:41:59] Will: Okay. Very good.
 
@@ -1186,7 +1186,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:42:00] Norm: Wow.
 
-[00:42:00] Adam: I will tell you that I have not yet found its limit in San Francisco. The first weekend I had it, I rode it from the Mission to Ocean Beach and back through the park, and I still had twenty-six percent power left. Four days ago, I took it up and over Polk Street, down to Chrissy, across Fort Mason, down to Chrissy Field, back up through the Presidio, and home again. And that I had thirty-five percent power left after that trip. This thing is—I wear out before it does.
+[00:42:00] Adam: I will tell you that I have not yet found its limit in San Francisco. The first weekend I had it, I rode it from the Mission to Ocean Beach and back through the park, and I still had twenty-six percent power left. Four days ago, I took it up and over Polk Street, down to Crissy, across Fort Mason, down to Crissy Field, back up through the Presidio, and home again. And that I had thirty-five percent power left after that trip. This thing is—I wear out before it does.
 
 [00:42:34] Will: I was going to say, like riding a skateboard across San Francisco, like that would be exhausting.
 

@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:07:59] Norm: Oh.
 
-[00:07:59] Rebecca: And he's like, " Well, how?" And and so you know, John talks to this guy, and like, it's really unclear whether he is a psychopath or not because it is the sort of thing a psychopath would say. So it's really difficult to actually diagnose a psychopath.
+[00:07:59] Rebecca: And he's like, " Well, how?" And and so you know, Jon talks to this guy, and like, it's really unclear whether he is a psychopath or not because it is the sort of thing a psychopath would say. So it's really difficult to actually diagnose a psychopath.
 
 [00:08:41] Adam: It really is. Many of us have probably met some.
 

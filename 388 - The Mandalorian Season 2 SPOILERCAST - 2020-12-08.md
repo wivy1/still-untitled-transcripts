@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:09:39] Norm: for for continuity for, uh, because one of the things when they started on the show was they wanted to film in a way that if if George Lucas couldn't film it that way, in The in 1977, then they didn't want to. They wanted to look more like a original trilogy Star Wars than, uh, the kind of fast camera moves that you saw in the sequel trilogy. You know, JJ Abrams so many sweeping camera moves, nonstop cameras going around around characters. You don't see any of that here, and I think it's very intentional. And they gradually stepped away from that, I think. But that was one of their guiding principles.
 
-[00:10:13] Adam: Well, that was that's a that's a guiding principle of Dennis Muren's shot choices as an effects director. He's really specific, and I remember an interview with him after the first Lord of the Rings film came out. He said, " It's beautiful, and the effects work that what I did was amazing." He has a problem when a camera in a movie does something that a real camera could not do.
+[00:10:13] Adam: Well, that was that's a that's a guiding principle of Dennis Muren's shot choices as an effects director. He's really specific, and I remember an interview with him after the first Lord of the Rings film came out. He said, " It's beautiful, and the effects work that Weta did was amazing." He has a problem when a camera in a movie does something that a real camera could not do.
 
 [00:10:36] Joey: Yeah, in early CG.
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:14:48] Adam: okay. Sorry.
 
-[00:14:48] Norm: Yeah. So the Marshall, the first one, Joey. I want to let you give your thoughts because in our private conversations, you had a lot of opinions about the final shot of the first episode of season two, revealing Temuera Morrison.
+[00:14:48] Norm: Yeah. So the Marshal, the first one, Joey. I want to let you give your thoughts because in our private conversations, you had a lot of opinions about the final shot of the first episode of season two, revealing Temuera Morrison.
 
 [00:15:02] Joey: Right. Yeah. So I had I had a mixed. I had like mixed responses to that. First, I want to just throw right back to earlier in the episode, the way the Tusken, the Tusken Sand Raiders, like
 
@@ -294,15 +294,15 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:25:51] Norm: and absorbing, yeah, yeah. Uh, I thought she did a great shot, like, um, the episode she did in that first season, which was the the ATST, yeah, attack. You know, they they say they threw into the deep end in terms of a heavy effects, lots of things to manage, and then you know really carried this episode. This episode had a lot of a lot of crazy action on the shuttle itself. You had you know the all the stuff on that planet. That planet was so beautifully rendered, right? It felt like a whole different location, real like a whole planet. And again, like all the creature stuff in that episode was great too. Yeah. After that, you had an episode directed by Carl Weathers, the Siege. It's returning back to Tatooine. Right? Is no? Is it Tatooine? Um, sorry. It's um, it's uh
 
-[00:26:42] Joey: Navarro
+[00:26:42] Joey: Nevarro
 
-[00:26:43] Norm: Navarro Navarro. Right, where Carl Weathers is now, like the magistrate. Um, and they go on, uh, basically an assault on a quest to, um, to uh, to attack this, what they think is an abandoned Imperial base, which obviously is not abandoned.
+[00:26:43] Norm: Nevarro Nevarro. Right, where Carl Weathers is now, like the magistrate. Um, and they go on, uh, basically an assault on a quest to, um, to uh, to attack this, what they think is an abandoned Imperial base, which obviously is not abandoned.
 
 [00:27:01] Adam: Somewhat abandoned or undermanned.
 
 [00:27:04] Norm: Um, this one felt a little bit like a filler episode because there was so much promise in the episode right before of seeing Ahsoka Tano. Like Bo-Katan says, you got to find Ahsoka Tano. Go to Corvus. That's where we're going to find her, and we're all bracing for it. And it wasn't until the episode after this, and so I was like, it was. It felt like it. It felt like a you know like a um a roadblock a pullback.
 
-[00:27:31] Adam: I feel like it's a pulling back on the reins, and I think that makes sense. You when you when you have something as important as Ahsoka Tano showing up in the live action series. And played by Rosario Dawson, who's so amazing. I thought it was nice that they made us wait an extra. I mean, we heard about her. Was the first time we heard her name in the Bogataan episode?
+[00:27:31] Adam: I feel like it's a pulling back on the reins, and I think that makes sense. You when you when you have something as important as Ahsoka Tano showing up in the live action series. And played by Rosario Dawson, who's so amazing. I thought it was nice that they made us wait an extra. I mean, we heard about her. Was the first time we heard her name in the Bo-Katan episode?
 
 [00:27:52] Norm: Yep.
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:30:05] Adam: I also really appreciated how upsetting it was to watch the Razor Crest get more and more damaged and become more and more like, boop, boop, boop, boop, boop, you know, as it's crawling along. So in that episode, when it's fixed and it shows up in the battle and starts doing all those heavy G rolls and awesome dogfighting, that was every bit as satisfying as I was hoping it would be.
 
-[00:30:30] Norm: Totally. And then the Jedi, the second, the most recent episode. This, written and directed by Dave Filoni, takes us to Corvus where. Asoka Tano's there. There's so much to say about this episode. Where do you guys want to start?
+[00:30:30] Norm: Totally. And then the Jedi, the second, the most recent episode. This, written and directed by Dave Filoni, takes us to Corvus where. Ahsoka Tano's there. There's so much to say about this episode. Where do you guys want to start?
 
 [00:30:49] Adam: I so actually before that episode aired, I went back and rewatched * Sanjuro*, Kurosawa's sequel to * Yojimbo*. And I don't know how long it's been since I. If you you guys have both seen it,
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:41:29] Adam: Here's the thing that I get really excited about about watching this show is that I feel like I'm watching characters come to fruition rather than plots coming to fruition. Obviously, there is a plot, and we are participating in it, and there are some bottle episodes and some one offs, etc. But every single episode, I feel like I understand the characters better, and the new characters that I meet are constantly interesting, and even the villains are. I often really like the villains, even if I'm scared of them. You know.
 
-[00:41:58] Norm: He makes friends with everyone. There were ongoing jokes on on Twitter. You know, this is a show about a single dad freelancer who just goes around the galaxy making best friends. Right? I'm gonna fight you. Now you're my best friend, the Marshall.
+[00:41:58] Norm: He makes friends with everyone. There were ongoing jokes on on Twitter. You know, this is a show about a single dad freelancer who just goes around the galaxy making best friends. Right? I'm gonna fight you. Now you're my best friend, the Marshal.
 
 [00:42:12] Adam: That was me just before Mythbusters started.
 

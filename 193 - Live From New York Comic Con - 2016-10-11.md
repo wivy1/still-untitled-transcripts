@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:08:53] Adam: Yeah, she's on, yeah.
 
-[00:09:00] Norm: double girl.
+[00:09:00] Norm: Dabo girl.
 
 [00:09:01] John Scalzi: Yeah. She
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:09:02] Adam: yeah. So it's it's always cool when that happens.
 
-[00:09:32] Norm: Speaking of your books, we're we did a spoiler cast of your book. I think it's the only one we've done a few books before, but we discussed red shirts,
+[00:09:32] Norm: Speaking of your books, we're we did a spoiler cast of your book. I think it's the only one we've done a few books before, but we discussed Redshirts,
 
 [00:09:32] John Scalzi: yeah, yeah,
 
@@ -254,13 +254,13 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:09:46] Adam: You really don't expect.
 
-[00:09:46] John Scalzi: You really don’t expect. I mean, it does have shoutouts to Comic Con. It does have shoutouts to you know Wikipedia. Nerd culture is all over it. But it is also the sort of thing that somebody who comes here, they're going to pick up that book, and they're immediately going to get it. You know, just knowing the title of the book. I wrote a book. What is, what did you write? Red shirts.
+[00:09:46] John Scalzi: You really don’t expect. I mean, it does have shoutouts to Comic Con. It does have shoutouts to you know Wikipedia. Nerd culture is all over it. But it is also the sort of thing that somebody who comes here, they're going to pick up that book, and they're immediately going to get it. You know, just knowing the title of the book. I wrote a book. What is, what did you write? Redshirts.
 
 [00:09:46] Adam: Oh.
 
 [00:09:46] John Scalzi: Well, there's no, you know, they get it.
 
-[00:10:24] Adam: And here's actually the thing that I said on the podcast, and I love saying, pointing this out to people, is like Red shirts is an exploration into what it's like for the ensigns of the Star Trek Enterprise to go down to the planet and die,
+[00:10:24] Adam: And here's actually the thing that I said on the podcast, and I love saying, pointing this out to people, is like Redshirts is an exploration into what it's like for the ensigns of the Star Trek Enterprise to go down to the planet and die,
 
 [00:10:24] John Scalzi: right?
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:10:43] Norm: Yeah.
 
-[00:10:52] John Scalzi: Well, and that was, and that was why for me it was fun to write. I mean, the thing about red shirts. And I think one of the reasons why no one actually wrote a novel about it before is because the surface is really easy. The expendable person dies and is expendable,
+[00:10:52] John Scalzi: Well, and that was, and that was why for me it was fun to write. I mean, the thing about Redshirts. And I think one of the reasons why no one actually wrote a novel about it before is because the surface is really easy. The expendable person dies and is expendable,
 
 [00:10:52] Norm: Right, right.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:11:38] Adam: That was all of my grade school experience.
 
-[00:11:40] John Scalzi: Exactly. I mean, and anybody who's been a nerd has kind of had that feeling. We've all been metaphorically a red shirt in one way or another, right? And we know that there's more to it than just being the expendable one, the one that can be left behind, the one who's like, ah, it's okay if if Bob's not here. You know, we got the people that we need, sort of thing, and I think that's one of the things that resonated with people. And for me, you know, as a writer, it was just fun to to take what is really a one note joke and see how many changes you can play on it. You know, you, yeah, and I think that's the thing that surprised people. People knew going in that they were going to get the Richard joke, but they didn't know what else they were going to get. And they, I almost certain, they didn't know that they were going to get the codas at the end.
+[00:11:40] John Scalzi: Exactly. I mean, and anybody who's been a nerd has kind of had that feeling. We've all been metaphorically a red shirt in one way or another, right? And we know that there's more to it than just being the expendable one, the one that can be left behind, the one who's like, ah, it's okay if if Bob's not here. You know, we got the people that we need, sort of thing, and I think that's one of the things that resonated with people. And for me, you know, as a writer, it was just fun to to take what is really a one note joke and see how many changes you can play on it. You know, you, yeah, and I think that's the thing that surprised people. People knew going in that they were going to get the redshirt joke, but they didn't know what else they were going to get. And they, I almost certain, they didn't know that they were going to get the codas at the end.
 
 [00:12:25] Adam: Yeah, which I found to be the most affecting, actually.
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:16:13] John Scalzi: Right, exactly. Yeah, the ice cream races.
 
-[00:16:17] Norm: It became a thing, like just like in retro. It's when the script was written. When that seamless film, that was just an extra.
+[00:16:17] Norm: It became a thing, like just like in retro. It's when the script was written. When that scene was filmed, that was just an extra.
 
 [00:16:17] John Scalzi: Right.
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:19:52] John Scalzi: Right. Exactly. While you're off doing whatever it is you're doing, they are staying up nights writing. About the things that you've created, and so for me, it has always been the thing of. I think you're right. This is all part of the completist thing of we want. I want to know everything, and now that I know everything, I want to know more. And if you're not there yet, I'll go. Well, how about this? And so it's all part of the it's all part of the same nerd spectrum, so to speak. And it just thrills me when someone says, " I wrote I wrote a story in the old man's world. Please don't be angry with me." I'm like, no, write it. Right. Don't sell it, but write it, and I'm okay with you even sharing it. You know, but as far as it goes, that means that you you are thinking about me when I'm not.
 
-[00:20:36] Adam: Well, and back to your original point, you know, we come here to Comic Con. All three of us come here for work. Right. We have lots to do while we're here, but that's by design. We like working hard. Yeah. We like coming and seeing our friends and coming to this, but also I think people might not realize how inspiring we find it to come here and see that kind of. That it's getting scratched in every possible way.
+[00:20:36] Adam: Well, and back to your original point, you know, we come here to Comic Con. All three of us come here for work. Right. We have lots to do while we're here, but that's by design. We like working hard. Yeah. We like coming and seeing our friends and coming to this, but also I think people might not realize how inspiring we find it to come here and see that kind of. That itch getting scratched in every possible way.
 
 [00:20:57] John Scalzi: Sure. Well, I mean, it is. It is easy, especially if you do a lot of conventions, as I think we all do, to begin to feel a little bit blasé about it. You know, because it is. It's a. It's a another convention center, another floor, another set of people doing all this sort of stuff, and so you can get a little bit jaded about it. And so it is actually worth it to make the effort to realize that actually, Wil, Wil Wheaton said something very smart to me once at sort of the beginning of when when I started doing that thing where I got lines. Right. Right. And he'd had lines for a long time, and he said to me, " You will see, 100, 200, 300 people, and you will not remember them all, but they are all coming to see you, and they will remember that moment. You owe them that moment. And every time that I feel myself becoming, oh God, I've got to be here, I remember what he said. It's like this is their moment. And you have to make sure that their moment with you, even if it is like waving at you in passing,
 

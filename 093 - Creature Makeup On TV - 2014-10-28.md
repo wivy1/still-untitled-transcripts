@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:07:36] Will: I mean, writing a letter goes a long way.
 
-[00:07:37] Adam: and going to Larchmont, New York, to his shop and going downstairs, and there's Reagan, you know, the the spinning head makeup from Exorcist and stuff like. And you you you wrote to Dick Smith.
+[00:07:37] Adam: and going to Larchmont, New York, to his shop and going downstairs, and there's Regan, you know, the the spinning head makeup from Exorcist and stuff like. And you you you wrote to Dick Smith.
 
 [00:07:46] Frank: I wrote to Dick Smith. I got the course when I was in high school, I believe.
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:14:51] Frank: And then you go. And then it's going to cost another four thousand dollars for hair, and they go, " What? What? But custom wig, like a good custom wig, costs three, four thousand dollars, depending on length and color and all this.
 
-[00:15:04] Will: It's not a thing you can just. It's not a thing you can do quickly. You just have to put the plug, the hair in, and plugs, right?
+[00:15:04] Will: It's not a thing you can do quickly. You just have to put the plug, the hair in, and plugs, right?
 
 [00:15:09] Frank: No,
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:18:34] Frank: that's cool."
 
-[00:18:38] Adam: Tell J. J. Abrams, I have Ackbar. If they need some Calamarians for the new movie, I've got the cat. Frank's got the mold. J. J., we will send you the mold. You can just use it.
+[00:18:38] Adam: Tell J. J. Abrams, I have Ackbar. If they need some Calamarians for the new movie, I've got the cast. Frank's got the mold. J. J., we will send you the mold. You can just use it.
 
 [00:18:49] Frank: Sure.
 
@@ -586,7 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:20:08] Frank: Yeah.
 
-[00:20:08] Adam: and we're going to do the same. We're going to do the same. map.
+[00:20:08] Adam: and we're going to do the same map.
 
 [00:20:14] Frank: Is it going to be me, you, Steve Johnson, and Max Landis just having a good time?
 

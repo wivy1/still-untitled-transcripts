@@ -12,7 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:00:04] Will: I feel like, and we're recording at night, and I feel like I feel like we should use a kind of NPR voice for this one. You know, it should be—
 
-[00:00:10] Adam: These are really good sweaty balls.
+[00:00:10] Adam: These are really good Schweddy balls.
 
 [00:00:12] Will: Good evening.
 
@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:00:23] Will: I'm Kai Ryssdal.
 
-[00:00:24] Norm: Me Sing. Those are real NPR names.
+[00:00:24] Norm: Me Singh. Those are real NPR names.
 
 [00:00:25] Will: Yeah, those are real names.
 
@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:00:30] Norm: They're all good names.
 
-[00:00:31] Will: The sweaty balls thing. I was making cookies in the in the kitchen when it came on this year on the the SNL.
+[00:00:31] Will: The Schweddy balls thing. I was making cookies in the in the kitchen when it came on this year on the the SNL.
 
 [00:00:37] Unknown speaker: Yeah.
 
@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:00:42] Will: Because it's it's it is it is a hysterical skit and it gets funnier every time.
 
-[00:00:46] Adam: But here's the thing about the sweaty balls thing is that I I thought it was funny, but I thought it was a little overdone when I first heard it. But here's the reason, because here in San Francisco, we have the largest listener base for NPR in the country.
+[00:00:46] Adam: But here's the thing about the Schweddy balls thing is that I I thought it was funny, but I thought it was a little overdone when I first heard it. But here's the reason, because here in San Francisco, we have the largest listener base for NPR in the country.
 
 [00:01:05] Will: Yeah.
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:01:14] Will: Yeah.
 
-[00:01:14] Adam: So I didn't realize that when you're in another market like LA or Chicago, half, ninety percent of LAR sounds of of of NPR sounds exactly like the sweaty ball sketch.
+[00:01:14] Adam: So I didn't realize that when you're in another market like LA or Chicago, half, ninety percent of LAR sounds of of of NPR sounds exactly like the Schweddy ball sketch.
 
 [00:01:27] Will: Oh yeah.
 

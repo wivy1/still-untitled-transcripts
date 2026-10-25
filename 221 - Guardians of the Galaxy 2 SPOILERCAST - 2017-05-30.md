@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:16:49] Will: I assume it was makeup, like like I that's that was my that was my take when I saw it.
 
-[00:16:54] Adam: So so, bookmark Brandy. I'm working at Industrial Light and Magic. It's 2002, probably 2001. And this new model maker we've hired, who's kind of a weird guy, he comes up to me randomly in the middle of a day, and he goes, " Adam, do you know the song 'Brandy'?" And I went, " The song 'Brandy,' you're a fine girl. What a good wife you'd be. That one from the '70s." I was like, " Yeah." Do you know what it's about? And I was like, " I think it's about a sailor who likes this girl in the sea side down, but he can't be with her because the sea is his lady." And he goes, " Yeah, I just never listened to it before." Maybe one of the most random conversations I have ever had.
+[00:16:54] Adam: So so, bookmark Brandy. I'm working at Industrial Light and Magic. It's 2002, probably 2001. And this new model maker we've hired, who's kind of a weird guy, he comes up to me randomly in the middle of a day, and he goes, " Adam, do you know the song 'Brandy'?" And I went, " The song 'Brandy,' you're a fine girl. What a good wife you'd be. That one from the '70s." I was like, " Yeah." Do you know what it's about? And I was like, " I think it's about a sailor who likes this girl in the seaside town, but he can't be with her because the sea is his lady." And he goes, " Yeah, I just never listened to it before." Maybe one of the most random conversations I have ever had.
 
 [00:17:46] Adam: I was expecting a like, " Oh, you're so vain. It's about Mick Jagger. No, it's about Warren Beatty. No, no, no. He was just literally listening to the lyrics for the first time.
 
@@ -494,11 +494,11 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:19:28] Adam: Um. I loved. Hold on.
 
-[00:19:28] Will: Cause you don’t type.
+[00:19:28] Will: Gesundheit.
 
 [00:19:37] Adam: Excuse me.
 
-[00:19:39] Adam: I loved the fact that Drax laughed so much. Uh, this is something I've talked about before. People don't laugh in movies or television or media. In fact, I submit, as I have before, Julia Louis-Dreyfus is one of the few actresses that openly, ha, ha, ha, ha, laughs in Seinfeld, at New Adventures of Old Christine. Veep. She laughs, and to see Batista getting, I got to meet him last year and and and spend a day with him, and I found him to be one of the nicest, most. Gentle, intelligent, amazing actors I've spent time with, and then to watch this film and watch how much he got to play with and do in the film—absolutely delightful. I actually I didn't mind that there wasn't a super badass in the group because I was so emotionally invested in each of the characters.
+[00:19:39] Adam: I loved the fact that Drax laughed so much. Uh, this is something I've talked about before. People don't laugh in movies or television or media. In fact, I submit, as I have before, Julia Louis-Dreyfus is one of the few actresses that openly, ha, ha, ha, ha, laughs in Seinfeld, at New Adventures of Old Christine. Veep. She laughs, and to see Bautista getting, I got to meet him last year and and and spend a day with him, and I found him to be one of the nicest, most. Gentle, intelligent, amazing actors I've spent time with, and then to watch this film and watch how much he got to play with and do in the film—absolutely delightful. I actually I didn't mind that there wasn't a super badass in the group because I was so emotionally invested in each of the characters.
 
 [00:20:31] Will: Yeah, I mean that's the thing.
 
@@ -726,7 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:27:01] Norm: Oh my! you jump right in the…
 
-[00:27:02] Adam: [unclear: The Bownwell / The Boonwell]-style vignettes,
+[00:27:02] Adam: [unclear: The Buñuel]-style vignettes,
 
 [00:27:02] Norm: yes,
 

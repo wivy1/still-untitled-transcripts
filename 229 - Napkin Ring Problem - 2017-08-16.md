@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:03:19] Adam: Well, we got back from Comic Con. We had a lovely time there.
 
-[00:03:22] Norm: Yeah, and all our content's out here out by now. The panel is great, actually. One of the things that we. One of the things that we had done at the panel that we we didn't get to do the panel is get a camera on the audience. And the last person who asked a question built
+[00:03:22] Norm: Yeah, and all our content's out here out by now. The panel is great, actually. One of the things that we had done at the panel that we we didn't get to do the panel is get a camera on the audience. And the last person who asked a question built
 
 [00:03:22] Adam: Yes.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:10:19] Norm: Well, it's in Detroit. You can make a book a plane ticket.
 
-[00:10:21] Adam: I also. I didn't tell Jack this, but I sang his song " Love Interruption" on stage at Bootstock at Comic Con this year. Yeah, I decided to do it. I decided to try it out.
+[00:10:21] Adam: I also. I didn't tell Jack this, but I sang his song " Love Interruption" on stage at w00tstock at Comic Con this year. Yeah, I decided to do it. I decided to try it out.
 
 [00:10:30] Will: My my daughter's favorite is from I think the acoustic recording albums, but it's the cover of of the song that he and Meg used to sing when they were in the White Stripes. The song, the the I know the love one another. I love, Jack White, like he's my brother. That song, you know the.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:11:20] Norm: in San Francisco, and
 
-[00:11:21] Adam: Well, Space Fest was last weekend up in up in Napa. Okay, so Al Warden, who visited the shop here earlier this year, and our friend Ryan Nagata was up there showing off some stuff. That was really cool. But the Thursday before Space Fest,
+[00:11:21] Adam: Well, Space Fest was last weekend up in up in Napa. Okay, so Al Worden, who visited the shop here earlier this year, and our friend Ryan Nagata was up there showing off some stuff. That was really cool. But the Thursday before Space Fest,
 
 [00:11:36] Norm: the Exploratorium did one of their after dark events, and it was all space themed. And and you brought spacesuits among other types of suits to to have on display that evening. But want to give people who even weren't who even were there what they didn't see, which is that you spent the Two days before that, rebuilding stands for your spacesuits.
 
@@ -314,15 +314,15 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:12:22] Will: All of them awful.
 
-[00:12:24] Will: And then the second time. The second time we spent slightly more money on mannequins. The second time we spent slightly more money on mannequins, also terrible.
+[00:12:24] Will: And then the second time. The second time we spent slightly more money on mannequins, also terrible.
 
 [00:12:24] Unknown speaker: All of them terrible.
 
 [00:12:24] Adam: Yep.
 
-[00:12:24] Will: And and like you look at what you look at what like Deborah Landis did, Nadoolman Landis did at the Lakme exposition.
+[00:12:24] Will: And and like you look at what you look at what like Deborah Landis did, Nadoolman Landis did at the LACMA exposition.
 
-[00:12:35] Adam: It was not Lakme. It was not Lakme. It was actually the Academy. Was next door to Lakme, but anyway,
+[00:12:35] Adam: It was not LACMA. It was not LACMA. It was actually the Academy. Was next door to LACMA, but anyway,
 
 [00:12:41] Will: okay. Anyway, but what what they did with mannequins there was
 
@@ -474,11 +474,11 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:17:28] Will: Yeah, yeah, yeah, it looks like the kind of hard side dive suit that people use right now on the bottom of the ocean. Yeah. So
 
-[00:17:33] Adam: apparently there was a stand in one of those that didn't actually function in Prometheus, and Ridley really liked that, and the FBFX Andrew Down and Grant they they decided to tackle this.
+[00:17:33] Adam: apparently there was a stand in one of those that didn't actually function in Prometheus, and Ridley really liked that, and the FBFX Andrew Dow and Grant they they decided to tackle this.
 
 [00:17:33] Unknown speaker: Wow.
 
-[00:17:33] Adam: And the cost of using real bearings like Kaden six and eight and ten inch bearings prohibitive.
+[00:17:33] Adam: And the cost of using real bearings like Kaydon six and eight and ten inch bearings prohibitive.
 
 [00:17:33] Will: Yeah.
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:18:06] Adam: So they three D printed them and they totally worked.
 
-[00:18:08] Will: Wow. What? What? What did they use it? What did they three D print on? Like a laser centering printer?
+[00:18:08] Will: Wow. What? What? What did they use it? What did they three D print on? Like a laser sintering printer?
 
 [00:18:13] Adam: No, I think this was filament, but I'm not. Yeah.
 
@@ -1030,6 +1030,6 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:30:51] Will: good one.
 
-[00:30:52] Norm: Bye. I want to thank the other sponsor of this week's episode of Still Entitled, and that's Casper. The Casper is an obsessively engineered mattress at a shockingly fair price. Supportive memory foams create an award-winning sleep surface with just the right sink and just the right bounce. I sleep on my Casper and love it. You know who else loves bouncing on it? My dog Ripley, as well. She can't get enough of it. Try Casper for 100 nights, risk-free in your own home. If you don't love it, they'll pick it up and refund you everything. Casper understands the importance of truly sleeping on a mattress before you commit, especially considering you're going to spend a third of your life on it. Free shipping and returns in the U.S. and Canada. And for listeners of Still Entitled, you can get $ 50 toward any mattress purchase by going to www.casper.com/untitled and using the offer code Untitled. Terms and conditions apply. We'll see you next week.
+[00:30:52] Norm: Bye. I want to thank the other sponsor of this week's episode of Still Untitled, and that's Casper. The Casper is an obsessively engineered mattress at a shockingly fair price. Supportive memory foams create an award-winning sleep surface with just the right sink and just the right bounce. I sleep on my Casper and love it. You know who else loves bouncing on it? My dog Ripley, as well. She can't get enough of it. Try Casper for 100 nights, risk-free in your own home. If you don't love it, they'll pick it up and refund you everything. Casper understands the importance of truly sleeping on a mattress before you commit, especially considering you're going to spend a third of your life on it. Free shipping and returns in the U.S. and Canada. And for listeners of Still Untitled, you can get $ 50 toward any mattress purchase by going to www.casper.com/untitled and using the offer code Untitled. Terms and conditions apply. We'll see you next week.
 
 [00:30:52] Unknown speaker: Thank you.

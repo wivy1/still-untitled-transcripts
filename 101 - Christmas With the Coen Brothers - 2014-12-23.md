@@ -1096,7 +1096,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:33:47] Will: Um, I think that'll. I think that's. I feel like.
 
-[00:33:50] Norm: Do you do the thing where you you contact it. Do the contact thing where the most American thing is if you can buy two for the price that buy two of them for the double the price. Why not? And you just buy one for yourself and one buy.
+[00:33:50] Norm: Do you do the thing where you you Contact it. Do the Contact thing where the most American thing is if you can buy two for the price that buy two of them for the double the price. Why not? And you just buy one for yourself and one buy.
 
 [00:34:00] Adam: I do a lot of that. I'm terrible. I'm terrible. Yeah.
 

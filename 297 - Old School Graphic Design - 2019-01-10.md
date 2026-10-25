@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:05:37] Will: what's a typespecker do? I don't know that one.
 
-[00:05:38] Adam: So I worked for this amazing woman, Laura Tarisi, in New York City. I she might actually still be there. Laura Tarisi Design was this group of four female designers. I was the only man that lasted longer than two weeks, and I lasted a year and a half.
+[00:05:38] Adam: So I worked for this amazing woman, Laura Torrisi, in New York City. I she might actually still be there. Laura Torrisi Design was this group of four female designers. I was the only man that lasted longer than two weeks, and I lasted a year and a half.
 
 [00:05:38] Will: Wow.
 
@@ -178,7 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:07:36] Adam: no yeah you have to average it out.
 
-[00:07:38] Will: [unclear: Reverse lorem / You have to reverse Loram Ibsen].
+[00:07:38] Will: [unclear: Reverse lorem / You have to reverse lorem ipsum].
 
 [00:07:38] Norm: Ten lines
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:08:48] Adam: Yeah,
 
-[00:08:48] Will: like pop songs that are designed specifically so that executives have something hyped up to walk on to when they're at a big conference. So U two's Vertigo, pretty much everything by the Black Eyed Peas, right? You know, like like it's it's hype up music for a crowd.
+[00:08:48] Will: like pop songs that are designed specifically so that executives have something hyped up to walk on to when they're at a big conference. So U2's Vertigo, pretty much everything by the Black Eyed Peas, right? You know, like like it's it's hype up music for a crowd.
 
 [00:09:09] Adam: Yeah, Jamie and I did a whole stage tour where it was back in black.
 
@@ -244,13 +244,13 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:10:10] Adam: yeah,
 
-[00:10:10] Will: and switched from Quark Express to InDesign, and then nothing's changed.
+[00:10:10] Will: and switched from QuarkXPress to InDesign, and then nothing's changed.
 
 [00:10:31] Adam: You know, I've never been able to figure out InDesign even a little bit.
 
 [00:10:37] Unknown speaker (Norm or Will): You're a Quark person.
 
-[00:10:38] Adam: I am. Not only am I Quark person, but I am. I'm like I need to find a Quark jockey because I have all I Quark is and what you're describing is Quark Express works the way pre digital designers think.
+[00:10:38] Adam: I am. Not only am I Quark person, but I am. I'm like I need to find a Quark jockey because I have all I Quark is and what you're describing is QuarkXPress works the way pre digital designers think.
 
 [00:10:38] Will: Yeah,
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:13:50] Adam: Well, I and I never say six forty-two. I always say, okay, tomorrow's mission critical. Siri, wake me up at five oh five, five ten, and five fifteen. Right. And then they all stay there, and then I end up with hundreds, and the only way to get rid of them is ask Siri to do the sweeping up.
 
-[00:14:06] Will: So the InDesign quirk thing, though, is interesting, though, because it's a transition from a skeuomorphic design. Skeuomorphic meaning it's mimicking the old analog way of doing things.
+[00:14:06] Will: So the InDesign Quark thing, though, is interesting, though, because it's a transition from a skeuomorphic design. Skeuomorphic meaning it's mimicking the old analog way of doing things.
 
 [00:14:15] Adam: That's where it lost me
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:16:26] Adam: Yeah.
 
-[00:16:26] Norm: Um. Uh. [unclear: Wave helped / we’ve helped] connect him with the Pixar folks for Wally.
+[00:16:26] Norm: Um. Uh. [unclear: Wave helped / we’ve helped] connect him with the Pixar folks for WALL-E.
 
 [00:16:26] Adam: Love it.
 
@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:23:24] Adam: No, I know she's always good. She's incredible in this film. It's really worth watching. And then we saw Crazy Rich Asians. Oh, which I which I very enjoyed. I mean, I I can't remember if you said this, but someone told me it's basically a Stanley Donen film. It's like watching Singing in the Rain.
 
-[00:23:46] Norm: Oh, and that's the show and dance. John M. Chu, who directed it, he directed start off with music videos, and he did like the Justin Bieber film, and so that's his whole thing.
+[00:23:46] Norm: Oh, and that's the show and dance. Jon M. Chu, who directed it, he directed start off with music videos, and he did like the Justin Bieber film, and so that's his whole thing.
 
 [00:23:56] Will: Is that Don't Stop Believin'?
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:25:50] Norm: Jimmy Chin.
 
-[00:25:51] Adam: Jimmy Chin. Sorry, when you hear him curse, and you realize this is him unhinged, and it is just like the tiniest hair's breath away from totally calm.
+[00:25:51] Adam: Jimmy Chin. Sorry, when you hear him curse, and you realize this is him unhinged, and it is just like the tiniest hair's breadth away from totally calm.
 
 [00:25:51] Norm: Yeah.
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:27:08] Norm: There was, they would climb up, and then leave the gear up and come back down, and then climb up, and because it would still count as a climb. Because they would the climb the quote unquote climb would be putting in the
 
-[00:27:34] Will: pittens and stuff.
+[00:27:34] Will: pitons and stuff.
 
 [00:27:34] Norm: Yes,
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:28:02] Norm: amazing.
 
-[00:28:02] Will: I watched. I did a double feature this weekend of Born the Third born movie, the Born Ultimatum. I think
+[00:28:02] Will: I watched. I did a double feature this weekend of Bourne the Third Bourne movie, the Bourne Ultimatum. I think
 
 [00:28:14] Adam: that's the last one with Matt Damon.
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:28:27] Will: Julia Stiles, yes, you are right.
 
-[00:28:29] Adam: Well, that's what the First Born film did really well is that all the supporting characters are really good. Walton Goggins is on the team in the First Born film.
+[00:28:29] Adam: Well, that's what the First Bourne film did really well is that all the supporting characters are really good. Walton Goggins is on the team in the First Bourne film.
 
 [00:28:36] Norm: Is he a tech on a computer?
 

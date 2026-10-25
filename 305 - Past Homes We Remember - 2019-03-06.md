@@ -4,9 +4,9 @@
 **Duration:** 36m 23s  
 Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
-[00:00:00] Norm: This week's episode of Still Entitled is made possible by Wyze Cam. Wyze is on a mission to make amazing smart home products accessible to everyone. The Wyze indoor camera is packed with premium features that allow you to see everything from anywhere for only twenty dollars. Whether you're checking to see if your kids are home safe or if your three D printer is finished printing, nothing is off limits for Wyze Cam. Go to wyze dot com slash untitled. That's w y z e dot com slash untitled to be guaranteed the lowest price available. Now on with the show.
+[00:00:00] Norm: This week's episode of Still Untitled is made possible by Wyze Cam. Wyze is on a mission to make amazing smart home products accessible to everyone. The Wyze indoor camera is packed with premium features that allow you to see everything from anywhere for only twenty dollars. Whether you're checking to see if your kids are home safe or if your three D printer is finished printing, nothing is off limits for Wyze Cam. Go to wyze dot com slash untitled. That's w y z e dot com slash untitled to be guaranteed the lowest price available. Now on with the show.
 
-[00:00:34] Will: Welcome to Still Entitled, the Adam Savage Project. I'm Will.
+[00:00:34] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:37] Adam: I'm Adam.
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:01:48] Adam: But her previous album called Pageant Material is an unfettered delight, and I listen to it every morning. Now I wake up and I go Alexa. Please play pageant material by Kacey Musgraves.
 
-[00:01:58] Will: And now everybody’s Alexis playing
+[00:01:58] Will: And now everybody’s Alexa’s playing
 
 [00:01:59] Adam: [unclear: Oh my God / Oh my gosh],
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:05:17] Adam: Oh, is that really?
 
-[00:05:18] Will: Yeah. What's his name? Meyer of Metro Gold. Louis Louis Meyer, is that right? Like, was like, hey, we need we need to do something to keep the talent in line. So let's put on a big awards thing and you know send them all out there and give them some statues and then see if they they do their yeah. Anyway, it's
+[00:05:18] Will: Yeah. What's his name? Mayer of Metro Gold. Louis Louis Mayer, is that right? Like, was like, hey, we need we need to do something to keep the talent in line. So let's put on a big awards thing and you know send them all out there and give them some statues and then see if they they do their yeah. Anyway, it's
 
 [00:05:35] Adam: Will's ranting is clipping in my headphones.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:10:02] Norm: I mean, that and the argument for Netflix is that they give long legs to the flash in the pan.
 
-[00:10:09] Adam: Well, I mean, also at Netflix, I mean, so Kristen, who we work with, one of my producers, is she talks about how great it is to promote stuff when she was working on promoting White Rabbit with Kari, Grant and Tori. It's great because a good portion of their audience, like our audience, is international.
+[00:10:09] Adam: Well, I mean, also at Netflix, I mean, so Kristen, who we work with, one of my producers, is she talks about how great it is to promote stuff when she was working on promoting White Rabbit with Kari, Grant and Tory. It's great because a good portion of their audience, like our audience, is international.
 
 [00:10:09] Norm: Yeah,
 
@@ -490,9 +490,9 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:20:03] Norm: There is no Ozymandias, right? Like in Breaking Bad, this I am not going to spoil, but there is a death in the last season that just feels like you know shit's getting real.
 
-[00:20:14] Adam: Oh my god! Directed by Ryan Johnson.
+[00:20:14] Adam: Oh my god! Directed by Rian Johnson.
 
-[00:20:16] Norm: Directed by Ryan Johnson, and that happens early enough in the final season that you really the
+[00:20:16] Norm: Directed by Rian Johnson, and that happens early enough in the final season that you really the
 
 [00:20:20] Adam: Ozymandias?
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:21:57] Will: Who is Harry Hamlin?
 
-[00:21:57] Adam: Harry Hamlin is the the head of Ted Shores' agency.
+[00:21:57] Adam: Harry Hamlin is the the head of Ted Chaough’s agency.
 
 [00:21:57] Will: Wait.
 
@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:23:01] Unknown speaker (Adam or Will): [unclear: the R5 / the R5?].
 
-[00:23:01] Adam: the NX6,
+[00:23:01] Adam: the NEX-6,
 
 [00:23:05] Norm: yes, seven, yeah, one of the high end one that was amazing. The very
 
@@ -636,7 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:25:48] Adam then Norm then Will: Oh, that was it. Wait, I’m I’m the person. Don’t offend the talent. Don’t offend the talent, Norman.
 
-[00:25:57] Norm: It's like the I'm looking around. Before we continue with this week's episode, I want to let you know that Still Entitled is also made possible by Shaper. Take networking from awkward to awesome with Shaper, the number one professional networking platform that uses your experience, interests, and goals to help you make the right connections. Whether you're looking for investors, a co-founder, a new job opportunity, or just inspiring conversations, Shaper can connect you to professionals who truly want to share tips and help. Each day, it suggests 15 people with similar goals and interests for you to meet. Then all you have to do is take a few minutes to swipe through your daily profiles, set up coffees with the people who stand out. If you're a professional, the Shaper app should be installed on your phone, and you'll meet awesome people in no time. So download the app today, or check out Shaper online at shaper.co. That's Shaper, S-H-A-P-R. dot co. To learn more about Shaper, download the app and improve the way you network. Now back to the conversation.
+[00:25:57] Norm: It's like the I'm looking around. Before we continue with this week's episode, I want to let you know that Still Untitled is also made possible by Shapr. Take networking from awkward to awesome with Shapr, the number one professional networking platform that uses your experience, interests, and goals to help you make the right connections. Whether you're looking for investors, a co-founder, a new job opportunity, or just inspiring conversations, Shapr can connect you to professionals who truly want to share tips and help. Each day, it suggests 15 people with similar goals and interests for you to meet. Then all you have to do is take a few minutes to swipe through your daily profiles, set up coffees with the people who stand out. If you're a professional, the Shapr app should be installed on your phone, and you'll meet awesome people in no time. So download the app today, or check out Shapr online at shapr.co. That's Shapr, S-H-A-P-R. dot co. To learn more about Shapr, download the app and improve the way you network. Now back to the conversation.
 
 [00:26:59] Adam: My mom just got back from Israel.
 
@@ -684,7 +684,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:29:12] Adam: five million bucks. Um, yeah, that was a weird trip down memory lane. I didn't expect.
 
-[00:29:16] Will: Did I tell you about the time I was on our architecture, and they're like, " What the hell were they thinking?" Thread of that day featured my old apartment.
+[00:29:16] Will: Did I tell you about the time I was on r/architecture, and they're like, " What the hell were they thinking?" Thread of that day featured my old apartment.
 
 [00:29:23] Norm: Yes, I saw you. tweet that. Really, your old apartment in San Francisco. Yeah,
 
@@ -766,7 +766,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:31:40] Will: Can't do anything with it; it's just for looking.
 
-[00:31:42] Adam: I've always wanted to do the kayak camping campground on Tamales at Point Reyes.
+[00:31:42] Adam: I've always wanted to do the kayak camping campground on Tomales at Point Reyes.
 
 [00:31:47] Will: So I've done
 

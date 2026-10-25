@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=h0y_2ow4LKw
 
 [00:03:44] Norm: Um, I, I mean the whole concept. I think when escape rooms started their rise in popularity, they really were born out of maybe like the Saw movies, uh, the idea that you're trapped in a room, Um, and and then On the surface, that's what it is. You are trapped in a room for an hour, and you, with a group of you know maybe a dozen people or so. In our case, it was all friends, people who knew each other. We went for Jeremy's birthday, actually. But we have an hour to solve a series of puzzles to find the key and escape the room. And every room is different. But it really, as someone who's been playing video games and adventure games and has done puzzle solving by himself digitally, the the tangibility of the puzzles and the urgency of having that time limit really made it a exciting and really tangible, visceral experience. And the puzzle design was, I thought, fantastic.
 
-[00:04:40] Will: So I think that they came from those. Do you remember the old Japanese arcade, like the Veridian Room and the the Flash games? I think that that's where this idea originated. I don't think it came from Saw and and those kinds of horror movies. But yeah, the the thing that I love about it is that is that You're all the things that you're presented with are novel problems usually. So your brain is having a completely new experience, and even if you've done a puzzle that's similar, like there was a maze in the one that we did that that was similar to mazes that I think everybody has seen before, that we all did in elementary school. But the way that they set it up was such that it really rewarded kind of multiple people working on it, which most puzzles that we do as a as a society kind of don't. Most puzzles are designed to be kind of solitary experiences, and when you when you have stuff that's designed for five or six or ten people to work on together, it it makes it really interesting.
+[00:04:40] Will: So I think that they came from those. Do you remember the old Japanese arcade, like the Viridian Room and the the Flash games? I think that that's where this idea originated. I don't think it came from Saw and and those kinds of horror movies. But yeah, the the thing that I love about it is that is that You're all the things that you're presented with are novel problems usually. So your brain is having a completely new experience, and even if you've done a puzzle that's similar, like there was a maze in the one that we did that that was similar to mazes that I think everybody has seen before, that we all did in elementary school. But the way that they set it up was such that it really rewarded kind of multiple people working on it, which most puzzles that we do as a as a society kind of don't. Most puzzles are designed to be kind of solitary experiences, and when you when you have stuff that's designed for five or six or ten people to work on together, it it makes it really interesting.
 
 [00:05:37] Norm: Wow! And within yeah, within the confines of a physical space too. I mean, if you lay out all the puzzles individually, and I would say there are maybe about a dozen different types of puzzles, but for the puzzle creators to layer them in the space of a twenty foot by twenty foot room. To require that you walk around the space, hold—pick up objects, remember why, think about why objects are placed where they're placed, and then have these design it so you have these revelatory moments where someone can say, " Oh, that's the reason why that's there. Everything is designed." That's something that was really, really interesting.
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=h0y_2ow4LKw
 
 [00:13:54] Will: We we we had a real hole in the wall phase, Norm. Do you know what hole in the wall is?
 
-[00:13:59] Adam: Oh, I totally know what hole in the wall is. It's a source of endlessly great gifts.
+[00:13:59] Adam: Oh, I totally know what hole in the wall is. It's a source of endlessly great GIFs.
 
 [00:14:06] Will: Yeah. Oh my god! Yeah, the giant styrofoam wall with the cutouts, and you have to make your body in the shape of the cutout, and or else you get knocked in. Though it's terrific. That and the tennis ball cannon on American Gladiators are the like. I would love to fire the tennis ball cannon on American Gladiators just just one time.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=h0y_2ow4LKw
 
 [00:25:38] Norm: Adam, have you had an off day yet? Have you had a day off from the tour to do any things on your list of things you wanted to do?
 
-[00:25:45] Adam: Um. No, I have. I've gotten out in each city on the one wheel and rode around a little bit. Uh. Today is my sixth day. So it's the end of my first week. So tomorrow is a day off. I've got a bunch of meetings, like you do,
+[00:25:45] Adam: Um. No, I have. I've gotten out in each city on the Onewheel and rode around a little bit. Uh. Today is my sixth day. So it's the end of my first week. So tomorrow is a day off. I've got a bunch of meetings, like you do,
 
 [00:25:45] Will: Keeping busy.
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=h0y_2ow4LKw
 
 [00:30:14] Will: Oh, cool.
 
-[00:30:14] Adam: My friend Adam Foss, who gave an amazing TED talk last year that I tweeted earlier this year, former prosecutor in Suffolk County, he he came out with his roommate, and we hung out after the show for a while. This is the best part. I love meeting seeing people that I know and love in all the cities that I'm going to. So tonight I'm in I'm in Newark. Rick Lyons going to come out to the show tonight.
+[00:30:14] Adam: My friend Adam Foss, who gave an amazing TED talk last year that I tweeted earlier this year, former prosecutor in Suffolk County, he he came out with his roommate, and we hung out after the show for a while. This is the best part. I love meeting seeing people that I know and love in all the cities that I'm going to. So tonight I'm in I'm in Newark. Rick Lyon's going to come out to the show tonight.
 
 [00:30:14] Will: Cool.
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=h0y_2ow4LKw
 
 [00:35:32] Adam: oh, right, right, we hadn't talked about that.
 
-[00:35:35] Will: No, so we did 2D animation, and we, uh, animated Carl from Aqua Teen Hunger Force, which he's a he's from New Jersey. He's a he's a, uh, uh, fascinating, uh, character study, but we got the voice actor Dave. Dave, um, oh God, Willis, I think I'm completely blanking, but Dave, Dave, the voice of Carl came in. And put on the Vive and animated Carl by moving his hands around and being crazy and like did like took calls. We we they hooked him up Skype and he took Skype calls as an animated character, which I'm sure somebody's done before, but never for the kind of, um, the low budget that we were able to do it using Fu. Um and and did an hour long show.
+[00:35:35] Will: No, so we did 2D animation, and we, uh, animated Carl from Aqua Teen Hunger Force, which he's a he's from New Jersey. He's a he's a, uh, uh, fascinating, uh, character study, but we got the voice actor Dave. Dave, um, oh God, Willis, I think I'm completely blanking, but Dave, Dave, the voice of Carl came in. And put on the Vive and animated Carl by moving his hands around and being crazy and like did like took calls. We we they hooked him up Skype and he took Skype calls as an animated character, which I'm sure somebody's done before, but never for the kind of, um, the low budget that we were able to do it using Foo. Um and and did an hour long show.
 
 [00:36:19] Adam: That's awesome.
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=h0y_2ow4LKw
 
 [00:40:21] Adam: Yeah, I totally agree.
 
-[00:40:23] Will: Uh, so the Adult Swim thing is pregame prognostications from the Pigskin Wizard, and Wizard is spelled W Y Z Z A R D, because you know why wouldn't you spell it with the Y and two Z's? But it's pretty funny. Carl's a little bit offensive, so it's probably not safe for the kiddos.
+[00:40:23] Will: Uh, so the Adult Swim thing is pregame prognostications from the Pigskin Wyzzard, and Wizard is spelled W Y Z Z A R D, because you know why wouldn't you spell it with the Y and two Z's? But it's pretty funny. Carl's a little bit offensive, so it's probably not safe for the kiddos.
 
 [00:40:42] Norm: Awesome.
 

@@ -698,7 +698,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:30:54] Norm: That's totally fair. They don't print it themselves.
 
-[00:30:56] Will: Um, There's a lot of movement in the software world. Like, there's a piece of software I use called Voice Meter Banana. That's basically a software audio mixer. And you, it's free to download. You can to see if you need it because it's a special use case. Um, and which kind of makes sense here. Because like, I'm not a particularly good. I'm not good at sewing. I may not know if I can actually like if I buy these plans. I might just buy a big piece of art for my wall and not something that I can actually use.
+[00:30:56] Will: Um, There's a lot of movement in the software world. Like, there's a piece of software I use called Voicemeeter Banana. That's basically a software audio mixer. And you, it's free to download. You can to see if you need it because it's a special use case. Um, and which kind of makes sense here. Because like, I'm not a particularly good. I'm not good at sewing. I may not know if I can actually like if I buy these plans. I might just buy a big piece of art for my wall and not something that I can actually use.
 
 [00:31:19] Adam: Right.
 
@@ -918,11 +918,11 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:39:24] Norm: It is Friday afternoon, late late afternoon.
 
-[00:39:27] Adam: I'm also participating in SciFi's amazing panel on Thursday afternoon, along with Aisha Tyler. Will be moderating with John Barrowman, Joe Mangiello, Felicia Day, me, and I'm sure I'm forgetting Orlando Jones.
+[00:39:27] Adam: I'm also participating in Syfy's amazing panel on Thursday afternoon, along with Aisha Tyler. Will be moderating with John Barrowman, Joe Manganiello, Felicia Day, me, and I'm sure I'm forgetting Orlando Jones.
 
 [00:39:44] Unknown speaker, Will or Norm: Oh, nice!
 
-[00:39:44] Adam: Orlando Jones, the funniest guy on earth. I love that guy. Anyway, yeah, we had an amazing panel last year for Sci-Fi, and I was a late addition. I was turned out that I was able to make it, and they had an open slot. Um, I can't. That's going to be just unmitigated fun.
+[00:39:44] Adam: Orlando Jones, the funniest guy on earth. I love that guy. Anyway, yeah, we had an amazing panel last year for Syfy, and I was a late addition. I was turned out that I was able to make it, and they had an open slot. Um, I can't. That's going to be just unmitigated fun.
 
 [00:40:03] Will: That'll be fun.
 
@@ -936,7 +936,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:40:06] Norm: Awesome.
 
-[00:40:07] Adam: Yeah. And I'm bringing the one wheel XR. I plan to explore San Diego a little more widely,
+[00:40:07] Adam: Yeah. And I'm bringing the Onewheel XR. I plan to explore San Diego a little more widely,
 
 [00:40:11] Will: real slowly, in a massive crowd of people.
 

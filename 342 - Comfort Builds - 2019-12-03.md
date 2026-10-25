@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:08:46] Jen Schachter: Let's just get out and see the streets we can't normally go.
 
-[00:08:49] Norm: Drive in a one wheel tour of the city.
+[00:08:49] Norm: Drive in a Onewheel tour of the city.
 
 [00:08:51] Adam: Yes.
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:30:13] Norm: Revelation.
 
-[00:30:14] Adam: It really is, and the degree to which, like, if you were going to get one rapid prototyping tool for a home maker shop, honestly, I think it's Cowboy Crunchy was showing us Cowboy Crunchy cosplayers were showing us that they were using the Cricut cutter on one millimeter sticky foam in layers to do a gold brocade that was like phenomenal. Basically, it's the one. If you if you can only afford a couple hundred bucks for a maker tool, this is the one to get. And we had been using it. On a fair bit of projects, and I said before I left, " Hey, we should have a rolling stand for this thing. You see how I like to make rolling stands? Go ahead and make something like that." That's all I said, and you went and took me to rolling stand school because this is the best rolling stand in the shop.
+[00:30:14] Adam: It really is, and the degree to which, like, if you were going to get one rapid prototyping tool for a home maker shop, honestly, I think it's Cowboy Crunchy was showing us Cowbutt Crunchy cosplayers were showing us that they were using the Cricut cutter on one millimeter sticky foam in layers to do a gold brocade that was like phenomenal. Basically, it's the one. If you if you can only afford a couple hundred bucks for a maker tool, this is the one to get. And we had been using it. On a fair bit of projects, and I said before I left, " Hey, we should have a rolling stand for this thing. You see how I like to make rolling stands? Go ahead and make something like that." That's all I said, and you went and took me to rolling stand school because this is the best rolling stand in the shop.
 
 [00:31:03] Jen Schachter: Oh, thanks.
 

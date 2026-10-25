@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:02:14] Adam: And let me tell you, the the entry level job is both tedious, exhausting, stressful, and boring. And it is all of those things at the same time to work as a PA.
 
-[00:02:24] Ryan Kiser: Absolutely, absolutely. And you know, actually, I don't know if you was. I mean, I started off as a PA at Mythbusters. I mean, I just moved up really quick. But it just you, it's yeah. You you do a lot of running. You do a lot of running. It's really. I guess people ask us all the time. It's like, oh, you know, what do you do? What's your what's your day? You know, what was it a day like on Mythbusters? And you're just like hot. Times outside, and you're just running. You're just running around, and then boom, stuff explodes, and then you go on to the next day, and then same thing.
+[00:02:24] Ryan Kiser: Absolutely, absolutely. And you know, actually, I don't know if you was. I mean, I started off as a PA at Mythbusters. I mean, I just moved up really quick. But it just you, it's yeah. You you do a lot of running. It's really. I guess people ask us all the time. It's like, oh, you know, what do you do? What's your what's your day? You know, what was it a day like on Mythbusters? And you're just like hot. Times outside, and you're just running. You're just running around, and then boom, stuff explodes, and then you go on to the next day, and then same thing.
 
 [00:02:49] Adam: And speak. Okay, I'm gonna do. I'm going to segue here because you said it's hot.
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:05:28] Adam: I took
 
-[00:05:29] Adam: So Maggie, my wired border terrier, is about 25 pounds, and she's real hairy and like she's not soft. I've talked about this. I love her to death. She's not soft. Well, I made her soft this weekend. I brought. I looked up a couple of YouTube videos grooming your wired terrier, right? Because I wanted to know one how hard it was to groom a dog. Like what could I expect? So I watched a couple of videos of dogs. I saw the arrangement, which is like you know a leash just kind of going up. That's really key. It doesn't have to be taught. But a leash so that they can't quite sit down, and if the leash is going up, the dog is like, " Oh, the leash is there, so I'm just hanging."
+[00:05:29] Adam: So Maggie, my wired border terrier, is about 25 pounds, and she's real hairy and like she's not soft. I've talked about this. I love her to death. She's not soft. Well, I made her soft this weekend. I brought. I looked up a couple of YouTube videos grooming your wired terrier, right? Because I wanted to know one how hard it was to groom a dog. Like what could I expect? So I watched a couple of videos of dogs. I saw the arrangement, which is like you know a leash just kind of going up. That's really key. It doesn't have to be taut. But a leash so that they can't quite sit down, and if the leash is going up, the dog is like, " Oh, the leash is there, so I'm just hanging."
 
 [00:05:29] Norm: Oh.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:19:29] Norm: the director doesn't need Millions of people, or a big website, or a big podcast, or a big series, telling him or her what they did might have done wrong. They know all these things. Like movies, the only thing they can do is try to make a movie not bad. As no one makes a perfect, you can’t make a perfect film.
 
-[00:20:04] Adam: Sorry, that's what our friend Angus McLean said. It was lovely. He goes, the whole thing about being a director is your movie wants to be bad. It's trying to be bad. It needs to be bad, and your goal is to subvert that. You got to make it good in spite of itself.
+[00:20:04] Adam: Sorry, that's what our friend Angus MacLane said. It was lovely. He goes, the whole thing about being a director is your movie wants to be bad. It's trying to be bad. It needs to be bad, and your goal is to subvert that. You got to make it good in spite of itself.
 
 [00:20:20] Norm: Everything again.
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:20:36] Norm: yeah, yeah, yeah. I thought it was great. It's
 
-[00:20:39] Adam: also starring Mark Evan Jackson. In case anyone didn't know that,
+[00:20:39] Adam: also starring Marc Evan Jackson. In case anyone didn't know that,
 
 [00:20:42] Norm: there is a the big action scene. It's not too big of a spoiler, but Kong when they first encountered Kong set in the Vietnam era, and Kong basically throws helicopters around and bashes helicopters together.
 

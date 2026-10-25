@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:11:06] Jen Schachter: Yeah, there's two. I think at least two that I've seen fully full scale 3D printed versions of this using the files that Andrew created. So they're they're out there, and you can you can access them online and make your own at home.
 
-[00:11:18] Adam: And also, all of these wonderful collaborators are are we've given them lots of latitude to film, photograph, and cover in every medium that they choose the build. And I've been following it on my Twitter feed, and it's just been so delightful. The enthusiasm of people like Jimmy DuResta and all these other folks, like showing their work and really getting excited about it.
+[00:11:18] Adam: And also, all of these wonderful collaborators are are we've given them lots of latitude to film, photograph, and cover in every medium that they choose the build. And I've been following it on my Twitter feed, and it's just been so delightful. The enthusiasm of people like Jimmy DiResta and all these other folks, like showing their work and really getting excited about it.
 
 [00:11:40] Jen Schachter: Yeah, yeah, and seeing how different people approach it. I know, like for Jimmy's. Pieces. He three D printed all of the parts so that he could print them. He could understand them mechanically, and then manufactured them in in brass and some like exotic hardwood. And it's absolutely beautiful. But I heard him talking about it on his podcast, and he was saying, " I was terrified when I saw the drawings because it's that mechanically intimidating." And so he he did the three dimensional print first, and then manufactured it.
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:21:17] Norm: and the meeting of the objects themselves too, because while you have the four suits there, they're arranged in a way alongside other suits, which is a way where you’ve never been able to see your suits.
 
-[00:21:28] Adam: Oh, and they also have a three-foot diameter model of the space station from 2001, lovingly built by Steve Neal, in what I think was like 40 days flat.
+[00:21:28] Adam: Oh, and they also have a three-foot diameter model of the space station from 2001, lovingly built by Steve Neill, in what I think was like 40 days flat.
 
 [00:21:40] Unknown speaker: What?
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:25:20] Norm: Okay, all right.
 
-[00:25:21] Adam: Yes. Yeah. So yeah, the after nitroglycerin, the episode will air is my build of the ZF one from the Fifth Element, the egg gun that shoots six different things nets. Arrows, flames, ice, bullets, and a raw, an exploding tipped rocket. We made one. We attempted to do our best to make one that actually functioned in every way to the original, and how close we got is a story in and of itself.
+[00:25:21] Adam: Yes. Yeah. So yeah, the after nitroglycerin, the episode will air is my build of the ZF-1 from the Fifth Element, the egg gun that shoots six different things nets. Arrows, flames, ice, bullets, and a raw, an exploding tipped rocket. We made one. We attempted to do our best to make one that actually functioned in every way to the original, and how close we got is a story in and of itself.
 
 [00:25:52] Jen Schachter: I'm I'm really excited to see the episode.
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:27:37] Norm: And and on the site this coming Monday, next Monday, we'll have another video with some close-up details after Savage Build airs of the ZF two, so you can get a close look at that.
 
-[00:27:48] Adam: Yeah, we've lined it up next to the ZF one. I'm not sure that happens in great detail in the actual episode. I'm looking forward to it.
+[00:27:48] Adam: Yeah, we've lined it up next to the ZF-1. I'm not sure that happens in great detail in the actual episode. I'm looking forward to it.
 
 [00:27:56] Norm: Oh, and so as recording this, you're days away from flying out. What what are the last things that need to be done?
 

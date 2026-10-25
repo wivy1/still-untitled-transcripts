@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:05:37] Adam: for Empire Strikes Back.
 
-[00:05:37] Adam: He also built Moonwatcher, the ape man costumes from two thousand and one. Um, tremendous, tremendous genius when it came to adding stuff. Rick Baker is also an expert at this, adding effects into the masks that are hardwired into the actor's movements. So. Chewbacca and Moonwatcher both had a linkage inside, so that when the actor opened their mouth, the lips curl, and you get all this extra extra value out of that. It makes the performance much more. It makes the performance much more believable. Look, I'm getting light over there. That's awesome.
+[00:05:37] Adam: He also built Moonwatcher, the ape man costumes from two thousand and one. Um, tremendous, tremendous genius when it came to adding stuff. Rick Baker is also an expert at this, adding effects into the masks that are hardwired into the actor's movements. So. Chewbacca and Moonwatcher both had a linkage inside, so that when the actor opened their mouth, the lips curl, and you get all this extra extra value out of that. It makes the performance much more believable. Look, I'm getting light over there. That's awesome.
 
 [00:06:13] Will: Oh yeah, it's worth mentioning. There's a little construction going on in the shop today, so
 

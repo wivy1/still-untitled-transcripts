@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:02:27] Laura: No, but I will look that up.
 
-[00:02:29] Adam: Super important. They are super important. There's a German sculptor whose name is Bastian, whose last name escapes me, who worked with them, and he's one of those guys who built his whole machine shop on the after the wall came down with all the machines. Oh,
+[00:02:29] Adam: Super important. They are super important. There's a German sculptor whose name is Bastiaan, whose last name escapes me, who worked with them, and he's one of those guys who built his whole machine shop on the after the wall came down with all the machines. Oh,
 
 [00:02:45] Laura: they were on the street. Nice.
 
@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:04:48] Norm: The [Dogpatch?], the whole, yeah.
 
-[00:04:50] Adam: So Mark Pauline relocated up to Petaluma, and he's still making stuff. He's still a mad scientist up there. A lot of the people that he worked with, I still am in contact. With a bunch of those guys, that many of them helped us on MythBusters. When we did the Tesla coil episode with the stun gun, that was Greg Lay, the head electronics guy at SRL. They were a one. They're a really important machine art collective, and in the U.S., we don't celebrate that as much as we should.
+[00:04:50] Adam: So Mark Pauline relocated up to Petaluma, and he's still making stuff. He's still a mad scientist up there. A lot of the people that he worked with, I still am in contact. With a bunch of those guys, that many of them helped us on MythBusters. When we did the Tesla coil episode with the stun gun, that was Greg Leyh, the head electronics guy at SRL. They were a one. They're a really important machine art collective, and in the U.S., we don't celebrate that as much as we should.
 
 [00:05:19] Norm: It's so funny. I think of when I think of the work they've done, SRL. Like I also associate with the media in which it was documented. Like the VHS era is totally associated, and like you guys as builders and documenters, like you know, when I think of MythBusters and the things you guys made, I also think of like the cable TV era television, right? Look, yeah, and then Laura, like the very much of a YouTube, you know, self filmed look. It's so interesting that it's not just the things that you make, but how you guys are filming it. That it's so tied to, yes, you know, that that aesthetic.
 

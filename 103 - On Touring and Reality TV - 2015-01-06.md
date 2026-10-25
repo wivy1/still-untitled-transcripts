@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:06:44] Will: Did you get loaded with your high school teachers?
 
-[00:06:45] Norm: Yes, and I didn't really know this year well, and he told me so much stuff that I never knew I really want to know. Like
+[00:06:45] Norm: Yes, and I didn't really know this teacher well, and he told me so much stuff that I never knew I really want to know. Like
 
 [00:06:52] Will: the teachers were actively mocking you?
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:14:22] Adam: And they said, well, you know what?
 
-[00:14:23] Adam: All these these years later, I mean, this is like seven years later. They remembered that vividly. They're like, we remembered that you called and asked all sorts of questions about the dodo and took it really seriously. And so, you know, we're we're treating you like a real researcher. And they said on the elevator up, the curator said, " Yeah, you you do know that our dodo might is mounted slightly wrong, but we didn't want to change the mount because it's archival. It's 100 years old." And I said, " Right." His his keel sternum is too distended and misshapen. And they were like, " He goes, yes." And we had never spoken about this. He goes, " You have checked in on your dodo anatomy." It was super exciting. We've talked about it on the podcast. That I thought that their pose wasn't right, and I was totally right. So that when I finally mount mine, and now I've got to be in my bonnet to tackle that casting again, I'm going to mount it right.
+[00:14:23] Adam: All these these years later, I mean, this is like seven years later. They remembered that vividly. They're like, we remembered that you called and asked all sorts of questions about the dodo and took it really seriously. And so, you know, we're we're treating you like a real researcher. And they said on the elevator up, the curator said, " Yeah, you you do know that our dodo might is mounted slightly wrong, but we didn't want to change the mount because it's archival. It's 100 years old." And I said, " Right." His his keel sternum is too distended and misshapen. And they were like, " He goes, yes." And we had never spoken about this. He goes, " You have checked in on your dodo anatomy." It was super exciting. We've talked about it on the podcast. That I thought that their pose wasn't right, and I was totally right. So that when I finally mount mine, and now I've got a bee in my bonnet to tackle that casting again, I'm going to mount it right.
 
 [00:15:15] Will: So the backstage, like one of my favorite things in the world to do is do the back scenes tours of museums.
 
@@ -768,7 +768,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:27:50] Will: And so before they turn into monsters, but after they're able to handle knives and stuff like that.
 
-[00:27:53] Adam: The the two youngest, these two girls, Abby and Una, they're just super crazy, adorable, and so smart and so genuine. And and that's the thing is, you see this other side. If you watch the BBC versions of Gordon Ramsay's show, you actually get to see him be a much nicer guy.
+[00:27:53] Adam: The the two youngest, these two girls, Abby and Oona, they're just super crazy, adorable, and so smart and so genuine. And and that's the thing is, you see this other side. If you watch the BBC versions of Gordon Ramsay's show, you actually get to see him be a much nicer guy.
 
 [00:28:12] Frank Ippolito: The BBC versions of any competition shows are much nicer.
 

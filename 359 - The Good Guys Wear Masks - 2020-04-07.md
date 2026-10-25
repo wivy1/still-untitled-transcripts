@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:07:45] Will: I think I feel like it is important for me. I don't know that it matters.
 
-[00:07:50] Adam: It's I'm able to not count if I don't want to. Uh, it doesn't stress me out to think of another 30 days. It stresses me out to think all of the. It stresses me out to think about the ways in which people will suffer, and things aren't being handled as well as they could be, and what the world could look like after this. But enduring this right now, I'm just noticing that I'm taking it as a given that nothing that upsets me is about the thing that's upsetting me.
+[00:07:50] Adam: It's I'm able to not count if I don't want to. Uh, it doesn't stress me out to think of another 30 days. It stresses me out to think about the ways in which people will suffer, and things aren't being handled as well as they could be, and what the world could look like after this. But enduring this right now, I'm just noticing that I'm taking it as a given that nothing that upsets me is about the thing that's upsetting me.
 
 [00:08:21] Will: Yeah,
 
@@ -142,9 +142,9 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:13:17] Will: Yeah, it's it's The Simpsons in a lot of ways.
 
-[00:13:19] Adam: It's also it was also it's in the early part of my marriage with my wife, and there's a lot of lines in 30 Rock that we still use when when when, uh, uh, uh, Jesus. When they when they go to the party by the Habsburg prince played by Paul Rubens.
+[00:13:19] Adam: It's also it was also it's in the early part of my marriage with my wife, and there's a lot of lines in 30 Rock that we still use when when when, uh, uh, uh, Jesus. When they when they go to the party by the Habsburg prince played by Paul Reubens.
 
-[00:13:40] Will: Paul Rubens, yeah.
+[00:13:40] Will: Paul Reubens, yeah.
 
 [00:13:42] Adam: And and and Jenna is in the bathroom debating whether or not to like hook up with this crippled inbred nightmare. And
 
@@ -152,9 +152,9 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:13:54] Adam: No, no,
 
-[00:13:55] Will: it's Paul Rubens.
+[00:13:55] Will: it's Paul Reubens.
 
-[00:13:56] Adam: It's Paul Rubens. It's Pee-wee Herman.
+[00:13:56] Adam: It's Paul Reubens. It's Pee-wee Herman.
 
 [00:13:58] Norm: Oh, okay, okay,
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:15:28] Will: Mm-hmm. It depends. They don't all, but most of them do. Some some some put parts in in bins. We we've talked to a couple people about this. It's a it's a personal preference.
 
-[00:15:37] Adam: Norm. When society comes back again, we got to bring Angus McLean back to finish that to finish the build that we'd started with him.
+[00:15:37] Adam: Norm. When society comes back again, we got to bring Angus MacLane back to finish that to finish the build that we'd started with him.
 
 [00:15:45] Norm: It's yep, it's on the list, absolutely. Um,
 

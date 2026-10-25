@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:12:27] Adam: Yeah. I think we’re all going to do it.
 
-[00:12:28] Adam: We're all good. We're all going to do it. Um. Uh. But uh, sci-fi is also about to come out with um Childhood's End.
+[00:12:28] Adam: We're all good. We're all going to do it. Um. Uh. But uh, Syfy is also about to come out with um Childhood's End.
 
 [00:12:36] Will: Ooh the Arthur Clarke book?
 
@@ -414,13 +414,13 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:12:50] Adam: I have no.
 
-[00:12:52] Will: I mean, because when I think sci-fi, I don't think deep thought-provoking science fiction. I think flying tornadoes and sharks, yeah,
+[00:12:52] Will: I mean, because when I think Syfy, I don't think deep thought-provoking science fiction. I think flying tornadoes and sharks, yeah,
 
 [00:12:59] Adam: and tornado sharks.
 
 [00:13:00] Will: Yeah, tornado sharks.
 
-[00:13:01] Adam: You know, one of my best friends is obsessed with Ian Ziering and Beverly Hills Nine Hundred Two One Zero, and I met him on the carpet at Comic Con this year for the sci-fi party, and took a picture with him, and sent it to her, and she just wrote back, " I'm dead."
+[00:13:01] Adam: You know, one of my best friends is obsessed with Ian Ziering and Beverly Hills Nine Hundred Two One Zero, and I met him on the carpet at Comic Con this year for the Syfy party, and took a picture with him, and sent it to her, and she just wrote back, " I'm dead."
 
 [00:13:16] Will: There's a lot of people. There's a lot of people that have a deep connection to Nine Hundred Two One Zero. My wife is one of them.
 

@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:10:29] Adam: we got some insulting tweets about that.
 
-[00:10:30] Norm: I don't know why was that the case. So we we we were hooked up with a fan of the site, Tommy Williamson, who runs website Brickner dot com, and. The Lego community—they're—they're ravenous. They're like—they're obsessed. They're in the best way possible. And this guy Tommy came up to our office, to our shop, and we—he had one of the, I think, the dozen only Millennium Falcon UCS. This is the Lego set with seventy-five hundred pieces, eight hundred dollars. People can buy it in the states at the end of the month. He got a review unit, and we helped him build it, and it was like a two-day,
+[00:10:30] Norm: I don't know why was that the case. So we we we were hooked up with a fan of the site, Tommy Williamson, who runs website BrickNerd dot com, and. The Lego community—they're—they're ravenous. They're like—they're obsessed. They're in the best way possible. And this guy Tommy came up to our office, to our shop, and we—he had one of the, I think, the dozen only Millennium Falcon UCS. This is the Lego set with seventy-five hundred pieces, eight hundred dollars. People can buy it in the states at the end of the month. He got a review unit, and we helped him build it, and it was like a two-day,
 
 [00:11:08] Unknown speaker (Adam or Norm): twelve solid hours, twelve solid hours.
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:11:53] Norm: I think so.
 
-[00:11:58] Adam: and I think that you saying that might have been what had gendered some of the nasty tweets about the fact that it took us a total of twelve hours
+[00:11:58] Adam: and I think that you saying that might have been what had engendered some of the nasty tweets about the fact that it took us a total of twelve hours
 
 [00:12:04] Norm: to do, and that it was too long.
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:12:28] Norm: I'm more than happy to watch, and other people who have since bought the set because I think you can buy it overseas now. I enjoy watching their videos too of them building. There's some really really great ones out there. People are like just meticulous in how they they made like they've done stop motion videos really. Beautiful, like it's relaxing to watch people assemble Lego.
 
-[00:12:50] Adam: Um, and and and finishing that beautiful, it was about thirty-three inches long. It's a large, yeah, it's a large model. Got me to pull down my D'Agostini Falcon. I've been a subscriber to the net to the D'Agostini Millennium Falcon. It's a hundred separate, uh, steps, a separate issues. You get four per month for two years, and it's fifty bucks a month. So I, I guess I paid just under a grand for this thing, which is honestly for a thirty-two inch model kit of the Millennium Falcon, which is the size of the studio scale one for Empire Strikes Back. It's pretty damn good deal.
+[00:12:50] Adam: Um, and and and finishing that beautiful, it was about thirty-three inches long. It's a large, yeah, it's a large model. Got me to pull down my DeAgostini Falcon. I've been a subscriber to the net to the DeAgostini Millennium Falcon. It's a hundred separate, uh, steps, a separate issues. You get four per month for two years, and it's fifty bucks a month. So I, I guess I paid just under a grand for this thing, which is honestly for a thirty-two inch model kit of the Millennium Falcon, which is the size of the studio scale one for Empire Strikes Back. It's pretty damn good deal.
 
 [00:13:27] Jeremy Williams: I didn't know it was the same size.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:13:33] Adam: the five foot model was for Star Wars, and that is full stop one of the most beautiful models ever built for for effects. But for Empire, where they needed much more acrobatics out of the Falcon, they built a thirty-two inch, which they could motion control more easily. That's I mean I I that's been a holy grail forever and it's sitting on my bench right now waiting to get full fully repainted
 
-[00:13:54] Norm: and and that's not to say because viewers have to know that Will and I started our own D’Agostini almost a year and a half now we're gonna continue working on that we have the boxes but Adam I mean these are this is one of your like projects that you just when you when you find yourself in the shop you're just working on
+[00:13:54] Norm: and and that's not to say because viewers have to know that Will and I started our own DeAgostini almost a year and a half now we're gonna continue working on that we have the boxes but Adam I mean these are this is one of your like projects that you just when you when you find yourself in the shop you're just working on
 
 [00:14:08] Adam: yeah I actually built a a large foam core drawer that sits up in my loft that houses it in whatever state it was in and so I would pull it down every probably five or six months four or five months and knock out twenty twenty issues of instructions it's a beautiful kit it's got a a metal superstructure on the inside so it's hollow I was able to actually machine a better mount for it so I could, uh, put it upright for painting I'm not sure how I'm going to display it but that mount will help me immensely
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:14:39] Norm: custom parts too.
 
-[00:14:52] Adam: There's a ton of there's a whole cottage industry of custom ass, uh, brass etched, uh, and, uh, 3D printed aftermarket parts for the D’Agostini Falcon.
+[00:14:52] Adam: There's a ton of there's a whole cottage industry of custom ass, uh, brass etched, uh, and, uh, 3D printed aftermarket parts for the DeAgostini Falcon.
 
 [00:15:03] Jeremy Williams: So, speaking of process, how do those makers make these parts? Do they wait for the parts to arrive in the mail? and then?
 
@@ -250,13 +250,13 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:15:19] Norm: exhaust.
 
-[00:15:20] Adam: There was a guy selling aftermarket 3D printed and acid etched kits for those vents long before they showed up in the D’Agostini kits because they showed up in like issue 96 or something. So before anyone had seen them, there was a kit, and the kit is crisper and tighter and much more beautiful than what came with them.
+[00:15:20] Adam: There was a guy selling aftermarket 3D printed and acid etched kits for those vents long before they showed up in the DeAgostini kits because they showed up in like issue 96 or something. So before anyone had seen them, there was a kit, and the kit is crisper and tighter and much more beautiful than what came with them.
 
 [00:15:38] Jeremy Williams: And the right the right size,
 
 [00:15:39] Norm: they know the scale. Right? Yeah. They're selling this for scale. It's the same with like the Bandai kits, you know, 140. One four one one forty fourth or one seventy two. Like people are selling photo etch things because you get a lot of transparency and translucency and and depth from from these custom parts.
 
-[00:15:55] Adam: And you can go as deep as you want. There are kits for the all the interiors, all the floors, all the lighting, which actually isn't in the interior sets of the. That's the other part of the D’Agostini Falcon is you can pull panels off and see the interior with the Dejarik table, the, uh, the, the, the gun pods on top and bottom, the hallway to the cockpit. It's all there. That's really amazing.
+[00:15:55] Adam: And you can go as deep as you want. There are kits for the all the interiors, all the floors, all the lighting, which actually isn't in the interior sets of the. That's the other part of the DeAgostini Falcon is you can pull panels off and see the interior with the Dejarik table, the, uh, the, the, the gun pods on top and bottom, the hallway to the cockpit. It's all there. That's really amazing.
 
 [00:16:18] Norm: Wow, that's so that's so gorgeous.
 
@@ -280,11 +280,11 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:17:01] Norm: Oh yeah, no, no. We we inventory our boxes since we moved into our, our new office last year. But I believe we have all the boxes, and I've been trying to. You watching you build it over the past couple months. You've learned lessons to make our build efficient, more efficient.
 
-[00:17:16] Adam: I can I can totally make your build much more efficient. Here would be my first recommendation, and I came to this late. Is the first half of the issues like the first fifty or so? There's a hundred issues total. Um, are a lot of the frame and superstructure, and only after you get a bunch of that done do you start putting on that the finer detailing. And it's hilarious because I'm noticing, D'Agostini, injection molded parts that are replicas of model kit parts that I'm familiar with that go on the outside of the Falcon. Like, oh, this is a Tamiya Flakvierling, uh, universal greeblie. Oh, here's a spool from a Panzer tank, and here's some tank treads
+[00:17:16] Adam: I can I can totally make your build much more efficient. Here would be my first recommendation, and I came to this late. Is the first half of the issues like the first fifty or so? There's a hundred issues total. Um, are a lot of the frame and superstructure, and only after you get a bunch of that done do you start putting on that the finer detailing. And it's hilarious because I'm noticing, DeAgostini, injection molded parts that are replicas of model kit parts that I'm familiar with that go on the outside of the Falcon. Like, oh, this is a Tamiya Flakvierling, uh, universal greeblie. Oh, here's a spool from a Panzer tank, and here's some tank treads
 
 [00:17:53] Norm: that they had to remodel.
 
-[00:17:54] Adam: That they had to remodel, and so, but for their, um, so if you're doing an issue of the D'Agostini Falcon where it's a bunch of sprue parts, they number, they show you the sprue, they number the parts, but they're not numbered in any kind of order that makes sense on the sprue because that was done for the engineering of the injection molding. So my recommendation is for every issue in which you're assembling parts off of sprues, cut them all out in order and lay them out on a piece of paper. So now you're doing step one, step two, step three instead of having to pick up the sprue every time, figuring out which was number 16, clipping that, sanding it, and then putting it on. I did all the clipping and sanding prior in order.
+[00:17:54] Adam: That they had to remodel, and so, but for their, um, so if you're doing an issue of the DeAgostini Falcon where it's a bunch of sprue parts, they number, they show you the sprue, they number the parts, but they're not numbered in any kind of order that makes sense on the sprue because that was done for the engineering of the injection molding. So my recommendation is for every issue in which you're assembling parts off of sprues, cut them all out in order and lay them out on a piece of paper. So now you're doing step one, step two, step three instead of having to pick up the sprue every time, figuring out which was number 16, clipping that, sanding it, and then putting it on. I did all the clipping and sanding prior in order.
 
 [00:18:33] Norm: It's just like knolling Lego.
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:19:16] Adam: Is it like six hundred fifty dollars instead of a thousand?
 
-[00:19:18] Norm: I don't think so. Yeah, you have to check. But like, they their website has pretty good models. I I did some research because I'm also on a Enterprise Star Trek Enterprise model kick, and I have some Bandai ones and Jim and you and I built some Bandai ones. But D’Agostini had one that they prototype and they had to ad for video ad for, and then it failed, like because it they did not enough not enough orders. They went through like eight issues, and this is an Enterprise D with a cutaway, so you can see all the decks and all the levels.
+[00:19:18] Norm: I don't think so. Yeah, you have to check. But like, they their website has pretty good models. I I did some research because I'm also on a Enterprise Star Trek Enterprise model kick, and I have some Bandai ones and Jim and you and I built some Bandai ones. But DeAgostini had one that they prototype and they had to ad for video ad for, and then it failed, like because it they did not enough not enough orders. They went through like eight issues, and this is an Enterprise D with a cutaway, so you can see all the decks and all the levels.
 
 [00:19:48] Jeremy Williams: Oh, it stopped mid shipment.
 
@@ -326,13 +326,13 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:19:56] Adam: I'm having an interesting mental conundrum because I have some extremely detailed shots of the of the Falcon that this is a replica of, and the paint job is not amazing when you get really close up to it.
 
-[00:20:15] Jeremy Williams: Of the D’Agostini?
+[00:20:15] Jeremy Williams: Of the DeAgostini?
 
-[00:20:16] Adam: No, the D’Agostini paint job is total shit.
+[00:20:16] Adam: No, the DeAgostini paint job is total shit.
 
 [00:20:16] Unknown speaker (Adam, Norm or Jeremy): You like bring your own paint?
 
-[00:20:16] Adam: Let's just be clear. Like I don't mean it's total shit. I don't mean to crap on D’Agostini. They've done an amazing model. They've given me like a childhood dream, and it's a fine paint job. It's just nowhere near the level of beaten up and dirty and grungy that the real Falcon is. There's rust all over the real one, but when you zoom in and you're looking at it like this, the paint job is a little bit crunchy. And I'm going back and forth with myself whether I'm going to let it be that crunchy or whether I'm going to go for a finer grain of detail while hitting all the color points. Right, like. If you look at the real Falcon close up, the studio scale thirty-two, you'll see rust spots that are like you can actually see the brush marks of like you know someone doing this, and water stains from adding a little detail to some of the high points and things like that. There are some details along the side that I can clearly see someone with an airbrush just going like this with a darker gray. I'm not sure that I'll be able to do that crunchy level of detail.
+[00:20:16] Adam: Let's just be clear. Like I don't mean it's total shit. I don't mean to crap on DeAgostini. They've done an amazing model. They've given me like a childhood dream, and it's a fine paint job. It's just nowhere near the level of beaten up and dirty and grungy that the real Falcon is. There's rust all over the real one, but when you zoom in and you're looking at it like this, the paint job is a little bit crunchy. And I'm going back and forth with myself whether I'm going to let it be that crunchy or whether I'm going to go for a finer grain of detail while hitting all the color points. Right, like. If you look at the real Falcon close up, the studio scale thirty-two, you'll see rust spots that are like you can actually see the brush marks of like you know someone doing this, and water stains from adding a little detail to some of the high points and things like that. There are some details along the side that I can clearly see someone with an airbrush just going like this with a darker gray. I'm not sure that I'll be able to do that crunchy level of detail.
 
 [00:21:22] Norm: Intentionally.
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:25:23] Norm: I don't know either.
 
-[00:25:24] Adam: Luke Scott has an interesting lineage to my prop collecting. If you remember the movie Alien, where the, uh, three astronauts Lambert, Kane, and Dallas reach the space jockey, they climb in the derelict spaceship on the surface of LV two four six, and they see the space jockey. And there's this wide shot where the astronauts are dwarfed by the space jockey. One of the reasons that they're dwarfed is because Ridley Scott had three quarter size spacesuits built. That were smaller than the full-size spacesuits, and he put three children in them, and two of those children were Charlie Borman, John Borman's son, John Borman, the director of Excalibur, and Luke Scott, Ridley Scott's son. And there are shots of these two boys on set in the spacesuits, looking so happy. And so when I met Luke Scott, I was like, " Do I have a picture of you wearing an alien suit on the set?" He was like, " Yes, that was me."
+[00:25:24] Adam: Luke Scott has an interesting lineage to my prop collecting. If you remember the movie Alien, where the, uh, three astronauts Lambert, Kane, and Dallas reach the space jockey, they climb in the derelict spaceship on the surface of LV two four six, and they see the space jockey. And there's this wide shot where the astronauts are dwarfed by the space jockey. One of the reasons that they're dwarfed is because Ridley Scott had three quarter size spacesuits built. That were smaller than the full-size spacesuits, and he put three children in them, and two of those children were Charley Boorman, John Boorman's son, John Boorman, the director of Excalibur, and Luke Scott, Ridley Scott's son. And there are shots of these two boys on set in the spacesuits, looking so happy. And so when I met Luke Scott, I was like, " Do I have a picture of you wearing an alien suit on the set?" He was like, " Yes, that was me."
 
 [00:26:16] Norm: Oh, that's great.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:26:51] Norm: He must have done some projects afterward, but I mean, you recognize him from so many.
 
-[00:26:55] Adam: From everything, and, uh, he starred in the movie Paris, Texas by Wim Wenders. uh, wonderful film with Natasha Kinsky. Um, a fantastic actor who's had an who had an incredible long run in Hollywood, Um, much better than I think sometimes he was given credit for.
+[00:26:55] Adam: From everything, and, uh, he starred in the movie Paris, Texas by Wim Wenders. uh, wonderful film with Natasha Kinski. Um, a fantastic actor who's had an who had an incredible long run in Hollywood, Um, much better than I think sometimes he was given credit for.
 
 [00:27:11] Norm: Yeah. You guys watch any movies lately? Catch up anything?
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:28:26] Norm: it's a musical.
 
-[00:28:27] Adam: It's like a musical a bit, and. It feels to me like the requirement of his character is to have an impossible level of charisma about him. And when I say charisma, I'm thinking Brad Pitt in in Fight Club, and I'm thinking Heath Ledger in Night's Tale.
+[00:28:27] Adam: It's like a musical a bit, and. It feels to me like the requirement of his character is to have an impossible level of charisma about him. And when I say charisma, I'm thinking Brad Pitt in in Fight Club, and I'm thinking Heath Ledger in Knight's Tale.
 
 [00:28:42] Norm: Presence on screen.
 
@@ -548,7 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:33:32] Norm: Again, thank you for bearing with us for one for late episode this week, but we will be back next week. We're all gearing up for New York Comic Con as well. So if you're in the New York area, Adam's doing not one, but I think. Two panels this year, so you can check their schedule for that. And we'll hope to see you in New York, and not we'll see you on the podcast next week.
 
-[00:33:50] Adam: Also, I’m also going to appear in a staged reading of Plan Nine from Outer Space on Friday night at New York Comic Con with Janet Varney and Scott Adsett and John Hodgman and some other friends of mine.
+[00:33:50] Adam: Also, I’m also going to appear in a staged reading of Plan Nine from Outer Space on Friday night at New York Comic Con with Janet Varney and Scott Adsit and John Hodgman and some other friends of mine.
 
 [00:33:50] Norm: Wow!
 

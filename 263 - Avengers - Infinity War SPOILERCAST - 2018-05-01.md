@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:02:21] Adam: Anyway, SVCC was great. I'm glad we had some continuity. I didn't realize that. Yes.
 
-[00:02:26] Norm: Yes. I was an idiot. Planning for it.
+[00:02:26] Norm: Yes. I was an idiot. I planned for it.
 
 [00:02:27] Will: Norm was planning ahead.
 
@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:03:14] Adam: She really does, and she's. I mean, I'm really impressed that she released the video to talk to her fans, and she really. I mean, that's one the reason that she did it, and she states that outright.
 
-[00:03:23] Norm: In the weird, her life being what's been for the past two years, and the world one that it has, like, I think it would be weird for not to do it, but it's also so incredibly brave.
+[00:03:23] Norm: In the weird, her life being what's been for the past two years, and the whirlwind that it has, like, I think it would be weird for not to do it, but it's also so incredibly brave.
 
 [00:03:33] Adam: Yeah,
 
@@ -716,7 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:28:52] Adam: What's that?
 
-[00:28:52] Norm: The children of Thanos. Ebony Ma, the four.
+[00:28:52] Norm: The children of Thanos. Ebony Maw, the four.
 
 [00:28:56] Adam: Yeah. Terrifying. No, and also actually. They were they were really scary villains. I enjoyed how scary and awful they were.
 
@@ -898,7 +898,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:36:27] Will: Empire Strikes Back is what I keep thinking about.
 
-[00:36:28] Adam: But more discreet, those are more discreet franchises.
+[00:36:28] Adam: But more discrete, those are more discrete franchises.
 
 [00:36:31] Norm: Well, I'm saying that in terms of the big event being like a two parter, you know, Harry Potter Part One,
 

@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:03:31] Will: The like who I was sitting there, I was like, I open the I opened the oven two hours before the the meat was supposed to be done because I was doing it. It's like you cook it at one hundred and fifty, one hundred and seventy degrees as low as your oven goes. Yeah, and I opened the door and I stuck my hand in there. I was like, man, it feels a lot cooler than one hundred and seventy degrees. Wait, it's room to,. Wait, this hasn't cooked at all. What's and and you know, it was the full on full on Christmas emergency. Yeah, and then it worked out, so it was all good. That's we had a really good time. Norm,
 
-[00:03:57] Norm: I was over at a friend's place in Alameda. Some friends have tested. Hung out with Sean Charlesworth, Frankie Bolito, Rebecca Watson, and had a lovely New Year.
+[00:03:57] Norm: I was over at a friend's place in Alameda. Some friends have tested. Hung out with Sean Charlesworth, Frank Ippolito, Rebecca Watson, and had a lovely New Year.
 
 [00:04:06] Adam: Excellent, yeah. He
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:06:34] Adam: I think that I think that impressing Nathan is a gargantuan achievement. Perhaps
 
-[00:06:39] Will: he's maybe yeah. Anyway, I mean, I joke. I joke about intellectual ventures. I I had lunch with some of the guys from Chef Steps when they were down showing the Jewel, which is their new immersion circulator.
+[00:06:39] Will: he's maybe yeah. Anyway, I mean, I joke. I joke about intellectual ventures. I I had lunch with some of the guys from ChefSteps when they were down showing the Joule, which is their new immersion circulator.
 
 [00:06:49] Adam: I saw it up there in Seattle that same day. I hung out with Chris Young for a while.
 
@@ -268,11 +268,11 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:11:00] Norm: well, how about to make it easy? Come up as we talk. Yeah, let's go. Let's go in a circle.
 
-[00:11:03] Adam: I will tell you. Okay. I just finished. I just finished * River of Dreams*, which is Rebecca Solnit, who's a wonderful writer. Her book about Edward Muybridge. Edward Muybridge, you would know if you've seen the running cycles of people running against a grid. He is. She makes a very powerful case that he is absolutely the father of motion picture cinema. In terms of letting people understand what was possible with the camera, but also how a camera like the train caused what was popularly referred to back then as the annihilation of time and space. And it is a beautifully written book. It is not quite a auto. It's not quite a biography. It's not quite a history. It's a little bit of both, but it's also a social commentary. I found it riveting all the way through, and it's an amazing story. He's also a local San Franciscan,
+[00:11:03] Adam: I will tell you. Okay. I just finished. I just finished * River of Dreams*, which is Rebecca Solnit, who's a wonderful writer. Her book about Eadweard Muybridge. Eadweard Muybridge, you would know if you've seen the running cycles of people running against a grid. He is. She makes a very powerful case that he is absolutely the father of motion picture cinema. In terms of letting people understand what was possible with the camera, but also how a camera like the train caused what was popularly referred to back then as the annihilation of time and space. And it is a beautifully written book. It is not quite a auto. It's not quite a biography. It's not quite a history. It's a little bit of both, but it's also a social commentary. I found it riveting all the way through, and it's an amazing story. He's also a local San Franciscan,
 
 [00:11:57] Norm: and she writes about San Francisco history.
 
-[00:11:59] Adam: She writes a lot about about San Francisco history, and Stanford was his benefactor for the longest time. It's an incredible story, and if you think you know about Moy Bridge, you really don't because it's a much deeper story than I had any idea.
+[00:11:59] Adam: She writes a lot about about San Francisco history, and Stanford was his benefactor for the longest time. It's an incredible story, and if you think you know about Muybridge, you really don't because it's a much deeper story than I had any idea.
 
 [00:12:13] Will: I can't wait to read that. That sounds fabulous.
 
@@ -556,7 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:22:41] Will: And and like I'm coming around. I.
 
-[00:22:44] Adam: It's that. It's so many little moments in that movie stick with me. When he's driving in the car with Ordell, and he puts on the Delphonics, up on a hundred, and Ordell just turns to him and is wondering, what is this white guy doing listening to this music? And it's the best.
+[00:22:44] Adam: It's that. It's so many little moments in that movie stick with me. When he's driving in the car with Ordell, and he puts on the Delfonics, up on a hundred, and Ordell just turns to him and is wondering, what is this white guy doing listening to this music? And it's the best.
 
 [00:22:59] Will: The the thing about so. Django, I probably [unclear: I watched Django. I watched in the theater / I watched once. I watched it in the theater].
 
@@ -744,7 +744,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:31:07] Will: It's good. It's good for them.
 
-[00:31:07] Adam: Totally, totally. You know, it is. It's great to for me to kick off the season by by showing how the sausage gets made because we had such an incredible sausage factory there. You know, the crew. I said it on tour a million times, and it just bears repeating infinitely. MythBusters wasn't just Jamie and I; it was this cadre of eighteen people in San Francisco. The crew, when we were running at full bore with Carrie Grant and Tori as well, was about twenty-two people. Still, an incredibly small crew by television standards, which means that everybody is a Swiss Army knife. Everybody is putting their all into what they're doing, and a good portion of the crew, like a farm team, started out as runners and interns and became producers and a camera people, b camera people, drone operators, and wonderful, wonderful. Experience to let them shine on the on the show.
+[00:31:07] Adam: Totally, totally. You know, it is. It's great to for me to kick off the season by by showing how the sausage gets made because we had such an incredible sausage factory there. You know, the crew. I said it on tour a million times, and it just bears repeating infinitely. MythBusters wasn't just Jamie and I; it was this cadre of eighteen people in San Francisco. The crew, when we were running at full bore with Kari, Grant and Tory as well, was about twenty-two people. Still, an incredibly small crew by television standards, which means that everybody is a Swiss Army knife. Everybody is putting their all into what they're doing, and a good portion of the crew, like a farm team, started out as runners and interns and became producers and a camera people, b camera people, drone operators, and wonderful, wonderful. Experience to let them shine on the on the show.
 
 [00:32:04] Will: That's all. I mean, it turns out the best way to make sure you get people who are reliable and awesome is to, you know, only is to only hire people at the low level and train them into the awesome, amazing people that you want them to be.
 
@@ -772,9 +772,9 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:33:07] Norm: lots to look forward to.
 
-[00:33:08] Adam: We hosted the Tippets. Phil and his family came by here a week, a week or so ago, and we had a wonderful lunch. Um, I, I love the Tippets. Just all of them. They're all awesome. They’re friends of Tested. We're going to do some stuff with them. We're going to have some more fun. You'll see more Tippetness on the.
+[00:33:08] Adam: We hosted the Tippetts. Phil and his family came by here a week, a week or so ago, and we had a wonderful lunch. Um, I, I love the Tippetts. Just all of them. They're all awesome. They’re friends of Tested. We're going to do some stuff with them. We're going to have some more fun. You'll see more Tippetness on the.
 
-[00:33:25] Norm: And speaking of the stuff they do, they do a lot of stop motion, and Tippets known for that. Did you read Charlie Kaufman's last thing? He he wrote an open letter to the public about his love for stop motion animation.
+[00:33:25] Norm: And speaking of the stuff they do, they do a lot of stop motion, and Tippett's known for that. Did you read Charlie Kaufman's last thing? He he wrote an open letter to the public about his love for stop motion animation.
 
 [00:33:35] Adam: Well, Anomalisa has me like I am on the edge of my seat. I cannot wait to see this film.
 
@@ -792,15 +792,15 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:34:00] Adam: He's totally right, and you, we we we did the tested piece on the chessboard, and one of the things that's really hard to understand until you actually sit.
 
-[00:34:10] Will: Excuse me, it's Dejerick.
+[00:34:10] Will: Excuse me, it's dejarik.
 
 [00:34:12] Adam: What? It's
 
-[00:34:12] Will: Dejerick.
+[00:34:12] Will: dejarik.
 
 [00:34:14] Adam: My apologies.
 
-[00:34:14] Will: Not hollow chess, Adam. You're welcome, YouTube.
+[00:34:14] Will: Not holochess, Adam. You're welcome, YouTube.
 
 [00:34:20] Adam: It's unless you actually sit and watch a real stopmo animator do his thing, it's hard. It's hard to see just how wide they actually really do see, and being able to understand the macro and the micro all at the same time.
 

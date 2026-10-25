@@ -120,13 +120,13 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:03:18] Will: There's a lot more Midtown New York than there is Gaslamp District of San Diego.
 
-[00:03:20] Adam: Oh, there certainly is. But the fact was was that as I was riding my one wheel around, oh yeah, I meant to mention,
+[00:03:20] Adam: Oh, there certainly is. But the fact was was that as I was riding my Onewheel around, oh yeah, I meant to mention,
 
-[00:03:26] Will: you took your one wheel to New York Comic Con.
+[00:03:26] Will: you took your Onewheel to New York Comic Con.
 
-[00:03:27] Adam: I did not one wheel. The lovely folks at One Wheel sent me a loaner.
+[00:03:27] Adam: I did not Onewheel. The lovely folks at Onewheel sent me a loaner.
 
-[00:03:32] Norm: It's a concierge service. You get off the plane. Someone's here's your one wheel to get around New York.
+[00:03:32] Norm: It's a concierge service. You get off the plane. Someone's here's your Onewheel to get around New York.
 
 [00:03:36] Adam: This is specifically because of our long standing relationship.
 
@@ -140,13 +140,13 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:04:07] Adam: right? Yeah.
 
-[00:04:07] Norm: Like the one wheel is the smarter way to get around New York than if if you're frustrated by cars.
+[00:04:07] Norm: Like the Onewheel is the smarter way to get around New York than if if you're frustrated by cars.
 
 [00:04:13] Adam: Also, to be clear, I was staying on I was staying in Times Square.
 
 [00:04:17] Norm: Yeah.
 
-[00:04:17] Adam: And Comic Con, so that's like basically 42nd and Broadway. And Comic Con in New York happens at the Javits Center, which is 11th Avenue and 34th Street, give or take. Um, which is a you can make it on the one wheel in about five seven minutes.
+[00:04:17] Adam: And Comic Con, so that's like basically 42nd and Broadway. And Comic Con in New York happens at the Javits Center, which is 11th Avenue and 34th Street, give or take. Um, which is a you can make it on the Onewheel in about five seven minutes.
 
 [00:04:33] Norm: Yeah, it's incredible.
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:04:40] Will: Yeah, make that same trip. I've made that walk before.
 
-[00:04:42] Adam: Yeah. And it's so for for our team, it was actually really helpful because I could make it to more things with more downtime in between to kind of wrap my head around the next thing that I was doing. So the one wheel became invaluable. Um, but as I was riding through Times Square, I was just constantly being high fived and said hello to by Comic Con attendees through all of Times Square, which is really really fun.
+[00:04:42] Adam: Yeah. And it's so for for our team, it was actually really helpful because I could make it to more things with more downtime in between to kind of wrap my head around the next thing that I was doing. So the Onewheel became invaluable. Um, but as I was riding through Times Square, I was just constantly being high fived and said hello to by Comic Con attendees through all of Times Square, which is really really fun.
 
 [00:05:07] Will: But do you think those people thought you were an Adam Savage cosplayer? Or do you think they thought? Do you think they
 
@@ -162,17 +162,17 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:05:13] Will: Okay.
 
-[00:05:14] Adam: And then I I enjoyed a a really unique and singular experience on the one wheel, which was I went to dinner on Thursday night with Molly Jong Fast.
+[00:05:14] Adam: And then I I enjoyed a a really unique and singular experience on the Onewheel, which was I went to dinner on Thursday night with Molly Jong Fast.
 
 [00:05:28] Will: Okay.
 
-[00:05:28] Adam: Uh, one of my favorite people on Twitter. She's awesome, outspoken, and really super funny. We had a great dinner, and I I rode my one wheel to dinner, and we were on the Upper East Side, and so to get back to Times Square, I went through Central Park, and this main loop road of Central Park is closed. Uh, I think it's closed all the time. It might just be at night. I'm not actually sure.
+[00:05:28] Adam: Uh, one of my favorite people on Twitter. She's awesome, outspoken, and really super funny. We had a great dinner, and I I rode my Onewheel to dinner, and we were on the Upper East Side, and so to get back to Times Square, I went through Central Park, and this main loop road of Central Park is closed. Uh, I think it's closed all the time. It might just be at night. I'm not actually sure.
 
 [00:05:51] Will: I think it's closed all the time now. Yeah.
 
 [00:05:52] Adam: Well, I circumnavigated the entirety of Central Park in the dark alone. I mean, I didn't see another human being.
 
-[00:05:59] Will: Does the one wheel have a little light on the front?
+[00:05:59] Will: Does the Onewheel have a little light on the front?
 
 [00:06:00] Adam: It does.
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:07:02] Will: Yeah,
 
-[00:07:02] Adam: and there's a way in which riding the one wheel put me slotted me right back into that that. That bicycle trap, riding among traffic, kind of mindset, and it was intoxicating for me. It was lovely. It was like going thirty years, taking a time machine back.
+[00:07:02] Adam: and there's a way in which riding the Onewheel put me slotted me right back into that that. That bicycle trap, riding among traffic, kind of mindset, and it was intoxicating for me. It was lovely. It was like going thirty years, taking a time machine back.
 
 [00:07:19] Will: When you go to New York, do you ever want to move back? Does it? Do you get those feels?
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:08:28] Will: Okay.
 
-[00:08:28] Adam: Yeah. So that was just my one wheel adventures.
+[00:08:28] Adam: Yeah. So that was just my Onewheel adventures.
 
 [00:08:34] Norm: Then we, before even going to New York Comic Con, we hit two places. One was the Met,
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:15:01] Will: yeah behind you.
 
-[00:15:01] Adam: The Alien spacesuit behind us is their beautiful handiwork. The students of North Bergen, under the tutelage and guidance of Stephen Defendini, it's a it's amazing what they're doing. And they were all making Comic Con costumes when we were there.
+[00:15:01] Adam: The Alien spacesuit behind us is their beautiful handiwork. The students of North Bergen, under the tutelage and guidance of Steven Defendini, it's a it's amazing what they're doing. And they were all making Comic Con costumes when we were there.
 
 [00:15:17] Will: Nice.
 
@@ -432,7 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:15:47] Will: So has that has that whole thing? I mean, they got a ton of press for that. Has that started a movement in theater departments where they're doing like adaptations of more modern stuff?
 
-[00:15:56] Adam: I have not heard tell of that. And frankly, if you if you out there listening to this know about other theater departments that are taking North Bergen High School's example and running with it, we would really like to know. Personally, I'd love to lend expertise and and information to people interested in doing this space. Not like I've got a. A ton of time to come visit. However, I think that there is meat in potentially a tested series of visiting schools doing this kind of thing. It it also fits right into my ethos of educating kids about what fair use really means. Because North Bergen High School, when Stephen Defendini and I said this on the podcast before, but when Stephen first got his call from Ridley Scott's office, he thought he was going to be chewed out.
+[00:15:56] Adam: I have not heard tell of that. And frankly, if you if you out there listening to this know about other theater departments that are taking North Bergen High School's example and running with it, we would really like to know. Personally, I'd love to lend expertise and and information to people interested in doing this space. Not like I've got a. A ton of time to come visit. However, I think that there is meat in potentially a tested series of visiting schools doing this kind of thing. It it also fits right into my ethos of educating kids about what fair use really means. Because North Bergen High School, when Steven Defendini and I said this on the podcast before, but when Steven first got his call from Ridley Scott's office, he thought he was going to be chewed out.
 
 [00:16:42] Will: Yeah.
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:19:23] Will: That's so cool.
 
-[00:19:24] Adam: That's that's that Stephen, and with the full support of his high school, you know, I met a whole bunch of the faculty, and I mean, they're all just tickled pink about the attention.
+[00:19:24] Adam: That's that's that Steven, and with the full support of his high school, you know, I met a whole bunch of the faculty, and I mean, they're all just tickled pink about the attention.
 
 [00:19:32] Will: I mean, I have to imagine Alien. Aliens an edgy choice for a high school production. I have to imagine.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:21:56] Will: That's so cool.
 
-[00:21:57] Adam: Super inspiring, and the kids. It was great to meet the kids. I had met Stephen at my book signing at Barnes and Noble in May. It was fabulous to meet the kids,
+[00:21:57] Adam: Super inspiring, and the kids. It was great to meet the kids. I had met Steven at my book signing at Barnes and Noble in May. It was fabulous to meet the kids,
 
 [00:22:04] Will: That's so cool.
 
@@ -592,7 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:22:28] Will: I only knew about one of them, I think.
 
-[00:22:29] Adam: I did a quiet one with my friend Sasha.
+[00:22:29] Adam: I did a quiet one with my friend Sacha.
 
 [00:22:32] Will: Oh,
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:22:50] Norm: Oh, okay, okay.
 
-[00:22:50] Adam: And she went through the whole process of doing cosplay from like hand making the tunic and adding the buttons and lit shoulders epaulets and a helmet with Worbla and trying multiple iterations. Sasha Judd actually, she she did a wonderful tweet thread about the build process that I retweeted a couple of days ago. And so I simply brought a casual walkaround costume to walk with her across the floor,
+[00:22:50] Adam: And she went through the whole process of doing cosplay from like hand making the tunic and adding the buttons and lit shoulders epaulets and a helmet with Worbla and trying multiple iterations. Sacha Judd actually, she she did a wonderful tweet thread about the build process that I retweeted a couple of days ago. And so I simply brought a casual walkaround costume to walk with her across the floor,
 
 [00:23:19] Will: That's awesome.
 
@@ -758,7 +758,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:29:35] Norm: That was your panel.
 
-[00:29:36] Adam: That was the panel, the great debate for sci-fi.
+[00:29:36] Adam: That was the panel, the great debate for Syfy.
 
 [00:29:38] Norm: Yes, yes.
 
@@ -802,7 +802,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:30:58] Norm: Because everything's legal in Jersey, but we did not have time. I know it was a minor regret.
 
-[00:31:04] Will: If only you had a one wheel.
+[00:31:04] Will: If only you had a Onewheel.
 
 [00:31:05] Norm: Yeah, yeah. And then the day after, you had a series of interviews with some amazing cosplayers,
 
@@ -880,7 +880,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:33:48] Adam: Yeah. Again, whenever you are covering these cosplayers, you are not. Yeah, everybody's finding their own way to these solutions, and then they're sharing them.
 
-[00:34:01] Will: That's the thing that that that's the thing that always struck me when we first started talking to cosplay. When we talked to Harrison, even like Harrison Cricks Volpin at the time was doing, I think, the best work out there, and frankly, probably still is on the kind of stuff that he was focusing on. And he was just like, " Yeah, here are the plans for the. It took me three hundred hours to put together these Daft Punk helmets, but here is the wiring diagrams, and here is all the stuff, and you can just You know, if you want to make your own, go for it.
+[00:34:01] Will: That's the thing that that that's the thing that always struck me when we first started talking to cosplay. When we talked to Harrison, even like Harrison Krix Volpin at the time was doing, I think, the best work out there, and frankly, probably still is on the kind of stuff that he was focusing on. And he was just like, " Yeah, here are the plans for the. It took me three hundred hours to put together these Daft Punk helmets, but here is the wiring diagrams, and here is all the stuff, and you can just You know, if you want to make your own, go for it.
 
 [00:34:25] Adam: And when I so I did get to I buried the lead because I got to go to the Saturday Night Live after party Saturday night.
 

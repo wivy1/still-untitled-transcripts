@@ -16,13 +16,13 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:00:15] Unknown speaker (Adam or Mark): Hello, guys.
 
-[00:00:15] Adam: Art director, part of Phil Tippett's crew at various times, and also helped Norm build his Tamanosuki blaster last year.
+[00:00:15] Adam: Art director, part of Phil Tippett's crew at various times, and also helped Norm build his Tomenosuke blaster last year.
 
 [00:00:23] Norm: Yes, yes, longtime friend.
 
 [00:00:23] Mark: That's true.
 
-[00:00:23] Norm: Of the site, I think we we first met like the very first time I went. Maybe one of the first times I visited Tippett because you did a lot with the the Kane maquette project.
+[00:00:23] Norm: Of the site, I think we we first met like the very first time I went. Maybe one of the first times I visited Tippett because you did a lot with the the Cain maquette project.
 
 [00:00:34] Mark: Oh, that is true. Yeah, for Chronicle Collectibles.
 
@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:00:56] Mark: Yeah, and your eyes crossed, and even though everything was kind of like laid out on the table, you were still, you know, flummoxed by just how many parts there were.
 
-[00:01:03] Adam: And being flummoxed. By how many parts there were is part of the design purpose of Kane, right?
+[00:01:03] Adam: And being flummoxed. By how many parts there were is part of the design purpose of Cain, right?
 
 [00:01:09] Mark: Yeah. Yeah, not to go into too much detail, but it was kind of like a bit of a Russian nesting doll. It was just and everything kind of worked. Pieces were like overlaid. You would open it up, and where you imagine you'd just find like a block of like aluminum. There was actually like you know like a little piston that was crossing and and all these little it was incredible. I think.
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:08:11] Adam: You know, it's funny because when when I was first becoming obsessed with Blade Runner in the in the mid '80s, I was dating a Russian girl who was had literally escaped from Russia with her mom, when she was like six years old. And she and her mom spoke this kind of hilariously bastard Americanized Russian where it was like [unclear: East from the / he’s left with a] bank account, you know, just words word salad, some linguistic salad. And so it made me feel very much like dating someone who lives in the Blade Runner universe.
 
-[00:08:41] Mark: It's kind of like that. I remember growing up, and you know, when you're a kid, you speak the language of the area that you grow up, and then you go to like another place, you come to the U.S. or whatnot, and you just kind of spew out what you normally say, and you're looking for a convenience store, and and you have a little bit of an accent. Because you come from Canada, and then you say, " Hey, can you tell me where the Deppiner is?" And they're like, " What are you talking about? A Deppiner?" And that's like a convenience store in Quebec, you know. So, I don't know. I I kind of got excited about that. I thought like, but also coming from Montreal, it was like, " Hey, homeboy."
+[00:08:41] Mark: It's kind of like that. I remember growing up, and you know, when you're a kid, you speak the language of the area that you grow up, and then you go to like another place, you come to the U.S. or whatnot, and you just kind of spew out what you normally say, and you're looking for a convenience store, and and you have a little bit of an accent. Because you come from Canada, and then you say, " Hey, can you tell me where the dépanneur is?" And they're like, " What are you talking about? A dépanneur?" And that's like a convenience store in Quebec, you know. So, I don't know. I I kind of got excited about that. I thought like, but also coming from Montreal, it was like, " Hey, homeboy."
 
 [00:09:17] Adam: Also, also the rights for Blade Runner have been tied up in legal in a legal morass for decades.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:15:07] Norm: next week we're hoping to release some of the stuff, and some
 
-[00:15:10] Adam: of it will be released next week. Some of it post release. Behind the scenes shots, talking to the craftspeople that put this together from prop master Doug Harlocker and his incredible team that made the new blasters, and lots of the sets and some of the big special effects. Again, I'm not going to give spoilers to our our content or to the film, but it was really heady to be on site for the film, and I did get to see on one of the days I got to see them filming some of the shots that are actually in the trailer and in the in the in the final film, and just being there on set and watching Denis and Deacons talk, watching them. I mean, I'm way far away, so when you visit a big movie, a big budget movie set like this, you don't ever get near the movie stars or the huge key players, right? They They have a movie to make, and you don't. You don't get in their way. But I'm sitting there in the corner of this room and watching Denis and Deakins with this ludicrously complex set. Work on this lighting of surpassing intricacy, and Ryan Gosling shows up and and does his bit in the scene. It was absolutely thrilling. But just from watching how they shot that scene, and I'm really working hard in my head to make sure I'm not giving any spoilers. I'm running like two sub programs at once here.
+[00:15:10] Adam: of it will be released next week. Some of it post release. Behind the scenes shots, talking to the craftspeople that put this together from prop master Doug Harlocker and his incredible team that made the new blasters, and lots of the sets and some of the big special effects. Again, I'm not going to give spoilers to our our content or to the film, but it was really heady to be on site for the film, and I did get to see on one of the days I got to see them filming some of the shots that are actually in the trailer and in the in the in the final film, and just being there on set and watching Denis and Deakins talk, watching them. I mean, I'm way far away, so when you visit a big movie, a big budget movie set like this, you don't ever get near the movie stars or the huge key players, right? They They have a movie to make, and you don't. You don't get in their way. But I'm sitting there in the corner of this room and watching Denis and Deakins with this ludicrously complex set. Work on this lighting of surpassing intricacy, and Ryan Gosling shows up and and does his bit in the scene. It was absolutely thrilling. But just from watching how they shot that scene, and I'm really working hard in my head to make sure I'm not giving any spoilers. I'm running like two sub programs at once here.
 
 [00:16:29] Mark: If I had hair, it would be standing on end.
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:18:04] Norm: yes.
 
-[00:18:05] Adam: In the scene in Alien, when the astronauts enter the chamber with the space jockey and they look like they're dwarfed by it, it's because they are. It's because the astronauts are three-quarter sized. They are Luke Scott, Charlie Borman, and I can't remember who the third one is. All at the age of twelve and thirteen years old, putting on three-quarter size alien spacesuits to make the space jockey look extra big. So Luke Scott is pretty much exactly my age, and I said, " Do I do I have a picture of you in my computer in an alien spacesuit?" He's like, " Yes, you do. I still own that suit.
+[00:18:05] Adam: In the scene in Alien, when the astronauts enter the chamber with the space jockey and they look like they're dwarfed by it, it's because they are. It's because the astronauts are three-quarter sized. They are Luke Scott, Charley Boorman, and I can't remember who the third one is. All at the age of twelve and thirteen years old, putting on three-quarter size alien spacesuits to make the space jockey look extra big. So Luke Scott is pretty much exactly my age, and I said, " Do I do I have a picture of you in my computer in an alien spacesuit?" He's like, " Yes, you do. I still own that suit.
 
 [00:18:35] Norm: That's amazing.
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:19:59] Norm: So you know, the film they have to make, Twenty Forty Nine, has to appease. You guys, the the hardcore fan, the hardest of the hardcore, the the film, which the film, the original film, means so many different things to the people who've seen it to varying different degrees, but also has to be a satisfactory film on its own. So, can you say what can you say about how the the film satisfies?
 
-[00:20:23] Adam: Oh, I'm still not ready to go there yet. We're going to still talk about the Sapper film just for another minute or two. One thing I wanted to say is I'm back there behind the man mountain known as Dave Batista, and I'm doing my thing, and what they told me to do is hold out these things and go Sultan, Sultan, Sultan, and just be annoying. And the background players are all excellent; like everyone was really invested and really good. And Batista is there doing his scene, and after about thirty minutes, he turns to me and he recognizes me from something, but he can't quite tell because I don't have my glasses on because there's no eyeglasses in the future. And he goes, " Are you a writer or something? Have we met?" And I said, " I I hosted Mythbusters, and he did this very sort of sweet, humble smile, and then stuck out this bunch of bananas he calls a hand, and shook my hand and said, " I am a huge fan. My wife is a big geek, and we love your show." And like, I a nicer human being than Dave Bautista I have rarely met. He was incredibly gracious, and also a super wonderful actor to watch work. In that sequence in the film, he kicks the shit out of five guys. I believe those are key members of his stunt team, and I got to watch them film that fight from about as far away as the camera is. They actually made me a background player, just like stuck in the corner. And I mean, if I remember correctly, I think it was Luke Scott that was like, " You just watch this stand right here, and you won't be in the frame, just but you get to see it." And watching Bautista, who is like he comes from pro wrestling, he's a terrific physical actor and a physical performer, and a Genuine stunt person. He's working with a great stunt crew. Watching him do that fight sequence right in front of me was astounding. A level of physical prowess I have not been privy to on a on a movie set. I haven't seen fight scenes right in front of me on a movie set. I felt like I was looking at the gold standard.
+[00:20:23] Adam: Oh, I'm still not ready to go there yet. We're going to still talk about the Sapper film just for another minute or two. One thing I wanted to say is I'm back there behind the man mountain known as Dave Bautista, and I'm doing my thing, and what they told me to do is hold out these things and go Sultan, Sultan, Sultan, and just be annoying. And the background players are all excellent; like everyone was really invested and really good. And Bautista is there doing his scene, and after about thirty minutes, he turns to me and he recognizes me from something, but he can't quite tell because I don't have my glasses on because there's no eyeglasses in the future. And he goes, " Are you a writer or something? Have we met?" And I said, " I I hosted Mythbusters, and he did this very sort of sweet, humble smile, and then stuck out this bunch of bananas he calls a hand, and shook my hand and said, " I am a huge fan. My wife is a big geek, and we love your show." And like, I a nicer human being than Dave Bautista I have rarely met. He was incredibly gracious, and also a super wonderful actor to watch work. In that sequence in the film, he kicks the shit out of five guys. I believe those are key members of his stunt team, and I got to watch them film that fight from about as far away as the camera is. They actually made me a background player, just like stuck in the corner. And I mean, if I remember correctly, I think it was Luke Scott that was like, " You just watch this stand right here, and you won't be in the frame, just but you get to see it." And watching Bautista, who is like he comes from pro wrestling, he's a terrific physical actor and a physical performer, and a Genuine stunt person. He's working with a great stunt crew. Watching him do that fight sequence right in front of me was astounding. A level of physical prowess I have not been privy to on a on a movie set. I haven't seen fight scenes right in front of me on a movie set. I felt like I was looking at the gold standard.
 
 [00:22:18] Norm: Was it feeling moving at high speed or slow motion?
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:22:42] Mark: And good things have been said about like his. I mean, I've heard things in advance, but like you can actually see it in this trailer. He does come across as like a very. He has a very nuanced, delicate performance, and he, you know, everybody's used to him as Drax, right? Who's kind of like my turds are famously huge, but in this one, it's like he comes, you know, like you're watching it, and it's like it's a different person, you know, you. You recognize his giant frame, but at the same time, it's like, wow, you know, like he comes across as being very, you know, like just very reserved and quiet.
 
-[00:23:17] Adam: If if I was a working film director today, I would be looking for a weird, non-standard role for Batista to play in a like romantic comedy. I mean, I because I think he's a really fine actor, and I think that as he goes, we'll get to see more and more of the breadth of what he can do because it's really it's real. He's a genuine performer,
+[00:23:17] Adam: If if I was a working film director today, I would be looking for a weird, non-standard role for Bautista to play in a like romantic comedy. I mean, I because I think he's a really fine actor, and I think that as he goes, we'll get to see more and more of the breadth of what he can do because it's really it's real. He's a genuine performer,
 
 [00:23:37] Norm: right? And Spectre, you know, he had the menacing presence, but maybe not the depth in the front role,
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:35:46] Unknown speaker (Adam or Mark): Yeah,
 
-[00:35:46] Mark: especially for people like us who have been chasing after that weapon. And you know, and you've seen a lot of the props up close at Comic Con and whatnot. Like I personally feel like there's a lot there to to continue my love for Blade Runner props. I mean, I'm big fan of the Voight Kampf machine, big fan of Harrison Ford's gun, like even Mother's what is it,
+[00:35:46] Mark: especially for people like us who have been chasing after that weapon. And you know, and you've seen a lot of the props up close at Comic Con and whatnot. Like I personally feel like there's a lot there to to continue my love for Blade Runner props. I mean, I'm big fan of the Voight-Kampff machine, big fan of Harrison Ford's gun, like even Mother's what is it,
 
 [00:35:46] Unknown speaker: Mm hmm.
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:36:08] Mark: Mother's Defender and whatnot. So do you feel like Now it's like oh great I get to continue my obsession with the hardware and whatnot?
 
-[00:36:15] Adam: I do and I mean I was sitting there with Doug Harlocker who's the prop master for the film looking over his amazing wares and I mean even then you know he's very specifically not able to tell me even what this prop does what that one's for and yet you can see the world building the deep world building that they have invested these pieces with and actually Wired mag this month's Wired magazine has some fantastic pictures of Luv's gun of binoculars of handcuffs and some other pieces including a very funny beautiful Voight Kamp machine that I believe was built by my friend Dan Winters who shot that entire photo essay yeah Dan was a model maker originally
+[00:36:15] Adam: I do and I mean I was sitting there with Doug Harlocker who's the prop master for the film looking over his amazing wares and I mean even then you know he's very specifically not able to tell me even what this prop does what that one's for and yet you can see the world building the deep world building that they have invested these pieces with and actually Wired mag this month's Wired magazine has some fantastic pictures of Luv's gun of binoculars of handcuffs and some other pieces including a very funny beautiful Voight-Kampff machine that I believe was built by my friend Dan Winters who shot that entire photo essay yeah Dan was a model maker originally
 
 [00:36:15] Unknown speaker (Adam or Mark): Ah. And it’s
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:37:24] Adam: Renault, really?
 
-[00:37:26] Mark: Oh, they better watch out. Their stock's going to drop if the curse continues. I don't know if they're still making cars, but like, yeah, TDK, Panam.
+[00:37:26] Mark: Oh, they better watch out. Their stock's going to drop if the curse continues. I don't know if they're still making cars, but like, yeah, TDK, Pan Am.
 
 [00:37:34] Adam: Yeah, didn't Renault? Was it sudden acceleration syndrome that undid Renault here? I believe it was
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:37:34] Adam: the first mass hysteria that your somehow your car was going to take off without you, and it just turned out someone stepping on the gas instead of the brake.
 
-[00:37:46] Mark: Those little mini cars, the Renault sank or whatever it is. Yeah, you might as well have been in a shoebox with wheels.
+[00:37:46] Mark: Those little mini cars, the Renault cinq or whatever it is. Yeah, you might as well have been in a shoebox with wheels.
 
 [00:37:54] Norm: I know that based on your embargo, you can only talk about your emotions. I'm not going to ask you to make the facial expressions as you watch the film, but just what did you end on? What was your facial expression when the film ended?
 

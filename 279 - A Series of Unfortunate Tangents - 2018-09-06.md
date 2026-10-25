@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:11:22] Adam: wow,
 
-[00:11:22] Will: he did Grey's Anatomy. A movie
+[00:11:22] Will: he did Gray's Anatomy. A movie
 
 [00:11:28] Norm: sounds like a movie. All right.
 
@@ -338,15 +338,15 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:11:32] Norm: And then
 
-[00:11:33] Will: Out of Sight is Limy, Brockovich, Traffic, Ocean's Eleven, Full Frontal Solaris. K Street.
+[00:11:33] Will: Out of Sight is Limey, Brockovich, Traffic, Ocean's Eleven, Full Frontal Solaris. K Street.
 
-[00:11:37] Adam: Have you guys seen the Limy?
+[00:11:37] Adam: Have you guys seen the Limey?
 
 [00:11:38] Norm: I've not.
 
 [00:11:39] Will: I've got gaps.
 
-[00:11:40] Adam: I don't want to spoil the Limy, but Out of Sight has, and I just tweeted about this. My favorite love scene in any movie, and to remind you, she has gone up to Detroit to find Jack Foley, the bank robber, and she
+[00:11:40] Adam: I don't want to spoil the Limey, but Out of Sight has, and I just tweeted about this. My favorite love scene in any movie, and to remind you, she has gone up to Detroit to find Jack Foley, the bank robber, and she
 
 [00:11:56] Will: is Clooney.
 
@@ -388,13 +388,13 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:13:14] Will: blinds or like Venetian blinds or something like that? I can't remember.
 
-[00:13:17] Adam: That I don't quite remember, but so that time shifting is also a central, central storytelling aspect of the Limy. So clearly, Soderbergh, and again, if I ever meet him, I'm going to ask all about this.
+[00:13:17] Adam: That I don't quite remember, but so that time shifting is also a central, central storytelling aspect of the Limey. So clearly, Soderbergh, and again, if I ever meet him, I'm going to ask all about this.
 
 [00:13:30] Will: Yeah.
 
-[00:13:30] Adam: Clearly, that love scene from Out of Sight inspired him to see if he could structure a movie in a non-standard way, and The Limy is a total masterpiece in this regard.
+[00:13:30] Adam: Clearly, that love scene from Out of Sight inspired him to see if he could structure a movie in a non-standard way, and The Limey is a total masterpiece in this regard.
 
-[00:13:41] Adam: I love the Limy.
+[00:13:41] Adam: I love the Limey.
 
 [00:13:42] Norm: every heist film he's done since the the flash forward of is a that's a essential part of every heist film.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:14:54] Will: spectacular
 
-[00:14:55] Adam: absolutely great Catherine Waterston. I love her. I love her.
+[00:14:55] Adam: absolutely great Katherine Waterston. I love her. I love her.
 
 [00:14:55] Norm: Yes,
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:18:40] Norm: Yeah, she's great in Crazy Rich Asians.
 
-[00:18:41] Adam: Also, just chooses the scenery, but like * Hells Bells*, I would hire Rihanna to shoot the scenery anywhere. She's super compelling.
+[00:18:41] Adam: Also, just chews the scenery, but like * Hells Bells*, I would hire Rihanna to chew the scenery anywhere. She's super compelling.
 
 [00:18:47] Norm: one of the best things I love about those films is a lot of like the tech conceit and like they have more money than they stole to to do these heists. So much of it's like the woman who made the the dress. Is in on the heist, like these public figures? But it's about outsmarting. It's outsmarting the viewer and letting the viewer feel like they're catching up to the story, and then saying, " We let you do that. That was on purpose."
 
@@ -798,7 +798,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:27:24] Norm: challenging name. [unclear: I may be pronouncing it / I should be pronouncing it], but it's all the letters there.
 
-[00:27:26] Adam: I want him to do a, I want him to do a movie with Hannibal Buress.
+[00:27:26] Adam: I want him to do a movie with Hannibal Buress.
 
 [00:27:30] Will: Yeah, I watched it. Yeah, and and Burgess Meredith if he was undead. Um, how how are the Bosch books?
 
@@ -844,7 +844,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:29:52] Will: twice.
 
-[00:29:53] Norm: Some of All Fears. Once,
+[00:29:53] Norm: Sum of All Fears. Once,
 
 [00:29:53] Adam: I prefer his. I prefer him as an accountant.
 
@@ -978,7 +978,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:33:08] Unknown speaker: No. Presumed Innocent.
 
-[00:33:08] Norm: the Scott Trow novel.
+[00:33:08] Norm: the Scott Turow novel.
 
 [00:33:08] Norm: We need to be the podcast equivalent of the Wikipedia slash IMDb. Click a link. Click a link. Click a link. That's what we did, guys. We started with started started with Ocean's Eleven.
 
@@ -1062,7 +1062,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:36:10] Adam: Yeah, how is it?
 
-[00:36:11] Will: It's fabulous. It is a parable for it's it's in in the same way that Seven Eves and Aurora, the Kim Stanley Robinson book. I think we talked about both of those a couple years ago.
+[00:36:11] Will: It's fabulous. It is a parable for it's it's in in the same way that Seveneves and Aurora, the Kim Stanley Robinson book. I think we talked about both of those a couple years ago.
 
 [00:36:20] Adam: I've never, I haven't read Aurora.
 
@@ -1082,7 +1082,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:37:00] Adam: Love John,
 
-[00:37:01] Will: and it's got like empire building. It's it's very it's very like. You know, yeah, it's good. It's it's it's it's very good. It's very entertaining. It's something completely different than anything he's done before. And then I follow that up with Mary Robinette Kowal's books, " The Calculating Stars" and " The Faded Sky."
+[00:37:01] Will: and it's got like empire building. It's it's very it's very like. You know, yeah, it's good. It's it's it's it's very good. It's very entertaining. It's something completely different than anything he's done before. And then I follow that up with Mary Robinette Kowal's books, " The Calculating Stars" and " The Fated Sky."
 
 [00:37:18] Adam: Oh, I don't know about these.
 
@@ -1090,7 +1090,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:37:18] Adam: Yeah.
 
-[00:37:18] Will: authors circle. And at the risk of being doing the reductive, awful thing, " The Faded Skies" and " Calculating Stars" start start with " Calculating Stars." It's kind of post apocalyptic historical fiction. So imagine imagine Seven Eves and Hidden Figures, and like like fifties Earth, something goes really bad, and people realize that hey, we've got to we've got to really accelerate the space program.
+[00:37:18] Will: authors circle. And at the risk of being doing the reductive, awful thing, " The Fated Skies" and " Calculating Stars" start start with " Calculating Stars." It's kind of post apocalyptic historical fiction. So imagine imagine Seveneves and Hidden Figures, and like like fifties Earth, something goes really bad, and people realize that hey, we've got to we've got to really accelerate the space program.
 
 [00:37:18] Adam: Oh, okay.
 

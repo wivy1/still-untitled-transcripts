@@ -664,7 +664,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:22:27] Will: Can I be Black Widow?
 
-[00:22:28] Norm: You got the costumes right there. You got the costumes right there. Yeah,
+[00:22:28] Norm: You got the costumes right there. Yeah,
 
 [00:22:32] Adam: you can't be Black Widow.
 
@@ -686,7 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:22:59] Norm: that's really good,
 
-[00:22:59] Adam: right? Um, I saw Tom Sacks this weekend. He's down in Los Angeles. We were we were hanging out. Um. That was lovely. Haven't seen him in a in a few months.
+[00:22:59] Adam: right? Um, I saw Tom Sachs this weekend. He's down in Los Angeles. We were we were hanging out. Um. That was lovely. Haven't seen him in a in a few months.
 
 [00:23:11] Norm: Are there any projects you're working on that you can talk about in the in the in the shop? Just like small projects here. That you know what? While you think about that, I'm going to share with people.
 
@@ -736,7 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:25:12] Adam: It's yeah, and it's like I just find something I'm obsessed with and start to try and use this new process to implement it.
 
-[00:25:20] Will: I I would love to see you spend like 45 minutes a day with Medium, the Oculus, the the kind of Z Z JVZ Brush thing, but you can use your hands and it's all 3D, so you don't have to fool with the four four pane CAD interface, which to me makes it much more accessible.
+[00:25:20] Will: I I would love to see you spend like 45 minutes a day with Medium, the Oculus, the the kind of Z Z JV ZBrush thing, but you can use your hands and it's all 3D, so you don't have to fool with the four four pane CAD interface, which to me makes it much more accessible.
 
 [00:25:37] Adam: That sounds really cool.
 
@@ -798,7 +798,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:28:03] Adam: that's awesome.
 
-[00:28:03] Will: They're except that that that one's interesting and the. The problem, the the reason I haven't done it yet is because, like, usually you you can buy single tickets if you want, or you can buy out a whole room if like you're going with a friend for a birthday or something like that. You can always get four or five people, but getting eight people and getting schedules lined up is tough. But I know a friend. We have some friends have tested who would definitely be into doing it..
+[00:28:03] Will: They're except that that that one's interesting and the. The problem, the the reason I haven't done it yet is because, like, usually you you can buy single tickets if you want, or you can buy out a whole room if like you're going with a friend for a birthday or something like that. You can always get four or five people, but getting eight people and getting schedules lined up is tough. But I know a friend. We have some friends of Tested who would definitely be into doing it..
 
 [00:28:23] Adam: Let's do it.
 

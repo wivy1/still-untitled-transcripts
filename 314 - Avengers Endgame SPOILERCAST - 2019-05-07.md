@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:09:52] Norm: Ah.
 
-[00:09:52] Adam: She was not able to see her script before coming into shoot, and when she came into shoot, she would have like a CAA redacted version where all the lines were black except for hers.
+[00:09:52] Adam: She was not able to see her script before coming into shoot, and when she came into shoot, she would have like a CIA redacted version where all the lines were black except for hers.
 
 [00:10:01] Will: Oh my gosh!
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:13:14] Adam: Spoilers!
 
-[00:13:14] Will: all right. Don't spoil this for other people. If you haven't watched the movie, don't stop right now. Turn it off. Walk away.
+[00:13:14] Will: all right. Don't spoil this for other people. If you haven't watched the movie, don't. Stop right now. Turn it off. Walk away.
 
 [00:13:18] Adam: Yeah, truly, you don't want to hear these spoilers. It's far more enjoyable if you go in as cold as humanly possible.
 
@@ -458,9 +458,9 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:17:30] Adam: The actress whose name is
 
-[00:17:32] Norm: Karen Gillian.
+[00:17:32] Norm: Karen Gillan.
 
-[00:17:32] Adam: Karen Gillian. Her performance of Nebula is fantastic, and in both of the films with Nebula and Gamora, their their arc is really moving.
+[00:17:32] Adam: Karen Gillan. Her performance of Nebula is fantastic, and in both of the films with Nebula and Gamora, their their arc is really moving.
 
 [00:17:43] Will: I mean, yeah, they go from a complete, yes, and and this this film actually highlights the arc that they have
 
@@ -1152,7 +1152,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:39:35] Norm: The Thor says we're gonna get lunch, and then back to Asgard. Quick lunch. So Loki escapes. So is how Loki survives.
 
-[00:39:42] Adam: Loki escapes, right? So we know Loki shows up. Do we get a? Do we get a? Do we get a Captain America goes around delivering the stones back to their original places? Movie
+[00:39:42] Adam: Loki escapes, right? So we know Loki shows up. Do we get a Captain America goes around delivering the stones back to their original places? Movie
 
 [00:39:51] Norm: Man Lost in Time.
 

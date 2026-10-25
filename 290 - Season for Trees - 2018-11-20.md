@@ -12,7 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:00:50] Adam: I'm Adam.
 
-[00:00:52] Kayte: And I'm Kate.
+[00:00:52] Kayte: And I'm Kayte.
 
 [00:00:54] Adam: You're trying the low voice.
 
@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:01:18] Will: I mean, our long term repercussions are much longer term and much less immediately obvious.
 
-[00:01:23] Adam: No, totally. My heart is out. I mean, it's just it's so upsetting both the campfire and the ones down south are so so pervasive and jumping so quickly and overwhelming so many communities. It's really upsetting.
+[00:01:23] Adam: No, totally. My heart is out. I mean, it's just it's so upsetting both the Camp Fire and the ones down south are so so pervasive and jumping so quickly and overwhelming so many communities. It's really upsetting.
 
 [00:01:38] Will: You know, if we managed our our forests better, we wouldn't have these problems. It's just California. We spend them billions of dollars a year, and they just fritter it away on legal weed and and and train CDs.
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:05:10] Will: See, I am. We're pumpkin and apple. I don't know. Yeah. I only make pecan if we have a guest that really is into pecan pie. But the spatchcock turkey, like we've talked about it before on the podcast,
 
-[00:05:20] Adam: Kenji's Kenji Lopez Alt is going off on it on Twitter.
+[00:05:20] Adam: Kenji's Kenji López-Alt is going off on it on Twitter.
 
 [00:05:25] Will: Well, so he he he said he's doing a pulled turkey recipe that I haven't looked at the recipe yet yet. But it seems it seemed interesting. It's like a slow cooked, and you you you end up with like essentially a pulled turkey, which I am fascinated by.
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:07:10] Kayte: It is in Occidental in Sonoma County.
 
-[00:07:13] Adam: You know, Mister Jamie Heineman grew up on an apple orchard.
+[00:07:13] Adam: You know, Mister Jamie Hyneman grew up on an apple orchard.
 
 [00:07:15] Kayte: I didn't know that.
 
@@ -178,7 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:07:16] Kayte: No, he didn’t.
 
-[00:07:29] Adam: Young teenage Jamie Heineman with hair past his shoulders, riding a horse
+[00:07:29] Adam: Young teenage Jamie Hyneman with hair past his shoulders, riding a horse
 
 [00:07:33] Kayte: with a mustache. I hope.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:15:56] Will: You um uh, you guys last week recorded podcast with Norm, so you talked about the new addition to the Tested family.
 
-[00:16:02] Adam: Yes, Avery, the Norman Danica's beautiful baby boy.
+[00:16:02] Adam: Yes, Avery, the Norm and Danica's beautiful baby boy.
 
 [00:16:06] Will: Very good. Congratulations from all of us. I wasn’t here last week, so I didn’t get to say, but yeah,
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:19:04] Will: And this is an important lesson, Adam.
 
-[00:19:05] Adam: [unclear: No / I know], and it’s because it's because I was buying the television at Best Buy, and the guys at Best Buy are awesome. And then he's like, " Oh yeah, we'll set you up with this TV." And this other guy comes over and he goes, " Hey, are you going to plug that TV into the wall?" And I'm like, that's the plan. He’s like, [unclear: you’re going to need a power scrubber for that / you’re going to need a power scrubber, you’re going to need a power scrubber for that]. And I'm like, no, I won't. It's got a transform built right in. And he goes, no, you really need a power scrubber. And I said, who do you think you're talking to?
+[00:19:05] Adam: [unclear: No / I know], and it’s because it's because I was buying the television at Best Buy, and the guys at Best Buy are awesome. And then he's like, " Oh yeah, we'll set you up with this TV." And this other guy comes over and he goes, " Hey, are you going to plug that TV into the wall?" And I'm like, that's the plan. He’s like, [unclear: you’re going to need a power scrubber for that / you’re going to need a power scrubber, you’re going to need a power scrubber for that]. And I'm like, no, I won't. It's got a transformer built right in. And he goes, no, you really need a power scrubber. And I said, who do you think you're talking to?
 
 [00:19:05] Kayte: Oh.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:19:48] Will: He was like, " Hey, you know, I appreciate you doing that." He was very cool about it, but he also he was kind of broken and sad. And I was like, " Oh, I made this person feel really, really bad." But also, he was kind of scamming a nice old lady.
 
-[00:20:32] Adam: So, I mean, and it's he's only being forced to scam by his bosses who are giving him quotas to hit and all that stuff. I don't blame the on the ground. I don't blame the on the ground employees. All of this is a long way of saying that after my kids broke my television, it required a response, and the response was no television all summer.
+[00:20:32] Adam: So, I mean, and it's he's only being forced to scam by his bosses who are giving him quotas to hit and all that stuff. I don't blame the on the ground employees. All of this is a long way of saying that after my kids broke my television, it required a response, and the response was no television all summer.
 
 [00:20:32] Will: Oh wow!
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:27:03] Will: is it good? I've been afraid to.
 
-[00:27:04] Kayte: Yeah, so I'm partial to the new the new hosts are Sandy and Noel, and I'm a huge fan of Mighty Boosh with Noel Fielding and QI. The new host is Sandy,
+[00:27:04] Kayte: Yeah, so I'm partial to the new the new hosts are Sandi and Noel, and I'm a huge fan of Mighty Boosh with Noel Fielding and QI. The new host is Sandi,
 
 [00:27:04] Adam: Yeah.
 

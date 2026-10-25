@@ -172,9 +172,9 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:05:33] Adam: I'm not even kidding. There's an entire episode of. Okay, first of all, this last season turns out all to be about Shosh. Shosh is my favorite girl.
 
-[00:05:42] Norm: Shoshana.
+[00:05:42] Norm: Shoshanna.
 
-[00:05:43] Adam: Shoshana, played by David Mamet's daughter, who is just brilliant, and she goes to Japan.
+[00:05:43] Adam: Shoshanna, played by David Mamet's daughter, who is just brilliant, and she goes to Japan.
 
 [00:05:51] Norm: Her characterization. She's the naive one.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:09:51] Norm: funny shows about realistic people.
 
-[00:09:53] Adam: So, what warmed me up to it is one of the great dramatic comedies. Thank you for pointing out that category ever made is Sports Night, which is Aaron Sorkin's first show. Felicity Huffman, Josh Molina, Robert Guillaume. I mean, it it is a masterpiece of a show. It only went for two seasons. Clark Gregg shows up at the end. William H Macy. It's phenomenal. In fact, it's something that I want to do on tested, and it's a long term plan to do
+[00:09:53] Adam: So, what warmed me up to it is one of the great dramatic comedies. Thank you for pointing out that category ever made is Sports Night, which is Aaron Sorkin's first show. Felicity Huffman, Josh Malina, Robert Guillaume. I mean, it it is a masterpiece of a show. It only went for two seasons. Clark Gregg shows up at the end. William H Macy. It's phenomenal. In fact, it's something that I want to do on tested, and it's a long term plan to do
 
 [00:10:16] Unknown speaker: Where you watch it.
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:14:24] Will: yeah. Well, we're figuring it out. Yeah, this good presidents and bad presidents, Adam.
 
-[00:14:30] Adam: You know the the the thing I'm curious about how the show will treat this Hamilton sort of ghost running of Adam's entire cabinet.
+[00:14:30] Adam: You know the the the thing I'm curious about how the show will treat this Hamilton sort of ghost running of Adams's entire cabinet.
 
 [00:14:37] Norm: Exactly, and it was one of the reasons I wanted to watch the show.
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:25:08] Will: Oh yeah, it's it's great.
 
-[00:25:10] Adam: I did still keep hearing Tony Cho’s every frame of painting about Jackie Chan's fight scene choreography because the Russo brothers also cut on the punches. Like American directors,
+[00:25:10] Adam: I did still keep hearing Tony Zhou’s Every Frame a Painting about Jackie Chan's fight scene choreography because the Russo brothers also cut on the punches. Like American directors,
 
 [00:25:23] Norm: and they crank up their their shutter, so everything was a little bit faster. That scene in the airport. I mean, I I would only say and it’s a masterpiece of choreography and and fight writing because you're talking about eight characters that you have to juggle back and forth, give them individual moments.
 
@@ -892,9 +892,9 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:31:12] Will: Phase One. Of the Marvel, like the the like you said, the the Tony Stark arc feels like it could be over at this point, right? I mean, I don't think it is, obviously, but but they opened up a new arc in the in the future and dumped off a lot of the baggage in the form of Gwyneth Paltrow and and and
 
-[00:31:29] Adam: I’m sad Gwyneth wasn't in this movie. I love her Pepper Pots.
+[00:31:29] Adam: I’m sad Gwyneth wasn't in this movie. I love her Pepper Potts.
 
-[00:31:32] Will: She's a great Pepper Pots,
+[00:31:32] Will: She's a great Pepper Potts,
 
 [00:31:34] Norm: and her not being there kind of kind of explains why you know he has no conscience, like he can go completely like there's no balance. He's in this turmoil, emotional turmoil.
 

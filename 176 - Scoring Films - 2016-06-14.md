@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:02:36] Will: day is a fantasy camp day in some way.
 
-[00:02:38] Adam: So we talked about what we talked about was the fact that tested was at the Paramount fan event for Star Trek Beyond. We saw Carl Urban, Chris Pine, Zachary Quinto, Justin Lin, J. J. Abrams talking about the film, and then from that, I went to a. It's a secret. It's a secret conclave of nerds. I I met up with a secret conclave of nerds. The
+[00:02:38] Adam: So we talked about what we talked about was the fact that tested was at the Paramount fan event for Star Trek Beyond. We saw Karl Urban, Chris Pine, Zachary Quinto, Justin Lin, J. J. Abrams talking about the film, and then from that, I went to a. It's a secret. It's a secret conclave of nerds. I I met up with a secret conclave of nerds. The
 
 [00:03:04] Norm: cabal of nerds.
 

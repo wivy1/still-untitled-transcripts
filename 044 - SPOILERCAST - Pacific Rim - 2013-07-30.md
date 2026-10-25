@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:07:32] Unknown speaker: the Dark Knight Rises.
 
-[00:07:33] Will: it was it was like the back of a yeah it was like the back of a of an armored car not like duffel bags that was amazing
+[00:07:33] Will: it was like the back of a of an armored car not like duffel bags that was amazing
 
 [00:07:39] Adam: awesome so anyway Con Air back to this Con Air just come out
 

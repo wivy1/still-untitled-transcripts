@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:00:46] Adam: Yeah.
 
-[00:00:47] Adam: Yesterday morning, coming back from coffee, heading north on Valencia, I had trouble moving forward on the one wheel because of the strength of the wind.
+[00:00:47] Adam: Yesterday morning, coming back from coffee, heading north on Valencia, I had trouble moving forward on the Onewheel because of the strength of the wind.
 
 [00:00:55] Will: Wow. Our power went out. Because of the wind in Pacifica,
 
@@ -664,7 +664,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:25:09] Will: no, thank you.
 
-[00:25:11] Adam: No, I was riding back from coffee yesterday morning on the one wheel, and I was moving at about the one wheel can go up to like 15 miles an hour on a random street.
+[00:25:11] Adam: No, I was riding back from coffee yesterday morning on the Onewheel, and I was moving at about the Onewheel can go up to like 15 miles an hour on a random street.
 
 [00:25:21] Will: It's a little scary.
 
@@ -676,7 +676,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:25:36] Will: Yeah,
 
-[00:25:36] Adam: you try not to get too rigid on the one wheel because then it'll pop you right off.
+[00:25:36] Adam: you try not to get too rigid on the Onewheel because then it'll pop you right off.
 
 [00:25:40] Will: Stay floppy.
 
@@ -850,7 +850,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:32:11] Will: Yeah.
 
-[00:32:11] Adam: A river of shadows is Rebecca Solnit's book about Edward Muybridge and the invention of cinema, and it's a stunning bit of cultural work. It's a it's a fundamentally different kind of biography, but really worth reading if you're wondering, and it's a pretty quick read.
+[00:32:11] Adam: A river of shadows is Rebecca Solnit's book about Eadweard Muybridge and the invention of cinema, and it's a stunning bit of cultural work. It's a it's a fundamentally different kind of biography, but really worth reading if you're wondering, and it's a pretty quick read.
 
 [00:32:26] Will: What color lightsaber did you get, Norm?
 

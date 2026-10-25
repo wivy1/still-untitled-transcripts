@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:11:18] Norm: Yep, absolutely.
 
-[00:11:19] Adam: Like we filmed, we filmed the one wheel
+[00:11:19] Adam: Like we filmed, we filmed the Onewheel
 
 [00:11:19] Norm: yep
 
@@ -354,15 +354,15 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:26:02] Laura Kampf: It's in German, but I can send you a link.
 
-[00:26:06] Norm: You know, we have Maker Fair in the US coming up, the flagship Bay Area Maker Fair. What is the Maker Fair equivalent over there? Are there Maker Fairs, and what what are those conventions like?
+[00:26:06] Norm: You know, we have Maker Faire in the US coming up, the flagship Bay Area Maker Faire. What is the Maker Faire equivalent over there? Are there Maker Faires, and what what are those conventions like?
 
 [00:26:16] Laura Kampf: Yeah, I've only been to one last year in Hanover, and it was interesting. I think the German mind, in general, needs to adapt a little bit more to the whole maker. Was that maker? Was that mindset? Yeah,
 
 [00:26:34] Simone: mentality.
 
-[00:26:35] Laura Kampf: Yeah, yeah, mentality. Exactly, because we, if you want to be a carpenter, you you go to Like you do the bachelor thing in three years, and then you do the master. So you do years and years and years of training, and then you can do this one thing. And we are very, very proud of this degree of quality we have in our craftsmanship. But that is pretty much the opposite of the maker mind of okay, I will, I will try it. I will try different disciplines. I will just get my feet wet and go for it, and not be afraid to fail and try it again if it doesn't work. So I think there's a bit of a different mindset there. Yeah. But we will get there at some point. And they are maker fairs that maker fairs, and they're getting bigger and they're spreading out more. And I hope we get one in Cologne soon. So yeah.
+[00:26:35] Laura Kampf: Yeah, yeah, mentality. Exactly, because we, if you want to be a carpenter, you you go to Like you do the bachelor thing in three years, and then you do the master. So you do years and years and years of training, and then you can do this one thing. And we are very, very proud of this degree of quality we have in our craftsmanship. But that is pretty much the opposite of the maker mind of okay, I will, I will try it. I will try different disciplines. I will just get my feet wet and go for it, and not be afraid to fail and try it again if it doesn't work. So I think there's a bit of a different mindset there. Yeah. But we will get there at some point. And they are maker faires that maker faires, and they're getting bigger and they're spreading out more. And I hope we get one in Cologne soon. So yeah.
 
-[00:27:20] Adam: Uh, you'll you'll the the mothership maker fair here in San Mateo this weekend is um, it's really inspiring. Yeah. It's inspiring to see all the things that people are making, but the sheer energy. I've been going there every year since its inception, and it feels like it's growing by like fifty percent every single year, and the energy. Just in the space of, not just wow, look at those amazing things that other people are doing, but also look at what I could do. And that's really the ethos, I think, is that it's not like, well, I don't, I don't want to talk about the materials I use because it's a proprietary process. It's all about sharing, and I mean that's why we all make videos, yeah, because we want to, we want to share because we got so much from watching what other people do.
+[00:27:20] Adam: Uh, you'll you'll the the mothership maker faire here in San Mateo this weekend is um, it's really inspiring. Yeah. It's inspiring to see all the things that people are making, but the sheer energy. I've been going there every year since its inception, and it feels like it's growing by like fifty percent every single year, and the energy. Just in the space of, not just wow, look at those amazing things that other people are doing, but also look at what I could do. And that's really the ethos, I think, is that it's not like, well, I don't, I don't want to talk about the materials I use because it's a proprietary process. It's all about sharing, and I mean that's why we all make videos, yeah, because we want to, we want to share because we got so much from watching what other people do.
 
 [00:28:04] Laura Kampf: Yeah, that's actually a comment I get a lot. Like, you, you shouldn't, um, you shouldn't share all that. You should keep those secrets. You should try to get a patent for it. And like, no, I mean the video is actually the final product, not the product itself. So I couldn't care less about the things that I built. They just float around somewhere. Anyway, I keep them, and sometimes I give them away. But it's not about that. It's about the video, and it's about sharing, and it's about learning from others and giving back because I watch so many videos.
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:32:14] Laura Kampf: I might be really good at it.
 
-[00:32:15] Adam: In which the opponent box around and then play a speed round of chess, and then box another round and play a speed round of chess.
+[00:32:15] Adam: In which the opponent box a round and then play a speed round of chess, and then box another round and play a speed round of chess.
 
 [00:32:23] Norm: And the strategy is you can be really good at one or the other, and so if you want to beat your opponent into submission, maybe they won't be so good at chess afterwards.
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:36:07] Simone: But yeah, I'm happy to see that you're hanging out. I like all of you very much.
 
-[00:36:19] Norm: Awesome. Well, I think that's a good place I need to stop. Laura’s gonna be around. Your like your first day here, so we'll be doing more stuff with you. Thanks for hanging out with us.
+[00:36:19] Norm: Awesome. Well, I think that's a good place as any to stop. Laura’s gonna be around. Your like your first day here, so we'll be doing more stuff with you. Thanks for hanging out with us.
 
 [00:36:28] Laura Kampf: Thank you for having me.
 

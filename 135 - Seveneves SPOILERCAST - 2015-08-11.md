@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:05:47] Will: How humanity and and just to be clear, not an immediate apocalypse. I think they're looking at three or four years is how as the first part of the book.
 
-[00:05:54] Adam: Yeah. Yes. It's it's on the order of a couple of years at least, and so they've. There's time. There's time to sort of figure out, but he he keeps on oscillating wonderfully between a sort of the micro and the macro, right? He chooses characters who are science communicators, who are also in relationships of their own, so they're dealing on a personal level with the tragedy that is happening, but they're also dealing on a global level with the tragedy that is happening, and it it becomes quite riveting for that because Neil's very smart. He's thought about thought this through on many many different levels about how people would react to this,
+[00:05:54] Adam: Yeah. Yes. It's it's on the order of a couple of years at least, and so they've. There's time. There's time to sort of figure out, but he he keeps on oscillating wonderfully between a sort of the micro and the macro, right? He chooses characters who are science communicators, who are also in relationships of their own, so they're dealing on a personal level with the tragedy that is happening, but they're also dealing on a global level with the tragedy that is happening, and it it becomes quite riveting for that because Neal's very smart. He's thought about thought this through on many many different levels about how people would react to this,
 
 [00:06:29] Will: and and you know the fascinating parts. So the the book has three parts. If you read this, you know the book has three parts. The first part deals with the aftermath of the of the event. I think they call it right. So e plus zero to three years when the hard rain starts.
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:10:25] Will: yeah either works
 
-[00:10:26] Adam: and they start flying resources up so at one point the Neil deGrasse Tyson character's son and he go up to Oregon where they've got a a space facility where they're firing rockets every single day getting resources up onto Izzie and the re the like they're calling them what do they call the the the the What are they
+[00:10:26] Adam: and they start flying resources up so at one point the Neil deGrasse Tyson character's son and he go up to Oregon where they've got a a space facility where they're firing rockets every single day getting resources up onto Izzy and the re the like they're calling them what do they call the the the the What are they
 
 [00:10:49] Will: pods?
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:12:38] Will: without you know without gravity. So this is the place where my question is: Is the plan built by man by people on Earth designed by people on Earth a sinecure to Make the people that are going to get left behind not fall into chaos, or is this actually a good faith attempt to secure the future of humanity? And I think it's a sinecure.
 
-[00:13:03] Adam: I think it's a little bit of both. I think it's a little bit of both. I I think that if it's going to work, yeah. And he he addresses that
+[00:13:03] Adam: I think it's a little bit of both. I I think that if it's going to work, yeah. And he he addresses that
 
 [00:13:11] Will: kind of, but not not explicitly.
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:15:46] Adam: We got to have him on.
 
-[00:15:47] Will: Pat's wonderful. I got to talk to him at Comic Con this year. He's done the light.
+[00:15:47] Will: Pat's wonderful. I got to talk to him at Comic Con this year. He's a delight.
 
 [00:15:50] Adam: One thing I had forgotten is that Pat Rothfuss has one of the loveliest voices of any writer I have ever.
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:18:13] Will: like literally as the world is
 
-[00:18:14] Adam: as the world is ending. Neil has an an amazing ear for that that oscillation between the micro and the macro.
+[00:18:14] Adam: as the world is ending. Neal has an an amazing ear for that that oscillation between the micro and the macro.
 
 [00:18:24] Will: It's just it's astounding because, like I said, the things that had the biggest impact were the smallest, smallest things, the loss of some robots or the you know something that that yeah
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:25:19] Will: like yeah.
 
-[00:25:21] Adam: Again, as a commentary, I I I appreciate you know, like I said, I know Neil; he's a friend of mine, and I think we have very similar politics. And you know, he was making a real he was making a point, and it's a really good and important point.
+[00:25:21] Adam: Again, as a commentary, I I I appreciate you know, like I said, I know Neal; he's a friend of mine, and I think we have very similar politics. And you know, he was making a real he was making a point, and it's a really good and important point.
 
 [00:25:34] Will: Yeah,
 
@@ -792,7 +792,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:34:34] Will: The fact that there's a spoiler is a spoiler.
 
-[00:34:36] Adam: It is. Don't even tell her that that chicken the crying game is a man.
+[00:34:36] Adam: It is. Don't even tell her that that chick in the crying game is a man.
 
 [00:34:40] Will: Here's the thing. If people ask, if you recommend the book to people, tell them the moon blows up in the first sentence, and it's about it's about you know society and human civilization collapsing. Yeah. That's enough. If people don't want to read it based on that, they're not going to want to read it. Right. So,
 
@@ -808,7 +808,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:35:15] Will: Yeah, this is far and away my favorite book that he's written.
 
-[00:35:19] Adam: Oh, that's a good question. I haven't even thought on that scale. But we we we we're going to have to get Neil onto the talk.
+[00:35:19] Adam: Oh, that's a good question. I haven't even thought on that scale. But we we we we're going to have to get Neal onto the talk.
 
 [00:35:24] Will: I would. We've
 
@@ -816,7 +816,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:35:26] Will: it. We we've gotten halfway there, and then yeah, yeah.
 
-[00:35:27] Adam: We're going to get Neil onto the talking room because he's he's a friend of tested friend of mine, and he's wonderful.
+[00:35:27] Adam: We're going to get Neal onto the talking room because he's he's a friend of tested friend of mine, and he's wonderful.
 
 [00:35:33] Will: I want to. I want to. Yeah. I mean, he's not going. He's good. I mean, go and tell you. He's not going to tell you anything that you want to know about the book. Oh,
 
@@ -836,7 +836,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:35:55] Will: Or if he doesn't read the book, we'll just do it in a couple weeks.
 
-[00:35:57] Adam: Read the book. Read the book. It's really vital that you read this book. It's. I mean, I'm gratified by how many people have tweeted and put up on Tesla that they read The Martian because of the stuff that we talked about. Because The Martian's an amazing book. Seveneves, also completely amazing, and I can't recommend it enough.
+[00:35:57] Adam: Read the book. Read the book. It's really vital that you read this book. It's. I mean, I'm gratified by how many people have tweeted and put up on Tested that they read The Martian because of the stuff that we talked about. Because The Martian's an amazing book. Seveneves, also completely amazing, and I can't recommend it enough.
 
 [00:36:15] Will: People have asked for recommendations. I haven't read it yet, but I've heard amazing things about Kim Stanley Robinson's new book.
 

@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:02:32] Will: That's that's. I mean, can you imagine how hard it is to sing Julie Andrews songs with Julie Andrews standing waiting in the wings?
 
-[00:02:39] Adam: No, insane insanity, and she killed it. I also thought that a lot of the. I thought that a lot of the complaints were totally warranted, as they almost always are. But I thought the speeches were in particular were in particular excellent this year.
+[00:02:39] Adam: No, insane insanity, and she killed it. I also thought that a lot of the complaints were totally warranted, as they almost always are. But I thought the speeches were in particular were in particular excellent this year.
 
 [00:02:54] Will: The acceptance speeches.
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:23:06] Adam: Legacy Effects, by the way, the old Stan Winston Studios. Go ahead.
 
-[00:23:29] Norm: Um, of the eight films nominated for best picture, most of them actually independently produced and funded, not studio picks. I think Selma was a studio pick. When we were talking about Birdman, an indie movie, you know, Boyhood, IFC, indie movie, and it. They're not, you know. They some of those become mainstream movies. American Sniper was the other, the other, the big studio movie.
+[00:23:29] Norm: Um, of the eight films nominated for best picture, most of them actually independently produced and funded, not studio pics. I think Selma was a studio pic. When we were talking about Birdman, an indie movie, you know, Boyhood, IFC, indie movie, and it. They're not, you know. They some of those become mainstream movies. American Sniper was the other, the other, the big studio movie.
 
 [00:23:32] Adam: Yeah.
 

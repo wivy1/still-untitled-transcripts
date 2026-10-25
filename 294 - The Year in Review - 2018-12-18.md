@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:00:24] Norm: and that's just because Will had a hard out, but also because this is our last day with you, Adam, essentially for this year. You're traveling,
 
-[00:00:30] Adam: yeah, absolutely. My wife and I are going on a Christmas trip starting early next week. Where we're going is my business. We’re gonna—this is a family trip, but yeah, today is crowded. We've just shot some of my favorite things for the year, and the reason Kayte is here is because you're shooting your favorite things, and we did a compend a video. It's a shame we didn't cover this entire build, but we're gonna. We have a bunch of shots. We have a ton of build photos of this incredible thing which you just completed. The blimp from Blade Runner, a nearly irreplicable. Is that a word? Irreplicable. A nearly irreplicable prop that we replicated with help from incredible model maker extraordinaire Jason Eaton. He put together this this kit. I bought it from him a couple of years ago, and then you and I were talking earlier this year, and I realized, Kate, do you want to do this put together the blimp?
+[00:00:30] Adam: yeah, absolutely. My wife and I are going on a Christmas trip starting early next week. Where we're going is my business. We’re gonna—this is a family trip, but yeah, today is crowded. We've just shot some of my favorite things for the year, and the reason Kayte is here is because you're shooting your favorite things, and we did a compend a video. It's a shame we didn't cover this entire build, but we're gonna. We have a bunch of shots. We have a ton of build photos of this incredible thing which you just completed. The blimp from Blade Runner, a nearly irreplicable. Is that a word? Irreplicable. A nearly irreplicable prop that we replicated with help from incredible model maker extraordinaire Jason Eaton. He put together this this kit. I bought it from him a couple of years ago, and then you and I were talking earlier this year, and I realized, Kayte, do you want to do this put together the blimp?
 
 [00:01:27] Norm: I mean, you both had just finished the Star Child from 2001: Space Odyssey, and and you guys had so much fun. I could tell working on that. That this, and I had seen this sitting on your shelf, Adam, for years, taunting, kind of taunting you,
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:12:06] Kayte: When you when you see the photos of the original model, you can tell that they actually have this really. Great fine mesh as as your screen that's right on there, and I love that texture and that look.
 
-[00:12:15] Adam: That mesh is something that I want to have done in etched brass and put over ours. That’s the thing that I want to have done in etched brass and put over ours. That’s the last finishing touch to make our screen look more pixelated.
+[00:12:15] Adam: That mesh is something that I want to have done in etched brass and put over ours. That’s the last finishing touch to make our screen look more pixelated.
 
 [00:12:25] Kayte: Yes, I think that'll look really good. It'll add this like warmth and this grit to it too. Yeah,
 
@@ -196,13 +196,13 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:14:44] Unknown (Kayte or Norm): Wow!
 
-[00:14:44] Adam: It had so that weighed like eighteen or twenty pounds, and so that's it's a nice small base, but it’s not a big deal, it’s not a big deal, it’s not a that will hold this thing really rigidly. But then as we were looking at it on that base, we realized you want to look at both sides of it. So this past Saturday, I came in and I. I hacked apart a vacuum cleaner's retractable plug, and used the brass slip rings. And I machined them into a poplar, a set of poplar boards that I machined into round that perfectly match the circumference of the steel plate. So that basically, it's a long way of saying now you plug it in with a single plug, and you can spin it 360 all you want. It stays powered.
+[00:14:44] Adam: It had so that weighed like eighteen or twenty pounds, and so that's it's a nice small base that will hold this thing really rigidly. But then as we were looking at it on that base, we realized you want to look at both sides of it. So this past Saturday, I came in and I. I hacked apart a vacuum cleaner's retractable plug, and used the brass slip rings. And I machined them into a poplar, a set of poplar boards that I machined into round that perfectly match the circumference of the steel plate. So that basically, it's a long way of saying now you plug it in with a single plug, and you can spin it 360 all you want. It stays powered.
 
 [00:15:25] Kayte: And that's that's what's great too is because there are so many angles to it. Is it would it would be a shame if it was you know positioned in one place and you couldn't see the backside or you couldn't see here or there. So it's nice to be able to get a full view.
 
 [00:15:38] Norm: That's where you find a high voltage slip ring.
 
-[00:15:40] Adam: Yeah, yeah, you have to make your own. I I I keep these these Rockler makes some beautiful heavy duty bearings every every size from like six inches up to 24 inches. One of them's in the neck of my R2D2, but they're very very rigid. And as long as you engineer them correctly, they can be a really really robust. Lazy Susan with a big fat hole in the middle, so this thing doesn't rock or rattle or anything. Yeah, no, it's always an ongoing process to figure out how to. Once it's done, you want to see it, and I was surprised how much how disappointing it was for us when it was first completed on the table that it was hard to see it and I was surprised how much how disappointing it was for us when it was first completed on the table that it was hard to turn it around,
+[00:15:40] Adam: Yeah, yeah, you have to make your own. I I I keep these these Rockler makes some beautiful heavy duty bearings every every size from like six inches up to 24 inches. One of them's in the neck of my R2D2, but they're very very rigid. And as long as you engineer them correctly, they can be a really really robust. Lazy Susan with a big fat hole in the middle, so this thing doesn't rock or rattle or anything. Yeah, no, it's always an ongoing process to figure out how to. Once it's done, you want to see it, and I was surprised how much how disappointing it was for us when it was first completed on the table that it was hard to turn it around,
 
 [00:16:22] Kayte: right?
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:16:34] Adam: Yeah. It's a whole experience. It's coming home. It's gonna. This one gets curated into my home office. It's it's so beautiful, and also, I mean, honestly, if it was here in the cave, it would get torn to shreds. It is such a delicate model. I'm not even sure how I'm going to transfer it the few blocks from here to home.
 
-[00:16:52] Kayte: Not on your one wheel, right?
+[00:16:52] Kayte: Not on your Onewheel, right?
 
 [00:16:53] Adam: No, but I'm not sure I can get in a car with it.
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:17:34] Adam: it'll tease the video.
 
-[00:17:36] Norm: Hey, everybody, Norm here. And before we continue with this week's episode, I want to thank the sponsor that makes it possible, and that's OpsGenie by Atlassian. Because incidents happen, and they require complex coordination between operations and software development teams who are putting out fires every day. That's why getting alerts immediately is critical. Thankfully, there's OpsGenie by Atlassian. OpsGenie empowers Dev and ops teams to plan for service disruptions and stay in control during incidents. It also gives teams the power to respond quickly and efficiently to unplanned issues and helps notify all the right people through a smart combination of scheduling and escalation paths that account for things like time zones and holidays. Better yet, OpsGenie allows for deep flexibility in how, when, and where alerts are deployed and how to respond quickly and efficiently to unplanned issues and helps notify all the right with over 200 integrations like Jira, Amazon CloudWatch, Datadog, New Relic, and more. Plus, it tracks all activity and provides useful insights to improve future incident responses. It's services like OpsGenie that allow the other services that you rely on and you use so frequently, especially during this holiday season, to stay up and running without service interruptions because those engineers are on it. With OpsGenie, your next incident doesn't stand a chance. Visit OpsGenie.com to sign up for a free company account and add up to five team members. That's OpsGenie.com. Never miss a critical alert again with OpsGenie. Now back to the conversation.
+[00:17:36] Norm: Hey, everybody, Norm here. And before we continue with this week's episode, I want to thank the sponsor that makes it possible, and that's OpsGenie by Atlassian. Because incidents happen, and they require complex coordination between operations and software development teams who are putting out fires every day. That's why getting alerts immediately is critical. Thankfully, there's OpsGenie by Atlassian. OpsGenie empowers Dev and ops teams to plan for service disruptions and stay in control during incidents. It also gives teams the power to respond quickly and efficiently to unplanned issues and helps notify all the right people through a smart combination of scheduling and escalation paths that account for things like time zones and holidays. Better yet, OpsGenie allows for deep flexibility in how, when, and where alerts are deployed with over 200 integrations like Jira, Amazon CloudWatch, Datadog, New Relic, and more. Plus, it tracks all activity and provides useful insights to improve future incident responses. It's services like OpsGenie that allow the other services that you rely on and you use so frequently, especially during this holiday season, to stay up and running without service interruptions because those engineers are on it. With OpsGenie, your next incident doesn't stand a chance. Visit OpsGenie.com to sign up for a free company account and add up to five team members. That's OpsGenie.com. Never miss a critical alert again with OpsGenie. Now back to the conversation.
 
 [00:18:58] Adam: Norm, what are you doing for the holidays?
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:19:41] Adam: with the folks from Weta and Peter Jackson and Richard Taylor.
 
-[00:19:44] Norm: Yep. And then and then went back to to chat with Peter Jackson about Mortal Engines. It's I mean, like I don’t think because I mean I don’t think I don’t think I don’t think I don’t think I think I'm putting you in spot a little bit, but like going back, I think if you look at photos of the cave. At the beginning of the year, like these spacesuits weren't here.
+[00:19:44] Norm: Yep. And then and then went back to to chat with Peter Jackson about Mortal Engines. It's I mean, like I don’t think because I mean I don’t think I think I'm putting you in spot a little bit, but like going back, I think if you look at photos of the cave. At the beginning of the year, like these spacesuits weren't here.
 
 [00:19:57] Adam: No, no, it became a much. So I knew this at the beginning of eighteen that spacesuits were going to become more prominent because we're entering two thousand nineteen, the fiftieth anniversary of Apollo eleven. NASA is very near and dear to my heart. First man came out this year. Ryan Nagata and his incredible work are showcased in that film, as well as Chris Gilman from Global Effects, and I have some of their pieces here. We also went to three cons. We did Silicon Valley Comic Con, San Diego Comic Con, and New York Comic Con. All three really unique cons with different cultures. It's it it has been a terrific from a tested standpoint. It has been a terrific year on the politics front. It's been an absolute shit show. It's it's stressful for everyone. I don't care what side of the aisle you are on. It's been a stressful year for us. But like the making aspect of of of you know reaching out, encouraging people to make has felt really like it's been a great saturated year for that.
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:21:27] Kayte: Yeah,
 
-[00:21:27] Adam: that's the lovely thing about this is Tested. It feels like a family, and the family just keeps expanding in a in a tangible and manageable way that feels really lovely. Yeah. Also, there's been Savage Industries, my my my bad company with Mafia. We've sold thousands of pieces to people. I can't describe how intoxicating it is to make things that people use.
+[00:21:27] Adam: that's the lovely thing about this is Tested. It feels like a family, and the family just keeps expanding in a in a tangible and manageable way that feels really lovely. Yeah. Also, there's been Savage Industries, my my my bag company with Mafia. We've sold thousands of pieces to people. I can't describe how intoxicating it is to make things that people use.
 
 [00:21:50] Kayte: I have stickers on everything that say Savage Industries now.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:23:25] Kayte: Yes, exactly. The I think the levee breaking was an issue at one point. The fires have been pounding them, but still there.
 
-[00:23:33] Norm: And what a big year for you too, Kate! Like a lot of first conventions for you.
+[00:23:33] Norm: And what a big year for you too, Kayte! Like a lot of first conventions for you.
 
 [00:23:36] Kayte: Oh, yeah, exactly. I went to at least five conventions this year. All all my firsts.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:23:49] Adam: a gentle con if there ever was one.
 
-[00:23:50] Kayte: And then I think I did Maker Faire after that, Monster Palooza after that, then San Diego Comic Con was a big shock, and then I even got to go to New York Comic Con as well. So I got to Go all over the place and really get immersed in in it. And being there with you guys was a great introduction. I mean, there's no better way.
+[00:23:50] Kayte: And then I think I did Maker Faire after that, Monsterpalooza after that, then San Diego Comic Con was a big shock, and then I even got to go to New York Comic Con as well. So I got to Go all over the place and really get immersed in in it. And being there with you guys was a great introduction. I mean, there's no better way.
 
 [00:24:08] Adam: No, it feels like our family, and each one feels like different aspects of our family. And we have relationships with the folks behind the scenes and in front of the cameras. It's it's. I've been going to cons now for eleven or twelve years, and in the last couple, it has started to feel just like family reunions at each one.
 

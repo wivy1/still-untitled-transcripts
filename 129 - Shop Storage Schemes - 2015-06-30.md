@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:18:20] Will: Because you usually need them at the same time, the way you work.
 
-[00:18:21] Adam: Yeah, you always need them at the same time. In fact, when I am doing a job where I've got to like drill and tap like twenty five, ten, twenty four holes, I'll use three drills. That is a benefit I have having many many drills in this shop. But you know, so I got one drill for the tap drill, one drill for the tap, and then a third drill for the through hole, so I can move really quickly.
+[00:18:21] Adam: Yeah, you always need them at the same time. In fact, when I am doing a job where I've got to like drill and tap like twenty five 10-24 holes, I'll use three drills. That is a benefit I have having many many drills in this shop. But you know, so I got one drill for the tap drill, one drill for the tap, and then a third drill for the through hole, so I can move really quickly.
 
 [00:18:42] Will: Um, one of the things.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:22:22] Will: I'm aware. So yeah, that's. I mean, I think I think that's is there anything else? See, we've talked about that. You've emptied out a lot of the drawers above. Like you have all these little chests all over the place, and you've cleaned out a bunch of those.
 
-[00:22:35] Adam: I'm going to make another rolling rack. I'm definitely going to get rid of. I'm definitely going to get rid of the drawer for screwdrivers.
+[00:22:35] Adam: I'm going to make another rolling rack. I'm definitely going to get rid of the drawer for screwdrivers.
 
 [00:22:43] Will: It seems like screwdrivers could fill another rack about the size of the one you have now.
 

@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:35:20] Adam: And I'm not even sure. I mean, I recognize that it's that there's a lot of classism going on there, but I don't feel like that's the emotional center of why they do and don't get together. I just there's a way in which there's depth to both of those characters revealed in the middle of the film that to me is the the sort of the the center of gravity of Philadelphia's story, and His Girl Friday has none.
 
-[00:35:45] Norm: Doesn't have that. Right, right. It's just it's very surface level for the laughs. It's a really interesting pairing comparison because the more I think about it, it's it's absolutely right. It's the same, essentially, very similar plots: a woman about to get married and an ex-cousin trying to get her back. But the way it all resolves and is very
+[00:35:45] Norm: Doesn't have that. Right, right. It's just it's very surface level for the laughs. It's a really interesting pairing comparison because the more I think about it, it's it's absolutely right. It's the same, essentially, very similar plots: a woman about to get married and an ex-husband trying to get her back. But the way it all resolves and is very
 
 [00:36:03] Adam: well. And everybody, everybody I've ever told Philadelphia stories, my one of my all-time favorite films, says, " Oh, you got to watch His Girl Friday. It's it's as good, if not better." And I mean, it is amazing, but for me, it's not nearly in the same category.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:38:26] Norm: It's called Cat People.
 
-[00:38:28] Adam: Cat People. It's the original Cat People, the one that was remade into a film with Natasha Kinsky. Ed Begley Jr. loses his arm, and it's not a great reboot. But the original Cat People, about a werewolf, effectively about people who turn into cats, is a genuinely scary kind of monster movie horror film.
+[00:38:28] Adam: Cat People. It's the original Cat People, the one that was remade into a film with Nastassia Kinski. Ed Begley Jr. loses his arm, and it's not a great reboot. But the original Cat People, about a werewolf, effectively about people who turn into cats, is a genuinely scary kind of monster movie horror film.
 
 [00:38:50] Norm: All right, I'm going to dig it up.
 

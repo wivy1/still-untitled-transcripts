@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:00:22] Will: He's a delightful human being.
 
-[00:00:23] Adam: Also, you know, along with Stuart Brand, like one of the Forrest Gumps of the internet.
+[00:00:23] Adam: Also, you know, along with Stewart Brand, like one of the Forrest Gumps of the internet.
 
 [00:00:29] Will: You need to explain that.
 
@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:00:47] Norm: And of all the people we know, and We spent a lot of time with people we know thinking about the future. He's been thinking about quote unquote what the future is for a very, very long time. He's still doing
 
-[00:00:56] Adam: [unclear: it today. I learned / also a guy who learned] when he was in high school. I want to make magazines. All I want to do is publish magazines. Like he's a Born and Brett, Adam Rogers is another one, right? Just like I want.
+[00:00:56] Adam: [unclear: it today. I learned / also a guy who learned] when he was in high school. I want to make magazines. All I want to do is publish magazines. Like he's a born and bred, Adam Rogers is another one, right? Just like I want.
 
 [00:01:06] Norm: I admire those people.
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:08:13] Will: Oh yeah, I did know about that, sorry.
 
-[00:08:17] Norm: On the other podcast that I was doing, like both Kishor, Jeremy, and I all recollected the moment we found out, and it will be for Star Trek fans one of those. Where were you when you found out Patrick Stewart was coming back?
+[00:08:17] Norm: On the other podcast that I was doing, like both Kishore, Jeremy, and I all recollected the moment we found out, and it will be for Star Trek fans one of those. Where were you when you found out Patrick Stewart was coming back?
 
 [00:08:30] Will: I was playing video games on the internet,
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:08:40] Norm: I got text.
 
-[00:08:40] Will: Oh, who texted you, Kishor?
+[00:08:40] Will: Oh, who texted you, Kishore?
 
 [00:08:46] Norm: No, Gary.
 
@@ -612,11 +612,11 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:22:37] Will: it more than once? He done. He did. He did something. He does the Tonys.
 
-[00:22:37] Unknown speaker: NBH is always good.
+[00:22:37] Unknown speaker: NPH is always good.
 
 [00:22:41] Adam: He's done the Tonys like a million times.
 
-[00:22:42] Will: Did you get NBH? He's good. He's been in movies. He was in Harold Kumar. That counts.
+[00:22:42] Will: Did you get NPH? He's good. He's been in movies. He was in Harold Kumar. That counts.
 
 [00:22:46] Adam: Except that I think that the one thing Oscars don't need more of is song and dance numbers.
 
@@ -796,7 +796,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:27:28] Adam: And I love every. That is the perfect movie up until
 
-[00:27:28] Norm: Aries.
+[00:27:28] Norm: Ares.
 
 [00:27:28] Adam: the aftermath of her crossing no man's land.
 
@@ -1084,7 +1084,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:34:15] Will: people.
 
-[00:34:15] Adam: The best picture winner goes to Bodie McBoatface.
+[00:34:15] Adam: The best picture winner goes to Boaty McBoatface.
 
 [00:34:18] Will: Yeah, ask the world con people how well it works for them. [unclear: Ask who / The Hugos]. The world con people. Oh
 
@@ -1138,7 +1138,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:35:52] Will: Oh no, no, no, yeah, I thought Skyfall was terrific. Spectre was merely okay.
 
-[00:35:57] Adam: Spectre's Batista is one of the villains in Spectre, right?
+[00:35:57] Adam: Spectre's Bautista is one of the villains in Spectre, right?
 
 [00:35:57] Will: Yes.
 
@@ -1274,11 +1274,11 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:38:32] Will: Yeah,
 
-[00:38:32] Adam: Yeah, yeah, yeah. Colby Smolder, Colby Smolders.
+[00:38:32] Adam: Yeah, yeah, yeah. Cobie Smolder, Cobie Smolders.
 
 [00:38:38] Will: Yeah, yeah, yeah.
 
-[00:38:40] Adam: I saw Colby Smolders backstage at the Emmys once.
+[00:38:40] Adam: I saw Cobie Smolders backstage at the Emmys once.
 
 [00:38:40] Will: Really?
 

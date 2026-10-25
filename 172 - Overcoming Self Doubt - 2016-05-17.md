@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:01:00] Norm: I love that movie. I watched it in a pairing with Pleasantville.
 
-[00:01:04] Will: I was going to say MTV.
+[00:01:04] Will: I was going to say EDtv.
 
 [00:01:05] Adam: Oh, Pleasantville, Reese Witherspoon, and Tobey Maguire.
 
@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:01:50] Will: Oh, okay.
 
-[00:01:51] Adam: so he's like the murderer from Sling Blade. He’s the producer. He's the producer from the big picture. I know I'm naming esoteric movies, but J.D. Walsh was in everything for the longest time.
+[00:01:51] Adam: so he's like the murderer from Sling Blade. He’s the producer. He's the producer from the big picture. I know I'm naming esoteric movies, but J.T. Walsh was in everything for the longest time.
 
 [00:01:51] Will: Okay.
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:02:33] Adam: I've been waiting my whole life to give that diatribe.
 
-[00:02:33] Will: Will/Adam]: Have—
+[00:02:33] [unclear: Will / Adam]: Have—
 
 [00:02:36] Will: So, have we talked about my WALL-E theory? Speaking of
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:04:31] Adam: When this is airing
 
-[00:04:43] Will: in our makers,
+[00:04:43] Will: in r/makers,
 
 [00:04:44] Adam: in our makers, that I repeatedly got the question: How do you deal with the fact that when? How do you deal with it when builds go really terribly and you feel terrible about it?
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:05:52] Adam: I was messing things up all day long then you guys went away Joey came back for us to wrap up the one day build just a couple of hours of extra work to finish it off and I actually talked to the camera and said this was maybe one of the rougher builds I've done now the work I was doing was really really highly precise you know hopefully museum quality replicas. Of of certain hardware that I wanted to get right. This is a collaboration I'm doing with somebody who does really amazing work, and I wanted to send them good parts. And I was just in the wrong zone, and I basically had most of a week in which I seriously. So, sorry, just to go back, the AMA repeatedly in our makers. What do you? Three different people asked long, involved questions about dealing with negative consequences from building, like what do you do when you're despondent about how something went. And they were catching me. But one, it was fascinating to me that that was a recurring question because it's an important one. But two, that question caught me right in the middle of one of the shittiest weeks I've had in a long time, a week in which I finished. I felt multiple times during the week, " Holy cow, I have no business making things."
 
-[00:07:07] Norm: Norm/Will]: Which like the fact that you would think that. We did not see that, but I mean,
+[00:07:07] [unclear: Norm / Will]: Which like the fact that you would think that. We did not see that, but I mean,
 
 [00:07:12] Adam: I just want to normalize the fact that that happens.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:11:48] Will: or or golfers trying to change their swing, or tennis players, or whatever. Yeah,
 
-[00:11:53] Adam: you know, look, there are ways in which you approach your practice. There are, you know, I would imagine. I think it is analogous, Norm. I think there are ways in which it's analogous. Like if you're a sports person, you’re, you’re attuned to what you know and don't know about your sport in a really deep way, and so I could see this being of like it's not like I'm not going to go out and if I'm a golfer, it's not like I'm not going to go out and play around, but I might play a very different round or on a very different course or with a very different mindset.
+[00:11:53] Adam: you know, look, there are ways in which you approach your practice. There are, you know, I would imagine. I think it is analogous, Norm. I think there are ways in which it's analogous. Like if you're a sports person, you’re, you’re attuned to what you know and don't know about your sport in a really deep way, and so I could see this being of like if I'm a golfer, it's not like I'm not going to go out and play around, but I might play a very different round or on a very different course or with a very different mindset.
 
 [00:12:26] Norm: Change the state.
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:14:13] Adam: Exactly. If you were if you if you always knew the outcome of what you were going to do, you might as you you'd just be rubber stamping something
 
-[00:14:13] Adam: Will/Adam]: every single
+[00:14:13] [unclear: Will / Adam]: every single
 
 [00:14:13] Adam: day.
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:15:04] Adam: Yeah.
 
-[00:15:04] Will: So, like, you have to find your own. You have to find your own kind of pace and rhythm.
+[00:15:04] Will: So, like, you have to find your own kind of pace and rhythm.
 
 [00:15:38] Norm: Have you ever felt that? We were saying earlier that feeling when you finish an awesome project. And you wonder, can you top this?
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:18:47] Adam: I think this.
 
-[00:18:48] Norm: Oh, so this weekend is Maker Faire Bay Area Maker Fair.
+[00:18:48] Norm: Oh, so this weekend is Maker Faire Bay Area Maker Faire.
 
 [00:18:48] Will: Oh, wait.
 
@@ -384,13 +384,13 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:19:35] Norm: I think so. I don't know the exact, but we're going to be covering it on the site. So we're very, very excited.
 
-[00:19:40] Will: I just want to see an army of them rolling up in Barcadero.
+[00:19:40] Will: I just want to see an army of them rolling up Embarcadero.
 
 [00:19:43] Adam: You and me both.
 
 [00:19:44] Will: Yeah. What would that do to traffic? Well, thank you guys for listening. We'll be back next week. See you at Maker Faire. Hopefully, if you see us, say hi.
 
-[00:19:44] Unknown speaker: Adam/Norm]: Absolutely.
+[00:19:44] [unclear: Adam / Norm]: Absolutely.
 
 [00:19:44] Will: Norm, are you going to be there shooting videos and stuff?
 

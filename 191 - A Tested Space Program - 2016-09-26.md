@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:08:30] Will: Oh no!
 
-[00:08:32] Adam: So the drill freezes into place, and the astronauts in these bulky suits who are asking for coolant changes. So the [unclear: Grooman / grooming] employees are coming over and changing out the igloo in their backpack for fresh ice. It's brilliant.
+[00:08:32] Adam: So the drill freezes into place, and the astronauts in these bulky suits who are asking for coolant changes. So the [unclear: Grumman / grooming] employees are coming over and changing out the igloo in their backpack for fresh ice. It's brilliant.
 
 [00:08:46] Will: [unclear: Oh / Paul], is this the coolant rig that you guys built?
 
@@ -172,11 +172,11 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:08:50] Norm: What did the what was that like? Was that the were those alien? Like what what was in that story? Who was changing the ice?
 
-[00:08:58] Adam: Oh, so it was [unclear: Grooman / grooming] employees. Okay. So the astronauts would just say, Grooman, can I get a change on my coolant? And the Grooman employees would come up and lift their backpack while they were working.
+[00:08:58] Adam: Oh, so it was [unclear: Grumman / grooming] employees. Okay. So the astronauts would just say, Grumman, can I get a change on my coolant? And the Grumman employees would come up and lift their backpack while they were working.
 
 [00:08:58] Norm: Got it. Got it.
 
-[00:08:58] Adam: So the the drill is stuck in the ice. And I can see that there there's some struts on the drill bit, and I can see they're using a wrench or a handle as like a J-bar to to wedge to sort of try and move the drill bit. But they're using it at the top of these struts, and I realize it'd be better if they used it at the bottom. So I radio. I'm like 10 feet from Mission Control, but I radio. Mission Control, this is Special Effects, and Sam Rattanarat, who was Capcom, says, " Go Special Effects." I said, " Be advised that the better better torsion will be gotten if the J-bar is placed on the surface of the drill bit rather than up the shaft." And then Gever Tulley, who is the the founder and and head of Brightworks School, the Tinker School based on making here in the Mission District in San Francisco, waved over to Tom. They know each other, and Tom said, " Do you have a suggestion?" And Gever started to talk, and Tom said, " Come up here and say it into the microphone."
+[00:08:58] Adam: So the the drill is stuck in the ice. And I can see that there there's some struts on the drill bit, and I can see they're using a wrench or a handle as like a J-bar to to wedge to sort of try and move the drill bit. But they're using it at the top of these struts, and I realize it'd be better if they used it at the bottom. So I radio. I'm like 10 feet from Mission Control, but I radio. Mission Control, this is Special Effects, and Sam Ratanarat, who was Capcom, says, " Go Special Effects." I said, " Be advised that the better better torsion will be gotten if the J-bar is placed on the surface of the drill bit rather than up the shaft." And then Gever Tulley, who is the the founder and and head of Brightworks School, the Tinker School based on making here in the Mission District in San Francisco, waved over to Tom. They know each other, and Tom said, " Do you have a suggestion?" And Gever started to talk, and Tom said, " Come up here and say it into the microphone."
 
 [00:09:56] Will: That's amazing.
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:10:04] Norm: Oh right right right.
 
-[00:10:05] Adam: So Gever gets on and says, without missing a beat. Shackleton One, this is Brightworks Control. We have advice for removing the drill from the thing. And then Adam Steltzner from JPL, the mission commander of Curiosity, gets up on stage, and he and Tom and I and Gever and and and Tomazi all start to problem solve, getting this drill out of the ice. And it takes us about half an hour. Many of the struts are breaking. There's a whole crowd of people watching and monitors all over the galleries. And when we actually got through the ice, the crowd went ballistic. I mean, this was this. It's more than performance. It really is a mission, and the audience is involved on this level. Finds themselves involved in the work on this level. That's really thrilling.
+[00:10:05] Adam: So Gever gets on and says, without missing a beat. Shackleton One, this is Brightworks Control. We have advice for removing the drill from the thing. And then Adam Steltzner from JPL, the mission commander of Curiosity, gets up on stage, and he and Tom and I and Gever and and and Tommaso all start to problem solve, getting this drill out of the ice. And it takes us about half an hour. Many of the struts are breaking. There's a whole crowd of people watching and monitors all over the galleries. And when we actually got through the ice, the crowd went ballistic. I mean, this was this. It's more than performance. It really is a mission, and the audience is involved on this level. Finds themselves involved in the work on this level. That's really thrilling.
 
 [00:10:50] Norm: The same way that when NASA goes on missions and we're glued to the live stream
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:15:38] Will: Yeah.
 
-[00:15:39] Adam: And so it's a key part of shop ritual. I do this all the time. Every now and then, you just pull out that bucket and you sort it and you put it away. And at Logjam, the general public can participate in getting down a tray that sorts, let's say, self-tapping screws into pan heads, cab heads, etc. And then you sit there and do. And each level you move up, you matriculate through the training of Logjam.
+[00:15:39] Adam: And so it's a key part of shop ritual. I do this all the time. Every now and then, you just pull out that bucket and you sort it and you put it away. And at Logjam, the general public can participate in getting down a tray that sorts, let's say, self-tapping screws into pan heads, cap heads, etc. And then you sit there and do. And each level you move up, you matriculate through the training of Logjam.
 
 [00:16:04] Will: This is. It's brilliant because it it solves a real shop problem.
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:22:13] Norm: You were in LA over the weekend or yesterday.
 
-[00:22:18] Adam: Yeah. It's eleven. It's ten a.m. right now. I I got up at five thirty this morning and just actually a tad late, and just made it to LAX in time to catch my flight to get here. I was I had some meetings in LA yesterday, which was the primary reason I was there, and those were awesome. I saw all my friends at Whale Rock, but I also went last night to see Michael Giacchino conduct the orchestra to play the music from Lost
+[00:22:18] Adam: Yeah. It's eleven. It's ten a.m. right now. I I got up at five thirty this morning and just actually a tad late, and just made it to LAX in time to catch my flight to get here. I was I had some meetings in LA yesterday, which was the primary reason I was there, and those were awesome. I saw all my friends at Whalerock, but I also went last night to see Michael Giacchino conduct the orchestra to play the music from Lost
 
 [00:22:18] Unknown speaker: Wow.
 

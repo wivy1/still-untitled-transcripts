@@ -58,7 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:04:07] Adam: Actually, on that front, using Apple Share between my phone and my computer, one of the best things in the world.
 
-[00:04:07] Simone: Yeah, I just air drop
+[00:04:07] Simone: Yeah, I just AirDrop
 
 [00:04:07] Adam: from a phone to a Mac is is is lovely. But but iTunes itself is like okay. Let me just like I recognize there are all sorts of people will watch this and be like oh I didn't have the same problem. But I just want to point out when I'm listening to a song on my phone and then I turn that phone off, or I'm listening to a podcast or an iBook and I turn my phone off and then I open it up the next day. Why do I have to re navigate through all the menus to get back to the thing I was listening to yesterday?
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:23:07] Norm: Simone and I have. I think we. Both seen it now. We won't say anything about it until after you watch it. Yeah.
 
-[00:23:16] Adam: I want one of those clear fling. I want one of those clear framed Glock pistols that the major carries.
+[00:23:16] Adam: I want one of those clear framed Glock pistols that the major carries.
 
 [00:23:23] Norm: Oh, the the props. Yes, they're very prominent.
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:24:55] Adam: Sometimes. Sometimes, some not always, and and the the big boneyard in Tucson actually is where the military parks its old stuff. So no, there is no outlet. They auction stuff off occasionally, and there are some local places that buy that stuff and sell it. But those were all closed over the weekend.
 
-[00:25:11] Norm: Ah, and a lot of those local places. I've walked in a lot of shops that. Repurpose a lot of airplane parts, but they always turn them into like furniture, like propellers that become toffee tables. There's a great one that Kishor and I actually saw, walked into Paris. Ends up being really expensive too when you when you buy something that's then been turned into a piece of art or furniture.
+[00:25:11] Norm: Ah, and a lot of those local places. I've walked in a lot of shops that. Repurpose a lot of airplane parts, but they always turn them into like furniture, like propellers that become coffee tables. There's a great one that Kishore and I actually saw, walked into Paris. Ends up being really expensive too when you when you buy something that's then been turned into a piece of art or furniture.
 
 [00:25:31] Adam: Yeah. Yeah, but it's beautiful. Like, yeah, it's beautiful stuff. Was when you hold up a piece of an airplane wing, it's always shocking how lightweight it is. I mean, obviously they built optimized for for strength and weight, but it's still intense on a physical level to touch it. What's that?
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:30:20] Norm: Awesome. Well, if that's anything that we can help document and and show. I think a lot of people out there would love to love to check that out.
 
-[00:30:28] Adam: Yeah, there's, there's a bunch of stuff I'm going. There's a bunch of stuff I'm going to make more more spectacular and a couple of brand new pieces that we want to put in. I mean, and we're keeping the show the same length. It's just we're packing more and more and more stuff in there.
+[00:30:28] Adam: Yeah, there's, there's a bunch of stuff I'm going to make more more spectacular and a couple of brand new pieces that we want to put in. I mean, and we're keeping the show the same length. It's just we're packing more and more and more stuff in there.
 
 [00:30:43] Norm: Awesome. Well, we can't wait for you to get back, and I mean, you're we're all on the same coast now, so
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:31:29] Adam: I was so blown away by its sensitivity, by its beauty. When, first of all, hearing Joey's voice was fabulous because Joey has a wonderful voice. And then to see him, one of my pet peeves is YouTubers who cut to themselves for too long when they're when they're just doing expository stuff. But when Joey cut to himself, I actually smacked my leg because I was like, " Yes, that's exactly where this belongs. Perfectly done. So beautiful. " I really like. I called him right away and I was like, " Joey, this is just it's a masterpiece. I'm so proud to work with him. "
 
-[00:32:09] Norm: Awesome. Yeah, you guys should all watch that. It's On our YouTube channel, and we'll have stuff from WonderCon going out this week. This coming weekend is Monster Palooza, so it's a special effects conference, and we'll be picking up some model kits. I hope from that as well that we can hopefully paint up. That will be fun. But next time, we're going to take you out of the Phantom Zone, Adam, back to the cave, and it's going to be fun.
+[00:32:09] Norm: Awesome. Yeah, you guys should all watch that. It's On our YouTube channel, and we'll have stuff from WonderCon going out this week. This coming weekend is Monsterpalooza, so it's a special effects conference, and we'll be picking up some model kits. I hope from that as well that we can hopefully paint up. That will be fun. But next time, we're going to take you out of the Phantom Zone, Adam, back to the cave, and it's going to be fun.
 
 [00:32:33] Simone: What? Oh my god, I’m so excited!
 
@@ -476,4 +476,4 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:32:43] Adam: Bye, guys.
 
-[00:32:47] Norm: Once again, this episode of Still Untitled was brought to you by Rackspace. Rackspace support for Amazon Web Services offers tool for automation for account management, security, and best practices. Control your costs and relax knowing Rackspace will monitor your AWS twenty four seven. Learn more at rackspace dot com slash your cloud. See you next week.
+[00:32:47] Norm: Once again, this episode of Still Untitled was brought to you by Rackspace. Rackspace support for Amazon Web Services offers tooling and automation for account management, security, and best practices. Control your costs and relax knowing Rackspace will monitor your AWS twenty four seven. Learn more at rackspace dot com slash your cloud. See you next week.

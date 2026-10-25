@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:00:26] Adam: Like last night, we were on the we were on the same plane with Charlie Jane Anders and Annalee Newitz, which was awesome. Although I felt like I'd wasted my extra hour in the in the airport, not knowing that they were that you guys were all there, we could have been hanging out.
 
-[00:00:39] Norm: I had no idea you were on the I had no idea you were on the flight either. And Annalee and I were we didn't get a chance to see each other at the con, so it was of course at the airport we were both flying back to San Francisco. All three of us were. Where she was telling me a history of Gojira, Godzilla in film, and like it was, I was just listening for like twenty minutes intensely because I had no idea about all these stories, and then suddenly you walk up. And the thing that goes off my head—that looks like Adam's hat.
+[00:00:39] Norm: I had no idea you were on the flight either. And Annalee and I were we didn't get a chance to see each other at the con, so it was of course at the airport we were both flying back to San Francisco. All three of us were. Where she was telling me a history of Gojira, Godzilla in film, and like it was, I was just listening for like twenty minutes intensely because I had no idea about all these stories, and then suddenly you walk up. And the thing that goes off my head—that looks like Adam's hat.
 
 [00:01:09] Adam: Hilarious.
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:13:07] Adam: Comic Con."
 
-[00:13:10] Adam: Look, I I continue. I noticed that New York this year. I noticed that New York has a much stronger superhero theme. There's a lot more focus on superheroes specifically over San Diego Comic Con, but there's also a lot of great superhero mashups. I saw I saw a couple of female Baku's, which I thought was a really great a great mashup there, a gender gender bent costume. I love the really weird, you know, like I love the pink Darth Vaders. I love you know that kind of stuff.
+[00:13:10] Adam: Look, I I continue. I noticed that New York this year. I noticed that New York has a much stronger superhero theme. There's a lot more focus on superheroes specifically over San Diego Comic Con, but there's also a lot of great superhero mashups. I saw I saw a couple of female M'Baku's, which I thought was a really great a great mashup there, a gender gender bent costume. I love the really weird, you know, like I love the pink Darth Vaders. I love you know that kind of stuff.
 
 [00:13:43] Kishore: Does any part of you get jaded after going to so many Comic Cons about just like the wealth of costumes?
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:21:02] Kishore: the tribal mask.
 
-[00:21:03] Norm: Um, actually, I have it right here. Uh, Give Wave Studios. So, super nice guy, and really, really fantastic. Um, and then on the floor, yeah, they're your standard Marvel. There's a big Marvel booth. You know, DC had a booth for Aquaman. It was cool to see one of the villains. I'm not going to spoil which villain they had costume on display there. But they also had a Bandai had a a Gundam building booth.
+[00:21:03] Norm: Um, actually, I have it right here. Uh, GiveWave Studios. So, super nice guy, and really, really fantastic. Um, and then on the floor, yeah, they're your standard Marvel. There's a big Marvel booth. You know, DC had a booth for Aquaman. It was cool to see one of the villains. I'm not going to spoil which villain they had costume on display there. But they also had a Bandai had a a Gundam building booth.
 
 [00:21:28] Adam: I saw that.
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:30:16] Adam: Right.
 
-[00:30:16] Norm: because on the day that I have free, I know the thing that I’m going to gravitate toward. And it used to be the video games, and there was a time when when it was the the autograph signings or getting artists to do sketches or the big panel in Hall H in San Diego, and and now I find that I'm going to just find the individual people and the toy stuff. That's like that's why I like the Designer Con. That's why like these big cons let me find realize I should be at Designer Con and Dragon Con, and if those are the only two I went to every year, I'd be pretty happy.
+[00:30:16] Norm: because on the day that I have free, I know the thing that I’m going to gravitate toward. And it used to be the video games, and there was a time when when it was the the autograph signings or getting artists to do sketches or the big panel in Hall H in San Diego, and and now I find that I'm going to just find the individual people and the toy stuff. That's like that's why I like the DesignerCon. That's why like these big cons let me find realize I should be at DesignerCon and Dragon Con, and if those are the only two I went to every year, I'd be pretty happy.
 
 [00:30:45] Adam: Well, I also really appreciate that at every con, that the culture of the people that are there is radically different. That these These aren't all of a piece. They are each one of them exemplifying different subgroups and different subcultures that are finding each other, and they have such different energy. I I thought that the first year we did Crunchyroll,
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:31:55] Norm: Wow.
 
-[00:31:56] Adam: We also saw some Temra and also Darrell Maloney. Broken Nerd was there. Paul and Storm got to have dinner with them and Jonathan Coulton. It was like I, that's I love, I love New York. I love New York Comic Con.
+[00:31:56] Adam: We also saw some Tamara and also Darrell Maloney. Broken Nerd was there. Paul and Storm got to have dinner with them and Jonathan Coulton. It was like I, that's I love, I love New York. I love New York Comic Con.
 
 [00:32:11] Kishore: Love New York. I mean, like that. This I can't ever complain about going to a comic con when it's in New York because you get the comic con and you get New York.
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:33:34] Adam: dude, we covered this on Tested, and it's mind blowing.
 
-[00:33:36] Norm: These are this is the height the detailed scenery for tabletop gaming, and they they've met their um their their goal. And but they're 17 days ago, and if you want to get in on the first run of sets,
+[00:33:36] Norm: These are this is the height the detailed scenery for tabletop gaming, and they they've met their um their their goal. And but they're 17 days to go, and if you want to get in on the first run of sets,
 
 [00:33:47] Adam: you want to get in on this run.
 

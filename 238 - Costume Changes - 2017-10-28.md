@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:01:11] Will: [unclear: They're good / They're good, they're the best].
 
-[00:01:23] Adam: They have ruined me. I can't even drink pizza anymore.
+[00:01:23] Adam: They have ruined me. I can't even drink Peet's anymore.
 
 [00:01:26] Will: They're the best. Well, pizza's bad coffee.
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:03:05] Will: Did you get to do the baton?
 
-[00:03:06] Adam: I did not. The Michael came in and conducted a few choice pieces, but the bulk of the conducting was done by the amazing Ludwig Wicki, who is just a ball of. This week was amazing. Ludwig Wicki is a ball of pure joy and awesome, and it was lovely to watch him work with the work with the orchestra. The orchestra was incredible. The symphonic symphonia, and it was totally intense, right? Because it's also all of Michael's friends who are like Gareth Edwards and Matt Reeves and Angus McLean and Pete Docter and Andrew Stanton and
+[00:03:06] Adam: I did not. The Michael came in and conducted a few choice pieces, but the bulk of the conducting was done by the amazing Ludwig Wicki, who is just a ball of. This week was amazing. Ludwig Wicki is a ball of pure joy and awesome, and it was lovely to watch him work with the work with the orchestra. The orchestra was incredible. The symphonic symphonia, and it was totally intense, right? Because it's also all of Michael's friends who are like Gareth Edwards and Matt Reeves and Angus MacLane and Pete Docter and Andrew Stanton and
 
 [00:03:45] Norm: No, can you set the stage,
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:09:47] Will: It was lovely.
 
-[00:09:51] Adam: Stevens' people are so welcoming and hospitable. I've done the show a couple times now, and they've just like welcome back, and you know. They're just. I love doing that show.
+[00:09:51] Adam: Stephen's people are so welcoming and hospitable. I've done the show a couple times now, and they've just like welcome back, and you know. They're just. I love doing that show.
 
 [00:10:01] Will: It's. It seems like like and Ed Sullivan Theater is another one of those great theaters, right?
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:23:12] Will: Yeah, but but she's a film historian, and and and has always come at her work from a real point of um, love like love of the medium.
 
-[00:23:20] Adam: Yeah, and a love of the audience. There's a way in which she's. I have a second podcast to recommend, but and both of them. This she has a lovely way of speaking in a very measured, balanced, again deliberate cadence, which I find very reassuring after several episodes. It's like this. It's like you going back to that place. Like oh, it's it's comfortable here. The other podcast I want to mention is Carmen Esposito's podcast, Queery Q U E E R Y, and it is it is about intersectionality regarding gender issues. Namely, about that she talks to lots of different people. But Carmen is a comedian in L.A. She's very well known in comedy circles. She's brilliant. She and her partner Rhea Butcher have did did stuff with Woodstock a couple years back. That's where I first met them. But she has an amazing way of interviewing people that is, again, super accessible and loving and intelligent. And the conversations she has with people, like her hairdresser or with Evan Rachel Wood, and the places they get to in talking about their personal experiences and ways in which to to illuminate aspects of gender issues and issues of identity, is it's a really amazing listen. And if you have like just dive in anywhere, and it's an amazing, amazing podcast.
+[00:23:20] Adam: Yeah, and a love of the audience. There's a way in which she's. I have a second podcast to recommend, but and both of them. This she has a lovely way of speaking in a very measured, balanced, again deliberate cadence, which I find very reassuring after several episodes. It's like this. It's like you going back to that place. Like oh, it's it's comfortable here. The other podcast I want to mention is Cameron Esposito's podcast, Queery Q U E E R Y, and it is it is about intersectionality regarding gender issues. Namely, about that she talks to lots of different people. But Cameron is a comedian in L.A. She's very well known in comedy circles. She's brilliant. She and her partner Rhea Butcher have did did stuff with w00tstock a couple years back. That's where I first met them. But she has an amazing way of interviewing people that is, again, super accessible and loving and intelligent. And the conversations she has with people, like her hairdresser or with Evan Rachel Wood, and the places they get to in talking about their personal experiences and ways in which to to illuminate aspects of gender issues and issues of identity, is it's a really amazing listen. And if you have like just dive in anywhere, and it's an amazing, amazing podcast.
 
 [00:24:45] Will: I um I have something a little lighter to recommend. We there's a there's a game, a trivia game, right now that runs live on iOS, an app. Called HQ. It runs twice a day on weekdays and once on weekends, and it's hosted. It's a live video of a guy standing in front of a green screen asking you questions and kind of. It's do you remember? Do you remember? You don't know Jack.
 
@@ -744,9 +744,9 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:27:22] Norm: Yes. Yeah. Yeah. This I guess this will go out the morning live show. You're in San Francisco. Stop by.
 
-[00:27:27] Adam: Stop by the Castro Theater
+[00:27:27] Adam: Stop by the Castro Theatre
 
-[00:27:28] Norm: the Castro Theater and hang out with us.
+[00:27:28] Norm: the Castro Theatre and hang out with us.
 
 [00:27:29] Adam: There's still some tickets available. Yeah. A couple dozen.
 
@@ -810,7 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:28:41] Adam: I asked for clarity.
 
-[00:28:43] Will: Yeah, the Halloween episode is on the side.
+[00:28:43] Will: Yeah, the Halloween episode is on the site.
 
 [00:28:45] Adam: We elected one. Why not have one on your?
 
@@ -824,7 +824,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:28:53] Will: You are standards and practices of this show.
 
-[00:28:54] Norm: Why am I the standards of practice on the show?
+[00:28:54] Norm: Why am I the standards and practices on the show?
 
 [00:28:55] Will: I don't work here anymore. I can do whatever I want. What are you going to do?
 

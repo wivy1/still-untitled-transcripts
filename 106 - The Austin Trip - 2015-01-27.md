@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:22:00] Will: You might want to talk to Julia first.
 
-[00:22:02] Adam: So yeah, that was my weekend. We got back yesterday at about 10 a.m. I slept for a couple of hours, but then I was up late last night because Tim Minchin, my friend and amazing musician, was in town playing at the Nourse, and Rebecca Watson was there, and so was one of my heroes, Dan Savage, of the writer of Savage Love column, yeah, and the Savage Love podcast, and so we all hung out and went out to dinner last night. So I was again up until 1 a.m. and then we got up. Norm and I got up early this morning to fly some drones with Eric Chang, and so I. After this podcast, I'm going to go take a long nap.
+[00:22:02] Adam: So yeah, that was my weekend. We got back yesterday at about 10 a.m. I slept for a couple of hours, but then I was up late last night because Tim Minchin, my friend and amazing musician, was in town playing at the Nourse, and Rebecca Watson was there, and so was one of my heroes, Dan Savage, of the writer of Savage Love column, yeah, and the Savage Love podcast, and so we all hung out and went out to dinner last night. So I was again up until 1 a.m. and then we got up. Norm and I got up early this morning to fly some drones with Eric Cheng, and so I. After this podcast, I'm going to go take a long nap.
 
 [00:22:38] Will: Yeah, the combat nap's not a bad idea. Yeah, it seems like in this in this situation,
 
@@ -586,7 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:23:10] Will: That sounds good.
 
-[00:23:10] Adam: And had incredible food, really amazing fried chicken, super super spicy, with some hot. No, no, no. The the sausages were later at the sit down meal at the Saint Cecilia, which was also amazing. Like when is a eighty percent sit down dinner good food?
+[00:23:10] Adam: And had incredible food, really amazing fried chicken, super super spicy, with some hot. No, no, no. The the sausages were later at the sit down meal at the Saint Cecilia, which was also amazing. Like when is a eighty-person sit down dinner good food?
 
 [00:23:27] Will: Right.
 

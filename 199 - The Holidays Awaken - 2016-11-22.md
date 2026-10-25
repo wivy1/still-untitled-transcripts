@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:03:40] Will: Yeah. What what do you have to look forward to more?
 
-[00:03:44] Adam: Yeah, exactly. Um, so I was just going to say, I was just going to say, if you're sitting across from your look, going to see your family is one thing. All people learn early in their early adulthood is that going to see your family, even if it's far away, is not a vacation.
+[00:03:44] Adam: Yeah, exactly. Um, so I was just going to say, if you're sitting across from your look, going to see your family is one thing. All people learn early in their early adulthood is that going to see your family, even if it's far away, is not a vacation.
 
 [00:03:58] Will: No,
 
@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:04:52] Will: I totally, I totally went Aquaman for that one, man.
 
-[00:04:57] Adam: I'm going to go see relatives down in Los Angeles for. I'm going to see my sister down in Los Angeles and her family on Thanksgiving, and and we also have my in-laws are up in Portland. We'll see them over Christmas.
+[00:04:57] Adam: I'm going to see my sister down in Los Angeles and her family on Thanksgiving, and and we also have my in-laws are up in Portland. We'll see them over Christmas.
 
 [00:04:57] Will: Ah,
 
@@ -690,7 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:19:37] Norm: I heard this.
 
-[00:19:38] Will: Nor heard this maybe fifteen years ago. This is I think this is maybe exclusive to tested content.
+[00:19:38] Will: Norm heard this maybe fifteen years ago. This is I think this is maybe exclusive to tested content.
 
 [00:19:38] Adam: Okay.
 
@@ -888,13 +888,13 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:25:28] Will: Yeah.
 
-[00:25:29] Norm: Here's what I recommend because not everyone's gonna be in San Francisco. Yeah, but go to conventions, go to cons. We were at a convention this past weekend, designer con.
+[00:25:29] Norm: Here's what I recommend because not everyone's gonna be in San Francisco. Yeah, but go to conventions, go to cons. We were at a convention this past weekend, DesignerCon.
 
 [00:25:37] Unknown speaker: Did you get my Christmas present there this weekend?
 
 [00:25:37] Norm: Oh, I. I'm not saying. Maybe. I got I got it four months ago, Adam. Don't worry about it. But even if you can't go to a convention, what I would do is go to the website and find the vendor list. And more often than not, these days, a lot of these vendors, even though they're small independent makers, will have Instagram feeds. I go to their Instagram, and after conventions, they'll always have extra kits, limited run things of of of wares, and Buy from them,
 
-[00:26:08] Will: like stuff, stuff like Renegade Craft Fair, and um, you were at Designer Con this weekend, but Ape is that other one,
+[00:26:08] Will: like stuff, stuff like Renegade Craft Fair, and um, you were at DesignerCon this weekend, but Ape is that other one,
 
 [00:26:15] Norm: the Alternative Press Expo.
 
@@ -952,7 +952,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:27:50] Adam: Museum stores free. Awesome.
 
-[00:27:52] Norm: You don't have to pay for the exhibit. If there's a traveling exhibit, or even like the S of MoMA store,
+[00:27:52] Norm: You don't have to pay for the exhibit. If there's a traveling exhibit, or even like the SFMOMA store,
 
 [00:27:57] Will: or art stores especially,
 

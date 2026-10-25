@@ -4,9 +4,9 @@
 **Duration:** 38m 55s  
 Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
-[00:00:00] Norm: This week's episode of Still Entitled is made possible with support from the National Highway Traffic Safety Administration. Do you think it's okay to drive stoned? The truth is, your reaction times slow way down when you're high. You not only put yourself in danger, but everyone around you. So stop kidding yourself. It's not okay to drive high. If you've been using marijuana in any form, do not get behind the wheel. If you feel different, you drive different. Drive high, get a DUI. Now on with the show.
+[00:00:00] Norm: This week's episode of Still Untitled is made possible with support from the National Highway Traffic Safety Administration. Do you think it's okay to drive stoned? The truth is, your reaction times slow way down when you're high. You not only put yourself in danger, but everyone around you. So stop kidding yourself. It's not okay to drive high. If you've been using marijuana in any form, do not get behind the wheel. If you feel different, you drive different. Drive high, get a DUI. Now on with the show.
 
-[00:00:28] Will: Welcome to Still Entitled, the Adam Savage Project. I'm Will.
+[00:00:28] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:28] Adam: I'm Adam,
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:02:17] Will: It seems like it.
 
-[00:02:20] Norm: But you did. You were there for you didn't incognito.
+[00:02:20] Norm: But you did. You were there for you did an incognito.
 
 [00:02:23] Adam: I did. I did a Star Lord incognito, and this was one. This was a hasty, a hasty incognito. It was about three weeks ago that we were like, " Whoa, we're back from DC, and Silicon Valley is like just around the corner." So I scrambled, and for a mad scramble, I mean, this was the luxury of having this shop and these amazing people working with me. But Mel and Jen and Kayte Sabicer came in, and we put in like a full, probably all four of us for like six days.
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:03:56] Will: Yeah,
 
-[00:03:56] Adam: and then I gathered a couple of other parts and pieces, and then it turned out my friend Joe, who goes by Joe Atresh on the RPF, had been Monstrously delightfully obsessed with it, and supplied me with a bunch of 3D drawings that he had done to use for my mask and my guns, and my rocket controllers, and all of that came out great. I had some friends print them up. Carbon 3D did a little printing for me too. It was, it was. I'm so happy with how that costume came out.
+[00:03:56] Adam: and then I gathered a couple of other parts and pieces, and then it turned out my friend Joe, who goes by Joatrash on the RPF, had been Monstrously delightfully obsessed with it, and supplied me with a bunch of 3D drawings that he had done to use for my mask and my guns, and my rocket controllers, and all of that came out great. I had some friends print them up. Carbon 3D did a little printing for me too. It was, it was. I'm so happy with how that costume came out.
 
 [00:04:25] Norm: Huge team effort. Yeah. You didn't feel like you had to do everything, but at the same time, while you could have done like 3D printing on the Walkman, you chose to do styrene build. You wanted to.
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:10:13] Norm: It looked gorgeous.
 
-[00:10:14] Will: really disconcerted by the idea of somebody using a skin toter to make a Cronenberg Spider Man.
+[00:10:14] Will: really disconcerted by the idea of somebody using a skin Totoro to make a Cronenberg Spider Man.
 
 [00:10:20] Norm: Yes.
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:12:13] Will: they they I mean
 
-[00:12:13] Adam: they lied well more issues than they actually.
+[00:12:13] Adam: they elide well more issues than they actually.
 
 [00:12:22] Norm: Oh my God, the I mean, the I do not envy the screenwriters and the filmmakers who have to make films in the wake of Endgame because if you even think about like
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:16:24] Adam: films, and Tom Holland is just I think the most proto perfect Spider-Man.
 
-[00:16:37] Norm: Before we continue with this week's episode, I want to let you know that still entitled is also made possible this week with support from World of Warcraft Classic. That's right. Get ready to return to an era lost to legend, because World of Warcraft Classic is available now, coming just in time for the game's 15th anniversary. World of Warcraft Classic invites players to return to the world of Azeroth just as it was during its earliest days. This faithful, authentic recreation captures the danger, excitement, and glory of the original game and relives the timeless adventures that defined. World of Warcraft's legacy. You can fight for the Horde or the Alliance in an ongoing struggle between Southshore and Taren Mill. Then gear up to take on the dragons of Blackwing Lair as more of the original game's legendary content opens over time. There's so much more to discover and explore. WoW Classic is included with your regular World of Warcraft subscription at no additional charge, so you can switch between the original experience and the latest content as you see fit. World of Warcraft Classic is available to play right now. Just head over to wowclassic.com/stilluntitled to learn all about it and get ready to relive the legend. Once again, that's wowclassic, W-O-W classic dot com slash still untitled. Now back to the conversation.
+[00:16:37] Norm: Before we continue with this week's episode, I want to let you know that Still Untitled is also made possible this week with support from World of Warcraft Classic. That's right. Get ready to return to an era lost to legend, because World of Warcraft Classic is available now, coming just in time for the game's 15th anniversary. World of Warcraft Classic invites players to return to the world of Azeroth just as it was during its earliest days. This faithful, authentic recreation captures the danger, excitement, and glory of the original game and relives the timeless adventures that defined. World of Warcraft's legacy. You can fight for the Horde or the Alliance in an ongoing struggle between Southshore and Taren Mill. Then gear up to take on the dragons of Blackwing Lair as more of the original game's legendary content opens over time. There's so much more to discover and explore. WoW Classic is included with your regular World of Warcraft subscription at no additional charge, so you can switch between the original experience and the latest content as you see fit. World of Warcraft Classic is available to play right now. Just head over to wowclassic.com/stilluntitled to learn all about it and get ready to relive the legend. Once again, that's wowclassic, W-O-W classic dot com slash still untitled. Now back to the conversation.
 
 [00:18:03] Will: So, so do we want to talk about spoilers?
 
@@ -978,7 +978,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:35:56] Adam: It is, but there's a way in which, like, when you when you're in your own head trying to fit something together, and you get it to go, and you hear a crowd behind you, go, oh, and you're like, oh, it's like your own mental landscape being voiced by this Greek chorus around you.
 
-[00:36:09] Will: There was a moment in that build when I was watching on the live stream when you were trying to get the window in, I think, and you just picked up the mallet and started working on it. And there were gas, like the audience gasped, and then when it went in, they were like, " Ooh, it's very good. It's very satisfying."
+[00:36:09] Will: There was a moment in that build when I was watching on the live stream when you were trying to get the window in, I think, and you just picked up the mallet and started working on it. And there were gasps, like the audience gasped, and then when it went in, they were like, " Ooh, it's very good. It's very satisfying."
 
 [00:36:09] Adam: It is,
 

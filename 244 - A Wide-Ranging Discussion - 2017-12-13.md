@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:12:06] Will: Yeah, so
 
-[00:12:07] Adam: because if they're not on one of those, if they're not on one of those.
+[00:12:07] Adam: because if they're not on one of those.
 
 [00:12:10] Will: So, so already we're in a situation where the big five company—I can't remember. There's a funny acronym that people use for them, but it's Apple, Amazon, Microsoft, Google, and Facebook, or FANGs—is what they call them. Are controlling a terrifying amount of the internet now, right? Like in terms of advertising revenue, time spent online, stuff like that between Facebook and Google and YouTube and and all of these places. You know, the fact that people buy most of their stuff from Amazon now is is like it's becoming problematic.
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:20:46] Will: You put you put a hundred and twenty watt light bulb instead of the sixty in there, and man, that thing cranks up to five hundred.
 
-[00:20:50] Adam: You're reminding me of an old Dunsbury joke. Tonight, the role of Jesus will be played by a twenty-five. The role of baby Jesus will be played by a twenty-five watt light bulb.
+[00:20:50] Adam: You're reminding me of an old Doonesbury joke. Tonight, the role of Jesus will be played by a twenty-five. The role of baby Jesus will be played by a twenty-five watt light bulb.
 
 [00:21:02] Norm: This past weekend. To get into the spirit, we went to, and I want to give a recommendation to the Dickens Fair.
 
@@ -680,13 +680,13 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:26:48] Adam: I don't have one. I've never been a huge fan of glitter,
 
-[00:26:51] Norm: Also, is it good rinds?
+[00:26:51] Norm: Also, is it good riddance?
 
-[00:26:53] Adam: It's good rinds to me.
+[00:26:53] Adam: It's good riddance to me.
 
 [00:26:54] Will: Okay,
 
-[00:26:55] Adam: so so you get Rinds as far as I'm concerned.
+[00:26:55] Adam: so so you get riddance as far as I'm concerned.
 
 [00:26:56] Will: I've I have two glitter thoughts. One is that you can get metal glitter. in addition to plastic glitter.
 
@@ -724,7 +724,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:28:26] Norm: You chose poorly.
 
-[00:28:26] Will: The the the thing the thing that I was surprised by. So I I want I told there's this post the other day about Rowan Atkinson's bit in there where he's he's doing this long drawn out rapping job.
+[00:28:26] Will: The the the thing the thing that I was surprised by. So I I want I told there's this post the other day about Rowan Atkinson's bit in there where he's he's doing this long drawn out wrapping job.
 
 [00:28:39] Norm: He's Mr. Bean.
 
@@ -760,7 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:29:31] Adam: Long kiss, good night.
 
-[00:29:32] Will: Long kiss, good night. Is that that's the Gina Davis?
+[00:29:32] Will: Long kiss, good night. Is that that's the Geena Davis?
 
 [00:29:32] Unknown speaker: Yep.
 
@@ -816,13 +816,13 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:30:41] Will: Okay.
 
-[00:30:41] Norm: You should watch Scrooge.
+[00:30:41] Norm: You should watch Scrooged.
 
 [00:30:42] Will: It's pretty good.
 
-[00:30:43] Adam: I've never seen Scrooge.
+[00:30:43] Adam: I've never seen Scrooged.
 
-[00:30:44] Will: Scrooge is a Bill Murray classic.
+[00:30:44] Will: Scrooged is a Bill Murray classic.
 
 [00:30:45] Adam: Bill Murray and
 
@@ -830,7 +830,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:30:49] Adam: Yeah, no, no. I'm trying to think of that wonderful actress who played Andy Kaufman's wife on Taxi.
 
-[00:30:55] Will: Oh, she looks she looks like Cindy Lauper, but she's not.
+[00:30:55] Will: Oh, she looks she looks like Cyndi Lauper, but she's not.
 
 [00:30:58] Adam: I'm a terrible person for remembering for not remembering her name. Carol.
 
@@ -868,7 +868,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:31:35] Unknown speaker: Oh no no no!
 
-[00:31:35] Adam: He was there with his band. He was he was there with his band, and he went on a radio show in Canada, and he apparently had said, and maybe this didn't get communicated to the host, that he did not want to talk about being an actor or making movies or anything to do with his stardom as a performer actor.
+[00:31:35] Adam: He was there with his band, and he went on a radio show in Canada, and he apparently had said, and maybe this didn't get communicated to the host, that he did not want to talk about being an actor or making movies or anything to do with his stardom as a performer actor.
 
 [00:31:35] Norm: Except
 
@@ -906,7 +906,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:32:55] Norm: Tommy Wiseau. Yes,
 
-[00:32:56] Adam: I heard that. I I've heard someone was just telling me maybe it was Ryan Kaiser
+[00:32:56] Adam: I heard that. I I've heard someone was just telling me maybe it was Ryan Kiser
 
 [00:33:00] Adam: was saying that the that the Disaster Artist is not just a compendium of the shittiest movie ever made. That there's actually some real heart to it.
 
@@ -1016,7 +1016,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:36:45] Will: He's good in in literally like his his manic turns in Always Sunny are the funniest things that's been on TV in the last fifteen years. I think.
 
-[00:36:53] Adam: You know, this is we've talked about this before, but it's like there are actors you put them in your thing; they're just going to make your thing better. Carl Urban in Ragnarok, right? Like that's a role that a lot of people could have just fulfilled, but he brings something more and lovely to it. He's a scourge.
+[00:36:53] Adam: You know, this is we've talked about this before, but it's like there are actors you put them in your thing; they're just going to make your thing better. Karl Urban in Ragnarok, right? Like that's a role that a lot of people could have just fulfilled, but he brings something more and lovely to it. He's a Skurge.
 
 [00:37:10] Will: Oh, he's he's what's her name's
 
@@ -1050,7 +1050,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:37:43] Will: William H. Macy is another one.
 
-[00:37:44] Adam: Bill Macy, totally, completely. Yep. Yeah. Uh, Gene Hackman's always been that like you know, but Gene Hackman I think is more in the John Cheadle like he can open a movie, but he's also going to be an amazing amazing uh supporting player.
+[00:37:44] Adam: Bill Macy, totally, completely. Yep. Yeah. Uh, Gene Hackman's always been that like you know, but Gene Hackman I think is more in the Don Cheadle like he can open a movie, but he's also going to be an amazing amazing uh supporting player.
 
 [00:37:58] Will: if he plays a supporting role, you know, it's going to be a banger.
 
@@ -1180,11 +1180,11 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:42:22] Will: yeah, lovely podcast.
 
-[00:42:24] Adam: Those guys are amazing. Anna Marie Cox with friends like these.
+[00:42:24] Adam: Those guys are amazing. Ana Marie Cox with friends like these.
 
 [00:42:28] Norm: Ooh, I haven't heard that yet. It's on the Crooked Media Network.
 
-[00:42:30] Adam: Yeah. Okay. Yep. Yep. I I had a I had a lovely meal in Minneapolis. I've I have a whole social life in Minneapolis. I saw I saw Bill and Kevin from Riff Tracks, Anna Marie Cox, and Maggie Koerth-Baker.
+[00:42:30] Adam: Yeah. Okay. Yep. Yep. I I had a I had a lovely meal in Minneapolis. I've I have a whole social life in Minneapolis. I saw I saw Bill and Kevin from RiffTrax, Ana Marie Cox, and Maggie Koerth-Baker.
 
 [00:42:41] Norm: Right. Right. Right. We talked about that.
 
@@ -1272,7 +1272,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:45:18] Adam: but we were talking about Christmas movies.
 
-[00:45:20] Will: Scrooge, real good. You should watch it.
+[00:45:20] Will: Scrooged, real good. You should watch it.
 
 [00:45:22] Norm: What a what a wide ranging.
 
@@ -1298,7 +1298,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:45:55] Adam: Never seen it.
 
-[00:45:55] Will: It's it is it's treacly and sweet. It's a perfect Christmas movie. He tap dances with Danny fucking K as Chevy Chase, so memorably remembers in Christmas Vacation, which is another fine Christmas movie that hasn't aged as well as one might have expected.
+[00:45:55] Will: It's it is it's treacly and sweet. It's a perfect Christmas movie. He tap dances with Danny fucking Kaye as Chevy Chase, so memorably remembers in Christmas Vacation, which is another fine Christmas movie that hasn't aged as well as one might have expected.
 
 [00:46:12] Norm: I think it's fine. It's fine.
 
@@ -1306,7 +1306,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:46:12] Norm: Yeah. Best way to say.
 
-[00:46:16] Adam: I saw Danny K on stage when I was a kid.
+[00:46:16] Adam: I saw Danny Kaye on stage when I was a kid.
 
 [00:46:16] Will: Really?
 
@@ -1360,7 +1360,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:47:58] Norm: believe it's a
 
-[00:47:59] Will: rouge one.
+[00:47:59] Will: Rogue One.
 
 [00:48:00] Unknown speaker: Heady.
 
@@ -1464,7 +1464,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:51:27] Adam: he really worked hard on making sure that would work, and he did a great job at it.
 
-[00:51:45] Will: I mean, it's every film Mikey Newman who post movies with Mikey, which is another great film appreciation series. It like is constantly battling his videos going up for three hours and then disappearing.
+[00:51:45] Will: I mean, it's every film Mikey Neumann who post movies with Mikey, which is another great film appreciation series. It like is constantly battling his videos going up for three hours and then disappearing.
 
 [00:51:56] Norm: It's the positive end of people working the algorithm, as opposed to the people doing the the child torture videos.
 
@@ -1492,7 +1492,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:52:38] Adam: Enjoy whatever movies come out this weekend. And we'll see you guys. Anything up on the site that we should?
 
-[00:52:42] Norm: We're actually putting up a lot of our our bits from our live show on the site this week. So if you were not there for the Castro Theater performance in late October, you can watch some select segments on our channel.
+[00:52:42] Norm: We're actually putting up a lot of our our bits from our live show on the site this week. So if you were not there for the Castro Theatre performance in late October, you can watch some select segments on our channel.
 
 [00:52:55] Will: It was a really good show this year, guys. I hope you really enjoyed it.
 

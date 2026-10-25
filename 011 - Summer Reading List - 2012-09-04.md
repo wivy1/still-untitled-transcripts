@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:07:18] Norm: So you mentioned Chabon and other writers. You said are influenced by Chandler and even directors. What are good examples of that?
 
-[00:07:24] Adam: Well, I, I, I feel like when I watch, I feel like when I watch any Tarantino film, that he's a big admirer of Chandler. I know that one of my all time favorite writers, Haruki Murakami, is a big Chandler fan. I think the great, the great Sheep Chase is a is a an homage in its entirety to Chandler. And I like I did a talk a few years ago at DragonCon called "One Hundred Wishes," and one of them was I would love someday to sit down over some drinks and talk to Murakami about Chandler. In fact, if I could, I'd go in a time machine and drive through nineteen fifties Los Angeles with him,
+[00:07:24] Adam: Well, I, I, I feel like when I watch any Tarantino film, that he's a big admirer of Chandler. I know that one of my all time favorite writers, Haruki Murakami, is a big Chandler fan. I think the great, the great Sheep Chase is a is a an homage in its entirety to Chandler. And I like I did a talk a few years ago at DragonCon called "One Hundred Wishes," and one of them was I would love someday to sit down over some drinks and talk to Murakami about Chandler. In fact, if I could, I'd go in a time machine and drive through nineteen fifties Los Angeles with him,
 
 [00:07:57] Will: With Murakami. So, so let's let's give a reading list,
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:14:22] Will: Changes your outlook on life in a really negative way.
 
-[00:14:25] Adam: It's like it's like home alone while your wife is out of town and watch like six episodes of the British Office back to back. You'll just feel like the worst human a lot.
+[00:14:25] Adam: It's like it's like home alone while your wife is out of town and watch like six episodes of the British Office back to back. You'll just feel like the worst human alive.
 
 [00:14:34] Will: Oh, you hate every— You're laughing and you hate yourself.
 

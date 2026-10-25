@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:23:46] Will: Born, and then they check in every year.
 
-[00:23:48] Adam: If someone's [unclear: 'hearing thing'] that they were listening to this podcast [unclear: 'on Brook'] right now, they go download that. And and be upset.
+[00:23:48] Adam: If someone's [unclear: 'hearing thing'] that they were listening to this podcast on broke right now, they go download that. And and be upset.
 
 [00:23:58] Will: So it's based on a notoriously violent graphic novel or comic book series. I'm not sure which.
 
@@ -1112,7 +1112,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:44:21] Will: You guys made Joey shot the best three D video I've ever seen.
 
-[00:44:25] Adam: Not only that, I said this last night at the event, and this is also just worth saying as a sign off. Like in film school. You study Sergei Eisenstein's Potemkin Steps sequence, and if you don't know about it, go ahead and Google it because you can get a walkthrough of it. Because it was one of the very first times anyone had tried a jump cut to explain action. This is the beginning of film language. We didn't know that you could do this, and your brain would plug in the in-between part. They just didn't. They were inventing it as they went. And Joey, and along with Eric Chang, did a tremendous amount of brand new narrative storytelling in a new medium in order to figure like how do you do close-ups in VR?
+[00:44:25] Adam: Not only that, I said this last night at the event, and this is also just worth saying as a sign off. Like in film school. You study Sergei Eisenstein's Potemkin Steps sequence, and if you don't know about it, go ahead and Google it because you can get a walkthrough of it. Because it was one of the very first times anyone had tried a jump cut to explain action. This is the beginning of film language. We didn't know that you could do this, and your brain would plug in the in-between part. They just didn't. They were inventing it as they went. And Joey, and along with Eric Cheng, did a tremendous amount of brand new narrative storytelling in a new medium in order to figure like how do you do close-ups in VR?
 
 [00:45:06] Will: I mean, it's
 

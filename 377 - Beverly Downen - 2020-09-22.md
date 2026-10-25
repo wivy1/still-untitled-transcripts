@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=OOU8yadI2sY
 
 [00:00:35] Beverly: which feels like I don't know about you guys, but it feels like it was sixteen years ago.
 
-[00:00:39] Adam: New York Comic Con feels both like sixteen years ago and about a month ago because I had I ended up with having the most epic and weird and amazing week that week where I met all sorts of new friends and New York was electric and I had a one wheel ride around empty Central Park in the middle of the night that was like transformative.
+[00:00:39] Adam: New York Comic Con feels both like sixteen years ago and about a month ago because I had I ended up with having the most epic and weird and amazing week that week where I met all sorts of new friends and New York was electric and I had a Onewheel ride around empty Central Park in the middle of the night that was like transformative.
 
 [00:01:01] Beverly: Oh my God!
 
@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=OOU8yadI2sY
 
 [00:06:06] Norm: Yeah. Have you participated in the cosplay tracks of virtual cons, the the the masquerades, or any of those panels?
 
-[00:06:17] Beverly: Kind of indirectly, and indirectly meaning, I I I have a I have a group called SheProp, which is a group that is for cosplayers and makers that identify as female, non-binary, or trans artists of special effects makeup artists of of all kinds. Started as a Facebook group and has since gotten a little bit of a of a boost because I've had time to to to do things like panels and more podcast interviews. I have a little podcast that I do with them as well, so that I can have some one-on-one time with these people that I've been wanting to talk to, which started before the pandemic. But the panel Track has been interesting because it started as, " Hey, let's do a SheProp panel at WonderCon online." And so a group of the members did that, and then that kept happening. I was like, " Well, I think I'm going to get a Zoom account, and I think I'm going to open this up to whoever in the group wants to get together and and and talk about whatever they want to talk about." And so I have I have one one of my admins of the group, uh, Abby, um, Abby Cat Cosplay. She's phenomenal. She is so great at panels. She was like, " I'm going to do this," and she's done like seven of them so far, which is great. But it also means that I have to edit all of these things. So that is that's another another layer of things that I I didn't expect I was going to have to be doing so much of in 2020. But yeah, so indirectly participating in the panel track, um, both at virtual cons and also kind of on our own because. We realize we don't really need to have a convention to have that platform available to people.
+[00:06:17] Beverly: Kind of indirectly, and indirectly meaning, I I I have a I have a group called SheProp, which is a group that is for cosplayers and makers that identify as female, non-binary, or trans artists of special effects makeup artists of of all kinds. Started as a Facebook group and has since gotten a little bit of a of a boost because I've had time to to to do things like panels and more podcast interviews. I have a little podcast that I do with them as well, so that I can have some one-on-one time with these people that I've been wanting to talk to, which started before the pandemic. But the panel Track has been interesting because it started as, " Hey, let's do a SheProp panel at WonderCon online." And so a group of the members did that, and then that kept happening. I was like, " Well, I think I'm going to get a Zoom account, and I think I'm going to open this up to whoever in the group wants to get together and and and talk about whatever they want to talk about." And so I have I have one one of my admins of the group, uh, Abby, um, AbbyCat Cosplay. She's phenomenal. She is so great at panels. She was like, " I'm going to do this," and she's done like seven of them so far, which is great. But it also means that I have to edit all of these things. So that is that's another another layer of things that I I didn't expect I was going to have to be doing so much of in 2020. But yeah, so indirectly participating in the panel track, um, both at virtual cons and also kind of on our own because. We realize we don't really need to have a convention to have that platform available to people.
 
 [00:08:07] Adam: I have been surprised the more I do Zoom meetings with friends, and again, it's been—I've been my inertia has been strong, but each time I do it, especially with professional friends, I finish feeling very much like I've just had a good dinner party.
 
@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=OOU8yadI2sY
 
 [00:12:21] Adam: Um, totally [wording uncertain: is it / is a / isn't] totally how I want to relax.
 
-[00:12:25] Beverly: I know it's not helping anything. Um, uh, yeah, so I, I, I have been. It's been a kind of a struggle with no deadline, so I've been giving myself little deadlines, which worked for a little bit, um, and I was able to to finish a couple of smaller projects. I did a, um, I did like a a corset that was inspired by, um, uh, Spirited Away, Haku from Spirited Away. It was a project for Plaid Effects, and my friend and I are going to be doing these ball gown costumes at some point. Uh, we were going to do it for MobileCon this year, but MobileCon was canceled, so we didn't get get to go there. Um, but that just means I get to spend more time on something something awesome for that. Um, and then I just finished, um, my second build of Hela, the the helmet. I just finished that, which I wanted to have done for Emerald City. And like looking back on that, I'm like, I was never going to be able to finish that
+[00:12:25] Beverly: I know it's not helping anything. Um, uh, yeah, so I, I, I have been. It's been a kind of a struggle with no deadline, so I've been giving myself little deadlines, which worked for a little bit, um, and I was able to to finish a couple of smaller projects. I did a, um, I did like a a corset that was inspired by, um, uh, Spirited Away, Haku from Spirited Away. It was a project for Plaid Effects, and my friend and I are going to be doing these ball gown costumes at some point. Uh, we were going to do it for MobileCon this year, but MomoCon was canceled, so we didn't get get to go there. Um, but that just means I get to spend more time on something something awesome for that. Um, and then I just finished, um, my second build of Hela, the the helmet. I just finished that, which I wanted to have done for Emerald City. And like looking back on that, I'm like, I was never going to be able to finish that
 
 [00:13:22] Norm: back in the spring.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=OOU8yadI2sY
 
 [00:15:56] Beverly: It's it's super stressful. And I was gonna say, I am impressed, Adam, with your ability to like move your camera around your shop and like position it, and then get back to work. And
 
-[00:16:09] Adam: I I will tell you, I made it as ludicrously easy as possible. The lack of friction took me weeks to achieve. What I have is some heavy duty lock line with a clamp at the end, and the camera's at the other end.
+[00:16:09] Adam: I I will tell you, I made it as ludicrously easy as possible. The lack of friction took me weeks to achieve. What I have is some heavy duty Loc-Line with a clamp at the end, and the camera's at the other end.
 
 [00:16:23] Beverly: Oh.
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=OOU8yadI2sY
 
 [00:24:09] Adam: I'm curious, uh, uh, do you ever have a second dresser with you to help you get the costume up and running and to keep eyes on some of the important parts?
 
-[00:24:20] Beverly: If I can, yes. And we, I have a good friend of mine, Melanie from Dila Designs. She is in our bubble of people that we can interact with, still at at a distance, but she does come come over. And for that shoot, she, uh, she was helping me because I have to do like the the, uh, crab walk when I have the Hela helmet on. I have to go sideways everywhere, so she helped me quite a lot with that. And she, you know, she's sort of like the, uh, the person that will make sure that my horns are straight. Or
+[00:24:20] Beverly: If I can, yes. And we, I have a good friend of mine, Melanie from Deela Designs. She is in our bubble of people that we can interact with, still at at a distance, but she does come come over. And for that shoot, she, uh, she was helping me because I have to do like the the, uh, crab walk when I have the Hela helmet on. I have to go sideways everywhere, so she helped me quite a lot with that. And she, you know, she's sort of like the, uh, the person that will make sure that my horns are straight. Or
 
 [00:24:52] Adam: that's the thing is you every extra pair of eyes is a really is a really big help. And this is also sometimes the way for me. It's often the way I find the pose that I'll use at the con.
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=OOU8yadI2sY
 
 [00:29:15] Beverly: Right, yeah.
 
-[00:29:15] Adam: You know, I've certainly on Halloween here in San Francisco, I tend to put on a costume. But last Halloween, I put on Captain America, and I rode my one wheel across San Francisco as Captain America therapy because I thought my therapist should see me in my natural state.
+[00:29:15] Adam: You know, I've certainly on Halloween here in San Francisco, I tend to put on a costume. But last Halloween, I put on Captain America, and I rode my Onewheel across San Francisco as Captain America therapy because I thought my therapist should see me in my natural state.
 
 [00:29:33] Beverly: That's amazing. That's great. Yeah, we'll see what Halloween looks like this year. the The other thing I've been noticing that a lot of cosplayers are doing is they are pivoting to creating content, like creating tutorials, or starting a YouTube channel, or you know, like starting a Patreon, or or or Finding the time, they're finding the time to focus on these smaller projects and recording them, documenting them, and making tip sheets, and kind of putting putting more things back out into the community, which I think is awesome. There’s a, I I feel like almost everyone that I know has been doing some version of that, which which is kind of neat, and I am sure that that's gonna—
 

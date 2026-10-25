@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:21:27] Will: Wow, that was an amazing segue.
 
-[00:21:29] Adam: That was beautiful, Norm. I'm blown away. It's a false dichotomy, by the way, to talk about which one is better. But yes, Sci-Fi Channel premieres Great Debate on this Thursday. Host Baron Vaughn. And a bunch of friends of mine were actually on the show. Aisha Tyler. It was so much fun to do this. This is a this is a thing that we've been doing at comic cons for years with the Sci-Fi Channel. Folks like Orlando, the amazing Orlando Jones, John Barrowman, John Hodgman, Aisha Tyler, and I have all done these at New York and San Diego Comic Con. They turned it into a show. It was the last job I did before the lockdown. I literally drove to LA instead of flying because I was no longer comfortable with flying that week.
+[00:21:29] Adam: That was beautiful, Norm. I'm blown away. It's a false dichotomy, by the way, to talk about which one is better. But yes, Syfy Channel premieres Great Debate on this Thursday. Host Baron Vaughn. And a bunch of friends of mine were actually on the show. Aisha Tyler. It was so much fun to do this. This is a this is a thing that we've been doing at comic cons for years with the Syfy Channel. Folks like Orlando, the amazing Orlando Jones, John Barrowman, John Hodgman, Aisha Tyler, and I have all done these at New York and San Diego Comic Con. They turned it into a show. It was the last job I did before the lockdown. I literally drove to LA instead of flying because I was no longer comfortable with flying that week.
 
 [00:22:17] Will: Wow,
 

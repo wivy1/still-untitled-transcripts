@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:14:59] Norm: It was yes that morning. It was it was listening to him and Phil just chatting about New Horizons.
 
-[00:15:06] Adam: Yes, Phil Plait, the bad astronomer, was also in our room for the dressing. That was really. It was just that was for me my favorite Comic Con I've yet attended. Oh, in terms of all the you know Alton coming the great Woodstock in which we shifted things and changed things up three costume walks finishing off with Hadfield.
+[00:15:06] Adam: Yes, Phil Plait, the bad astronomer, was also in our room for the dressing. That was really. It was just that was for me my favorite Comic Con I've yet attended. Oh, in terms of all the you know Alton coming the great w00tstock in which we shifted things and changed things up three costume walks finishing off with Hadfield.
 
 [00:15:24] Will: That's the most costume walks you've ever done, isn't it?
 
@@ -840,7 +840,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:36:57] Norm: And fast,
 
-[00:36:57] Will: fastest hunk and junk in the galaxy.
+[00:36:57] Will: fastest hunk of junk in the galaxy.
 
 [00:36:59] Adam: It is great. It is wonderful. It is. I look. If you ask me if I could, if I could have a magic wand and exist in a world where I could have a spaceship, it's the Falcon. On the extra materials for Firefly, or maybe it's for Serenity. They asked Joss Whedon. Joss Whedon, the origin story. They asked him the origin story for the Firefly universe.
 

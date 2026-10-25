@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ky7Qz9Mt_o
 
 [00:02:39] Will: again.
 
-[00:02:53] Norm: Unless your data.
+[00:02:53] Norm: Unless you're Data.
 
 [00:02:54] Adam: What? Oh, right. Are you fully functional? Fully functional.
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ky7Qz9Mt_o
 
 [00:06:33] Will: That special that they ran on CBS after Star Wars, like after the first airing of Star Wars on network TV, it was magical.
 
-[00:06:33] Adam: Oh no, I know, and there's so much of that stuff. So at one point, I remember on the, uh, uh, Industrial Light Magic internal, uh, web server, they have a list serve. So I posted, " Wow, I just saw Meet Joe Black. The car accident where Brad Pitt gets hit is insane." And then [unclear: Neha Wickramasekaram], who was a friend of mine at ILM, she was like, " Actually, she ran the archives for the video. And she said, 'Actually, we have that.'"
+[00:06:33] Adam: Oh no, I know, and there's so much of that stuff. So at one point, I remember on the, uh, uh, Industrial Light Magic internal, uh, web server, they have a list serve. So I posted, " Wow, I just saw Meet Joe Black. The car accident where Brad Pitt gets hit is insane." And then [unclear: Neha Wickramasekaran], who was a friend of mine at ILM, she was like, " Actually, she ran the archives for the video. And she said, 'Actually, we have that.'"
 
 [00:06:33] Will: Oh, so you could see the.
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ky7Qz9Mt_o
 
 [00:17:07] Norm: All the same, which is great.
 
-[00:17:13] Adam: Um, well, I mean, I, I think that's a little hard one from being on MythBusters for so long. You know, I, I'm sure that there was more of a dichotomy back when I was first doing it before MythBusters. But you know, after having watched myself for so many weirdly large number of hours from MythBusters, I'm really clear that my my my brand is me. My stock and trade is being as me as I can be, as natural.
+[00:17:13] Adam: Um, well, I mean, I, I think that's a little hard-won from being on MythBusters for so long. You know, I, I'm sure that there was more of a dichotomy back when I was first doing it before MythBusters. But you know, after having watched myself for so many weirdly large number of hours from MythBusters, I'm really clear that my my my brand is me. My stock and trade is being as me as I can be, as natural.
 
 [00:17:38] Will: Um, one of the things you did at the South by Talk that I've not seen you do before was a bunch of. You did slides.
 

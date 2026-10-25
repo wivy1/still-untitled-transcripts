@@ -98,9 +98,9 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:04:13] Adam: Every. I mean, I was putting in three or four miles a day just because, like, with headphones in and walking down the street, New York just feels like the best place.
 
-[00:04:20] Norm: Did you wish you had your one wheel?
+[00:04:20] Norm: Did you wish you had your Onewheel?
 
-[00:04:23] Adam: I really wished I had my one wheel. Um, and I am, I am, I'm literally thinking about next time I travel to New York, shipping ahead. I have two one wheels. Yeah, because I like to ride with friends,
+[00:04:23] Adam: I really wished I had my Onewheel. Um, and I am, I am, I'm literally thinking about next time I travel to New York, shipping ahead. I have two Onewheels. Yeah, because I like to ride with friends,
 
 [00:04:34] Will: of course.
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:10:11] Adam: Right,
 
-[00:10:11] Will: it's, it's May, is it May that falls in? I can't remember.
+[00:10:11] Will: it's, it's Mei, is it Mei that falls in? I can't remember.
 
 [00:10:15] Adam: I can't quite remember.
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:15:16] Will: Oh, that's so good!
 
-[00:15:17] Norm: And I we have to give a proper shout out to to Jen, who worked on the design for that. I was making sure I got her info right. Uh, We have been in touch with her to bring her to the Cape.
+[00:15:17] Norm: And I we have to give a proper shout out to to Jen, who worked on the design for that. I was making sure I got her info right. Uh, We have been in touch with her to bring her to the Cave.
 
 [00:15:27] Adam: She's going to come and make something. Jen is an amazing, uh, an amazing find. Um, I'm so glad to have met her. She took the construction of this sign. Uh, I've said this before, you know. I can only build something when I put it in my head,
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:17:46] Adam: Maybe maybe they just want an S or an X. Yeah, who knows? Um, yeah, it absolutely unparalleled and wonderful. And then uh, and then of course uh, tested. And I went to, uh, Pittsburgh and covered a bunch of different makerspaces there, and took a look at how Pittsburgh is looking to equalize opportunities for kids to have the ability to to go to makerspaces and learn learn the magic of being able to make something.
 
-[00:18:15] Will: Well, one of, um, when I was at Maker Fair, I I hung out at the Glowforge booth for a little bit and met some people, and, uh, I talked to like three, I think three librarians who were in different kinds of libraries. Like one was a small town rural, one was a big city
+[00:18:15] Will: Well, one of, um, when I was at Maker Faire, I I hung out at the Glowforge booth for a little bit and met some people, and, uh, I talked to like three, I think three librarians who were in different kinds of libraries. Like one was a small town rural, one was a big city
 
 [00:18:30] Adam: Yeah.
 
@@ -636,7 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:29:12] Will: The the the things, the going ons, they have happened.
 
-[00:29:14] Norm: And of course, oh, I got one last shout out: Tested live show next Saturday, October twenty ninth. Please, tickets are on sale now. We'd love to see you there at the Castro Theater in San Francisco, um, and we'll all be there.
+[00:29:14] Norm: And of course, oh, I got one last shout out: Tested live show next Saturday, October twenty ninth. Please, tickets are on sale now. We'd love to see you there at the Castro Theatre in San Francisco, um, and we'll all be there.
 
 [00:29:27] Adam: I was me using my sting for orcs, just in case
 

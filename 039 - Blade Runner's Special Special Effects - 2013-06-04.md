@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:08:29] Unknown speaker: Yes.
 
-[00:08:33] Will: They run them on the Science Fiction Channel, Sci-fi, sorry, and, and they're intentionally bad.
+[00:08:33] Will: They run them on the Science Fiction Channel, Syfy, sorry, and, and they're intentionally bad.
 
 [00:08:37] Adam: Yeah.
 

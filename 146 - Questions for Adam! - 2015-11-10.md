@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:20:13] Will: Yeah.
 
-[00:20:13] Adam: So if the story is really complicated, um, Steveo, Steve Christensen, our director and I will sit there and figure out, ah, we can't tell all this story in one shot. It's going to take like ninety seconds, and there's too many pieces. So you try to think about how not to over tire the audience in terms of how much information you've got to impart. So we'll do one piece to camera, and we'll say, " This is the broad rudiments of this experiment." Then, once we get into the build, where all of a sudden I'm handling the, let's say, key piece that is the experiment, I'll say, " We've chosen this for these reasons,
+[00:20:13] Adam: So if the story is really complicated, um, Steveo, Steve Christiansen, our director and I will sit there and figure out, ah, we can't tell all this story in one shot. It's going to take like ninety seconds, and there's too many pieces. So you try to think about how not to over tire the audience in terms of how much information you've got to impart. So we'll do one piece to camera, and we'll say, " This is the broad rudiments of this experiment." Then, once we get into the build, where all of a sudden I'm handling the, let's say, key piece that is the experiment, I'll say, " We've chosen this for these reasons,
 
 [00:20:48] Will: okay?
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:21:22] Will: Well you guys have been working together for a really long time.
 
-[00:21:24] Adam: Yeah, and I mean, for me, that's so much fun. It's like showing up on location and be like, " All right, how do we get into this? Great, let's. So why don't I do this? Why don't I come in like you know? So every time I'm doing something." Personally, I'm doing something that isn't explaining what the myth is. we, I'm calling it color, so this is color. Just like I'm having fun, so I brought my one wheel skateboard. Let's shoot me doing some slaloms. Um, I'm getting to ride in a helicopter, so here's what I'm thinking. And like when we did the helicopter shoot a couple of weeks ago, I had to throw Buster out of the helicopter, and I just had this image in my head of how I wanted to do it, and that was the only thing I knew when I arrived on location. And I turned to Steveo and I was like, I don't know how we're going to get into this, but when we're in the helicopter and Buster's got to go out, here's how I want him to leave. And Steve was like, Oh, that's great, let's do it. And then we figure out how to how to how to put that into a framework. And so it's like we do make it up every single day on the fly on location.
+[00:21:24] Adam: Yeah, and I mean, for me, that's so much fun. It's like showing up on location and be like, " All right, how do we get into this? Great, let's. So why don't I do this? Why don't I come in like you know? So every time I'm doing something." Personally, I'm doing something that isn't explaining what the myth is. we, I'm calling it color, so this is color. Just like I'm having fun, so I brought my Onewheel skateboard. Let's shoot me doing some slaloms. Um, I'm getting to ride in a helicopter, so here's what I'm thinking. And like when we did the helicopter shoot a couple of weeks ago, I had to throw Buster out of the helicopter, and I just had this image in my head of how I wanted to do it, and that was the only thing I knew when I arrived on location. And I turned to Steveo and I was like, I don't know how we're going to get into this, but when we're in the helicopter and Buster's got to go out, here's how I want him to leave. And Steve was like, Oh, that's great, let's do it. And then we figure out how to how to how to put that into a framework. And so it's like we do make it up every single day on the fly on location.
 
 [00:22:24] Norm: What I like is that it's a form of working the problem, yeah working the story problem
 
@@ -486,11 +486,11 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:25:09] Will: is this is this like it's not like second location filming it's not like a
 
-[00:25:13] Adam: no no no this isn't second unit this is we're gonna cover this Sauce is gonna cover it on the Sony, uh, XD the big camera. Um, but we're also gonna cover it on a couple of FSs we're gonna cover it on a bunch of Black Magics and then a bunch of GoPros and a bunch of CXs and all of these cameras have different purposes for us the CXs have the best sound so we'll if we have a driving Shot the CX goes in the car because it's got the best sound for the dialogue that I'm saying while I'm driving because I'm way too far away for my soundo to get that.
+[00:25:13] Adam: no no no this isn't second unit this is we're gonna cover this Sauce is gonna cover it on the Sony, uh, XD the big camera. Um, but we're also gonna cover it on a couple of FSs we're gonna cover it on a bunch of Blackmagics and then a bunch of GoPros and a bunch of CXs and all of these cameras have different purposes for us the CXs have the best sound so we'll if we have a driving Shot the CX goes in the car because it's got the best sound for the dialogue that I'm saying while I'm driving because I'm way too far away for my soundo to get that.
 
 [00:25:42] Will: Of course,
 
-[00:25:42] Adam: Um, the Black Magics are great for the depth of field, GoPros for the stuff where they might get destroyed, and you know we only have three cameramen. There's Scott, there's Duncan, and there's Willie, and those guys will set up sixteen cameras that all have to be set rolling.
+[00:25:42] Adam: Um, the Blackmagics are great for the depth of field, GoPros for the stuff where they might get destroyed, and you know we only have three cameramen. There's Scott, there's Duncan, and there's Willie, and those guys will set up sixteen cameras that all have to be set rolling.
 
 [00:25:57] Will: Wow!
 

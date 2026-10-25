@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:10:30] Will: Atlas experiment
 
-[00:10:30] Norm: right yes so our our primary contact the physicists who part of the outreach program invited us they are Stephen Goldfarb he also he works for the Atlas experiment so the way it's organizationally works is there's the LHC which is the the ring and then along the ring there are four detectors or experiments where the particles collide and then they built these giant room size underground cavern machines that detect them and study them and we're talking about petabytes of data you know per per hour that's being sent away to be analyzed. And it's all
+[00:10:30] Norm: right yes so our our primary contact the physicists who part of the outreach program invited us they are Steven Goldfarb he also he works for the Atlas experiment so the way it's organizationally works is there's the LHC which is the the ring and then along the ring there are four detectors or experiments where the particles collide and then they built these giant room size underground cavern machines that detect them and study them and we're talking about petabytes of data you know per per hour that's being sent away to be analyzed. And it's all
 
 [00:11:03] Will: petabyte is a thousand terabytes.
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:11:48] Adam: Oh wow.
 
-[00:11:48] Norm: So Kishore, who works for the Bay Area, he runs the Bay Area Science Festival, works for UCSF. He his field is basically science communication. And so, Stephen Goldfarb, the physicist, we we set up a workshop where we had thirty, I think, thirty five people attend, physicists and communicators at CERN, and Kishore gave a presentation to talk about science communication, how physicists can be better communicators, because there are a lot of people—
+[00:11:48] Norm: So Kishore, who works for the Bay Area, he runs the Bay Area Science Festival, works for UCSF. He his field is basically science communication. And so, Steven Goldfarb, the physicist, we we set up a workshop where we had thirty, I think, thirty five people attend, physicists and communicators at CERN, and Kishore gave a presentation to talk about science communication, how physicists can be better communicators, because there are a lot of people—
 
 [00:12:16] Adam: The A in STEAM,
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:17:50] Norm: It's hugely a collaborative. Okay, a lot of it's subcontracted out, but a lot of the the machining that It has to be custom.
 
-[00:17:56] Will: I'm sure if something breaks, then it's not like you can get under the Radio Shack and get a new, new Alice experiment.
+[00:17:56] Will: I'm sure if something breaks, then it's not like you can get under the Radio Shack and get a new, new ALICE experiment.
 
 [00:17:56] Norm: Yeah,
 
@@ -340,7 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:18:59] Norm: Yeah.
 
-[00:19:00] Adam: One notch down from that, though, is the one wheel, and I got the one wheel plus at at South by Southwest.
+[00:19:00] Adam: One notch down from that, though, is the Onewheel, and I got the Onewheel plus at at South by Southwest.
 
 [00:19:09] Norm: Are you traveling with that now?
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:19:24] Norm: Are you traveling with that? Is that on on the tour bus?
 
-[00:19:27] Adam: I have been riding it every single day. Thing two, by the way. So now there was a wonderful app called One Wheel Buddy, which has now been absorbed into One Wheel, and their app is a wonderful improvement. Now you can sign up for accounts, and they you can actually record routes where you're riding. You can record routes, and you can trade routes with other people. And there are leaderboards for speed. I'm here to tell you that thing two is Way high up on the speed leaderboard now.
+[00:19:27] Adam: I have been riding it every single day. Thing two, by the way. So now there was a wonderful app called One Wheel Buddy, which has now been absorbed into Onewheel, and their app is a wonderful improvement. Now you can sign up for accounts, and they you can actually record routes where you're riding. You can record routes, and you can trade routes with other people. And there are leaderboards for speed. I'm here to tell you that thing two is Way high up on the speed leaderboard now.
 
 [00:20:03] Will: So, how, but hold on, doesn't it speed limit? Or can you can you turn that off if you get crazy?
 
@@ -376,7 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:20:35] Unknown speaker: Wow.
 
-[00:20:35] Norm: When you when you travel, like you're in a new town, you have something like the one wheel. When you look at Google Maps, you look at the pedestrian walking time and divide that by three, like for for time estimation, because there is no.
+[00:20:35] Norm: When you when you travel, like you're in a new town, you have something like the Onewheel. When you look at Google Maps, you look at the pedestrian walking time and divide that by three, like for for time estimation, because there is no.
 
 [00:20:49] Adam: Actually, no. It's fairly close to a bicycle in terms of time. You know, with an average speed of twelve miles. Per hour, it's not far off of what a bike journey would be, and I do. I have been getting out in most cities. It's been lovely since we left the Northeast, where it's actually warm down here. In well, it was in Florida for the last week. Um, uh, and speaking of Florida, when I was in Melbourne, Florida, my friend Dave Lavery from NASA came and picked up Thing Two and I, and we got a kind of mind-bending tour. Well, first we went to the Kennedy Space Center, which is I don't know if you've been since since the the shuttles there.
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:24:22] Will: Wow. So, so like I have to imagine, like in scale from fiction, you're talking about a room like as big as the Jaeger room in Pacific Rim, right? It's an enormous, enormous room.
 
-[00:24:33] Adam: It's um, it's very difficult. I took tons of photos, and yet none of them quite communicate what I would refer to. Well, I first experienced this feeling when I went to Hangar Two, one of the large wooden blimp hangars at NASA Ames, and you can see the big steel one up close to the highway, but farther back. Behind it are the two hangers, one and two, made of redwood. They are twelve hundred feet long, and it's two hundred and thirty feet from the middle of the hanger to the trusswork. And if you, we filmed in there on MythBusters several times. And if you are walking down the the the hanger and looking up, you actually get what I call reverse vertigo. Your your body can't quite comprehend the scale of what you are inside, and the VAB is completely the same experience. It is so big; it has structure just because it has. It actually ends up not with weather inside, like you don't get actual clouds, but you do. They said if you open one of these doors, and again, these doors are five hundred feet tall. If they open one of the doors, fog can roll through the building, and clouds clouds have entered at the top of the building.
+[00:24:33] Adam: It's um, it's very difficult. I took tons of photos, and yet none of them quite communicate what I would refer to. Well, I first experienced this feeling when I went to Hangar Two, one of the large wooden blimp hangars at NASA Ames, and you can see the big steel one up close to the highway, but farther back. Behind it are the two hangars, one and two, made of redwood. They are twelve hundred feet long, and it's two hundred and thirty feet from the middle of the hangar to the trusswork. And if you, we filmed in there on MythBusters several times. And if you are walking down the the the hangar and looking up, you actually get what I call reverse vertigo. Your your body can't quite comprehend the scale of what you are inside, and the VAB is completely the same experience. It is so big; it has structure just because it has. It actually ends up not with weather inside, like you don't get actual clouds, but you do. They said if you open one of these doors, and again, these doors are five hundred feet tall. If they open one of the doors, fog can roll through the building, and clouds clouds have entered at the top of the building.
 
 [00:25:45] Will: I so I got to go there when I was in college, I guess, and when I when when the Guy, the person who was giving us the tour was like, " Hey, I want you to tilt your head back as far as it goes and look straight up at the ceiling." And then he stood behind us, so when we started to fall over because we you kind of lost your sense of scale, he like he was there to put a hand on your shoulder so you didn't tip. And like it was, I don't get vertigo, but I kind you kind of have this reverse vertigo. At least I did. It was unbelievable.
 

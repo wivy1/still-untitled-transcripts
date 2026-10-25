@@ -134,17 +134,17 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:06:38] Will: Oh yeah!
 
-[00:06:38] Adam: I showed it to you guys. Um, I got a one wheel last week from the guys from One Wheel.
+[00:06:38] Adam: I showed it to you guys. Um, I got a Onewheel last week from the guys from Onewheel.
 
 [00:06:45] Will: We we we rode. We talked to them and rode at Maker Faire in 2014, I think. Um, And I like it was a. I I was very close to another man that day. He he held my shoulders. I held his as we did the first ride. And then after like two minutes, I was kind of whizzing around the the the the field at Maker Faire.
 
-[00:07:01] Adam: Yeah, and it's actually so one wheel, uh. For those of you who haven't seen one, it's basically a skateboard with a giant like eight inch
+[00:07:01] Adam: Yeah, and it's actually so Onewheel, uh. For those of you who haven't seen one, it's basically a skateboard with a giant like eight inch
 
 [00:07:09] Norm: go kart
 
 [00:07:10] Adam: go kart tire. Yeah, so it's like five inches wide and eight inches tall, a slick, uh, in the middle, and it self balances like a Segway. Um, You do need a sense of balance to ride it. It's not instantaneous, like a like a
 
-[00:07:23] Norm: one wheel.
+[00:07:23] Norm: Onewheel.
 
 [00:07:23] Will: But the thing I the thing I liked about it is it felt less like a skateboard, which I have no proficiency with.
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:08:15] Will: That you have to use, which both seems safer and less safe at the same time.
 
-[00:08:26] Adam: To be honest, it is the that is the biggest learning curve on the one wheel is learning how to stop without any kind of. Control just balance, and they have a method. It has a switch, a dead man switch, so it goes off the moment your foot is off the front pad.
+[00:08:26] Adam: To be honest, it is the that is the biggest learning curve on the Onewheel is learning how to stop without any kind of. Control just balance, and they have a method. It has a switch, a dead man switch, so it goes off the moment your foot is off the front pad.
 
 [00:08:43] Will: Does it stop, stop, or coast?
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:08:44] Will: Okay.
 
-[00:08:44] Adam: Well, yeah, no, it stops. Stops, especially since you're leaning and you're balancing, and it's accommodating for that. You stop instantly anyway, as I can attest to you from my aging body having withstood a bunch of bruises and knocks over the past week as I've been learning to ride the one wheel.
+[00:08:44] Adam: Well, yeah, no, it stops. Stops, especially since you're leaning and you're balancing, and it's accommodating for that. You stop instantly anyway, as I can attest to you from my aging body having withstood a bunch of bruises and knocks over the past week as I've been learning to ride the Onewheel.
 
 [00:09:02] Will: As it is, [unclear: as it goes./—]
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:09:07] Adam: Yeah.
 
-[00:09:07] Will: I assume that the one wheel with the big giant wheel and totally sealed body is probably going to do okay and everything, but like loose sand.
+[00:09:07] Will: I assume that the Onewheel with the big giant wheel and totally sealed body is probably going to do okay and everything, but like loose sand.
 
 [00:09:21] Adam: It’s made for off roading, so we are actually going up to Gold Country. I don't sure when this will air, but I'm heading up to Gold
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:09:21] Will: Yeah.
 
-[00:09:21] Adam: I'm heading up to Gold Country tonight, and I'm going to bring the skateboard, the the one wheel. The other thing I like about it is you can get five miles on a single charge. As far as I'm concerned, it's my last mile emergency vehicle in the Land Cruiser.
+[00:09:21] Adam: I'm heading up to Gold Country tonight, and I'm going to bring the skateboard, the the Onewheel. The other thing I like about it is you can get five miles on a single charge. As far as I'm concerned, it's my last mile emergency vehicle in the Land Cruiser.
 
 [00:09:40] Will: Oh yeah,
 
@@ -294,11 +294,11 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:11:40] Will: Um. I love it. They feel it. It feels almost like I imagine riding the conveyor belt and the Jetsons would, right? It feels effortless because after you internalize controls, you just kind of think the thing that you want to do, and then it happens.
 
-[00:11:53] Adam: And being, I'm a very experienced unicycle rider. [unclear: Uh,/—] I can go up and down stairs and juggle on it and everything. And I love the SBU. [unclear: I pre./Um, I perf,] I think the one wheel gives me even more of that. I'm looking at a place, and I am heading over there now.
+[00:11:53] Adam: And being, I'm a very experienced unicycle rider. [unclear: Uh,/—] I can go up and down stairs and juggle on it and everything. And I love the SBU. [unclear: I pre./Um, I perf,] I think the Onewheel gives me even more of that. I'm looking at a place, and I am heading over there now.
 
 [00:11:53] Will: Yeah.
 
-[00:11:53] Adam: The the. The like you said, thought-driven movement, which is uncanny. [unclear: Um,/—] One of the other advantages. The last thing I'll say about this is when you ride it, you automatically go into a skateboard slouch, which for me is sort of like the ultimate and cool. And I never thought, close to fifty, that I'd ever get to enjoy a skateboard slouch.
+[00:11:53] Adam: The the. The like you said, thought-driven movement, which is uncanny. [unclear: Um,/—] One of the other advantages. The last thing I'll say about this is when you ride it, you automatically go into a skateboard slouch, which for me is sort of like the ultimate in cool. And I never thought, close to fifty, that I'd ever get to enjoy a skateboard slouch.
 
 [00:12:27] Will: I mean, who would think that you would ever be cool, Adam?
 
@@ -350,13 +350,13 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:13:43] Norm: Let's finish Seveneves.
 
-[00:13:44] Will: Do the Seven Eves wrap?
+[00:13:44] Will: Do the Seveneves wrap?
 
-[00:13:45] Adam: Okay, we're gonna finish Seven Eves. So
+[00:13:45] Adam: Okay, we're gonna finish Seveneves. So
 
 [00:13:47] Will: from this point on. Spoilers abound.
 
-[00:13:48] Adam: Spoilers abound. Also, I really appreciate. I read the comment on Tested where someone, or maybe someone, tweeted to me, " [unclear: Hmm,] The third time Will and Adam said, 'Don't listen any further if you don't want to spoil,' they actually, I think it was a she, she actually turned the podcast off at that point." Thank you. That is exactly how this works. I didn't want to spoil what Seven Eves is about. So, if you are going to continue to listen to this, and you want to read Seven, actually, I'll just say this: if you want to read Seven Eves, don’t listen to anything we’re about to say.
+[00:13:48] Adam: Spoilers abound. Also, I really appreciate. I read the comment on Tested where someone, or maybe someone, tweeted to me, " [unclear: Hmm,] The third time Will and Adam said, 'Don't listen any further if you don't want to spoil,' they actually, I think it was a she, she actually turned the podcast off at that point." Thank you. That is exactly how this works. I didn't want to spoil what Seveneves is about. So, if you are going to continue to listen to this, and you want to read Seven, actually, I'll just say this: if you want to read Seveneves, don’t listen to anything we’re about to say.
 
 [00:14:17] Will: we don't want you to listen anymore.
 
@@ -368,11 +368,11 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:14:22] Will: Go outside. Go for a walk.
 
-[00:14:23] Adam: Go outside. Go read Seven Eves. Come back and listen to this because Will and I covered parts one and two of Seven Eves,
+[00:14:23] Adam: Go outside. Go read Seveneves. Come back and listen to this because Will and I covered parts one and two of Seveneves,
 
 [00:14:23] Will: Yes.
 
-[00:14:23] Adam: which take place on Earth and then on the International Space Station, or Izzie as it was, and the third part of this book. And this is a spoiler alert, so you can stop listening right now.
+[00:14:23] Adam: which take place on Earth and then on the International Space Station, or Izzy as it was, and the third part of this book. And this is a spoiler alert, so you can stop listening right now.
 
 [00:14:40] Will: Like, just bye. We'll see you next week. Thanks for watching.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:15:19] Adam: For me, it started with that there were seven, and I really like just just the reveal that. Yeah,
 
-[00:15:25] Norm: definitely chills. Less so crying, but the crying moment is the dub the final walk of Dubb, and Dinah, on,
+[00:15:25] Norm: definitely chills. Less so crying, but the crying moment is the Doob the final walk of Doob, and Dinah, on,
 
 [00:15:33] Will: on the outside of the cradle,
 
@@ -458,11 +458,11 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:16:50] Will: [unclear: Yeah,/It’s,] I mean, Neil deGrasse Tyson is the archetype that is that started with Carl Sagan, right? The science communicator.
 
-[00:16:56] Norm: Yes, and then maybe the, uh, Tav is supposed to be, you know, Stevenson's view of like what blogging [unclear: and and/and, and, and] popular science has become on in the blogosphere.
+[00:16:56] Norm: Yes, and then maybe the, uh, Tav is supposed to be, you know, Stephenson's view of like what blogging [unclear: and and/and, and, and] popular science has become on in the blogosphere.
 
 [00:17:06] Will: I felt like I felt like that entire arc. We didn't talk about this when we talked about this a couple of weeks ago, but I felt like the Tavist arc and the the rise of the social network in the capsules in the cloud was a very strong indictment of modern social media and the the kind of Gawker style blog that has developed over the last twenty years.
 
-[00:17:25] Adam: Well, Again, especially the the pointless. I mean, Neil makes it really clear his politics on the matter. The pointless echo chamber of opinion movement that Julia engenders the moment she arrives,
+[00:17:25] Adam: Well, Again, especially the the pointless. I mean, Neal makes it really clear his politics on the matter. The pointless echo chamber of opinion movement that Julia engenders the moment she arrives,
 
 [00:17:40] Norm: and how effective it is,
 
@@ -492,11 +492,11 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:19:27] Will: Well, Nor does it even wrap up all the threads.
 
-[00:19:29] Norm: It doesn't. It doesn't wrap up all the threads. The first two parts of the book, you have this tense feeling of: Does humanity make it? Does he make it? Do we make it? And it's a disaster novel, but it's an optimistic disaster novel, as Neil Stevenson says. because it’s an optimist.
+[00:19:29] Norm: It doesn't. It doesn't wrap up all the threads. The first two parts of the book, you have this tense feeling of: Does humanity make it? Does he make it? Do we make it? And it's a disaster novel, but it's an optimistic disaster novel, as Neal Stephenson says. because it’s an optimist.
 
 [00:19:42] Adam: Oh, he's I mean the most. Optimistic disaster novel ever written. Actually, because it, because of the big reveal at the end.
 
-[00:19:48] Norm: Yes, and when you think of it, the reveal being five thousand years later, humanity is one. We've if we have survived for five thousand years and repopulated a point, any measure. If you look, we've we've had more than our current civilization. Have we're talking about three thousand BC to two thousand eighty now? It could have ended just there. We made it. We did.
+[00:19:48] Norm: Yes, and when you think of it, the reveal being five thousand years later, humanity is one. We've if we have survived for five thousand years and repopulated a point, any measure. If you look, we've we've had more than our current civilization. Have we're talking about three thousand BC to two thousand AD now? It could have ended just there. We made it. We did.
 
 [00:19:48] Will: Yeah.
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:21:48] Norm: I, we're not at a point in real life where if that was happening, if the the moon blew up and we had two years ago, I don't think we could do it.
 
-[00:22:04] Will: We talked about it a little bit. I don't know if you listened to the podcast, but did you feel like I I really left the end of part one thinking that the effort to build the arc, the cloud arc, was a panacea to to keep the
+[00:22:04] Will: We talked about it a little bit. I don't know if you listened to the podcast, but did you feel like I I really left the end of part one thinking that the effort to build the ark, the cloud ark, was a panacea to to keep the
 
 [00:22:15] Will: keep the people on the ground [unclear: um,/—] from revolting from from to keep to keep chaos at bay as long as possible.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:22:48] Will: So, I thought that the third part of the book could have easily been an Arthur Clarke-style 2001 epilogue. You know, at 5,000 years in the future, and then it [unclear: it/—] opens with a descendant of Dinah stepping out of the cradle onto the onto the the [unclear: the/—] new primordial Earth, and and you know, seeing a cheetah eat a lion or something, a lion eat a elk or something, and then close. I understand why he like. I I think I I got the strong feeling reading the third part. I know a lot of people didn't like it. I got the strong feeling reading the third part that Neal Stephenson had a strong vision for what he wanted that to be.
 
-[00:23:22] Adam: Oh, I think so too. Especially when you read the interviews and see that, and we talked about this on the podcast that Neil had developed this as a video game, as a television series, as a film, and it was very. I think that when you talk about developing that stuff. There's a lot to develop in the first two parts, but the third is where I think a lot of his
+[00:23:22] Adam: Oh, I think so too. Especially when you read the interviews and see that, and we talked about this on the podcast that Neal had developed this as a video game, as a television series, as a film, and it was very. I think that when you talk about developing that stuff. There's a lot to develop in the first two parts, but the third is where I think a lot of his
 
 [00:23:42] Norm: world building,
 
@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:24:52] Adam: Fellowship of the Ring.
 
-[00:24:52] Norm: Exactly, it's very fellowship like, and you use that as a way to tell the world. But my favorite parts were then recollecting and filling in the gaps of the five thousand years using the videotapes of like, oh, it is, it is your Dyna Day, you know, your your Eve Day, and so we'll watch the videos, and this is a big lesson, and that fills up that first two hundred years after the end of the first two books that we don't get.
+[00:24:52] Norm: Exactly, it's very fellowship like, and you use that as a way to tell the world. But my favorite parts were then recollecting and filling in the gaps of the five thousand years using the videotapes of like, oh, it is, it is your Dinah Day, you know, your your Eve Day, and so we'll watch the videos, and this is a big lesson, and that fills up that first two hundred years after the end of the first two books that we don't get.
 
 [00:25:27] Adam: Yeah.
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:26:19] Norm: I think it would be like a movie, you know, a three movie. But even as a as a movie, the the tone and what the first two books you know is this combination of Interstellar and Gravity and The Martian. It's so tonally different than the third book. It's the third part of the book that to to make that into some type of popular media would be very difficult.
 
-[00:26:40] Will: Well, they even changed the. I mean, you have to, but that third book wouldn't have worked if he hadn't earned it with the first two parts. That's the thing. So like I I. I don't know. I I would love to see more of of the world of Seven Eves. I
+[00:26:40] Will: Well, they even changed the. I mean, you have to, but that third book wouldn't have worked if he hadn't earned it with the first two parts. That's the thing. So like I I. I don't know. I I would love to see more of of the world of Seveneves. I
 
 [00:26:51] Adam: I would love to see. I'd love to see it as a TV series. I'd love to see it as a game. I recognize that it was stylistically radically different. I was I I wanted to know more about the art, like I've often said, that theater is the first art form that will survive an apocalypse. That will will come back after an apocalypse.
 
@@ -626,9 +626,9 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:27:31] Will: okay I don't remember what we were talking about though
 
-[00:27:32] Norm: we were talking about Seven Eves
+[00:27:32] Norm: we were talking about Seveneves
 
-[00:27:33] Adam: Seven Eves
+[00:27:33] Adam: Seveneves
 
 [00:27:33] Norm: third part
 
@@ -736,7 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:31:41] Will: Oh, I didn't know that.
 
-[00:31:42] Norm: I only know in the book the first and last pages. There's one, uh. Weda did drawings of. Izzy and drawing of the cradle,
+[00:31:42] Norm: I only know in the book the first and last pages. There's one, uh. Weta did drawings of. Izzy and drawing of the cradle,
 
 [00:31:49] Adam: and the cradle and Izzy are beautiful.
 
@@ -822,7 +822,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:34:48] Will: See, I thought I didn't think there would be any of that stuff. That was my least favorite part of the book, for what it's worth.
 
-[00:34:52] Norm: I found it so stressful. Cast your seven eaves. Let's finish this. Cast it. I mean, when you're reading it and you're listening to audio book.
+[00:34:52] Norm: I found it so stressful. Cast your seven Eves. Let's finish this. Cast it. I mean, when you're reading it and you're listening to audio book.
 
 [00:34:57] Will: Well, Julia Louis Dreyfus is the president.
 
@@ -888,9 +888,9 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:36:48] Will: No, that's me. So people always ask for book recommendations at the end of these.
 
-[00:36:55] Norm: I will give one more casting thing, and I'll shut up. Techa, Gwendoline Christie
+[00:36:55] Norm: I will give one more casting thing, and I'll shut up. Tekla, Gwendoline Christie
 
-[00:37:00] Will: is Techa the Russian?
+[00:37:00] Will: is Tekla the Russian?
 
 [00:37:01] Norm: Yes.
 
@@ -992,7 +992,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:39:25] Will: I can master that for you, sir.
 
-[00:39:27] Norm: Pass a book back and forth, but next week we'll be back and let's talk about red shirts.
+[00:39:27] Norm: Pass a book back and forth, but next week we'll be back and let's talk about Redshirts.
 
 [00:39:31] Adam: Absolutely.
 

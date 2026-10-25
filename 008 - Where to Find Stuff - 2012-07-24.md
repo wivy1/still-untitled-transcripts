@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:16:02] Adam: Yes.
 
-[00:16:03] Will: Um, but I mean, where else do you—where else do you go to? I mean, it seems like, like I—I walk around here and I look at stuff and I’m like, oh yeah, I can see why you’d use that. I can see why you’d use that. I can see—and, and it’s all like, there’s trays of batteries and screws and, and divots, and is there, I mean, any place in particular that you go to find that kind of stuff that’s not maybe immediately obvious?
+[00:16:03] Will: Um, but I mean, where else do you—where else do you go to? I mean, it seems like, like I—I walk around here and I look at stuff and I’m like, oh yeah, I can see why you’d use that. I can see why you’d use that. I can see—and, and it’s all like, there’s trays of batteries and screws and, and rivets, and is there, I mean, any place in particular that you go to find that kind of stuff that’s not maybe immediately obvious?
 
 [00:16:21] Adam: You got to figure out what you—what you need, and you got to figure out how you work. That’s one of the key things. And that’s one of the tricky parts for a young maker, is that you don’t know how—you don’t know what you don’t know.
 

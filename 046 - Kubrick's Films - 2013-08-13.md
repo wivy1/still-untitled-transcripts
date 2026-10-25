@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:10:03] Will: Figures, if she's German,
 
-[00:10:04] Adam: right? And she's so she's a circus performer. So they remade this film in America called City of Angels, where the angel role is played by by Nicholas Cage.
+[00:10:04] Adam: right? And she's so she's a circus performer. So they remade this film in America called City of Angels, where the angel role is played by by Nicolas Cage.
 
 [00:10:16] Norm: Yes, okay.
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:10:19] Norm: Academy Award winner for that movie.
 
-[00:10:21] Adam: And here's the meeting where someone was like, " Yes, we got the rights to Wings of Desire. The angel will be played by Nicholas Cage. Now, let's get to the girl. In the German film, she's a circus performer. What if in the American version she's a famous brain surgeon played by Meg Ryan?
+[00:10:21] Adam: And here's the meeting where someone was like, " Yes, we got the rights to Wings of Desire. The angel will be played by Nicolas Cage. Now, let's get to the girl. In the German film, she's a circus performer. What if in the American version she's a famous brain surgeon played by Meg Ryan?
 
 [00:10:41] Will: Wow, really?
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:13:54] Will: you mean ask Norm first because I'm pretty sure he remembers.
 
-[00:13:57] Adam: I think it might have been. It was either the. I think it might have been The Shining.
+[00:13:57] Adam: I think it might have been The Shining.
 
 [00:14:00] Will: Okay.
 
@@ -792,11 +792,11 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:27:31] Norm: but that's why that movie also is so. It's from the pictures I've seen. It's also flat because it's supposed to be like those paintings.
 
-[00:27:39] Adam: It does. It does feel quite flat. The two movies from that time, from like the Regency era, that that I think that make me feel the most like it probably felt are that movie, Barry Lyndon, and Peter Greenaway's The Draftsman's Contract, which is. Wonderful and amazing, but also like gives you an idea about how much those people must have stunk in those clothes that they never bathed in and barely washed.
+[00:27:39] Adam: It does. It does feel quite flat. The two movies from that time, from like the Regency era, that that I think that make me feel the most like it probably felt are that movie, Barry Lyndon, and Peter Greenaway's The Draughtsman's Contract, which is. Wonderful and amazing, but also like gives you an idea about how much those people must have stunk in those clothes that they never bathed in and barely washed.
 
 [00:28:02] Will: Can only imagine.
 
-[00:28:03] Adam: Yeah, I mean, everyone's just filthier on the edges in the draftsman's contract.
+[00:28:03] Adam: Yeah, I mean, everyone's just filthier on the edges in the draughtsman's contract.
 
 [00:28:07] Will: Oh yeah,
 

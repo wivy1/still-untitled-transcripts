@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:10:49] Will: Gruyère is great.
 
-[00:10:50] Adam: Uh, Gruyère, absolutely. Um, and then I put avocado in. Now I used to slice my avocado and put it in in chunks. I've actually discovered that if you put it in in scalloped spoon scoops, where it's like really thin at the edges, um, the avocado becomes a much better texture inside the omelet, and it marries with the eggs much better. Then a little cayenne, a little salt, a little pepper. I fold it over. I then put a little swash of buffalo chipotle sauce, which is available at any of the Mexican places here in the Mission for ninety-nine cents a bottle. And I swear it is, it is like sriracha sauce for us. It's a lifeblood sauce that we'll put on almost everything.
+[00:10:50] Adam: Uh, Gruyère, absolutely. Um, and then I put avocado in. Now I used to slice my avocado and put it in in chunks. I've actually discovered that if you put it in in scalloped spoon scoops, where it's like really thin at the edges, um, the avocado becomes a much better texture inside the omelet, and it marries with the eggs much better. Then a little cayenne, a little salt, a little pepper. I fold it over. I then put a little swash of Búfalo chipotle sauce, which is available at any of the Mexican places here in the Mission for ninety-nine cents a bottle. And I swear it is, it is like sriracha sauce for us. It's a lifeblood sauce that we'll put on almost everything.
 
 [00:11:30] Will: I like the sound of this.
 

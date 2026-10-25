@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:03:08] Norm: right?
 
-[00:03:08] Adam: Right. Schrader over in Cole Valley closes down for at least Halloween. I don't know about Christmas.
+[00:03:08] Adam: Right. Shrader over in Cole Valley closes down for at least Halloween. I don't know about Christmas.
 
 [00:03:16] Will: There is a guy in Noe that does that basically just sticks a bazillion stuffed animals and lights and like roller coasters,
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:14:57] Adam: We are super Broadway nerds for this show.
 
-[00:14:58] Norm: For example, the first time it came through San Francisco, it was the then the Chicago Hamilton, who then went on tour for for us, and then this technically is a tour they called the Anne Peggy tour, and it started last February in San Francisco, and they kept on extending it, so it's now going through end of May. But the company does swap out. Some of the performers.
+[00:14:58] Norm: For example, the first time it came through San Francisco, it was the then the Chicago Hamilton, who then went on tour for for us, and then this technically is a tour they called the And Peggy tour, and it started last February in San Francisco, and they kept on extending it, so it's now going through end of May. But the company does swap out. Some of the performers.
 
 [00:15:18] Will: yes, and and I think the show that I saw was one of the last with the with the the brunt of that cast on Sunday, and then they split up and are going different ways.
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:15:48] Will: It was like the thing. It it it was beautiful because I was able to pay attention to what was happening on stage and and the staging and the sets and the costumes and not have to worry about following the plot because I I thought I knew the plot and I knew the the high points, but there was definitely stuff that I missed only having seen the cast recording.
 
-[00:16:05] Adam: Well, and there is one part of the libretto that's not in the cast recording, which is the death of John Lawrence, which is super sad.
+[00:16:05] Adam: Well, and there is one part of the libretto that's not in the cast recording, which is the death of John Laurens, which is super sad.
 
 [00:16:11] Norm: Yeah, the letter that's. That she reads him
 
@@ -1156,7 +1156,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:40:18] Norm: Dakota Fanning.
 
-[00:40:18] Adam: Dakota Fanning playing Squeaky Fromm was terrifying. Bruce Dern, amazing.
+[00:40:18] Adam: Dakota Fanning playing Squeaky Fromme was terrifying. Bruce Dern, amazing.
 
 [00:40:24] Will: I didn't recognize Bruce Dern, which is like I don't know how you don't recognize Bruce Dern, but yeah, it was really good.
 
@@ -1308,7 +1308,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:46:39] Adam: Favreau, yeah, you you get these totally different viewpoints that are that are quite unique and different from each other. So there are multiple genres of MCU films. So I'm really glad that within the Star Wars universe, I had no idea how much I wanted a 30 minute Star Wars nugget of plot of plot in a TV show. But man, now all I want is like dozens of seasons of this.
 
-[00:47:01] Will: It's it's been lovely between that and Watchmen. It's the first time I've had like a I've had a point in television in probably 10 years.
+[00:47:01] Will: It's it's been lovely between that and Watchmen. It's the first time I've had like a I've had appointment television in probably 10 years.
 
 [00:47:07] Adam: This me too. All over Christmas, for the whole all of December, all I've been doing is very excitedly waiting every week for His Dark Materials, Watchmen, and Mandalorian.
 

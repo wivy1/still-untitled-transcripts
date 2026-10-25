@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:02:47] Adam: Ben is you're here because of Sketchfest.
 
-[00:02:51] Ben: Agree, strong agree, strong agree. I I was here for the San Francisco Sketchfest, which I. I love and will come when invited. I did a handful of shows. I read worst first chapters in a show called Worst First Chapters, where you read terrible prose from a book that doesn't exist. It was it was two great times. I helped Busy Phillips do her Busy Tonight Live program.
+[00:02:51] Ben: Agree, strong agree, strong agree. I I was here for the San Francisco Sketchfest, which I. I love and will come when invited. I did a handful of shows. I read worst first chapters in a show called Worst First Chapters, where you read terrible prose from a book that doesn't exist. It was it was two great times. I helped Busy Philipps do her Busy Tonight Live program.
 
 [00:03:16] Adam: She's the best.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:14:44] Norm: Where do these notes come from? As a writer, as a comic fan,
 
-[00:14:48] Ben: as a guy, I guess, as a writer, I guess. As a guy who's more interested in characters interacting than stuff interacting with characters, I guess ultimately, like for me, the most satisfying stuff is I have a point of view, I have a point of view, and we are in a thing about it, right? And so it builds to this climax where the kingpin is punching people, and that's like for me, the kingpin is a character like Don Corleone who's good enough at his thing to not have to punch people. He's got Tombstone, Tombstone's invulnerable. Tombstone is a wily coyote ass guy who can take a licking and and give it. So, like at the start, when when Kingpin steps on on Peter Parker Spider Man, Chris Pine Spider Man, it's like okay, I guess, but you've got your guy who does that. You've got your Button Man right there. Tell him to do it. Keep your suit clean and go have a nice. Dinner, and then in the end, have this invulnerable guy fighting all the Spider Men.
+[00:14:48] Ben: as a guy, I guess, as a writer, I guess. As a guy who's more interested in characters interacting than stuff interacting with characters, I guess ultimately, like for me, the most satisfying stuff is I have a point of view, I have a point of view, and we are in a thing about it, right? And so it builds to this climax where the kingpin is punching people, and that's like for me, the kingpin is a character like Don Corleone who's good enough at his thing to not have to punch people. He's got Tombstone, Tombstone's invulnerable. Tombstone is a Wile E. Coyote ass guy who can take a licking and and give it. So, like at the start, when when Kingpin steps on on Peter Parker Spider Man, Chris Pine Spider Man, it's like okay, I guess, but you've got your guy who does that. You've got your Button Man right there. Tell him to do it. Keep your suit clean and go have a nice. Dinner, and then in the end, have this invulnerable guy fighting all the Spider Men.
 
 [00:14:48] Norm: He hates him so much.
 
@@ -692,7 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:23:22] Ben: Dad-bod Spider-Man.
 
-[00:23:23] Adam: Yeah. Dad bought Spider-Man.
+[00:23:23] Adam: Yeah. Dad-bod Spider-Man.
 
 [00:23:24] Ben: Claim to be from the, I want to say six one six, which is the regular standard Marvel universe.
 
@@ -886,9 +886,9 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:28:47] Ben: so you can just start the thing with the story that you are telling, and they did that, and they used it, and they tweaked it, and they like they used every part of that
 
-[00:29:04] Will: bubble. Well, they made it a bit, yeah, yeah, it was really good. Joe Rowling does a good job in the Harry Potter books with each of those because Joe J K. Sorry, my
+[00:29:04] Will: bubble. Well, they made it a bit, yeah, yeah, it was really good. Jo Rowling does a good job in the Harry Potter books with each of those because Jo J K. Sorry, my
 
-[00:29:15] Ben: friend Joe.
+[00:29:15] Ben: friend Jo.
 
 [00:29:16] Will: I follow her on Twitter, so you know we're friends.
 
@@ -1286,7 +1286,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:42:05] Norm: And so we're in the middle of season three right now. Um, we talked about extensively.
 
-[00:42:14] Adam: Can I say what a crime it is that Carrie Russell never won an Emmy for that role, and and Matthew Reese did, and he's wonderful, and so is she. Like she's incredible in that show. We've talked about it on the podcast. I just, it's such a shame she did not get an Emmy for that.
+[00:42:14] Adam: Can I say what a crime it is that Keri Russell never won an Emmy for that role, and and Matthew Rhys did, and he's wonderful, and so is she. Like she's incredible in that show. We've talked about it on the podcast. I just, it's such a shame she did not get an Emmy for that.
 
 [00:42:29] Norm: In rewatching it, it made me realize I forgot that so much. You you remember, of course, things like the suitcase. You remember all the crazy kind of like grotesque spy stuff they have to do that you previously haven't seen on a spy show on on basic cable. But really, it's because of their marriage and their partnership. That's that's the driving force of the show.
 

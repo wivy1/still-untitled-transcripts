@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=VIRyVepJcH4
 
 [00:10:16] Adam: and MythBusters has run into this many, many, many, many times. We just did an episode. I can't really give too many details away about it, but we used two very commonly used products, and one of them we got a trade out with. That means that they supplied us with a bunch of the material, and we'll mention it and show the logo of the maker on air, and that's fine. The other one, their PR department was totally excited to participate in our episode. Their legal department shut it down completely, and this idea of brand control is a really it's pervasive within within corporate culture. And it's nefarious, and it's it's it's antithetical. I think it's antithetical to what I think of as proper business practice. And proper business practice is you're you're you're dealing with the people that use your product. Yeah. And and the idea that you can totally control how everyone uses that product and then you know talks about how they use it in the world is ludicrous.
 
-[00:11:22] Norm: And in the case of some brands and products, you know, like Kleenex or Xerox or duct tape, you know, these are brands, but they're also the same words we use to describe those category of products as a whole.
+[00:11:22] Norm: And in the case of some brands and products, you know, like Kleenex or Xerox or Duck Tape, you know, these are brands, but they're also the same words we use to describe those category of products as a whole.
 
 [00:11:33] Adam: And and and there's and corporations don't like their names to become household.
 

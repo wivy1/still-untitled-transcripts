@@ -608,7 +608,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:27:11] Will: right? And New Zealand is like what sixteen million people or something. It's it's very small.
 
-[00:27:15] Adam: And a half million people.
+[00:27:15] Adam: Four and a half million people.
 
 [00:27:16] Will: Right? I knew it was not many. Off by a factor of four. Nice job, Will. Did you like? I find when I go someplace, when I go back to you know visit family in rural parts of the East Coast, which is still much more dense than that, I kind of have like almost space shock, like like the crush of humanity coming back on me when I come to San Francisco, which isn't a super duper dense city by like northeast standards. Did you have any kind of any kind of
 
@@ -736,7 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:33:35] Will: Or Hawaii, I guess.
 
-[00:33:35] Adam: everyone goes all the time, and the food, the Asian food, is just of an order we just don't get here. Things were just unique and different. We discovered this. We discovered we had this dish we hadn't had before. It's Vietnamese called banh xiu, which is like a it's like a pancake, a battered pancake with pork and shrimp and cabbage, and fantastic, really, really delicious. We came home. We made it.
+[00:33:35] Adam: everyone goes all the time, and the food, the Asian food, is just of an order we just don't get here. Things were just unique and different. We discovered this. We discovered we had this dish we hadn't had before. It's Vietnamese called banh xeo, which is like a it's like a pancake, a battered pancake with pork and shrimp and cabbage, and fantastic, really, really delicious. We came home. We made it.
 
 [00:33:35] Will: Oh, really?
 

@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:02:16] Will: Forty-four.
 
-[00:02:17] Adam: It's what it feels like to be eight years old.
+[00:02:17] Adam: It's what it feels like to be eight years older.
 
 [00:02:19] Will: Oh shit!
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:14:02] Adam: Um, and they they they uh Tulsa has reparations in the show. One of the things that happens is that Tulsa confronted itself and applied reparations. Um, and it's not a simple matter. It's a complex social thing that goes on, and that also weaves into the first three episodes. in a way I found really fascinating.
 
-[00:14:21] Norm: One of the really fascinating meta things about this show is an HBO show, and much like the way HBO's producers are making Westworld and and Watchmen and even True Detective, it's week by week release. They are well aware of kind of the online following and even us discussing this, right? And how a show in the community that follows a show. Builds a life of its own that the creators can't really anticipate, so they prepare a lot of ancillary material, which is perfect for a show like Watchmen, because that's exactly how that story was laid out when it was first put out. Most people know it as a graphic novel, but it really was twelve issues in a maxi series that was released, you know, one month at a time, and with each issue there would be excerpts from the original Night Owl's memoir. There would be these newspaper clippings,
+[00:14:21] Norm: One of the really fascinating meta things about this show is an HBO show, and much like the way HBO's producers are making Westworld and and Watchmen and even True Detective, it's week by week release. They are well aware of kind of the online following and even us discussing this, right? And how a show in the community that follows a show. Builds a life of its own that the creators can't really anticipate, so they prepare a lot of ancillary material, which is perfect for a show like Watchmen, because that's exactly how that story was laid out when it was first put out. Most people know it as a graphic novel, but it really was twelve issues in a maxi series that was released, you know, one month at a time, and with each issue there would be excerpts from the original Nite Owl's memoir. There would be these newspaper clippings,
 
 [00:15:09] Will: and that stuff's in the Absolute Edition as the kind of interstitials, right?
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:19:03] Adam: It's so good, and
 
-[00:19:04] Will: but she's fucking with with John's omnipotence too, presumably. Like, does he see the he sees the entire joke at the same time? He knows that there's no joke. She knows that there's no point to telling him the joke, and she does it anyway purely for her own edification and and because she wants to fuck with John.
+[00:19:04] Will: but she's fucking with with Jon's omnipotence too, presumably. Like, does he see the he sees the entire joke at the same time? He knows that there's no joke. She knows that there's no point to telling him the joke, and she does it anyway purely for her own edification and and because she wants to fuck with Jon.
 
 [00:19:21] Adam: And there's this point in the joke, I guess, at about the seventy percent mark of the joke, where she says, " And now the last hero steps up, and God cracks his knuckles." And again, she. My wife was walking by while I was watching this. She hasn't jumped into Watchmen with me yet, but she looked and she went, " Oh, Jean Smart," and I was like, " Yeah," and she was like, " How's she doing?" And I'm like. Oh man, she's really bringing every all the crap.
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:20:23] Will: They released they released a podcast after the third episode, right?
 
-[00:20:25] Norm: Once every three episodes, and one of the things they revealed is they filmed all Jeremy Irons episodes first. Mm-hmm. So they didn't film things currently. They had him his availability and their shooting location in I believe Ireland for a set time, and they just shot. All of that before the scripts were even written for the other episodes.
+[00:20:25] Norm: Once every three episodes, and one of the things they revealed is they filmed all Jeremy Irons episodes first. Mm-hmm. So they didn't film things concurrently. They had him his availability and their shooting location in I believe Ireland for a set time, and they just shot. All of that before the scripts were even written for the other episodes.
 
 [00:20:44] Will: Wow!
 
@@ -614,7 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:23:57] Adam: Ripped from the [unclear]. Yeah, he sexually harasses, sexual impropriety at the workplace, and he sleeps with many people that he works so that work for him.
 
-[00:24:05] Will: So, like, if we think about the list of shows that are the framework of the show within the show, we have like Larry Sanders and Carrie Shandling. We have Newsroom. We have Studio Sixty. Like we have Thirty Rock. Where does this land on the on like? Um, well, from what you've seen, like, is it because it's a drama, right?
+[00:24:05] Will: So, like, if we think about the list of shows that are the framework of the show within the show, we have like Larry Sanders and Garry Shandling. We have Newsroom. We have Studio Sixty. Like we have Thirty Rock. Where does this land on the on like? Um, well, from what you've seen, like, is it because it's a drama, right?
 
 [00:24:24] Adam: Yeah, it feels as a drama. It feels more akin to like The Good Wife, like that kind of ensemble drama of good actors, and occasionally the dialogue can be stupid, turgid. Mark Duplass, by the way. An actor, the Duplass brothers are two actors, the founders of Mumblecore, and they've been in many, many different things, including the a whole bunch of television you've seen. Mark Duplass is terrific in this, playing this tired director. The supporting cast is terrific. I like it more than I don't like it.
 
@@ -870,7 +870,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:33:51] Will: And they like tell the stories of it's the oral history of what it was like to be there, what it was like to be in the cafeteria, what it was like, you know, where the scary places were, where the not scary places were. It's really good.
 
-[00:34:00] Adam: If you want to see things that the locals even don't often see, I recommend looking for nearby secret staircase. San Francisco is full with its hills. It's full of secret staircases all over the city. If you just Google San Francisco staircases, you can find them. The Lion Street Steps,
+[00:34:00] Adam: If you want to see things that the locals even don't often see, I recommend looking for nearby secret staircase. San Francisco is full with its hills. It's full of secret staircases all over the city. If you just Google San Francisco staircases, you can find them. The Lyon Street Steps,
 
 [00:34:18] Will: the Moraga Stairs are great.
 

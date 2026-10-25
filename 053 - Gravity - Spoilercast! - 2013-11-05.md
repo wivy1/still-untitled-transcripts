@@ -1008,7 +1008,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:41:11] Adam: She's guessing, et cetera, et cetera.
 
-[00:41:12] Will: You're writing at the edge of a paper on the outside of a of a of a beach ball.
+[00:41:12] Will: You're riding at the edge of a paper on the outside of a of a of a beach ball.
 
 [00:41:16] Norm: I think if that's if that's the thing that the director was going for, it would be a disservice to her character.
 

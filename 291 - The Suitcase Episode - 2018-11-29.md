@@ -910,7 +910,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:39:54] Norm: If you did not know, want.
 
-[00:39:59] Will: I'm still pissed I never got an Adat, a Kenner Adat when I was a kid. I could have bought one, but what was
+[00:39:59] Will: I'm still pissed I never got an AT-AT, a Kenner AT-AT when I was a kid. I could have bought one, but what was
 
 [00:40:04] Adam: the thing I really? I mean, my parents weren't very wealthy growing up, so I remember the very first time I got something that I wanted. Like I remember,
 
@@ -1014,7 +1014,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:42:28] Will: Pillsbury Doughboy.
 
-[00:42:33] Adam: So one of the things they have after Pillsbury Doughboy here is a couple of Hershey's Kisses of the dancing Hershey's Kiss commercials, and I thought that it might be one that I had made because when I was working for Jamie in the early '90s, my friend Carl Willett directed all of those Hershey's Kiss commercials. Back in the early '90s, and I sculpted hundreds of those bastards. But no, this comes from a time later than my tenure.
+[00:42:33] Adam: So one of the things they have after Pillsbury Doughboy here is a couple of Hershey's Kisses of the dancing Hershey's Kiss commercials, and I thought that it might be one that I had made because when I was working for Jamie in the early '90s, my friend Carl Willat directed all of those Hershey's Kiss commercials. Back in the early '90s, and I sculpted hundreds of those bastards. But no, this comes from a time later than my tenure.
 
 [00:43:00] Will: They had one of the pig noses from the Twilight Zone episode with the with the horrible disfigured woman that you never see.
 
@@ -1052,11 +1052,11 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:44:26] Will: So the auctions this weekend?
 
-[00:44:28] Norm: Yeah, it's on Saturday, and we have a bunch of videos where Brandon from Props Store came up and showed us a bunch of stuff, and we got close looks at a lot of props.
+[00:44:28] Norm: Yeah, it's on Saturday, and we have a bunch of videos where Brandon from Prop Store came up and showed us a bunch of stuff, and we got close looks at a lot of props.
 
-[00:44:34] Will: Want to find out more? Props Store.
+[00:44:34] Will: Want to find out more? Prop Store.
 
-[00:44:35] Norm: Props Store dot com.
+[00:44:35] Norm: Prop Store dot com.
 
 [00:44:37] Adam: That was awesome.
 

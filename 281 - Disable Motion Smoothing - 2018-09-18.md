@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:01:23] Norm: I'm gonna stay in my driveway.
 
-[00:01:26] Adam: I think it was Bundyville. Okay, it's the most recent one about the government and the Clive and Bundy and that whole business.
+[00:01:26] Adam: I think it was Bundyville. Okay, it's the most recent one about the government and the Cliven Bundy and that whole business.
 
 [00:01:34] Will: I, as part of my new life as the dad of a kindergartner, I spend a lot of time talking to other parents about what you do for for a job,
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:29:48] Will: look. I'm going to Plex.tv. It's a great, great. It's a great thing. You rip your discs, you put them on there. You don't have to watch the FBI warning ever. Ben Affleck never tells you how many people are employed in making the film. Okay, you can just enjoy your thing right there.
 
-[00:30:01] Norm: There was an ad on TV for Quest, Q W E S T. It was like a like a fiber network. It was maybe
+[00:30:01] Norm: There was an ad on TV for Qwest, Q W E S T. It was like a like a fiber network. It was maybe
 
 [00:30:07] Adam: another company teaching people how to. Spell wrong,
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:30:13] Adam: yeah,
 
-[00:30:13] Norm: and and and says, " Oh, what movies you have on? You know, what one things can I can I rent? You know, because you used to go to the front desk to get behind the counter, the VHSs or the DVDs. Yeah, and the guy, this lethargic guy behind, I go with every single movie ever made. Anytime you want to watch it, how is that possible? Quest. And twenty years ago, I was like, whoa, this is this is the dream. And four or five years ago, we got we we reached there. We have we reached that dream of every single movie we'd ever want, except because of licensing and and well, legal problems. We have the the nightmare version of that.
+[00:30:13] Norm: and and and says, " Oh, what movies you have on? You know, what one things can I can I rent? You know, because you used to go to the front desk to get behind the counter, the VHSs or the DVDs. Yeah, and the guy, this lethargic guy behind, I go with every single movie ever made. Anytime you want to watch it, how is that possible? Qwest. And twenty years ago, I was like, whoa, this is this is the dream. And four or five years ago, we got we we reached there. We have we reached that dream of every single movie we'd ever want, except because of licensing and and well, legal problems. We have the the nightmare version of that.
 
 [00:31:02] Will: I mean, look,
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:31:08] Unknown speaker: all we're all
 
-[00:31:09] Adam: agreement with our complaining. Hey. Last week, I took the one wheel up to the top of Twin Peaks,
+[00:31:09] Adam: agreement with our complaining. Hey. Last week, I took the Onewheel up to the top of Twin Peaks,
 
 [00:31:16] Norm: uphill inclined.
 
@@ -652,7 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:31:25] Will: I wouldn't ride the electric unicycle up to the top of Twin Peaks. I don't think
 
-[00:31:28] Adam: it was awesome. I and I wasn't planning to go to the top of Twin Peaks. I just I set out from I was having a one of those bad days in the shop where things weren't working. My brain wasn't in the right place. I was like, you know what? I need a ride. And so I got on the one wheel and I struck out. And I was up on 17th Street and I thought I'm going to go to the top of 17th Street. And I got to the top of 17th Street and I'd only used 30 percent of my power to get there. And I thought I think I've got enough to get all the way up to Twin Peaks. And I did.
+[00:31:28] Adam: it was awesome. I and I wasn't planning to go to the top of Twin Peaks. I just I set out from I was having a one of those bad days in the shop where things weren't working. My brain wasn't in the right place. I was like, you know what? I need a ride. And so I got on the Onewheel and I struck out. And I was up on 17th Street and I thought I'm going to go to the top of 17th Street. And I got to the top of 17th Street and I'd only used 30 percent of my power to get there. And I thought I think I've got enough to get all the way up to Twin Peaks. And I did.
 
 [00:31:54] Norm: Yeah, the and
 

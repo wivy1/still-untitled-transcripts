@@ -178,7 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=M_XYZSHz6DI
 
 [00:12:02] Norm: Yeah, there you go.
 
-[00:12:03] Adam: That that is such a. I swear, I feel like they almost must have picked that up from Hammett or Chandler or some Pulp Fiction type because it feels like such a. Mid century, I talked to Migs Mayfeld down at Two Shores.
+[00:12:03] Adam: That that is such a. I swear, I feel like they almost must have picked that up from Hammett or Chandler or some Pulp Fiction type because it feels like such a. Mid century, I talked to Migs Mayfeld down at Toots Shor's.
 
 [00:12:16] Joey: Yeah, mid century L.A. detective,
 
@@ -672,7 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=M_XYZSHz6DI
 
 [00:48:40] Unknown speaker: You too.
 
-[00:48:41] Adam: You too, Norb. You too, Joey.
+[00:48:41] Adam: You too, Norm. You too, Joey.
 
 [00:48:42] Norm: Everyone, we'll see everyone in the new year.
 

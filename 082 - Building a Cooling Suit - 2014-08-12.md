@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:10:22] Adam: right
 
-[00:10:22] Will: because then you can actually give yourself hypothermia which would be much worse than overeating.
+[00:10:22] Will: because then you can actually give yourself hypothermia which would be much worse than overheating.
 
 [00:10:52] Adam: And frankly, and frankly, when I've used dry ice to cool down tubing systems, we couldn't run water in there; it freezes it too quickly. You'd actually probably use alcohol and then. That actually has its own concerns. Of a leaky alcohol system could cause vapors, stuff like that. Frank believes that we could do an alcohol refrigeration unit where you pressurize and do the pressure drop to get extra cooling out of the alcohol.
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:12:15] Will: Dark Comic Con.
 
-[00:12:23] Adam: They set up at Petco Park, and Zach Levy just brought in a string of panels over there for a small audience, all to raise money for his charity, the Smile Foundation. And you know, Zach knows everybody, and it was a fantastic, fantastic experience, simply because it's like you're there with a bunch of really, really good, really good chops comedians, improvisers like Nathan, Breckin Meyer, Colin Ferguson from Eureka, Taran from SNL, Sloppy Swish guy, and It just like was nonstop hilarity. So waiting outside, that I was talking to Nathan, and he said that he uses ice packs right at the base of his back and keeps him cool in the suits when he's like running around on the hot sets.
+[00:12:23] Adam: They set up at Petco Park, and Zach Levi just brought in a string of panels over there for a small audience, all to raise money for his charity, the Smile Foundation. And you know, Zach knows everybody, and it was a fantastic, fantastic experience, simply because it's like you're there with a bunch of really, really good, really good chops comedians, improvisers like Nathan, Breckin Meyer, Colin Ferguson from Eureka, Taran from SNL, Sloppy Swish guy, and It just like was nonstop hilarity. So waiting outside, that I was talking to Nathan, and he said that he uses ice packs right at the base of his back and keeps him cool in the suits when he's like running around on the hot sets.
 
 [00:13:24] Will: Well, so
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:15:31] Will: We can try. I mean, the neat thing is if we do it over the course of the year, I'm sure you'll have another space suit to wear at some point in the future.
 
-[00:15:47] Norm: You want something that's interchangeable with, you know, Chewy and
+[00:15:47] Norm: You want something that's interchangeable with, you know, Chewie and
 
 [00:15:50] Adam: yeah, yeah, yeah, yeah, absolutely. And and and and now I got to start figuring out what to wear for next year's Comic Con.
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:22:24] Will: Even like motivation and stuff like that.
 
-[00:22:25] Adam: Motivation and stuff like that. You know, one of the things I love, one of the things I love love love about Comic Con is also I hate to say this hate to say it this way, but it makes sense. The terrible costumes. Like there are some people walking around wearing just like normal clothes and board shorts and just a Iron Man mask.
+[00:22:25] Adam: Motivation and stuff like that. You know, one of the things I love love love about Comic Con is also I hate to say this hate to say it this way, but it makes sense. The terrible costumes. Like there are some people walking around wearing just like normal clothes and board shorts and just a Iron Man mask.
 
 [00:22:46] Norm: And they can.
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:28:17] Will: Oh, I could totally see that.
 
-[00:28:17] Adam: Like a Ruby's Jack Sparrow costume.
+[00:28:17] Adam: Like a Rubie's Jack Sparrow costume.
 
 [00:28:17] Will: That’s perfect.
 

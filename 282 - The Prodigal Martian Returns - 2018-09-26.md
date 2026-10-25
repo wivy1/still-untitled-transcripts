@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:14:42] Adam: Yeah,
 
-[00:14:43] Adam: I tend to be a window. I tend to be a window side.
+[00:14:43] Adam: I tend to be a window side.
 
 [00:14:45] Will: Um, because she likes to have the window open, likes a little bit more air than I do. But she hurt her ankle a few weeks ago and has had like. Hasn't been able to keep it under the covers, and the side that it's on means that we've had to switch sides of the bed at home, which has been—it was really discomforting. Like we've lived in this house for twelve years, I've slept on the same side of the bed every night for twelve years. Yeah, it's real weird, man.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:24:38] Will: Okay.
 
-[00:24:38] Adam: I watched. I watched the Lisa Vikander Tomb Raider.
+[00:24:38] Adam: I watched. I watched the Alicia Vikander Tomb Raider.
 
 [00:24:43] Will: Oh, is that the one that just came out?
 
@@ -882,7 +882,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:33:41] Norm: No, no, no.
 
-[00:33:41] Adam: More like a check in. Jeremy Williams helped me with some electronics in the Star Child that Steve Neal sculpted. It's been in the background of my shop for ages. I finally got the eyes, the correct eyes for it, and well, you'll see in the video what I did with it.
+[00:33:41] Adam: More like a check in. Jeremy Williams helped me with some electronics in the Star Child that Steve Neill sculpted. It's been in the background of my shop for ages. I finally got the eyes, the correct eyes for it, and well, you'll see in the video what I did with it.
 
 [00:33:55] Will: Can it wink? Is it like a? Is it rocking that weird wink?
 

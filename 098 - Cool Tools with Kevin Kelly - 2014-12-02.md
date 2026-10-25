@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:08:32] Kevin: It's it's like it's liberating because you realize that you can make an alternative to having a big house and a mortgage if if you needed to, and that that kind of confidence allows you to do all kinds of things that you would never attempt before.
 
-[00:09:03] Will: Well, and and so, like the whole Earth Catalog, the whole Earth Catalog was a fixture at one of my grandmother's houses. It was there with Campmore and Foxfire books and all that stuff. She was kind of a you know a fifty year old hippie in the late sixties, and she like it was it was it was one of the books on the back of the toilet in the downstairs bathroom, and you would just take it out and kind of flip through, and you'd learn about all sorts of novel things that you probably didn't know existed. I think that's what I think you you captured that really well with this. It reminds me a lot of that.
+[00:09:03] Will: Well, and and so, like the whole Earth Catalog, the whole Earth Catalog was a fixture at one of my grandmother's houses. It was there with Campmor and Foxfire books and all that stuff. She was kind of a you know a fifty year old hippie in the late sixties, and she like it was it was it was one of the books on the back of the toilet in the downstairs bathroom, and you would just take it out and kind of flip through, and you'd learn about all sorts of novel things that you probably didn't know existed. I think that's what I think you you captured that really well with this. It reminds me a lot of that.
 
 [00:09:33] Kevin: So, for my own history, when I was in high school and graduating from high school, I discovered the Whole Earth Catalog for the first time. That was when it was coming out in sixty eight, sixty nine, nineteen sixty eight, nineteen sixty nine, and I got the message from the Whole Earth Catalog that I I didn't need to go to college and I could invent my own life.
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:22:14] Adam: Not only that, if I have a prop and I want to make it look like it's old, you can paint it black and then use the silver sharpie. Just just draw along the edges of the black, and it'll look like it's worn down. I have aged so many things with the silver sharpie.
 
-[00:22:33] Kevin: Okay, there's another use for it. So add that to the to the box. Another one is Kroil. I think I say Croil penetrating oil.
+[00:22:33] Kevin: Okay, there's another use for it. So add that to the to the box. Another one is Kroil. I think I say Kroil penetrating oil.
 
 [00:22:41] Adam: Oh, Kroil is great.
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:23:54] Adam: It's great.
 
-[00:23:55] Kevin: Yeah, so another thing that I would add to this box is. Uh, cutting mats, or even a a magnetic cutting mat. So cutting mats are things that it's it's like a kind of a plastic mat that they call it self healing. Is you can cut on it with a razor blade or an Xacto knife, and it doesn't leave a a groove in it like you would if on a cutting on a table or a piece of wood that then interrupts your cutting the next time.
+[00:23:55] Kevin: Yeah, so another thing that I would add to this box is. Uh, cutting mats, or even a a magnetic cutting mat. So cutting mats are things that it's it's like a kind of a plastic mat that they call it self healing. Is you can cut on it with a razor blade or an X-Acto knife, and it doesn't leave a a groove in it like you would if on a cutting on a table or a piece of wood that then interrupts your cutting the next time.
 
 [00:24:24] Will: I I got a huge cutting mat for my work desk at home, and it was one of the best things I've ever bought.
 
@@ -1010,7 +1010,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:47:02] Will: We’re taking a real weird Matrix turn here.
 
-[00:47:08] Kevin: Um, I like vice grips. The classic vice grip is to me. What should be in your box, and and then and there is a variety of them. So I I like to put in ones that look like that have like I have one that has a parallel flat.
+[00:47:08] Kevin: Um, I like vise grips. The classic vise grip is to me. What should be in your box, and and then and there is a variety of them. So I I like to put in ones that look like that have like I have one that has a parallel flat.
 
 [00:47:26] Adam: Yeah.
 
@@ -1022,7 +1022,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:47:31] Adam: those are so amazing.
 
-[00:47:32] Kevin: They're it's like it's like having two plates and a vice grip, so you can actually lock this thing in. It becomes like a real vice at that point.
+[00:47:32] Kevin: They're it's like it's like having two plates and a vise grip, so you can actually lock this thing in. It becomes like a real vise at that point.
 
 [00:47:39] Adam: Yeah, so it's yeah they they they come down.
 
@@ -1032,9 +1032,9 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:47:51] Kevin: exactly
 
-[00:47:51] Adam: vice grips are amazing.
+[00:47:51] Adam: vise grips are amazing.
 
-[00:47:52] Will: So my father always used to say that the easiest way to destroy a piece of farm equipment is to give a farmhand some vice grips.
+[00:47:52] Will: So my father always used to say that the easiest way to destroy a piece of farm equipment is to give a farmhand some vise grips.
 
 [00:47:58] Adam: Well, no, you're reminding me that there was this great great list that made its way around the web a couple years ago of tools and just to give you the example, they showed a crescent wrench and said this is great for softening the edges of a bolt, and then they showed vise grips.
 
@@ -1056,19 +1056,19 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:49:06] Adam: It's got a little cam lock.
 
-[00:49:07] Kevin: It has a little lock with a lever, so that once you get very close to The closing of the jaws it locks it locks into at that position. So if you just you can adjust the the tension on this vice grip so that when it does close onto whatever you're gripping it won't come off. And that's why it can be abused is because um you can just strip something because or
+[00:49:07] Kevin: It has a little lock with a lever, so that once you get very close to The closing of the jaws it locks it locks into at that position. So if you just you can adjust the the tension on this vise grip so that when it does close onto whatever you're gripping it won't come off. And that's why it can be abused is because um you can just strip something because or
 
 [00:49:36] Adam: you can dent it or mar it.
 
 [00:49:37] Kevin: you can dent it or mar it. So it can easily be abused, but it is a very handy thing. I mean, you can use it for other things other than tightening bolts. And that's the whole point is that you can you can grip a table, you can grip all kinds of things with one.
 
-[00:49:48] Adam: There's there's another use that it has which I use all the time, which is if you're grinding something small and metal, it's going to get hot really quickly, and you're going to have to be cooling it down constantly. But you can clamp it to a vice grip and grind all day long. It's great for holding onto small parts while you're filing and shaping them.
+[00:49:48] Adam: There's there's another use that it has which I use all the time, which is if you're grinding something small and metal, it's going to get hot really quickly, and you're going to have to be cooling it down constantly. But you can clamp it to a vise grip and grind all day long. It's great for holding onto small parts while you're filing and shaping them.
 
 [00:50:05] Kevin: Right, right. Um, last one is um. LED flashlights have sort of just—they're on another one of these curves of changing really, really fast.
 
 [00:50:17] Adam: And what are you using now?
 
-[00:50:18] Kevin: I have—I have this Tim Jennison Tim's Vermeer. If you've seen that movie about the guy, yeah. This is a pocketable. It's in the change pocket. It's
+[00:50:18] Kevin: I have—I have this Tim Jenison Tim's Vermeer. If you've seen that movie about the guy, yeah. This is a pocketable. It's in the change pocket. It's
 
 [00:50:28] Will: that is much smaller than my. It's
 

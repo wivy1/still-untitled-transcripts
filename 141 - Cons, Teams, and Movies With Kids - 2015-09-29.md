@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:04:41] Adam: it's it's an intrinsic part of the piece. The piece doesn't come into its own, and Comic Con is where I first learned that, and also that the cosplay is a form of theater that is a real form of incredible theater that is only happening at the cons, in which the line between performer and and and and audience is completely blurred. The Venn is almost a circle.
 
-[00:05:08] Norm: And when you have the chronology of the temporal aspect of a party that lasts for so many hours, and you have cosplayers, one of the best things I saw a friend of ours, Steve, who runs Solo Roboto, he's a cosplayer. He did Die Hard, and he did six different.
+[00:05:08] Norm: And when you have the chronology of the temporal aspect of a party that lasts for so many hours, and you have cosplayers, one of the best things I saw a friend of ours, Steve, who runs SoloRoboto, he's a cosplayer. He did Die Hard, and he did six different.
 
 [00:05:26] Adam: Oh my God!
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:15:38] Adam: And they start forgetting things about being really young.
 
-[00:15:42] Will: Well, and it was it was an interesting pain to like the power of nostalgia. The whole movie because you know the whole the there's this arc that happens with happy memories turning to sad memories as your life moves on, your life changes. Um, and I thought I thought I actually I was really pleased because it really stood up to repeat viewings well. Um, but I wanted to talk about kids' movies.
+[00:15:42] Will: Well, and it was it was an interesting paean to like the power of nostalgia. The whole movie because you know the whole the there's this arc that happens with happy memories turning to sad memories as your life moves on, your life changes. Um, and I thought I thought I actually I was really pleased because it really stood up to repeat viewings well. Um, but I wanted to talk about kids' movies.
 
 [00:16:03] Adam: Okay.
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:20:04] Adam: It's all about love, man.
 
-[00:20:05] Will: Yeah. So. I mean, I'm always looking for more suggestions on on kids' movie. Castle in the Sky is good. How How's Moving Castle? I remember being a little scary, right?
+[00:20:05] Will: Yeah. So. I mean, I'm always looking for more suggestions on on kids' movie. Castle in the Sky is good. How Howl's Moving Castle? I remember being a little scary, right?
 
 [00:20:14] Norm: That was a little surreal.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:23:40] Will: That explains so much.
 
-[00:23:41] Adam: Oh yeah. No, Point Break is a masterpiece. This is Keanu Reeves, Laurie Petty, Patrick Swayze.
+[00:23:41] Adam: Oh yeah. No, Point Break is a masterpiece. This is Keanu Reeves, Lori Petty, Patrick Swayze.
 
 [00:23:47] Will: Swayze at his peak.
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:26:30] Adam: This is going to be awesome.
 
-[00:26:31] Will: We have. I explained to you one of the things that we tested on Nerd Night last week, and you seemed amused.
+[00:26:31] Will: We have. I explained to you one of the things that we tested on Nerd Nite last week, and you seemed amused.
 
 [00:26:36] Adam: Very. I'm no. I'm super excited, not just amused. Excited to participate.
 

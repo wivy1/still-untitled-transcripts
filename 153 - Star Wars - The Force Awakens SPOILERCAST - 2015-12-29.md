@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:02:11] Norm: Nice.
 
-[00:02:11] Adam: Uh, oh, yeah. Last Friday. Last Friday. Yes. And then I saw it in 2D here at the 2D here at the Alamo Draft House on Sunday,
+[00:02:11] Adam: Uh, oh, yeah. Last Friday. Last Friday. Yes. And then I saw it in 2D here at the 2D here at the Alamo Drafthouse on Sunday,
 
 [00:02:28] Norm: which is a great way to watch it.
 
@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:02:35] Norm: Can we talk spoilers?
 
-[00:02:36] Adam: Just as a side note, if you live in San Francisco, and more specifically, if you're anywhere near the Mission District, your life has just totally changed because the Alamo Draft House opened up in the new Mission Theater on Mission Street between 21st and 22nd, and I'm just going to be there every every other day.
+[00:02:36] Adam: Just as a side note, if you live in San Francisco, and more specifically, if you're anywhere near the Mission District, your life has just totally changed because the Alamo Drafthouse opened up in the new Mission Theater on Mission Street between 21st and 22nd, and I'm just going to be there every every other day.
 
 [00:02:53] Will: Some hyper local Star Wars.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:09:52] Unknown speaker: I’m always getting those.
 
-[00:09:52] Adam: Why did he name it something so close to a snuff film starring Nicholas Cage?
+[00:09:52] Adam: Why did he name it something so close to a snuff film starring Nicolas Cage?
 
 [00:09:57] Will: It wasn't a snuff film.
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:26:09] Adam: What was his cameo?
 
-[00:26:10] Will: He's the stormtrooper that that that Ray mind controls.
+[00:26:10] Will: He's the stormtrooper that that that Rey mind controls.
 
 [00:26:14] Norm: Yeah.
 
@@ -818,11 +818,11 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:31:50] Adam: Before you get to that,
 
-[00:31:51] Will: the the scale of the monsters he varied wildly and he used CGI in a really smart way rather than using it as a hey let's just have a bunch of dobacks here or whatever.
+[00:31:51] Will: the the scale of the monsters he varied wildly and he used CGI in a really smart way rather than using it as a hey let's just have a bunch of dewbacks here or whatever.
 
 [00:32:00] Adam: I yeah.
 
-[00:32:01] Will: Um the the technical monsters on the freighter.
+[00:32:01] Will: Um the the tentacle monsters on the freighter.
 
 [00:32:04] Norm: Okay. Yep. The [unclear: grabthars / rapthars].
 
@@ -940,7 +940,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:36:23] Will: Go ahead.
 
-[00:36:24] Norm: Yeah, and then BB Eight. I think if you compare BB Eight with Wally, I think these are two huge achievements in character and personality without having to say a single word.
+[00:36:24] Norm: Yeah, and then BB Eight. I think if you compare BB Eight with WALL-E, I think these are two huge achievements in character and personality without having to say a single word.
 
 [00:36:33] Will: Well, a lot of BB Eight is Ben Burtt too. I mean, Ben Burtt did the did the sound for BB Eight, right?
 
@@ -1114,7 +1114,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:42:58] Will: Oh, it'd be so cool if this all of a sudden giants for no apparent reason in Star Wars. The the Maz thing, I didn't have a problem with her until she took the glasses off. When she took the glasses off, it became a hard to like. That's when. That's when my uncanny valley sense trip.
 
-[00:43:12] Norm: That wookie. Yeah, that's a great.
+[00:43:12] Norm: That Wookiee. Yeah, that's a great.
 
 [00:43:13] Will: She's such a so good.
 

@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:35:22] Will: but that's not like unedited work.
 
-[00:35:25] Adam: No, no, no, not at all. I mean, actually, during episode two, some pictures came out of the model shop, and it's like we could see what was going on in the model shop based on the picture that leaked out and know that it was someone we'd been working with, and it really upset us. Like, wow, that's someone within this community who took a picture of this room. I remember that day. I was working on this part of that model from Tupoca City, and some asshole took a picture, yeah, and put it out there. And I don't think it was one of the ILM modelers either. I think it might have been some, you know, somebody from another department coming through. Right. But but still, it felt a little like a violation. Yeah. I mean, so that falls in the category of like what what you're.
+[00:35:25] Adam: No, no, no, not at all. I mean, actually, during episode two, some pictures came out of the model shop, and it's like we could see what was going on in the model shop based on the picture that leaked out and know that it was someone we'd been working with, and it really upset us. Like, wow, that's someone within this community who took a picture of this room. I remember that day. I was working on this part of that model from Tipoca City, and some asshole took a picture, yeah, and put it out there. And I don't think it was one of the ILM modelers either. I think it might have been some, you know, somebody from another department coming through. Right. But but still, it felt a little like a violation. Yeah. I mean, so that falls in the category of like what what you're.
 
 [00:36:07] Will: We don’t burn the locals.
 

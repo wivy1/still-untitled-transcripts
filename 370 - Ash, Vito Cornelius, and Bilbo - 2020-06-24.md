@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:00:23] Norm: It's a balloon. They're they're.
 
-[00:00:24] Will: Ah, yeah. I'm wearing a classic Gamma Go today. It's the Dirty Bird, the Hunter S. Thompson edition, which you know, I it was my favorite of all of theirs. I think
+[00:00:24] Will: Ah, yeah. I'm wearing a classic GAMAGO today. It's the Dirty Bird, the Hunter S. Thompson edition, which you know, I it was my favorite of all of theirs. I think
 
 [00:00:35] Adam: I'm actually wearing one of the Express shirts that I used to wear back in MythBuster days. I still have about 40.
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:06:20] Will: Yeah.
 
-[00:06:20] Adam: Well, in the in the in the animated flashback for Oren Ishii in Kill Bill, the one of the songs when she's hearing her parents be killed, and you hear that song.
+[00:06:20] Adam: Well, in the in the in the animated flashback for O-Ren Ishii in Kill Bill, the one of the songs when she's hearing her parents be killed, and you hear that song.
 
 [00:06:32] Norm: Yeah,
 

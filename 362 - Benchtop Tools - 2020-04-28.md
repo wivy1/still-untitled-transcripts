@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:10:56] Norm: because it's perpendicular. But is it also analog, where like a like a sewing machine, you can Or is it a fixed fixed rate? Uh,
 
-[00:11:04] Adam: yeah, no, and so I have a variable speed. I bought a little Sherline lathe motor speed control for like a hundred bucks. Uh, put a belt, made a little gear pulley for that, and it runs beautifully. And I mean, I this project idled for like eighteen months, maybe even longer in the shop. Metal lathe accessories is the shop that sells this kit. They sell you a bunch of raw cast iron castings, and then you cut your reference surfaces, and then you slowly make this whole machine. And it's a beautiful design because it's very forgiving. It gives there's a lot of latitude to kind of screw up and still make it work, which is good for me because this is let machining big bores at like one thousandth precision is not my specialty, and it's been a real learning curve.
+[00:11:04] Adam: yeah, no, and so I have a variable speed. I bought a little Sherline lathe motor speed control for like a hundred bucks. Uh, put a belt, made a little gear pulley for that, and it runs beautifully. And I mean, I this project idled for like eighteen months, maybe even longer in the shop. Metal Lathe Accessories is the shop that sells this kit. They sell you a bunch of raw cast iron castings, and then you cut your reference surfaces, and then you slowly make this whole machine. And it's a beautiful design because it's very forgiving. It gives there's a lot of latitude to kind of screw up and still make it work, which is good for me because this is let machining big bores at like one thousandth precision is not my specialty, and it's been a real learning curve.
 
 [00:11:49] Adam: Yeah.
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:22:04] Norm: I'm all caught up. I'm there's only one episode left in the third season, which is next Sunday, and that's that's I'm I'm all caught up. So let's go in reverse. Let's go. Will you're just into it, right?
 
-[00:22:16] Will: Yeah, yeah. So I'm on like I'm. I probably have one episode left in the maybe two episodes left in the first season. Some the man and things have come to light with Man of Black this is the first time I've watched this because I I made it. I got honestly I got to the the Maeve—the first Maeve episode the first watch through and it was so horrifically violent over and over and over again. I just I tapped out. Um, and I'm glad I pushed through this time because it's it's it's there's a. There's a lot to think about. I'm kind of bummed that I didn't that I wasn't paying attention when it first came out when people were talking about it because I think it would have been fun to to be part of that zeitgeist. But it's it's just it's it's it's funny. The thing that I realize as I get further into the first season, you guys are going to laugh because you know what happens. But it it it seems like the opening credits tell the whole story, right? Like the with the player piano and the whole thing.
+[00:22:16] Will: Yeah, yeah. So I'm on like I'm. I probably have one episode left in the maybe two episodes left in the first season. Some the man and things have come to light with Man in Black this is the first time I've watched this because I I made it. I got honestly I got to the the Maeve—the first Maeve episode the first watch through and it was so horrifically violent over and over and over again. I just I tapped out. Um, and I'm glad I pushed through this time because it's it's it's there's a. There's a lot to think about. I'm kind of bummed that I didn't that I wasn't paying attention when it first came out when people were talking about it because I think it would have been fun to to be part of that zeitgeist. But it's it's just it's it's it's funny. The thing that I realize as I get further into the first season, you guys are going to laugh because you know what happens. But it it it seems like the opening credits tell the whole story, right? Like the with the player piano and the whole thing.
 
 [00:23:06] Adam: This is and and and the the the symbology of what the player piano is representing changes because the opening. I was thinking of this just last night. I was I'm on like episode seven or eight of season two, and I was watching three episodes late last night. I was thinking the same thing. The the opening credits kind of beat you through the whole story.
 
@@ -346,13 +346,13 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:24:06] Adam: Well, so I'm almost done with season two in prep for season three, and I'm having I'm actually having a lot of fun with the season two. I've heard from a lot of people that they felt it was uneven. I am not finding that. I'm finding season two to be really kind of exciting, and each episode, I'm super psyched to find out what happens next. I have no spoilers here because there's some easy things I could say that would be very spoilery. Suffice to say, Evan Rachel Wood is. A bloody national treasure. Been a fan of hers since, since Once and Again, and the amazing movie Thirteen, which if you haven't seen is an one of the more brutal coming of age stories I can think of. I just love that film. She's always been amazing. She's just phenomenal in this movie. But so is James Marsden.
 
-[00:24:57] Will: Thandi Newton is unbelievable.
+[00:24:57] Will: Thandie Newton is unbelievable.
 
 [00:24:59] Adam: What's that?
 
-[00:25:00] Will: Thandi Newton is is
+[00:25:00] Will: Thandie Newton is is
 
-[00:25:01] Adam: Thandi Newton. Oh my!
+[00:25:01] Adam: Thandie Newton. Oh my!
 
 [00:25:03] Will: Fucking unbelievable. Yeah.
 

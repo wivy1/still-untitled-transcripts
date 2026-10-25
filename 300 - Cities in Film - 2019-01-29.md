@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:07:18] Adam: What? Yes, Sidney Poitier, and they live up at the top of Lombard. And there's all of this, all these scenes of the movie take place on Lombard up there, on Mel's drive-in, and all these locations. There's driving, people complaining, getting into accidents.
 
-[00:07:33] Norm: Yep. Same with Bullet. Bullet is a great San Francisco movie. And Vertigo is the other one.
+[00:07:33] Norm: Yep. Same with Bullitt. Bullitt is a great San Francisco movie. And Vertigo is the other one.
 
 [00:07:40] Adam: A classic. The Mission Dolores features heavily in Vertigo.
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:09:59] Norm: is this show?
 
-[00:10:08] Adam: The very top end is the last is is a U two tour, which is like eighty five trucks.
+[00:10:08] Adam: The very top end is the last is is a U2 tour, which is like eighty five trucks.
 
 [00:10:14] Jen: What?
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:16:16] Norm: right? And you think there's a when they construct the show because they construct them every couple years. They look at well, what are the acts that can fit in this show and who is available? Because you're not going to like when you say you want the world class, you know, straps person or rings person or whatever it is. Like, there's only so many. One, if they're available, and then how do you incorporate what they do into something that is cohesive as a theme and has somewhat of a narrative? Because they all have like a like a narrative that goes through them, and then design something visually striking.
 
-[00:16:49] Adam: So, speaking of this, I would like to. So, Jen is working on this new production in a specific capacity, and part of our cohort is John Marcou, who's one of the lead builders on MythBusters Junior. John Marcou has worked on all of the American Beastmaster and American Ninja Warrior.
+[00:16:49] Adam: So, speaking of this, I would like to. So, Jen is working on this new production in a specific capacity, and part of our cohort is Jon Marcu, who's one of the lead builders on MythBusters Junior. Jon Marcu has worked on all of the American Beastmaster and American Ninja Warrior.
 
 [00:16:49] Jen: Oh really?
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:20:04] Adam: It does, but it it does, but I mean, the American Office ended up working because it found its own voice.
 
-[00:20:10] Norm: Right, the the Jim Helper, right, the character. I think you know the guy was hired because he look he could do the expressions that Martin Freeman could do looking at the camera. You know, they did his hair exactly the same, but then it really became, you know, John Krasinski came came into his own, right? And that's why Americans love the American version.
+[00:20:10] Norm: Right, the the Jim Halpert, right, the character. I think you know the guy was hired because he look he could do the expressions that Martin Freeman could do looking at the camera. You know, they did his hair exactly the same, but then it really became, you know, John Krasinski came came into his own, right? And that's why Americans love the American version.
 
 [00:20:10] Adam: Yeah,
 
@@ -504,9 +504,9 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:26:13] Adam: I haven't read it. I'm ashamed to say I have not read it.
 
-[00:26:15] Jen: It's uh, it's Tom Wolf.
+[00:26:15] Jen: It's uh, it's Tom Wolfe.
 
-[00:26:17] Adam: Tom Wolf,
+[00:26:17] Adam: Tom Wolfe,
 
 [00:26:17] Jen: yeah. Who uh, he's he's writing about what like what is the right stuff? What uh, what does it take to be an astronaut? Like, what do you have? What type of personality? Um, and so it starts off talking about because a lot of them were fighter pilots, so it starts off talking about um the this really intense uh rigorous training that you have to go through as a fighter pilot and just how dangerous it is. And so he's talking about how they start off with a crew of like twenty people, this particular regiment, and just in training, they're not even in combat. Just in training, it is so dangerous. Like, if you make one little mistake, one little thing happens, and the crew whittles down to about eight people, and they keep going to funerals over and over again.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:28:07] Jen: Really?
 
-[00:28:20] Adam: and so this is when you read Nicholas de Monchaux’s book Space Suit about the development of the space suit, he talks about Wolf helping to create a mythos of the perfect physical specimen.
+[00:28:20] Adam: and so this is when you read Nicholas de Monchaux’s book Space Suit about the development of the space suit, he talks about Wolfe helping to create a mythos of the perfect physical specimen.
 
 [00:28:31] Jen: Yeah, it's it's very the book is very I mean, so far it's it has a very patriarchal perspective, and you know, yeah, you have to take it for what it's worth, but it is it is really excellent read.
 
@@ -716,7 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:33:30] Norm: Yeah.
 
-[00:33:30] Adam: I mean, it's kind of an amazing character. Uh. There's nothing to admire. I mean, sorry for me for my money. There's nothing to admire about his output. Uh. He he is the inventor of the super pack. He is the first person to use negative advertising in a campaign. I mean, even if he's lying about that, the fact that you'd consider that a lie worth telling.
+[00:33:30] Adam: I mean, it's kind of an amazing character. Uh. There's nothing to admire. I mean, sorry for me for my money. There's nothing to admire about his output. Uh. He he is the inventor of the super PAC. He is the first person to use negative advertising in a campaign. I mean, even if he's lying about that, the fact that you'd consider that a lie worth telling.
 
 [00:33:53] Norm: Isn't isn't that it? Would it be good pairing with the candidate?
 

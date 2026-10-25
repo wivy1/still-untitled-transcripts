@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:02:29] Adam: That is a real weapon.
 
-[00:02:29] Will: If you walked somebody on the head with that, they would probably not be getting up.
+[00:02:29] Will: If you whacked somebody on the head with that, they would probably not be getting up.
 
 [00:02:32] Adam: No.
 
@@ -306,9 +306,9 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:10:04] Will: So foo is what programmers write.
 
-[00:10:06] Norm: Still, the title was already taken.
+[00:10:06] Norm: Still Untitled was already taken.
 
-[00:10:07] Will: Yeah. Exactly. Still, the title was already taken, so we we're gonna have a lot, both more episodes of the Foo Show, Foo Show, and then later this year we're gonna roll out a bunch of new, different kinds of shows. Because I think that part of my, basically, I think it's gonna be VR presents a lot of really interesting opportunities to break the fourth wall and make interesting kinds of like lightly interactive linear content.
+[00:10:07] Will: Yeah. Exactly. Still Untitled was already taken, so we we're gonna have a lot, both more episodes of the Foo Show, Foo Show, and then later this year we're gonna roll out a bunch of new, different kinds of shows. Because I think that part of my, basically, I think it's gonna be VR presents a lot of really interesting opportunities to break the fourth wall and make interesting kinds of like lightly interactive linear content.
 
 [00:10:35] Adam: That's the thing about the interactive part that I think is very interesting.
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:24:01] Norm: It's a story of of a man's life. I think that is deeply rooted in in the origins of our country.
 
-[00:24:09] Adam: Yeah, it takes. This is what it does. Is and Lin said that every time he. Every he tried to write everything political about the time through the personal. So the meeting where Ham where Hamilton decides to move the the the nation's capital from New York to to the Potomac, um, is a key moment in the book. But Lynn couldn't figure out how it went into the musical until he showed it through Burr's eyes in the song " The Room Where It Happened." That's how he made the political personal, and he takes this unbelievable story of America's founding with a bunch. I mean, the founding fathers are each one of them is genius in their own right, and the hagiography of the founding fathers is not hyperbolic. It's they're really an amazing dynamic group of individuals, and Hamilton's import is so central. And the the musical makes, while I recognize that there are historical inaccuracies and they moved some of the pieces of his life around for dramatic license, he makes. The politics of that time so personal and helps you understand how movements like that can grow out of individuals' nature. It's so inspiring, and then the fact that the entire cast is is people of color. It's such a beautiful show to watch. The dancers, the background dancers, are male and female, and take male and female roles indiscriminately.
+[00:24:09] Adam: Yeah, it takes. This is what it does. Is and Lin said that every time he. Every he tried to write everything political about the time through the personal. So the meeting where Ham where Hamilton decides to move the the the nation's capital from New York to to the Potomac, um, is a key moment in the book. But Lin couldn't figure out how it went into the musical until he showed it through Burr's eyes in the song " The Room Where It Happened." That's how he made the political personal, and he takes this unbelievable story of America's founding with a bunch. I mean, the founding fathers are each one of them is genius in their own right, and the hagiography of the founding fathers is not hyperbolic. It's they're really an amazing dynamic group of individuals, and Hamilton's import is so central. And the the musical makes, while I recognize that there are historical inaccuracies and they moved some of the pieces of his life around for dramatic license, he makes. The politics of that time so personal and helps you understand how movements like that can grow out of individuals' nature. It's so inspiring, and then the fact that the entire cast is is people of color. It's such a beautiful show to watch. The dancers, the background dancers, are male and female, and take male and female roles indiscriminately.
 
 [00:25:39] Unknown speaker: Okay,
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:26:39] Norm: Yeah. Okay. The the the big like climactic reveal isn't it's it's it's really emotional. It's about how people remembered and like I don't give too much away, but it's actually it's a very deeply personal thing.
 
-[00:26:54] Adam: Oh, it's even more than that, and I don't want to. This is actually a spoiler, but the the the end gives you a viewpoint into the situation that is that from the staging and the way the actors perform it. That's not necessarily fully extent in the in the libretto.
+[00:26:54] Adam: Oh, it's even more than that, and I don't want to. This is actually a spoiler, but the the the end gives you a viewpoint into the situation that is that from the staging and the way the actors perform it. That's not necessarily fully extant in the in the libretto.
 
 [00:27:09] Norm: Okay.
 

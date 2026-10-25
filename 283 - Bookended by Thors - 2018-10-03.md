@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:02:15] Will: Because that would have eaten a lot of the seventy grand,
 
-[00:02:17] Adam: probably. And the the the the the the lead plane of Kelsey is an incredible speaker. She's twenty two, and like it's almost annoying how brilliant she is at speaking, like public speaking, just super inspirational. So it was a fantastic weekend all around.
+[00:02:17] Adam: probably. And the the the the the the lead plaintiff Kelsey is an incredible speaker. She's twenty two, and like it's almost annoying how brilliant she is at speaking, like public speaking, just super inspirational. So it was a fantastic weekend all around.
 
 [00:02:33] Will: Are they suing the entirety of the federal government? Are they like targeting specific places?
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:07:10] Adam: can't stop.
 
-[00:07:11] Norm: We talk like when we went down last week to to Frank Capolito's shop. You know, we were talking about well, we want to make several of these Martian costumes too, but we're looking at it, and you know what? The the toughest part is probably the cut and sew,
+[00:07:11] Norm: We talk like when we went down last week to to Frank Ippolito's shop. You know, we were talking about well, we want to make several of these Martian costumes too, but we're looking at it, and you know what? The the toughest part is probably the cut and sew,
 
 [00:07:24] Adam: the cut and sew, and the sheer rank, the wrangling of the sheer number of pieces of that costume is. I made a list on the plane on the way home, and it's ridiculous. There's so many tiny little parts of that. Well,
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:13:38] Will: What is dimensional screen printing?
 
-[00:13:39] Adam: So, a few years ago, I I'm sorry that I cannot remember her name, but Deborah Nadelman Landis was explicating the genius of the Marvel costume designer for the Captain America suit for Winter Soldier,
+[00:13:39] Adam: So, a few years ago, I I'm sorry that I cannot remember her name, but Deborah Nadoolman Landis was explicating the genius of the Marvel costume designer for the Captain America suit for Winter Soldier,
 
 [00:13:53] Will: the best Captain America movie.
 
@@ -450,7 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:17:49] Will: yeah, yeah. I saw I saw clips from your talk with the MythBusters Junior kids
 
-[00:17:49] Adam: at Maker World Maker Fair
+[00:17:49] Adam: at Maker World Maker Faire
 
 [00:17:49] Will: a few weeks ago. They popped up. They started popping up online last week, and those were. Like those kids are super duper smart.
 
@@ -470,9 +470,9 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:18:36] Will: That's awesome.
 
-[00:18:36] Adam: That's what it feels like. The World Maker Fair, by the way, we talked about that already. World Maker Fair, holy cow! What a what a another again totally different than San Mateo Maker Fair and really cool.
+[00:18:36] Adam: That's what it feels like. The World Maker Faire, by the way, we talked about that already. World Maker Faire, holy cow! What a what a another again totally different than San Mateo Maker Faire and really cool.
 
-[00:18:46] Will: I really I really want to go to World Maker Fair one time as like Tommy Lee Jones from Men in Black. Like I think I think that there's not a lot of cosplay Maker Fairs usually, but I feel like this is an appropriate one.
+[00:18:46] Will: I really I really want to go to World Maker Faire one time as like Tommy Lee Jones from Men in Black. Like I think I think that there's not a lot of cosplay Maker Faires usually, but I feel like this is an appropriate one.
 
 [00:18:56] Adam: You need to go with someone else.
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:19:20] Adam: And one of my favorite garage kit designers, the
 
-[00:19:31] Norm: yes at Industrial Mechanica,
+[00:19:31] Norm: yes at Industria Mechanika,
 
 [00:19:34] Adam: they famously did the dystopic astronaut that Norm and I built about three years ago.
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:19:40] Norm: And there's a whole series of that. Yeah, there's like three new ones of smaller scale. But the whole idea behind this company is that they find artists, concept artists, 3D artists, and pair them with modelers who can design and turn their concept art into something that's a garage kit, and then they sell limited quantities.
 
-[00:19:59] Adam: And we covered this when we did the build, but it's really It's really important to call out that industrial mechanica's. Not only is there are their castings beautiful, like there's no bubbles, no cleanup required. Their castings are great. The level of detail in those castings is astonishing and gorgeous. And the engineering of the kit is also top notch. When you finish the pieces, they slot slot together perfectly.
+[00:19:59] Adam: And we covered this when we did the build, but it's really It's really important to call out that Industria Mechanika's. Not only is there are their castings beautiful, like there's no bubbles, no cleanup required. Their castings are great. The level of detail in those castings is astonishing and gorgeous. And the engineering of the kit is also top notch. When you finish the pieces, they slot slot together perfectly.
 
 [00:20:24] Norm: All the keying is right. The where the seams are placed, it's and it's so much detail.
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:21:35] Will: I mean, we talked about this a couple weeks ago, and this is exactly the kind of thing that we said, " Hey, don't know, don't do it. Steal from Disney, go nuts.
 
-[00:21:43] Adam: Yeah, go, but support the small builders of the world. Support those small companies working hard to all that. All industry mechanical wants to do is put cooler kits in the hands of more people. That's Their life goal,
+[00:21:43] Adam: Yeah, go, but support the small builders of the world. Support those small companies working hard to all that. All Industria Mechanika wants to do is put cooler kits in the hands of more people. That's Their life goal,
 
 [00:21:56] Will: yep. And the thing that they do, pairing the artists with the with the with the people who can turn those you know two D flats into three D objects in the real world, is well, it's just it's just beautiful.
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:23:11] Norm: Totally. Yeah. Yeah, and I think people—it's—it's shocking, like the fact that you had to put, you know, little cards and and in every kit. No, no recasting, and it's people just don't think about it.
 
-[00:23:23] Adam: Yeah, I mean, look, this is why I prefer to buy my garage kits and that kind of stuff on in Etsy over eBay. And don't get me wrong; there are still some shipbirds on Etsy who are cheating and stealing, but for the most part, you can reach out and contact the seller directly on Etsy, and that means you can build a relationship and you can be confident of that relationship.
+[00:23:23] Adam: Yeah, I mean, look, this is why I prefer to buy my garage kits and that kind of stuff on in Etsy over eBay. And don't get me wrong; there are still some shitbirds on Etsy who are cheating and stealing, but for the most part, you can reach out and contact the seller directly on Etsy, and that means you can build a relationship and you can be confident of that relationship.
 
 [00:23:46] Will: I mean, just in general, even even with computer hardware, somebody the other day sent me a link. It was like, " Hey, is this the RAM I need for my computer?" And it was an eBay link. I was like, " Dude, do not." Buy computer hardware on eBay, like especially RAM, because it's like if it's if it's like if you're buying a piece of RAM, you're buying like a high-end, high latency, you know, high-end, low latency, expensive memory. It's really easy to peel those stickers off and print some new ones and stick stick the stick the expensive RAM stickers on.
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:24:24] Will: yeah,
 
-[00:24:24] Norm: and he'll have to take an act of sense. Say, you know, this, these four things that you saw just went on sale. I had nothing to do with it. I see no money from this, and the retailers he's worked with are now pulling those toys off of their lines and giving refunds to people who've bought them because you know
+[00:24:24] Norm: and he'll have to take an active stance. Say, you know, this, these four things that you saw just went on sale. I had nothing to do with it. I see no money from this, and the retailers he's worked with are now pulling those toys off of their lines and giving refunds to people who've bought them because you know
 
 [00:25:09] Will: because they thought that they
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:26:41] Norm: Hey everyone, before we move on with the conversation,
 
-[00:26:41] Norm: I want to thank the sponsor that makes this week's episode of Still Untitled possible, and that's. Campaign Monitor. When it comes to email marketing, there's so much more that goes into creating smart and effective campaigns than what meets the eye. That's why Campaign Monitor created an easy-to-use email marketing platform, complete with simple drag-and-drop email editors and an award-winning 24/7 customer service. Campaign Monitor gives you everything you need to run beautifully designed, professional email marketing campaigns to grow your business. With their gallery of beautiful email templates, all of which look amazing on every device, you're bound to find something that will make your brand pop. And since Campaign Monitor uses detailed lists and smart segments, your messages instantly drive more engagement. No wonder it's used by more than 250,000 businesses worldwide. Now, still entitled listeners have the opportunity to try Campaign Monitor for themselves without spending a dime. Sign up for your free trial today at campaignmonitor.com/untitled. Again, that's campaignmonitor.com/untitled. Back to the conversation.
+[00:26:41] Norm: I want to thank the sponsor that makes this week's episode of Still Untitled possible, and that's. Campaign Monitor. When it comes to email marketing, there's so much more that goes into creating smart and effective campaigns than what meets the eye. That's why Campaign Monitor created an easy-to-use email marketing platform, complete with simple drag-and-drop email editors and an award-winning 24/7 customer service. Campaign Monitor gives you everything you need to run beautifully designed, professional email marketing campaigns to grow your business. With their gallery of beautiful email templates, all of which look amazing on every device, you're bound to find something that will make your brand pop. And since Campaign Monitor uses detailed lists and smart segments, your messages instantly drive more engagement. No wonder it's used by more than 250,000 businesses worldwide. Now, Still Untitled listeners have the opportunity to try Campaign Monitor for themselves without spending a dime. Sign up for your free trial today at campaignmonitor.com/untitled. Again, that's campaignmonitor.com/untitled. Back to the conversation.
 
 [00:27:50] Will: Okay, Norm. You promised something last week.
 
@@ -826,7 +826,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:31:36] Adam: right?
 
-[00:31:41] Adam: Jemmy Tartakovsky plotted
+[00:31:41] Adam: Genndy Tartakovsky plotted
 
 [00:31:43] Adam: the battle sequence at the end of two.
 
@@ -1218,4 +1218,4 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:42:55] Will: Yeah. See you guys next week. Bye, Comic Con guys.
 
-[00:42:57] Norm: Bye. Thanks for listening this week, and once again, this episode was brought to you by Campaign Monitor. When it comes to email marketing, there's so much more that goes into creating smart and effective campaigns than what meets the eye. That's why Campaign Monitor created an easy to use email marketing platform, complete with mobile friendly templates, a simple drag and drop email editor, and award winning 24 seven customer service. It's used by over 250 thousand businesses worldwide. Still entitled listeners have the opportunity to try Campaign Monitor for themselves without spending a dime. Sign up for your free trial today at campaignmonitor.com/untitled. Again, that's campaignmonitor.com/untitled. We'll see you next week.
+[00:42:57] Norm: Bye. Thanks for listening this week, and once again, this episode was brought to you by Campaign Monitor. When it comes to email marketing, there's so much more that goes into creating smart and effective campaigns than what meets the eye. That's why Campaign Monitor created an easy to use email marketing platform, complete with mobile friendly templates, a simple drag and drop email editor, and award winning 24 seven customer service. It's used by over 250 thousand businesses worldwide. Still Untitled listeners have the opportunity to try Campaign Monitor for themselves without spending a dime. Sign up for your free trial today at campaignmonitor.com/untitled. Again, that's campaignmonitor.com/untitled. We'll see you next week.

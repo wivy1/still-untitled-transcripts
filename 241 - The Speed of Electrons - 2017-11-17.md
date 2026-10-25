@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=Nmy3uFU-7t4
 
 [00:01:46] Will: What's what's what's so you're on tour, I assume?
 
-[00:01:49] Adam: I am. This is the third day of Brain Candy Live tour. We started out in Providence, Rhode Island last night. We were in New Brunswick, New Jersey today. It's Morristown. The crowds have been lovely. It's it's it's it's just starting off. Both Michael Stevens and I were a little bit. Shocked by how much material there was to remember, so the first rehearsal was a little bit rough. But then, once we got into the the the tech Q to Q rehearsal, it all came crashing back. So it's been very fun, like getting back on a bicycle.
+[00:01:49] Adam: I am. This is the third day of Brain Candy Live tour. We started out in Providence, Rhode Island. Last night, we were in New Brunswick, New Jersey. Today, it's Morristown. The crowds have been lovely. It's it's it's it's just starting off. Both Michael Stevens and I were a little bit. Shocked by how much material there was to remember, so the first rehearsal was a little bit rough. But then, once we got into the the the tech Q to Q rehearsal, it all came crashing back. So it's been very fun, like getting back on a bicycle.
 
 [00:02:22] Will: So when you when you do the rehearsal, oh, go ahead, Norm.
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=Nmy3uFU-7t4
 
 [00:16:54] Norm: we'll talk about it next week. For sure.
 
-[00:16:55] Adam: I also want to point out that I've been totally silent about this. I've been totally silent about this. But the New Mythbusters aired last night on the Science Channel, and I feel like it's incumbent upon me to mention that I met Brian and John at New York's Comic Con. That was the second time I met them. I met them on the set of The search for the new MythBusters, back when that first started, they're delightful guys, and I just I I'm only bringing it up to say I wish that I haven't watched it yet. I plan to today, but I wish them every success, and I love reading the Twitter response. Seems to be very positive. They were working with a lot of my own MythBuster crew, and so it makes me very very my heart is full with the idea that those two guys get to host that show. I hope they get to host it for years and enjoy it as much as I did.
+[00:16:55] Adam: I also want to point out that I've been totally silent about this. But the New Mythbusters aired last night on the Science Channel, and I feel like it's incumbent upon me to mention that I met Brian and Jon at New York's Comic Con. That was the second time I met them. I met them on the set of The search for the new MythBusters, back when that first started, they're delightful guys, and I just I I'm only bringing it up to say I wish that I haven't watched it yet. I plan to today, but I wish them every success, and I love reading the Twitter response. Seems to be very positive. They were working with a lot of my own MythBuster crew, and so it makes me very very my heart is full with the idea that those two guys get to host that show. I hope they get to host it for years and enjoy it as much as I did.
 
 [00:17:42] Will: That's awesome.
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=Nmy3uFU-7t4
 
 [00:27:03] Will: That's so cool. Well, I guess that's it for us today. Norm, anything on the site this week you want to plug?
 
-[00:27:08] Norm: Those are the things. Also, some stuff from Designer Con, but we can talk about that next week. I did have a nice chat with our friend Jason Freeny, artist, sculptor, toy maker. So that will be on the site this weekend. But have a good week of touring, Adam, and we will check with you next week.
+[00:27:08] Norm: Those are the things. Also, some stuff from DesignerCon, but we can talk about that next week. I did have a nice chat with our friend Jason Freeny, artist, sculptor, toy maker. So that will be on the site this weekend. But have a good week of touring, Adam, and we will check with you next week.
 
 [00:27:28] Adam: I will. I had some fans at the meet and greet last night who were sad that Still Untitled didn't go up that morning, and I promised them it would go up today.
 

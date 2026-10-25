@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:24:19] Adam: That's super exciting. I'm gonna miss you, but I get down. I'll I'll come down to L. A. And I will see you. And I'm I'm sad that you're leaving San Francisco. I'm so excited for you.
 
-[00:24:29] Simone: I I'm too. I mean, I really. It's been hard to leave because I'm so comfortable here, and I have so many good things going, and so many good friends. But I've been looking to move down for a long time, and and I've just been waiting for the right something to feel right, and yeah, and I just found this like magical house that I could kind of afford, and that has a really big workshop in the back. So yeah, we've just been packing up things. Actually, um, I've decided the the weird. Concoctions that I have from, uh, being savage or Savage Builds, the episode that I was on, I still have the like Scorpio tail and the the weird spike stars that were on my car.
+[00:24:29] Simone: I I'm too. I mean, I really. It's been hard to leave because I'm so comfortable here, and I have so many good things going, and so many good friends. But I've been looking to move down for a long time, and and I've just been waiting for the right something to feel right, and yeah, and I just found this like magical house that I could kind of afford, and that has a really big workshop in the back. So yeah, we've just been packing up things. Actually, um, I've decided the the weird. Concoctions that I have from, uh, being savage or Savage Builds, the episode that I was on, I still have the like scorpion tail and the the weird spike stars that were on my car.
 
 [00:25:15] Adam: Yeah,
 

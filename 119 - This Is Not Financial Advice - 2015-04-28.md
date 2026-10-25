@@ -324,7 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:12:24] Will: And but the interest isn't isn't running anymore, so the clock's not ticking, and you're at least not accruing more debt. You're actually not.
 
-[00:12:29] Adam: There’s two things They do. They freeze the interest and they get your monthly payment down so that you can actually start paying off the principal that you owe instead of just constantly peddling. And they got me out of my debt, and it was phenomenal. It it like the relief was so massive. So it's a, it's a, you know, these are the kind of things that I think they should be teaching kids in high school, which is where my kids are. Like. Yeah. Like that is exactly the age at which they should learn that.
+[00:12:29] Adam: There’s two things They do. They freeze the interest and they get your monthly payment down so that you can actually start paying off the principal that you owe instead of just constantly pedaling. And they got me out of my debt, and it was phenomenal. It it like the relief was so massive. So it's a, it's a, you know, these are the kind of things that I think they should be teaching kids in high school, which is where my kids are. Like. Yeah. Like that is exactly the age at which they should learn that.
 
 [00:12:55] Will: Have you gotten a checking account for your kids yet? When do you, when do you think is it? Like I got that when I went to college, basically.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:16:26] Will: well, he's he's sixteen years old,
 
-[00:16:28] Adam: but I mean he really like he gets a car driver and he knows all the specs of all the cars. And so we're driving, we're talking about the car, and he's like, " Yeah, you get a lot of you get a lot of you get a lot of value for your money for that car, big expensive car." And I was like, " I would I would be careful about saying things like that. You kind of sound like a little rich kid." He was like, " Oh my god, I'm so sorry. I don't want I get that. Thank you for telling me." Which is awesome.
+[00:16:28] Adam: but I mean he really like he gets a Car and Driver and he knows all the specs of all the cars. And so we're driving, we're talking about the car, and he's like, " Yeah, you get a lot of value for your money for that car, big expensive car." And I was like, " I would I would be careful about saying things like that. You kind of sound like a little rich kid." He was like, " Oh my god, I'm so sorry. I don't want I get that. Thank you for telling me." Which is awesome.
 
 [00:16:49] Will: That's good. Yeah, that's the right answer.
 

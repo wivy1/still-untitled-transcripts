@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:14:28] Will: Okay,
 
-[00:14:28] Adam: I really enjoy that. And like somebody has a, a, an aesthetic that I like. I've bought paintings on Etsy. I've bought drawings and prints and stuff. And you know, if somebody sells a kind of a print like a map or something that I like, oh, I did buy some recent documents, some letters of the mark from a from a calligrapher on Etsy who makes these lovely replica letters of the mark. Which is a letter of the mark is something you would have gotten in Napoleonic England that would have. Allowed you to effectively be a legal pirate as long as the ships you were robbing were French.
+[00:14:28] Adam: I really enjoy that. And like somebody has a, a, an aesthetic that I like. I've bought paintings on Etsy. I've bought drawings and prints and stuff. And you know, if somebody sells a kind of a print like a map or something that I like, oh, I did buy some recent documents, some letters of the marque from a from a calligrapher on Etsy who makes these lovely replica letters of the marque. Which is a letter of the marque is something you would have gotten in Napoleonic England that would have. Allowed you to effectively be a legal pirate as long as the ships you were robbing were French.
 
 [00:15:02] Will: Makes perfect sense.
 

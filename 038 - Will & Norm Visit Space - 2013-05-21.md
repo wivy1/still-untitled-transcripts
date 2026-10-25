@@ -594,11 +594,11 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:18:01] Will: They didn't want us to eat forty-year-old food. I don't know why.
 
-[00:18:03] Norm: Although Tracy was super excited because apparently the French,
+[00:18:03] Norm: Although Traci was super excited because apparently the French,
 
 [00:18:07] Will: Alain Ducasse.
 
-[00:18:08] Norm: yes, they had canned food that was made by one of Tracy's old employers.
+[00:18:08] Norm: yes, they had canned food that was made by one of Traci's old employers.
 
 [00:18:12] Adam: Really?
 
@@ -648,7 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:19:38] Will: The freeze-dried stuff was surprisingly good for the most part, and we were, we were there with chefs, so they were very into trying. They were trying to mix different flavors and textures. And we tried a lot of the freeze-dried stuff that wasn't rehydrated, as well as some that had been rehydrated.
 
-[00:19:52] Norm: So on the ISS, the the director of their food program, they've concocted up about 200 different items that they send up, including different types of beverages and and a mixture of the shelf stable, the MRE stuff and the freeze dried stuff. And we requested with the chefs sampling. So there was a whole part of that morning where Tracy, David, Will, and I stood around having packages heated up and filled with water and opening them and just tasting them. Sometimes not heating them up, right? Sometimes not infusing them with water, and that was like the fun part of the day. Yeah. And it was really fun. These chefs who had the best food in the world and make some of the best food in the world, just give their honest opinion off camera about, oh man, that that's not bad. Yeah. Oh, that's so gross.
+[00:19:52] Norm: So on the ISS, the the director of their food program, they've concocted up about 200 different items that they send up, including different types of beverages and and a mixture of the shelf stable, the MRE stuff and the freeze dried stuff. And we requested with the chefs sampling. So there was a whole part of that morning where Traci, David, Will, and I stood around having packages heated up and filled with water and opening them and just tasting them. Sometimes not heating them up, right? Sometimes not infusing them with water, and that was like the fun part of the day. Yeah. And it was really fun. These chefs who had the best food in the world and make some of the best food in the world, just give their honest opinion off camera about, oh man, that that's not bad. Yeah. Oh, that's so gross.
 
 [00:20:38] Will: Well, the thing that, the thing that, that Dave said was that a lot of times the freeze-dried stuff really concentrates the flavor. Yeah. So like he uses freeze-dried strawberries, like the astronaut strawberries you get at the gift shop at every space center in the country. Yeah. And he uses freeze-dried strawberries in ice cream to make them—to make it super strawberry flavored.
 
@@ -688,7 +688,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:22:07] Will: And then the texture was also really bad. So it, it kind of broke apart in these weird chunks that were. It was really bad. It was just like, like it was. It was one of those things. Like it didn't strike you. There was some other stuff we had that struck you as bad more, more quickly. This, after about 20 seconds, both of the chefs were looking for some place to spit because they were like, " This is this is resetting my level for bad taste."
 
-[00:22:29] Adam: Now Tracy told me about some freeze-dried shrimp.
+[00:22:29] Adam: Now Traci told me about some freeze-dried shrimp.
 
 [00:22:32] Will: That was the worst thing I've ever put in my mouth.
 
@@ -740,9 +740,9 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:23:52] Will: The thing about the shrimp was it hit your mouth and it kind of exploded, uh, into a bunch of little tiny pieces. So you had this really strong like fish food flavor. It starts at the front of your mouth and kind of slowly encompasses your entire head. And then what happened is, like a spoonful of cinnamon, it just started absorbing all the moisture in your mouth. Oh, no! So it kept getting bigger and bigger, and the taste at the same time was getting somehow a little more stagnant and worse. So like it, it was like a five-minute experience, and it was the kind of thing that, that, that you really wanted the most pungent-tasting thing you could imagine to just kind of flush out of your head.
 
-[00:24:31] Adam: Tracy was telling me about watching all of you guys like,
+[00:24:31] Adam: Traci was telling me about watching all of you guys like,
 
-[00:24:34] Will: yeah, just the loss of moisture and the intensity of the fish of the fish food flavor was was real bad. It was it was like a put Tabasco in your mouth to kind of get things going again situation afterwards. So yeah, that and the tofu with hot mustard, which which Dave ate on camera, or I think Tracy ate that on camera.
+[00:24:34] Will: yeah, just the loss of moisture and the intensity of the fish of the fish food flavor was was real bad. It was it was like a put Tabasco in your mouth to kind of get things going again situation afterwards. So yeah, that and the tofu with hot mustard, which which Dave ate on camera, or I think Traci ate that on camera.
 
 [00:24:50] Adam: Oh, it was awful.
 

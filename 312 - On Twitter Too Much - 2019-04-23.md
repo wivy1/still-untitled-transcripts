@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:00:46] Adam: Yeah, so that you were there with American Gods.
 
-[00:00:49] Michael Green: you have to get photographed, and I was there with American Gods, and normally it is my want to avoid all photographic representations of myself.
+[00:00:49] Michael Green: you have to get photographed, and I was there with American Gods, and normally it is my wont to avoid all photographic representations of myself.
 
 [00:00:58] Adam: Sorry,
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:30:41] Michael Green: But like this is a different way of communication, you know. Feature script is a different way of communicating than a television script is a different way of communicating with. And I love comic scripts because you're basically writing a love letter to an artist. You're talking to one person, and you know you can call them up on the phone and say, " How do you like being communicated with?" Or you— Or you're writing to their strengths, and you can you can you don't have to edit yourself if you want to describe something a lot, or you can just say, " Batman strikes a pose," and you know.
 
-[00:31:05] Adam: There and there are aspects to that, like the early Frank Miller collaborations with people like Bill Sienkiewicz, the Elektra Assassin series, one of those, the unbelievable collaboration between Vision and an.
+[00:31:05] Adam: There and there are aspects to that, like the early Frank Miller collaborations with people like Bill Sienkiewicz, the Elektra Assassin series, one of those, the unbelievable collaboration between a vision and an.
 
 [00:31:18] Norm: Well, and Neil Gaiman, I think, said, related by his wife, that comics as is the only medium that he can think of that you can have silence and force the the reader to engage with silence in the way that you can't with audio with video because you look at an empty panel or it
 

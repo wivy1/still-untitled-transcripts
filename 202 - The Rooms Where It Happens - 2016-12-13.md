@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:04:26] Adam: I meant to ask you if, in your Kickstarter video, if you tried the oh hi, I didn't see you there.
 
-[00:04:31] Will: We did that. The first time we did that was when we moved into a new office before Whale Rock bought us in 2010 or 2011. Yeah.
+[00:04:31] Will: We did that. The first time we did that was when we moved into a new office before Whalerock bought us in 2010 or 2011. Yeah.
 
 [00:04:31] Will: And at that point, I thought at that point, I we did that and we watched the video and I was like, oh wait, probably a little late on this one.
 
@@ -722,7 +722,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:31:15] Norm: New Year's resolution.
 
-[00:31:17] Adam: Well, I still want to do that one wheel shoot that we did that I didn't think worked, and I want to do it again.
+[00:31:17] Adam: Well, I still want to do that Onewheel shoot that we did that I didn't think worked, and I want to do it again.
 
 [00:31:17] Norm: Yeah.
 

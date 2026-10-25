@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:07:01] Norm: It's obscuring the the parts that I don't want to see of this play.
 
-[00:07:06] Adam: You remember, by the way, mentioning at the last tested live show that some or two tested live shows ago, someone had turned the Castro Theater into a Pokéstop.
+[00:07:06] Adam: You remember, by the way, mentioning at the last tested live show that some or two tested live shows ago, someone had turned the Castro Theatre into a Pokéstop.
 
 [00:07:15] Norm: Yes,
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:10:46] Adam: She's not going to take no crap. No.
 
-[00:10:47] Will: I walked out of the draft house after seeing that, and I told my wife, " I never want Holly Hunter to be mad at me
+[00:10:47] Will: I walked out of the Drafthouse after seeing that, and I told my wife, " I never want Holly Hunter to be mad at me
 
 [00:10:55] Norm: ever,
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:11:31] Adam: and Joel,
 
-[00:11:31] Adam: Cohen.
+[00:11:31] Adam: Coen.
 
 [00:11:32] Will: Yeah, why not?
 
@@ -578,9 +578,9 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:19:19] Norm: the mice Disney one.
 
-[00:19:20] Will: It's the it's the mice with the not Zsa Zsa Gabor, but the Ava Gabor,
+[00:19:20] Will: It's the it's the mice with the not Zsa Zsa Gabor, but the Eva Gabor,
 
-[00:19:25] Adam: Ava Gabor, one of the Gabor sisters,
+[00:19:25] Adam: Eva Gabor, one of the Gabor sisters,
 
 [00:19:26] Will: one of the Gabor, and Bob Newhart. I think
 
@@ -690,7 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:25:55] Will: Why make one when you can buy two for double the price?
 
-[00:25:57] Adam: Exactly. It only takes it only takes a little more work to do two of something. So I built a set of boxes that were wrong, so I had to throw those out and start from scratch. But the luan that I was using didn't here in America. I went to Baronia Lumber and I spent half an hour looking through all their luan to find a sheet where the grain was actually close to the original because I'm like that.
+[00:25:57] Adam: Exactly. It only takes it only takes a little more work to do two of something. So I built a set of boxes that were wrong, so I had to throw those out and start from scratch. But the luan that I was using didn't here in America. I went to Beronio Lumber and I spent half an hour looking through all their luan to find a sheet where the grain was actually close to the original because I'm like that.
 
 [00:25:57] Will: I know.
 
@@ -708,7 +708,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:26:42] Will: Probably best.
 
-[00:26:43] Adam: When Andrew and Grant from FBFX packed up that foam master, oh, sent it to me. They sent it in a Box a cardboard box that was lined in Luon whose grain much better matched the grain from the Kubrick exhibit
+[00:26:43] Adam: When Andrew and Grant from FBFX packed up that foam master, oh, sent it to me. They sent it in a Box a cardboard box that was lined in luan whose grain much better matched the grain from the Kubrick exhibit
 
 [00:26:57] Unknown [Adam / Will]: [unclear: because it was British Luan / so you need like Norwegian first].
 
@@ -778,7 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:28:35] Norm: It changes the way you build things.
 
-[00:28:36] Adam: It does, and there are times I just want to. There are times I just want to be here and noodling without any pressure.
+[00:28:36] Adam: It does, and there are times I just want to be here and noodling without any pressure.
 
 [00:28:41] Will: Yeah, it slows everything down, and there's pressure to get it done, and the time that you have to shoot.
 
@@ -794,7 +794,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:28:55] Will: Tom.
 
-[00:28:56] Norm: Speaking of which, yes, go watch that video. We visited FBFX. They shipped that life-size atom foam atom. So, what wasn't in the video was how that was carved. That they have a giant robot arm, like an industrial robot.
+[00:28:56] Norm: Speaking of which, yes, go watch that video. We visited FBFX. They shipped that life-size Adam foam Adam. So, what wasn't in the video was how that was carved. That they have a giant robot arm, like an industrial robot.
 
 [00:29:09] Adam: But we just didn't get we didn't get footage of that being carving.
 

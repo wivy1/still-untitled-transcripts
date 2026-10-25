@@ -576,7 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:18:58] Adam: It's blazing! Wow,
 
-[00:19:00] Norm: it's like that Quest commercial. That all the Quest where it's like the middle of nowhere, and the guy walks in and goes, " What movies you have? Every movie ever made?
+[00:19:00] Norm: it's like that Qwest commercial. That all the Qwest where it's like the middle of nowhere, and the guy walks in and goes, " What movies you have? Every movie ever made?
 
 [00:19:07] Adam: Oh, right.
 

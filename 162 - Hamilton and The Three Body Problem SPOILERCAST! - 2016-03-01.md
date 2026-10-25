@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:02:29] Norm: And when you say the book, you mean the book, the musical,
 
-[00:02:32] Adam: the book, the musical. Now, in some musicals, you have sometimes people talk, and then they're like, " Oh, let's get in the story with a fringe on top." Do do do do do. You know, in this, the entire thing is sung from start to finish. So when you download the soundtrack on iTunes, which I highly recommend that you do, you are listening to the entirety of the musical.
+[00:02:32] Adam: the book, the musical. Now, in some musicals, you have sometimes people talk, and then they're like, " Oh, let's get in the surrey with a fringe on top." Do do do do do. You know, in this, the entire thing is sung from start to finish. So when you download the soundtrack on iTunes, which I highly recommend that you do, you are listening to the entirety of the musical.
 
 [00:02:48] Norm: That’s Great. So that's one of the problems I have with not watching the musical before because you miss the narrative.
 
@@ -354,11 +354,11 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:19:04] Norm: But I completely agree with you, Will. Where the the beauty of narrative is how he this this the main character, one of the main characters, is exposed to the world of Trisolarians, and it's through this video game.
 
-[00:19:14] Will: Because because you're you're the thing that's interesting is you're seeing the world through that main character's perspective, and it unpacks the world in a way that that sells this incredibly high concepts high high science fiction concept. The Sofon,
+[00:19:14] Will: Because because you're you're the thing that's interesting is you're seeing the world through that main character's perspective, and it unpacks the world in a way that that sells this incredibly high concepts high high science fiction concept. The Sophon,
 
 [00:19:25] Norm: it's a very very great unpacking, and there's a great Star Trek episode.
 
-[00:19:29] Will: The book unpacks like a Sofon.
+[00:19:29] Will: The book unpacks like a Sophon.
 
 [00:19:30] Adam: The reveal, yeah, the reveal is totally the set of reveals in the book is absolutely thrilling.
 
@@ -658,4 +658,4 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:30:42] Adam: Bye.
 
-[00:30:50] Norm: And I also want to thank, and I also want to thank another sponsor for this week's episode, Still Untitled, and that's Casper Mattresses. Thanks again to Casper Mattresses, obsessively engineered American-made mattresses at a shockingly fair price. And you can get fifty dollars toward any mattress purchase by going to casper.com/untitled and using the offer code Untitled. Fifty dollars. Casper brings together two comfy technologies for better nights and brighter days: latex foam and memory foam. So they got just the right amount of sink and the right bounce, no matter how you sleep. They also have a risk-free trial and return policy. They'll deliver it straight to you and you can try it for a hundred days. It's like three months. And if you're not happy, they'll pick it back up. A three-month-old mattress. It's five hundred dollars for twin-size mattress and nine hundred fifty dollars for king-size mattress. Comparing that to industry standards and averages, that's an outstanding. Price point. So get fifty dollars toward any mattress purchase by going to Casper.com/untitled. Again, using the offer code Untitled. Terms and conditions may apply. And we'll see you next week. Bye.
+[00:30:50] Norm: And I also want to thank another sponsor for this week's episode, Still Untitled, and that's Casper Mattresses. Thanks again to Casper Mattresses, obsessively engineered American-made mattresses at a shockingly fair price. And you can get fifty dollars toward any mattress purchase by going to casper.com/untitled and using the offer code Untitled. Fifty dollars. Casper brings together two comfy technologies for better nights and brighter days: latex foam and memory foam. So they got just the right amount of sink and the right bounce, no matter how you sleep. They also have a risk-free trial and return policy. They'll deliver it straight to you and you can try it for a hundred days. It's like three months. And if you're not happy, they'll pick it back up. A three-month-old mattress. It's five hundred dollars for twin-size mattress and nine hundred fifty dollars for king-size mattress. Comparing that to industry standards and averages, that's an outstanding. Price point. So get fifty dollars toward any mattress purchase by going to Casper.com/untitled. Again, using the offer code Untitled. Terms and conditions may apply. And we'll see you next week. Bye.

@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=rhaNoBx39Jc
 
 [00:05:00] Adam: I'm going to note that right here in the podcast is where one of the first tested commentators will go. I've got to pause this and write about how terrible that jackhammer sound is.
 
-[00:05:08] Will: Yeah, but we're really sorry. We could go out and ask those guys to stop, but their union and like this is not going to go well.
+[00:05:08] Will: Yeah, but we're really sorry. We could go out and ask those guys to stop, but they're union and like this is not going to go well.
 
 [00:05:14] Adam: Our apologies, but this is city living.
 

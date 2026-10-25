@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:04:01] Norm: Sometimes we just want more information. I just more information would be fine.
 
-[00:04:06] Will: I was thinking about this the other day as I was sitting looking at an order form, and I was like, " Man, they're charging me six dollars for two-day shipping. I don't like this company. I'm not going to buy this. I'm going to go buy it someplace else." And I thought back to like probably the first time I mailed or anything with like with my money was when I built my first computer when I was maybe a sophomore in college, right? And at that time, like there was no Amazon. Newegg wasn't a thing. You went to some. you went to some terrible website like with with with like frames.
+[00:04:06] Will: I was thinking about this the other day as I was sitting looking at an order form, and I was like, " Man, they're charging me six dollars for two-day shipping. I don't like this company. I'm not going to buy this. I'm going to go buy it someplace else." And I thought back to like probably the first time I mail-ordered anything with like with my money was when I built my first computer when I was maybe a sophomore in college, right? And at that time, like there was no Amazon. Newegg wasn't a thing. You went to some. you went to some terrible website like with with with like frames.
 
 [00:04:32] Adam: Yeah.
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:08:47] Adam: I had I never had enough of those for the secret. Control rooms that I was building in all of my playsets, and so I I still have in my Legos too that I that I hand drew onto like a white Lego.
 
-[00:09:01] Will: If you with the right pressure, you could have been an evil mad scientist with the with a secret underground layer, couldn't you?
+[00:09:01] Will: If you with the right pressure, you could have been an evil mad scientist with the with a secret underground lair, couldn't you?
 
 [00:09:05] Adam: All I was interested in with like Legos was making secret rooms and secret doors.
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:17:29] Will: right?
 
-[00:17:29] Norm: That builds interest and builds heights for it.
+[00:17:29] Norm: That builds interest and builds hype for it.
 
 [00:17:32] Will: It's much like I'm going to go ahead and tell you, like the the only problem complaint I have is that they really, really stack a ton of ads in front of each individual thing. So if you're like bouncing from thing to thing to thing, then you you watch way more ads than you would if you were probably watching just the live feed. But but it's a much more humane viewing experience instead of spending 16 hours watching watching 35 minutes of stuff that I want to see. We watched, you know, we watched biathlon, which I always find fascinating. Like it's
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:22:01] Will: yeah, because he did the, he did the, the Neuromancer, Count Zero, and then
 
-[00:22:06] Adam: Mona Lisa Overdrive, and then Virtual Light, Doru, and All Tomorrow's Parties.
+[00:22:06] Adam: Mona Lisa Overdrive, and then Virtual Light, Idoru, and All Tomorrow's Parties.
 
 [00:22:11] Will: Yeah,
 
@@ -632,7 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:22:17] Adam: Spook country.
 
-[00:22:17] Will: Spook country, and tho- those three. Those are my favorites. The Casey Pollard ones are amazing.
+[00:22:17] Will: Spook country, and tho- those three. Those are my favorites. The Cayce Pollard ones are amazing.
 
 [00:22:28] Adam: There is a device in that trilogy,
 
@@ -740,9 +740,9 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:25:17] Will: I believe it was live. It's hard to tell on TV.
 
-[00:25:19] Adam: Was Was Damien Kulash riding one?
+[00:25:19] Adam: Was Was Damian Kulash riding one?
 
-[00:25:21] Will: Oh, Damien Kulash.
+[00:25:21] Will: Oh, Damian Kulash.
 
 [00:25:22] Adam: Sorry, the lead singer of OK Go.
 
@@ -762,7 +762,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:25:44] Adam: Yeah, because on a stage, you know, they just had them take off, and you can't even see them, and then they light up, and they're doing circles and designs in the air, and it's
 
-[00:25:55] Norm: it's where Disney has that the patent to do like basically fireworks with those type of drones because they want to use that at Disneyland, Disney World, not over people, but even close enough away where you can see exactly where you can can see that stuff happen. We're gonna converge these segways because one of the reasons I also wanted to mention the Boston Dynamics and Metalhead episode of Black Mirror, and how Terminator-like they are is because I saw a drone two days ago that just got announced yesterday. As you guys are listening to this, that was the most awesome and scariest drone I've ever seen because of its inability to crash.
+[00:25:55] Norm: it's where Disney has that the patent to do like basically fireworks with those type of drones because they want to use that at Disneyland, Disney World, not over people, but even close enough away where you can see exactly where you can can see that stuff happen. We're gonna converge these segues because one of the reasons I also wanted to mention the Boston Dynamics and Metalhead episode of Black Mirror, and how Terminator-like they are is because I saw a drone two days ago that just got announced yesterday. As you guys are listening to this, that was the most awesome and scariest drone I've ever seen because of its inability to crash.
 
 [00:26:28] Adam: Its inability to crash.
 
@@ -1106,7 +1106,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:37:48] Adam: Right. So this is these are laptops that they're using, and this one has like silver inlaid with turquoise and and semi precious stones, and it turns out to come from this American Native American. Compound in the Southwest called the Sandbenders that hand cast computer bodies for for putting in your components. And yes, I would love to make a sandbender computer body.
 
-[00:38:11] Will: So I've been thinking about how to cool, like a the ASICs now are small enough that you can you can put them into a thing that doesn't have any airflow or has minimal airflow, and it would be pretty easy to to do that with like a Raspberry Pi or something like that these days. Um, but but like the depiction of the footage, right? The found footage in in pattern recognition, I think the Casey Pollard one is is fascinating. Like there's just these little clumps of footage, and people are trying to figure out what they mean. And there, it turns out there's just a neurodiverse person in Moscow. Oh, sorry, massive spoilers. Um, anyway, just read the book. It's really good pattern recognition. All of them are good. He has a new book coming out this fall. I got a note.
+[00:38:11] Will: So I've been thinking about how to cool, like a the ASICs now are small enough that you can you can put them into a thing that doesn't have any airflow or has minimal airflow, and it would be pretty easy to to do that with like a Raspberry Pi or something like that these days. Um, but but like the depiction of the footage, right? The found footage in in pattern recognition, I think the Cayce Pollard one is is fascinating. Like there's just these little clumps of footage, and people are trying to figure out what they mean. And there, it turns out there's just a neurodiverse person in Moscow. Oh, sorry, massive spoilers. Um, anyway, just read the book. It's really good pattern recognition. All of them are good. He has a new book coming out this fall. I got a note.
 
 [00:38:51] Adam: Does he really?
 

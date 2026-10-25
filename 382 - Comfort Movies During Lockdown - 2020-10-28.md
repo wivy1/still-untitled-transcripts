@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=hhdZxzCxhd4
 
 [00:05:12] Joey: I mean that that whole thing, that whole Marvel franchise, how easily it could have just gone to to hell. Like just to wrap your, to, to, as filmmakers to wrap your mind around that many moving elements and moving parts and moving actors, like A-list actors, and and make it all work the way they did. I mean, whether whether you like those movies or not, like the fact that they were able to do what they did is just mind blowing.
 
-[00:05:33] Norm: Can you yeah? Can you unsee the gaff though in the effects the the one the one thing that continuity error that bugs me every time? Okay, I, I'm gonna unleash it for you and for those listening,
+[00:05:33] Norm: Can you yeah? Can you unsee the gaffe though in the effects the the one the one thing that continuity error that bugs me every time? Okay, I, I'm gonna unleash it for you and for those listening,
 
 [00:05:45] Joey: for those
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=hhdZxzCxhd4
 
 [00:33:21] Adam: the comfort food of the idea that someone in charge actually gives a shit.
 
-[00:33:25] Norm: And it ties everything we're talking about together in terms of it being Sorkin written for the stage. It is a modern production. They showed in the special the precautions they took. Um, but to lay it out for people who uh who don't know, you know, we're obviously big fans of West Wing. We talk a lot endlessly when when Will was on specifically, and and it's been off the air for so long. And the cast of they've come together a few times for small little things, you know, supporting. Causes here and there, but this is a full-blown HBO Max produced re. They call it a reading, but basically a performance of one of the famous episodes, Hartfield's Landing.
+[00:33:25] Norm: And it ties everything we're talking about together in terms of it being Sorkin written for the stage. It is a modern production. They showed in the special the precautions they took. Um, but to lay it out for people who uh who don't know, you know, we're obviously big fans of West Wing. We talk a lot endlessly when when Will was on specifically, and and it's been off the air for so long. And the cast of they've come together a few times for small little things, you know, supporting. Causes here and there, but this is a full-blown HBO Max produced re. They call it a reading, but basically a performance of one of the famous episodes, Hartsfield's Landing.
 
 [00:34:06] Adam: It's a really impressive interpretation because it's more than a reading; it's less than a filmed episode, but it's pieces of both used really artistically in a way that Joey. I'm really curious what you'd think about it because the way they block it, it's like
 

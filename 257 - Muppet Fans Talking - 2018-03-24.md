@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:06:47] Adam: Well, and Ken and I were talking, you know that that thing that you see factory bots do is like one thing precisely every time. Robots are fantastic. But that doesn't mean they're actually good at picking stuff up. That just means they're good at being programmed and repeating their steps.
 
-[00:06:58] Norm: Very precise, some millimeter. Yes, but no variability.
+[00:06:58] Norm: Very precise, submillimeter. Yes, but no variability.
 
 [00:07:02] Adam: No, and to give you an idea, like I think a highly skilled person can pick up six hundred objects an hour, and the best robot in the world is like two hundred.
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:14:06] Adam: Yeah,
 
-[00:14:06] Will: and and I mean the same thing happened with VR. The same thing happened with drones. Like, t here is all these all these places that having people come from outside the core areas has done interesting things.
+[00:14:06] Will: and and I mean the same thing happened with VR. The same thing happened with drones. Like, there is all these all these places that having people come from outside the core areas has done interesting things.
 
 [00:14:26] Adam: It was totally inspiring. I came out
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:17:29] Norm: Yeah.
 
-[00:17:29] Adam: Um, and I showed up, and uh, Ryan Johnson showed up. I was leaving as Alan Tudyk showed up. I don't know who came after me. Um, but you know, Frank Oz is a friend of mine, and Dave Goelz is a really good friend, and they're two of the nicest humans alive. And the film is amazing. Listening to these Muppeteers talk about, you guys haven't seen it yet.
+[00:17:29] Adam: Um, and I showed up, and uh, Rian Johnson showed up. I was leaving as Alan Tudyk showed up. I don't know who came after me. Um, but you know, Frank Oz is a friend of mine, and Dave Goelz is a really good friend, and they're two of the nicest humans alive. And the film is amazing. Listening to these Muppeteers talk about, you guys haven't seen it yet.
 
 [00:17:59] Norm: I saw it with you.
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:23:50] Will: No.
 
-[00:23:50] Adam: Oh, I'll show them to you after the podcast. I took these dimmable and color temperature adjustable flat panels that are thirty bucks on Amazon now, and I mounted one to the end of the same lock line.
+[00:23:50] Adam: Oh, I'll show them to you after the podcast. I took these dimmable and color temperature adjustable flat panels that are thirty bucks on Amazon now, and I mounted one to the end of the same Loc-Line.
 
 [00:24:02] Will: Oh, you didn't? You showed me these last time. Yeah, yeah, yeah.
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:24:59] Adam: and it's not an expensive problem to solve.
 
-[00:25:15] Norm: And if you want the full armature, you can get the lock line and armature wire, or you can just put it on like
+[00:25:15] Norm: And if you want the full armature, you can get the Loc-Line and armature wire, or you can just put it on like
 
 [00:25:20] Adam: put someone put one on that on a microphone,
 
@@ -586,13 +586,13 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:25:43] Adam: exactly.
 
-[00:25:44] Norm: And then there is also the week before we published a one day build, which was a collaboration with Bill Duran making the gauntlets your Nazgul gauntlets, which are on your pool table, but then patterning those and making out of foam,
+[00:25:44] Norm: And then there is also the week before we published a one day build, which was a collaboration with Bill Doran making the gauntlets your Nazgul gauntlets, which are on your pool table, but then patterning those and making out of foam,
 
 [00:25:57] Adam: which and they look so badass.
 
 [00:25:59] Will: He's so good with foam;
 
-[00:26:00] Adam: you can't even believe how good it looks. And then there is all these folks trying it in. Other materials like Sintra and Warbla and other things.
+[00:26:00] Adam: you can't even believe how good it looks. And then there is all these folks trying it in. Other materials like Sintra and Worbla and other things.
 
 [00:26:09] Norm: The patterns are free. There, you can find them on on our site or on Bill's video. But you can download them, and if you have a laser cutter or you have some any type of cutter, you can just.
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:26:28] Adam: Fantastic! Congratulations.
 
-[00:26:30] Will: The nano machines. This is the nano machines episode. We talked to Sean Douglas, who's a scientist. He's at the Department of Molecular Bio Pharmacology or something at UCSF. He's a biochemist and he builds nano machines out of DNA. We start out in a recreation of his lab and we kind of powers of ten down through his lab equipment until we are standing in between the lipid layers of an E. Coli cell, and it works without VR. So if you don't have a VR headset, you can try it out at home.
+[00:26:30] Will: The nano machines. This is the nano machines episode. We talked to Shawn Douglas, who's a scientist. He's at the Department of Molecular Bio Pharmacology or something at UCSF. He's a biochemist and he builds nano machines out of DNA. We start out in a recreation of his lab and we kind of powers of ten down through his lab equipment until we are standing in between the lipid layers of an E. Coli cell, and it works without VR. So if you don't have a VR headset, you can try it out at home.
 
 [00:26:55] Adam: Oh, that's really cool.
 
@@ -672,7 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:28:20] Will: not yet. No, no. We're mostly making cartoons.
 
-[00:28:30] Adam: I've been listening to Love It or Leave It, and I love their.
+[00:28:30] Adam: I've been listening to Lovett or Leave It, and I love their.
 
 [00:28:30] Adam: Little theme song.
 

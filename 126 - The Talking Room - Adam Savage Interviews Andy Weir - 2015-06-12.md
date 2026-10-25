@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:08:06] Adam: Did you set out when you wrote this? The thing that I found most exciting about it was. It might be the first science fiction, and I'm not even sure this qualifies as science fiction because everything in it is pretty much doable with today's technology. Did you set out to make it all absolutely that way, or I mean, was a challenge like I don't want to make any leap of technology to something that's not currently feasible?
 
-[00:08:32] Andy Weir: Yes, basically, I did want to make it as scientifically accurate as possible. So all of the technology that you see in the book actually exists. However, some of it is better than our current incarnations. So we don't we don't have ion engines anywhere near as powerful as Hermes has, but there's nothing preventing us from making it. It's just like I don't know how do we put it? How do I put it? If we wanted to, we could make an aircraft like four times the size of a CA Five A Galaxy and make it functional.
+[00:08:32] Andy Weir: Yes, basically, I did want to make it as scientifically accurate as possible. So all of the technology that you see in the book actually exists. However, some of it is better than our current incarnations. So we don't we don't have ion engines anywhere near as powerful as Hermes has, but there's nothing preventing us from making it. It's just like I don't know how do we put it? How do I put it? If we wanted to, we could make an aircraft like four times the size of a C-5A Galaxy and make it functional.
 
 [00:09:02] Adam: Right.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:31:11] Andy Weir: The engineers are like, this is a big problem. Their managers are like, this is a problem, and then those managers are like, we may have a problem, and then those guys are like, there are some problems, but.
 
-[00:31:23] Adam: One of my favorite bits in the book regarding Watney's emerging like, damn the torpedoes, I can take kind of anything, is when he's on his way to Scaparelli. And he just starts naming stuff after himself.
+[00:31:23] Adam: One of my favorite bits in the book regarding Watney's emerging like, damn the torpedoes, I can take kind of anything, is when he's on his way to Schiaparelli. And he just starts naming stuff after himself.
 
 [00:31:38] Andy Weir: Yeah.
 
@@ -552,11 +552,11 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:33:24] Adam: right?
 
-[00:33:24] Andy Weir: You you could just say watts, right? Right, but but kilowatt hours per soul is poignant because it's like how many can he generate? How much does he use? And there's day night, and they said like. We the the I I had lunch when I was there. I had dinner with a bunch of the Curiosity guys, and they said like we use that all the that we we need to know that all the time. It's just for them. It's watt hours per soul.
+[00:33:24] Andy Weir: You you could just say watts, right? Right, but but kilowatt hours per sol is poignant because it's like how many can he generate? How much does he use? And there's day night, and they said like. We the the I I had lunch when I was there. I had dinner with a bunch of the Curiosity guys, and they said like we use that all the that we we need to know that all the time. It's just for them. It's watt hours per sol.
 
 [00:33:46] Adam: Right.
 
-[00:33:46] Andy Weir: It's like watt hours per soul. Watt hours per soul. So they're like they're they're just saying like we should call that like a you know millipirate Newton.
+[00:33:46] Andy Weir: It's like watt hours per sol. Watt hours per sol. So they're like they're they're just saying like we should call that like a you know millipirate ninja.
 
 [00:33:55] Adam: That is awesome.
 
@@ -728,7 +728,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:41:53] Adam: That's great. I'm I'm glad to know because it belongs there.
 
-[00:41:56] Andy Weir: Belongs there. Yeah, his his language alone would would push it into our territory, but that's okay. They're just gonna soften it up a little bit.
+[00:41:56] Andy Weir: Belongs there. Yeah, his his language alone would would push it into R territory, but that's okay. They're just gonna soften it up a little bit.
 
 [00:42:03] Adam: Well, and and and it really it that's one of the things that also feels genuinely real about it is that when you understand Watney's Watney's particular character quirks that make him the ideal member of the crew to go through this ordeal on a whole host of levels. Did you um, did you try any of stuff like this? Like, did you try growing potatoes or eating them for a bunch of days?
 
@@ -766,7 +766,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:43:54] Adam: right,
 
-[00:43:54] Andy Weir: and say, okay, how does he solve it? And I wanted each problem to be to come from the solutions to the previous problem. The whole book I wanted to be kind of a cascade failure. I don't want him just to get to keep getting struck by lightning, just like oh, can you believe his luck? Oh, now this happened. Right. Each thing kind of I wanted to lead to the next. At one point, I considered when he's on his long drive to Skeparelli.
+[00:43:54] Andy Weir: and say, okay, how does he solve it? And I wanted each problem to be to come from the solutions to the previous problem. The whole book I wanted to be kind of a cascade failure. I don't want him just to get to keep getting struck by lightning, just like oh, can you believe his luck? Oh, now this happened. Right. Each thing kind of I wanted to lead to the next. At one point, I considered when he's on his long drive to Schiaparelli.
 
 [00:44:17] Adam: Yeah.
 

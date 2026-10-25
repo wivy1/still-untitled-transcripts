@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:01:51] Will: Norm. I just have to say, I know Joey probably said it,
 
-[00:01:51] Unknown: I said it too. I said it too. I said it too. I said it too. I said it too. I said it too. I said it too. I said it too. I said it too.
+[00:01:51] Unknown: I said it too.
 
 [00:01:51] Will: but your your talk about your trip to the Arctic. I was I heard it in practice, and I was almost in tears during the real thing. It was absolutely lovely,
 
@@ -408,9 +408,9 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:16:50] Adam: He's wonderful. He's an actor. I think of I put him in a category with Oliver Platt as a truly, really rounded, amazing character actor who's never fully gotten there to. It's never really hit it. Big. I think of them both as as slightly under recognized by Hollywood.
 
-[00:17:07] Will: Thandi Newton.
+[00:17:07] Will: Thandie Newton.
 
-[00:17:09] Adam: Thandi Newton is a fearless warrior.
+[00:17:09] Adam: Thandie Newton is a fearless warrior.
 
 [00:17:12] Unknown: Holy hell!
 
@@ -450,7 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:19:56] Adam: like and
 
-[00:19:56] Will: It’s because of the weird sex. position stuff that they do in that show.
+[00:19:56] Will: It’s because of the weird sexposition stuff that they do in that show.
 
 [00:19:56] Adam: constantly.
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:20:17] Norm: sexualizing. And this does nudity for storytelling.
 
-[00:20:20] Adam: This does nudity without sexualizing it, and and it's not sexy, and that's dis, and that's jarring to see. Well, Thandi Newton has entire scenes in which she is completely naked, and there's also there's there's dicks in this movie like all over the place. There's you haven't even seen nothing.
+[00:20:20] Adam: This does nudity without sexualizing it, and and it's not sexy, and that's dis, and that's jarring to see. Well, Thandie Newton has entire scenes in which she is completely naked, and there's also there's there's dicks in this movie like all over the place. There's you haven't even seen nothing.
 
 [00:20:20] Will: All the well,
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:24:55] Will: That's the incredible acting [unclear: chat]. Like, how do you how how does Evan Rachel Wood bump into the drop the can? At the same place in the same time. I mean,
 
-[00:25:02] Adam: oh, so let me actually. I'll give you one that's going to be a little bit of a spoiler for you, but with Thandi Newton, there's a there's a sequence later on. I think it's episode three or I think it's episode three or
+[00:25:02] Adam: oh, so let me actually. I'll give you one that's going to be a little bit of a spoiler for you, but with Thandie Newton, there's a there's a sequence later on. I think it's episode three or
 
 [00:25:02] Unknown: four. Four,
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:25:17] Unknown: [unclear wording/speaker sequence: Will “customers are turning”; Adam “her down”; Will “Yeah” / unknown “Oh, that’s in the second episode”; Will “I just watched”; Adam “that one, yeah”].
 
-[00:25:18] Adam: Oh, so they keep on running her through, and she keeps on like, okay. And it's basically the script is telling Thandi Newton play a hooker, but now play her with slightly more aggression. Now play her with less aggression. Now play her with more emotional acuity.
+[00:25:18] Adam: Oh, so they keep on running her through, and she keeps on like, okay. And it's basically the script is telling Thandie Newton play a hooker, but now play her with slightly more aggression. Now play her with less aggression. Now play her with more emotional acuity.
 
 [00:25:33] Norm: And the fact that
 
@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:25:42] Will: Just loops, yeah.
 
-[00:25:42] Norm: Is that you can screw around with time? You can completely screw around with what you are showing to the viewer. There is one scene I think you might have seen this, Adam, where Thandi Newton she starts to remember about the maintenance people, and so she struggles. And before she gets shut off, she draws. Before she goes to sleep, she draws one of the maintenance people.
+[00:25:42] Norm: Is that you can screw around with time? You can completely screw around with what you are showing to the viewer. There is one scene I think you might have seen this, Adam, where Thandie Newton she starts to remember about the maintenance people, and so she struggles. And before she gets shut off, she draws. Before she goes to sleep, she draws one of the maintenance people.
 
 [00:26:23] Will: Does she draw like a dot line dot matrix printer?
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:27:19] Will: go on a murderous rampage? And it seems like that's inevitable if it's a a if it's a one season show.
 
-[00:27:24] Norm: I think that's that's the point. Like they want to show the progress of these robots in two different ways: Thandi Newton, probably a violent revolution, and then for Dolores a more self realizing revolution in terms of how they liberate themselves.
+[00:27:24] Norm: I think that's that's the point. Like they want to show the progress of these robots in two different ways: Thandie Newton, probably a violent revolution, and then for Dolores a more self realizing revolution in terms of how they liberate themselves.
 
 [00:27:35] Adam: And Dolores, to be clear, is Evan Rachel Wood, and she's ostensibly the star of the show. She is the she is the narrative linchpin that that that joins all the different narratives together so far.
 
@@ -742,7 +742,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:31:38] Adam: So would you like to hear this prevailing fantasy?
 
-[00:31:39] Will: Let’s hear the prevailing fantasy blow it for me
+[00:31:39] Will: Let’s hear the prevailing fan theory blow it for me
 
 [00:31:41] Norm: and you know this is the double
 
@@ -846,7 +846,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:34:24] Adam: And so the idea that he would become Ed Harris posits that there's a moment in which instead of just becoming a sort of indulgent dick, he actually has his own consciousness shifted. As he's claiming, William will have happened to him. His own consciousness is shifted by the game, and he desires to go deeper. I can see that being.
 
-[00:34:44] Norm: And I know a lot of people. I subscribe to the Logan as Men in Black theory. I think a lot of people want William to be the Men in Black because then it explains why.
+[00:34:44] Norm: And I know a lot of people. I subscribe to the Logan as Man in Black theory. I think a lot of people want William to be the Man in Black because then it explains why.
 
 [00:34:53] Will: What's the story of a good man gone bad?
 

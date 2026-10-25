@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:01:29] Norm: The Star Wars.
 
-[00:01:30] Will: Well, hold on, but first you you um you went to Monster Palooza this weekend.
+[00:01:30] Will: Well, hold on, but first you you um you went to Monsterpalooza this weekend.
 
 [00:01:33] Norm: I did. I did. I was down in Pasadena, drove down, and drove the whole family down actually, and I spent first couple days we did a production shoot with our friend Ryan Nagata,
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:01:50] Will: Okay.
 
-[00:01:50] Norm: And then I went over to Pasadena for. the the monster pluza the spring monster pluza there's two of them there's a fall one called son of monster pluza
+[00:01:50] Norm: And then I went over to Pasadena for. the the Monsterpalooza the spring Monsterpalooza there's two of them there's a fall one called son of Monsterpalooza
 
 [00:01:50] Unknown (Will or Jeremy): Whoa.
 
@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:03:53] Norm: Ah,
 
-[00:03:53] Jeremy: are the people of Monsterpilus excited about the new Godzilla movie?
+[00:03:53] Jeremy: are the people of Monsterpalooza excited about the new Godzilla movie?
 
 [00:03:58] Norm: I think that was not promoted there.
 
@@ -214,9 +214,9 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:05:45] Will: I started trying to watch it. It was. It looked. It was. It didn't grab me.
 
-[00:05:48] Jeremy: Lady Hawk.
+[00:05:48] Jeremy: Ladyhawke.
 
-[00:05:49] Will: You had to be the right. No, I've never seen Lady Hawk.
+[00:05:49] Will: You had to be the right. No, I've never seen Ladyhawke.
 
 [00:05:49] Unknown (Will or Norm): Stop talking,
 
@@ -240,9 +240,9 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:06:13] Will: may even become a monster himself. Who knows? Well,
 
-[00:06:15] Norm: one of our friends, George, who's a co-owner of Immortal Masks, was talking to him, and he has a kid who grew up, you know, watching the creatures that he was creating at the company and the films. And now he said that his son, who's a little older now, feins being afraid, like I don't want to watch that too scary. He's like, No, it's not scary for you. You grew up with this stuff, so I think the kids, you know, and you have you guys have kids.
+[00:06:15] Norm: one of our friends, George, who's a co-owner of Immortal Masks, was talking to him, and he has a kid who grew up, you know, watching the creatures that he was creating at the company and the films. And now he said that his son, who's a little older now, feigns being afraid, like I don't want to watch that too scary. He's like, No, it's not scary for you. You grew up with this stuff, so I think the kids, you know, and you have you guys have kids.
 
-[00:06:37] Jeremy: I think it's a good move. Yeah, yeah. Maker Fair Monster Palooza.
+[00:06:37] Jeremy: I think it's a good move. Yeah, yeah. Maker Faire Monsterpalooza.
 
 [00:06:39] Norm: Exactly. That's right. Indoctrinate them in in the creature culture.
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:06:42] Will: and you they watch some guy Lon Chaney, gluing some stuff on his face, and they think it's comedy, not not horror.
 
-[00:06:55] Norm: Right, so there's a we have a bunch of videos coming out in the next two weeks or so. Interviews with a lot of these effects artists and a lot of companies from overseas who came maybe their first time in the states to show at Monster Plaza because they're international audience for for creature effects.
+[00:06:55] Norm: Right, so there's a we have a bunch of videos coming out in the next two weeks or so. Interviews with a lot of these effects artists and a lot of companies from overseas who came maybe their first time in the states to show at Monsterpalooza because they're international audience for for creature effects.
 
 [00:07:13] Will: The workshops and stuff like that are always the most. It seemed like they'd be really interesting to me. Like if you want to learn how to get into resin casting or something like that, but are nervous about it for fear you'll you know do something dangerous or burn your house down or something. There are a lot of good sessions at something like Monster. Well,
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:08:20] Jeremy: It's not a free show, is it?
 
-[00:08:21] Norm: No, it's not a free show. In fact, it's it's maybe it's getting really big. So it used to be in one of those like hotel convention centers, like the Burbank Marriott, and it moved to the Pasadena Convention Center, which is where Designer Con used to be. And now it feels like it's been there for three or four years, and it's too big for that. Like it opens doors open at eleven, and outside in the April heat in Southern California, you have like thousands of people waiting in line outside, waiting to get in, and waiting some people waiting to buy tickets.
+[00:08:21] Norm: No, it's not a free show. In fact, it's it's maybe it's getting really big. So it used to be in one of those like hotel convention centers, like the Burbank Marriott, and it moved to the Pasadena Convention Center, which is where DesignerCon used to be. And now it feels like it's been there for three or four years, and it's too big for that. Like it opens doors open at eleven, and outside in the April heat in Southern California, you have like thousands of people waiting in line outside, waiting to get in, and waiting some people waiting to buy tickets.
 
 [00:08:52] Will: So so this was your first. Trip with the baby, right?
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:09:17] Will: It’s what everybody craves.
 
-[00:09:18] Norm: Will Will's in this week to guest on this. Only a test, and so we decided to talk. Save all our Star Wars conversation for still entitled, but then we're gonna roll right after recording this into this is only a test. So if you are listening to this on Tuesday, you'll get essentially the second half of this podcast, the the second two thirds
+[00:09:18] Norm: Will Will's in this week to guest on this. Only a test, and so we decided to talk. Save all our Star Wars conversation for Still Untitled, but then we're gonna roll right after recording this into this is only a test. So if you are listening to this on Tuesday, you'll get essentially the second half of this podcast, the the second two thirds
 
 [00:09:18] Jeremy: on Thursday.
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:09:52] Will: Can we talk about celebration now?
 
-[00:09:53] Norm: Let's do it. Okay. So, Star Wars. Being a Monster Palooza meant I was not in Chicago for Star Wars Celebration.
+[00:09:53] Norm: Let's do it. Okay. So, Star Wars. Being a Monsterpalooza meant I was not in Chicago for Star Wars Celebration.
 
 [00:09:59] Will: Being in San Francisco meant I wasn't in Chicago for Celebration. I'll
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:14:04] Jeremy: You liked it.
 
-[00:14:05] Norm: Yeah, I really liked it. I think there's parts that I, I don't like, like the the candlelight. I think could have been better.
+[00:14:05] Norm: Yeah, I really liked it. I think there's parts that I, I don't like, like the the Canto Bight. I think could have been better.
 
 [00:14:05] Jeremy: Okay,
 
@@ -706,9 +706,9 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:19:51] Will: still has a cape. I mean, he's a cape guy.
 
-[00:19:52] Norm: Yeah, of course. But I think they're really embracing the Lando as a character. I think is just as informed now by Billy D. Williams as Donald Glover. And I'm, I hope
+[00:19:52] Norm: Yeah, of course. But I think they're really embracing the Lando as a character. I think is just as informed now by Billy Dee Williams as Donald Glover. And I'm, I hope
 
-[00:20:03] Will: I hope it's more informed by Billy D. Williams than Donald Glover.
+[00:20:03] Will: I hope it's more informed by Billy Dee Williams than Donald Glover.
 
 [00:20:05] Norm: Well, he originated the character for sure, but I think Donald Glover contributed to the character.
 
@@ -720,7 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:20:20] Will: I'm okay not remembering the Donald Glover. I like I like the Donald Glover that we saw in Solo. I love Donald Glover, but I'm okay walking away from that.
 
-[00:20:26] Norm: Lando's Billy D. Williams.
+[00:20:26] Norm: Lando's Billy Dee Williams.
 
 [00:20:26] Will: Yeah.
 
@@ -736,7 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:20:36] Norm: He's back home
 
-[00:20:37] Jeremy: with Chewy.
+[00:20:37] Jeremy: with Chewie.
 
 [00:20:38] Norm: Mm-hmm.
 
@@ -842,7 +842,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:22:49] Will: Why is he rebuilding it if he’s not gonna wear it?
 
-[00:22:49] Jeremy: You're the expert on that movie, but that it seems to me that the that emo Wren is so full of uh you know being fickle about who he wants to be.
+[00:22:49] Jeremy: You're the expert on that movie, but that it seems to me that the that emo Ren is so full of uh you know being fickle about who he wants to be.
 
 [00:22:49] Will: Yeah.
 
@@ -896,7 +896,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:23:58] Jeremy: Yeah, yeah,
 
-[00:24:00] Norm: and and for for that effect, whatever they did to, it looks like they took unused footage and they put on a new environment background and they added you know a different ring or something like some and then and they probably for the reverse shot shot that new for Ray hugging her, but it looks good from what we saw. Yeah, and very emotional part of the trailer.
+[00:24:00] Norm: and and for for that effect, whatever they did to, it looks like they took unused footage and they put on a new environment background and they added you know a different ring or something like some and then and they probably for the reverse shot shot that new for Rey hugging her, but it looks good from what we saw. Yeah, and very emotional part of the trailer.
 
 [00:24:17] Will: I I just I don't I feel like, I mean knowing what we know after Attack of the Clones or or after Revenge of the Sith about Anakin and Vader, I that made me think that the redemption at the end of Return of the Jedi was bogus, right? Because after after Anakin goes in and kills a bunch of kid Jedi's, it's pretty hard to have a redemptive arc for him at that point,
 
@@ -970,7 +970,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:26:37] Will: There were big pieces that flew off of it.
 
-[00:26:39] Norm: Presume like they can wreck on that.
+[00:26:39] Norm: Presume like they can retcon that.
 
 [00:26:39] Will: Yeah.
 
@@ -1028,7 +1028,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:27:40] Will: I mean, if the if the Death Star was orbiting the forest moon and it blows up, it's going to fall onto the forest moon.
 
-[00:27:47] Norm: Hey everyone! Before we continue this week, I want to let you know that Still Entitled is brought to you this week by TripleByte. Applying to programming jobs. Sucks. You have to put in the right keywords in your resume, and you spend hours and hours on phone screens and take-home projects. And that's assuming the company even responds your application. Well, if you're a software engineer, Triplebyte can help. They work with over 400 top tech companies, from big names like Dropbox and Adobe to exciting startups. You do one brief online interview with them, and if you do well, you get to go straight to final interviews with companies on their platform. It's like the common app for software engineers. Triplebyte does not look your resume or where you went to school. All they care about is whether you can code, because there are plenty of self-taught people who are great but lack credentials, and the resumes get past recruiter screens. It's happened to a bunch of people we know. It's all more about what you're capable of doing and not just the paperwork you have. Apply now at triplebyte.com/untitled. Again, that's triplebyte, b-y-t-e, byte as in eight bits. And as a special offer for listeners of the show, if you take a job through Triplebyte, they'll offer you a $ 1,000 signing bonus. So check it out: triplebyte.com/untitled. Now back to the conversation.
+[00:27:47] Norm: Hey everyone! Before we continue this week, I want to let you know that Still Untitled is brought to you this week by TripleByte. Applying to programming jobs. Sucks. You have to put in the right keywords in your resume, and you spend hours and hours on phone screens and take-home projects. And that's assuming the company even responds your application. Well, if you're a software engineer, Triplebyte can help. They work with over 400 top tech companies, from big names like Dropbox and Adobe to exciting startups. You do one brief online interview with them, and if you do well, you get to go straight to final interviews with companies on their platform. It's like the common app for software engineers. Triplebyte does not look your resume or where you went to school. All they care about is whether you can code, because there are plenty of self-taught people who are great but lack credentials, and the resumes get past recruiter screens. It's happened to a bunch of people we know. It's all more about what you're capable of doing and not just the paperwork you have. Apply now at triplebyte.com/untitled. Again, that's triplebyte, b-y-t-e, byte as in eight bits. And as a special offer for listeners of the show, if you take a job through Triplebyte, they'll offer you a $ 1,000 signing bonus. So check it out: triplebyte.com/untitled. Now back to the conversation.
 
 [00:29:01] Norm: What I love about
 
@@ -1038,11 +1038,11 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:29:33] Norm: soundstage with green screens.
 
-[00:29:35] Will: I mean, I feel like Marvel has done a mixed job with that. Like if you look at Asgard and Nowhere and some of the other planets, they
+[00:29:35] Will: I mean, I feel like Marvel has done a mixed job with that. Like if you look at Asgard and Knowhere and some of the other planets, they
 
 [00:29:43] Norm: all feel like sound stages.
 
-[00:29:44] Will: Well, I would say Nowhere is the one that really does Asgard. Nowhere don't because those feel like actual places. You know, they go in the bar in Nowhere, they go in the collector's room, yada yada. You don't think so?
+[00:29:44] Will: Well, I would say Knowhere is the one that really does Asgard. Knowhere don't because those feel like actual places. You know, they go in the bar in Knowhere, they go in the collector's room, yada yada. You don't think so?
 
 [00:29:54] Jeremy: I'm with Norm. Very blue screeny.
 
@@ -1158,7 +1158,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:33:00] Will: twelve parsecs, man.
 
-[00:33:01] Norm: It comes out this Christmas. And oh, and there's new characters. There's a new actress brought in, Janna. I think the name of her character.
+[00:33:01] Norm: It comes out this Christmas. And oh, and there's new characters. There's a new actress brought in, Jannah. I think the name of her character.
 
 [00:33:10] Jeremy: There's there's the new droid everyone already seems to know about.
 
@@ -1282,9 +1282,9 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:35:50] Norm: Bryce Dallas Howard.
 
-[00:35:53] Will: John Favreau.
+[00:35:53] Will: Jon Favreau.
 
-[00:35:53] Norm: John Favreau.
+[00:35:53] Norm: Jon Favreau.
 
 [00:35:54] Jeremy: He's directing some of them because he's producing the whole series.
 
@@ -1560,7 +1560,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:45:22] Jeremy: Heck yeah, man.
 
-[00:45:23] Norm: 2019. If you were at Celebration, or if there were things that you heard from at Celebration that we did not talk about, let us know in the comments so we can let that percolate. But that does it for this week. For Still Entitled, Adam will be back next week.
+[00:45:23] Norm: 2019. If you were at Celebration, or if there were things that you heard from at Celebration that we did not talk about, let us know in the comments so we can let that percolate. But that does it for this week. For Still Untitled, Adam will be back next week.
 
 [00:45:39] Jeremy: I hope with his opinions on the Star Wars teaser. Yeah. Yeah.
 
@@ -1604,6 +1604,6 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:46:36] Jeremy: Bye.
 
-[00:46:40] Norm: Thanks for listening this week. And once again, still entitled was made possible this week by Ahrefs. Ahrefs is a digital subscription based software for search engine optimization. This all in one SEO toolset does absolutely everything from content research and keyword analysis to technical site audits, rank tracking, and backlink analysis. Ahrefs gives you all the insights you need to research and monitor your niche, then rank your website on the top of search engines. Ahrefs has a seven-day trial for only seven dollars. Sign up today at ahrefs.com. That's spelled a h r e f s dot com. Again, a h r e f s dot com. We'll see you next week.
+[00:46:40] Norm: Thanks for listening this week. And once again, Still Untitled was made possible this week by Ahrefs. Ahrefs is a digital subscription based software for search engine optimization. This all in one SEO toolset does absolutely everything from content research and keyword analysis to technical site audits, rank tracking, and backlink analysis. Ahrefs gives you all the insights you need to research and monitor your niche, then rank your website on the top of search engines. Ahrefs has a seven-day trial for only seven dollars. Sign up today at ahrefs.com. That's spelled a h r e f s dot com. Again, a h r e f s dot com. We'll see you next week.
 
 [00:46:40] Unknown (speaker not established): Bye-bye.

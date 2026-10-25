@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:10:35] Will: So. So why why so when you were flying around in the caldera or above the caldera, anything kind of unexpected or weird, like could could you use the the remote fly to just to set up course and fly and then bring it back when it was done and not worry about RC at all or or like what like what was what's it like flying a quad inside an active volcano?
 
-[00:10:57] Eric Cheng: Well, so first we walked one kilometer closer, so we have the distance. We walked to the lava, so that in theory would would make it really easy for us to be able to fly to it. And.
+[00:10:57] Eric Cheng: Well, so first we walked one kilometer closer, so we halve the distance. We walked to the lava, so that in theory would would make it really easy for us to be able to fly to it. And.
 
 [00:11:06] Adam: Is the ground getting hot at this point, or anything?
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:19:52] Unknown: Awesome.
 
-[00:19:52] Adam: So I mean, just I know that if you add, I know that if you add, let's say, inflatable protector on the bottom, so if it fell out of the sky, it would hurt. It wouldn't hurt a person. You compromise your ability to fly well because you're adding wind resistance. Do you guys have ideas about ways to handle that problem?
+[00:19:52] Adam: So I mean, just I know that if you add, let's say, inflatable protector on the bottom, so if it fell out of the sky, it would hurt. It wouldn't hurt a person. You compromise your ability to fly well because you're adding wind resistance. Do you guys have ideas about ways to handle that problem?
 
 [00:20:11] Eric Cheng: Yeah. Some people, some people have tethered them, which doesn't doesn't actually solve that problem, but makes it then a tethered camera, which may remove it from FAA jurisdiction.
 

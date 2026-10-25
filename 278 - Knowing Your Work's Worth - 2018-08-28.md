@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:17:13] Adam: That's that's really cool.
 
-[00:17:15] Norm: Hey everybody, Norm here. Before we continue, I want to let you know that support for today's show comes from Backblaze, offering unlimited cloud backup for Macs and PCs for just five dollars a month. Backblaze backs up documents, music, photos, videos, drawings, projects, everything. Access all your data anywhere in the world on the web or on the go with your phone. And best of all, you can restore just one file or all of your files. The choice is yours. And if you have a complete system failure, you can purchase a hard drive with all of your data on it, overnighted via FedEx, and restore by mail. You can even return the drive and get a full refund. It's a win-win. Backblaze has over six hundred petabytes of data under management, over thirty billion files restored. That's a lot of returned documents and memories. And Backblaze is gimmick-free. There's no additional charges. Just five dollars a month for full Backups. Make sure you visit Backblaze.com/still entitled so they know where you came from and continue to support the show. I use Backblaze myself, and it's been a godsend on the many times that I've lost files and needed to access files remotely. Receive a fully featured 15-day free trial at Backblaze.com/still entitled. Go there and start today. Now back to the conversation.
+[00:17:15] Norm: Hey everybody, Norm here. Before we continue, I want to let you know that support for today's show comes from Backblaze, offering unlimited cloud backup for Macs and PCs for just five dollars a month. Backblaze backs up documents, music, photos, videos, drawings, projects, everything. Access all your data anywhere in the world on the web or on the go with your phone. And best of all, you can restore just one file or all of your files. The choice is yours. And if you have a complete system failure, you can purchase a hard drive with all of your data on it, overnighted via FedEx, and restore by mail. You can even return the drive and get a full refund. It's a win-win. Backblaze has over six hundred petabytes of data under management, over thirty billion files restored. That's a lot of returned documents and memories. And Backblaze is gimmick-free. There's no additional charges. Just five dollars a month for full Backups. Make sure you visit Backblaze.com/stilluntitled so they know where you came from and continue to support the show. I use Backblaze myself, and it's been a godsend on the many times that I've lost files and needed to access files remotely. Receive a fully featured 15-day free trial at Backblaze.com/stilluntitled. Go there and start today. Now back to the conversation.
 
 [00:18:35] Adam: There's a thing that happens in a builder's life where, in the beginning, money is hard to come by because you're young and you don't make that much, and but your labor is plentiful. Plus, your energy is too, right? Like I did so many all-nighters in my 20s. I worked two jobs and still sculpted and did built stuff all night long. So labor is dirt cheap in the beginning, but then later labor becomes the expensive part, and materials become the cheap part. Yeah, and it's Just I don't necessarily have a point with this, but I was really surprised by how universal that is. Like, I gave away my labor in the beginning in order to be able to get materials.
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:24:53] Norm: and the only way it works is at scale.
 
-[00:24:55] Adam: Back when I was freelancing, I took I took on both Jamie Heineman and Industrial Light and Magic used the same number to bid a person day, and it was five hundred bucks. And that covered the person, the space, the insurance, the workman's comp, and all of that. And I, my freelancing years, which was about fifteen years freelancing, I always bid stuff out at that all in that increment one one and a half days, thousand bucks.
+[00:24:55] Adam: Back when I was freelancing, I took I took on both Jamie Hyneman and Industrial Light and Magic used the same number to bid a person day, and it was five hundred bucks. And that covered the person, the space, the insurance, the workman's comp, and all of that. And I, my freelancing years, which was about fifteen years freelancing, I always bid stuff out at that all in that increment one one and a half days, thousand bucks.
 
 [00:25:22] Bill: Yep.
 
@@ -714,7 +714,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:33:10] Bill: You let me know? Maybe cook something up. It'll be real fun.
 
-[00:33:14] Adam: We got to figure out some space-themed foam build. Oh, yeah. That's that's a thing that I am. Maybe it's making the man maneuvering unit. You know, something that's lightweight, easy to transport, that breaks down. But it's something we should discuss.
+[00:33:14] Adam: We got to figure out some space-themed foam build. Oh, yeah. That's that's a thing that I am. Maybe it's making the Manned Maneuvering Unit. You know, something that's lightweight, easy to transport, that breaks down. But it's something we should discuss.
 
 [00:33:30] Norm: And I know we mentioned foam a lot, but like that's not what all you do.
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:34:47] Bill: 3D modeling is a. It unlocks so many things for everything. You could turn a 3D model into papercraft. You could 3D print it. You could turn it into a sewing pattern. There's so many things you can do with a 3D model.
 
-[00:34:58] Adam: Actually, Daryl Maloney, Broken Nerd, new tested contributor, helped me out significantly because in order to make this helmet he was making for me, I bought a CG model of the helmet, and he spent a fair bit of time converting it to be printable.
+[00:34:58] Adam: Actually, Darrell Maloney, Broken Nerd, new tested contributor, helped me out significantly because in order to make this helmet he was making for me, I bought a CG model of the helmet, and he spent a fair bit of time converting it to be printable.
 
 [00:35:13] Bill: Yeah, yeah, yeah, yeah. Yeah, 3D modeling is awesome.
 

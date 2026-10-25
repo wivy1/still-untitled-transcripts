@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:04:52] Norm: And if you don’t see it today, check tomorrow.
 
-[00:04:54] Will: Yeah, and you can always follow me on Twitter, and and we'll have lots of stuff about the Kickstarter there, including like videos. We have, it. We've announced one episode, which is the the Brandon Brandon Chung Quadrilateral Cowboy episode.
+[00:04:54] Will: Yeah, and you can always follow me on Twitter, and and we'll have lots of stuff about the Kickstarter there, including like videos. We have, it. We've announced one episode, which is the the Brendon Brendon Chung Quadrilateral Cowboy episode.
 
 [00:05:06] Norm: Yep.
 
@@ -132,9 +132,9 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:05:47] Will: So I never,
 
-[00:05:47] Adam: and I let you this costume.
+[00:05:47] Adam: and I lent you this costume.
 
-[00:05:49] Will: Yeah, you let me your Baymax, one of your Baymax costumes,
+[00:05:49] Will: Yeah, you lent me your Baymax, one of your Baymax costumes,
 
 [00:05:51] Adam: an inflatable Baymax costume. Yeah, which is it's a holy grail of mine. Mine's not perfect, but it it works.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:11:09] Will: So like I was like
 
-[00:11:10] Norm: that's how you say centered.
+[00:11:10] Norm: that's how you stay centered.
 
 [00:11:12] Adam: Yeah.
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:13:53] Will: like I remember like it. I it all came rushing back as I was standing there.
 
-[00:13:56] Adam: Years and years ago in New York. Years and years ago in New York, I I briefly dated this lovely woman named Suzanne, whose ex boyfriend. I don't know why I had to say her ah why I had to say her name, but she's I remember her fondly.
+[00:13:56] Adam: Years and years ago in New York, I I briefly dated this lovely woman named Suzanne, whose ex boyfriend. I don't know why I had to say her name, but she's I remember her fondly.
 
 [00:14:09] Will: Her ex boyfriend, her John Staples from Columbus 
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:20:15] Unknown: food code, food code,
 
-[00:20:15] Adam: all of that stuff. They've started something like 70 brick and mortar businesses over the last few years. This is exactly the kind of thing we're talking about for nation of makers and for sharing these opportunities. I, I love the one wheel, and we talked about the one wheel. You know, I love them; they're friends of mine. But I also love that they're hand built in San Jose. I love Shinola. I love that Shinola's watches are hand assembled and in Detroit Detroit by people from Detroit.
+[00:20:15] Adam: all of that stuff. They've started something like 70 brick and mortar businesses over the last few years. This is exactly the kind of thing we're talking about for nation of makers and for sharing these opportunities. I, I love the Onewheel, and we talked about the Onewheel. You know, I love them; they're friends of mine. But I also love that they're hand built in San Jose. I love Shinola. I love that Shinola's watches are hand assembled and in Detroit Detroit by people from Detroit.
 
 [00:20:44] Norm: And the point of pride of that community.
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:22:30] Adam: that's incredible. He like tipped a switch in my brain that I didn't even know it got tipped. I was in Toronto this weekend. I did an appearance and ended up emceeing Chris Hadfield, Chris Hadfield's Generator, which was a lovely variety show performance about two and a half hours long at Massey Hall in Toronto on Saturday night. We had pretty much a full house of really one of the best crowds I've performed for in a long time. Just loving, really smart, really engaged. It was fantastic. A couple people were there who were on your Arctic trip.
 
-[00:23:02] Norm: yeah, on the Generator Arctic trip, yeah, Tom Scott and I believe [unclear: Vivian Goussou / Vivien Goussoua / Vivian Goussois], photographer from New York and YouTuber, yeah, they were there. I don't know about the other presenters. Can you tell us about some of the their presentations or some?
+[00:23:02] Norm: yeah, on the Generator Arctic trip, yeah, Tom Scott and I believe Vivienne Gucwa, photographer from New York and YouTuber, yeah, they were there. I don't know about the other presenters. Can you tell us about some of the their presentations or some?
 
 [00:23:16] Adam: We had a wonderful. We had this wonderful autistic comedian who was really brilliant. He was. Hilarious! We had an appearance from the Lucky Iron Fish Company, a local entrepreneur who built a lucky iron fish. He sells for dirt cheap, and you throw it in your pot and you boil your stew, and it gives you all your
 
@@ -838,7 +838,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:33:21] Adam: Oh, you're going down to
 
-[00:33:23] Norm: yeah. There's designer con this weekend.
+[00:33:23] Norm: yeah. There's DesignerCon this weekend.
 
 [00:33:25] Will: Good luck.
 
@@ -998,7 +998,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:36:48] Will: What’s the name of the event?
 
-[00:36:49] Norm: Designer Con.
+[00:36:49] Norm: DesignerCon.
 
 [00:36:50] Will: And are you going to be selling stuff there?
 

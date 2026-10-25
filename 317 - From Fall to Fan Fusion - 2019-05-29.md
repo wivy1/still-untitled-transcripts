@@ -230,13 +230,13 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:09:05] Adam: Um, I
 
-[00:09:06] Norm: does it have a hook like Seven Eves?
+[00:09:06] Norm: does it have a hook like Seveneves?
 
 [00:09:08] Adam: No, I have to say actually, Neal gave me a tiny synopsis, and I wished I hadn't had it. I wanted to go in super cold.
 
 [00:09:14] Will: Like,
 
-[00:09:15] Norm: who's it for? Fans of fans of Neal, fans of Seven Eves, fans of
+[00:09:15] Norm: who's it for? Fans of fans of Neal, fans of Seveneves, fans of
 
 [00:09:19] Adam: um. So I will say this, and this isn't a spoiler. It actually covers it. So I'm halfway through, and we're already like 25 years in the future.
 
@@ -412,17 +412,17 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:15:17] Norm: Yeah, yeah, and maybe at Comic Con we'll see a lot more.
 
-[00:15:20] Adam: I definitely. She asked about Hella. I mean, because
+[00:15:20] Adam: I definitely. She asked about Hela. I mean, because
 
 [00:15:23] Norm: I've seen a bunch.
 
 [00:15:24] Will: I've seen a bunch of Hela hats.
 
-[00:15:24] Adam: Hella, I've seen a ton, and really wonderful versions of it, and down and creative made ones.
+[00:15:24] Adam: Hela, I've seen a ton, and really wonderful versions of it, and down and creative made ones.
 
 [00:15:24] Norm: Yes.
 
-[00:15:30] Norm: And I think Hella is striking because the makeup is so much part of it, and there's a challenge in building
+[00:15:30] Norm: And I think Hela is striking because the makeup is so much part of it, and there's a challenge in building
 
 [00:15:30] Adam: Mm hmm.
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:17:07] Norm: is that
 
-[00:17:07] Adam: Trayvon Freeze right?
+[00:17:07] Adam: Travon Free right?
 
 [00:17:08] Norm: Right. That's like a whole.
 
@@ -494,11 +494,11 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:19:09] Adam: No,
 
-[00:19:10] Will: So that movie had rewrites. Gary Witta, a friend of a friend of the site and Rogue One screenwriter, posted about yesterday. I'll dig out the link and send it to you, so you can put in the show notes, and and you should absolutely read it because it goes through and it it it it compares the original draft that somebody found, yeah, unearthed recently,
+[00:19:10] Will: So that movie had rewrites. Gary Whitta, a friend of a friend of the site and Rogue One screenwriter, posted about yesterday. I'll dig out the link and send it to you, so you can put in the show notes, and and you should absolutely read it because it goes through and it it it it compares the original draft that somebody found, yeah, unearthed recently,
 
 [00:19:07] Adam: right
 
-[00:19:07] Will: to to the shooting script to what was actually shot, and it it goes through and explains the the beats in a really interesting way, and the way they de escalate like the way that movie escalates over time, so the threat is constantly ramping up versus like originally, for example, in the original script that was written by the credited screenwriter, who I can't remember who it is off the top of my head, they when Indy goes to his dad's house, he finds his housekeeper dead in the house, which immediately sets a tone that this is a life or death peril versus hey, my dad's missing, right? He's gone. He's gone off. He's gone off on on a walkabout. You know, t here is t here is the brotherhood Brotherhood of the Cruciform Sword was originally. A minion of the Sultan, who's working with the Nazis, so he's just a garden variety bad guy, Nazi Nazi stooge.
+[00:19:07] Will: to to the shooting script to what was actually shot, and it it goes through and explains the the beats in a really interesting way, and the way they de escalate like the way that movie escalates over time, so the threat is constantly ramping up versus like originally, for example, in the original script that was written by the credited screenwriter, who I can't remember who it is off the top of my head, they when Indy goes to his dad's house, he finds his housekeeper dead in the house, which immediately sets a tone that this is a life or death peril versus hey, my dad's missing, right? He's gone. He's gone off. He's gone off on on a walkabout. You know, there is there is the brotherhood Brotherhood of the Cruciform Sword was originally. A minion of the Sultan, who's working with the Nazis, so he's just a garden variety bad guy, Nazi Nazi stooge.
 
 [00:20:23] Adam: Yeah.
 
@@ -548,7 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:22:18] Adam: By all means.
 
-[00:22:26] Norm: before we continue this week, I want to let you know that Still Untitled is also made possible with support from TripleByte. Because applying to programming jobs sucks. You have to put the right keywords in your resume. You spend hours and hours on phone screens and take home projects, and that's assuming the company even responds to your application. Well, if you're a software engineer, TripleByte can help. They work with over 400 top tech companies, from big names like Dropbox and Adobe to exciting startups. You do one brief online interview with them, and if you do well, you get to go straight to final interviews with the companies on their platform. It's like the common app for software engineers. TripleByte does not look at your resume or where you went to school. All they care about is if you can code, because that's what really matters. Not a sheet of paper. It's about your personal experience and about your ability. Apply now at triplebyte dot com slash untitled. That's triplebyte b y t e byte as in eight bits. And as a special offer for listeners of the show, if you take a job through Triplebyte, they'll offer you a one thousand dollar signing bonus. Now back to the conversation. T here is no way you get from Eyes Wide Shut. I want to do want to hear about your time at Fan Fusion in Phoenix.
+[00:22:26] Norm: before we continue this week, I want to let you know that Still Untitled is also made possible with support from TripleByte. Because applying to programming jobs sucks. You have to put the right keywords in your resume. You spend hours and hours on phone screens and take home projects, and that's assuming the company even responds to your application. Well, if you're a software engineer, TripleByte can help. They work with over 400 top tech companies, from big names like Dropbox and Adobe to exciting startups. You do one brief online interview with them, and if you do well, you get to go straight to final interviews with the companies on their platform. It's like the common app for software engineers. TripleByte does not look at your resume or where you went to school. All they care about is if you can code, because that's what really matters. Not a sheet of paper. It's about your personal experience and about your ability. Apply now at triplebyte dot com slash untitled. That's triplebyte b y t e byte as in eight bits. And as a special offer for listeners of the show, if you take a job through Triplebyte, they'll offer you a one thousand dollar signing bonus. Now back to the conversation. There is no way you get from Eyes Wide Shut. I want to do want to hear about your time at Fan Fusion in Phoenix.
 
 [00:23:36] Adam: Phoenix Fan Fusion was fantastic.
 
@@ -658,7 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:26:41] Will: Okay, that's different.
 
-[00:26:42] Adam: Pee Wee Herman. Sorry, Paul Rubens was there.
+[00:26:42] Adam: Pee Wee Herman. Sorry, Paul Reubens was there.
 
 [00:26:42] Will: What?
 
@@ -722,7 +722,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:28:56] Will: This is the second year they've done it right.
 
-[00:28:58] Norm: Yeah yeah they they brought in a bunch of cosplayers, Existers, Jackie Craft. And we all judge cosplay contests and prop building contests, and really great stuff. And the guy who won, like the best prop, made the exoskeleton from Elysium.
+[00:28:58] Norm: Yeah yeah they they brought in a bunch of cosplayers, Egg Sisters, Jackie Craft. And we all judge cosplay contests and prop building contests, and really great stuff. And the guy who won, like the best prop, made the exoskeleton from Elysium.
 
 [00:29:16] Adam: Oh yes, yeah, was that an RPF build? Is that the guy who's been doing it on RPF?
 
@@ -888,7 +888,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:34:16] Norm: So you're the book tour is still going strong. I think there's still a couple more dates, even in the Bay Area.
 
-[00:34:21] Adam: Yeah, I'm heading to Palo Alto tomorrow. The questions from the audiences on this book tour have been amazing. I got to have a lovely some drinks with author who just signed a book deal, Lauren Hoff, who's the writer of that wonderful long form piece in HuffPo over Christmas about being a cable guy in the DC area for ten years, having installed cable in Dick Cheney's house.
+[00:34:21] Adam: Yeah, I'm heading to Palo Alto tomorrow. The questions from the audiences on this book tour have been amazing. I got to have a lovely some drinks with author who just signed a book deal, Lauren Hough, who's the writer of that wonderful long form piece in HuffPo over Christmas about being a cable guy in the DC area for ten years, having installed cable in Dick Cheney's house.
 
 [00:34:42] Will: Wow.
 
@@ -896,7 +896,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:34:47] Will: you give Dick Cheney the hey, I can hook you up with HBO for free deal. You you just just stab him a few times.
 
-[00:34:54] Adam: Um, I also got to I also got to hang out with a couple of other Austinites. Although Evan Narcisse reached out to me and he was like, " Hey, I just walked past you taking a bunch of photos with. Fans at the Alamo Draft House, and I had been trying to remember who I had met last year, who I knew lived in Austin, that I wanted to hang out with.
+[00:34:54] Adam: Um, I also got to I also got to hang out with a couple of other Austinites. Although Evan Narcisse reached out to me and he was like, " Hey, I just walked past you taking a bunch of photos with. Fans at the Alamo Drafthouse, and I had been trying to remember who I had met last year, who I knew lived in Austin, that I wanted to hang out with.
 
 [00:34:54] Will: And it was Evan.
 

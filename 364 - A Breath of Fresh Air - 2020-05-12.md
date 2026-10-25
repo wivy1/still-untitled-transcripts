@@ -156,13 +156,13 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:13:37] Unknown speaker (Will or Norm): Hmm.
 
-[00:13:37] Adam: Well, this morning I discovered because it was the first time I'd actually read my gauge that the gauge wasn't reading thousands; it was reading half thousands.
+[00:13:37] Adam: Well, this morning I discovered because it was the first time I'd actually read my gauge that the gauge wasn't reading thousandths; it was reading half thousandths.
 
 [00:13:47] Unknown speaker (Norm or Will): Oh.
 
 [00:13:48] Will: So you were fine. You were at five.
 
-[00:13:50] Adam: I was within two and a half thousands. I'm like, damn, I'm below the stated minimum on this. So I just I wrapped it and I can go.
+[00:13:50] Adam: I was within two and a half thousandths. I'm like, damn, I'm below the stated minimum on this. So I just I wrapped it and I can go.
 
 [00:13:58] Norm: All right. Save you a bunch of work.
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:24:38] Adam: yeah, but
 
-[00:24:39] Adam: I mean I think there's there's so much more to it than just the fan response. There's also the institutional inertia of the decision-making process because I think it's pretty cool. I mean, of course, Kathleen Kennedy and her team, John Nolan, all those wonderful people at Lucasfilm have a procedure that they've been doing and working with each other and to great success for decades, and the same thing is true with Kevin Feige and his whole team. But they're they're not the same at all, right? Like all of the ways in which they—it’s just hard to imagine a Star Wars universe that would let a movie like Ragnarok happen. And yet, I am really hopeful now that they're all under the Disney banner that that might occur. And what you say about the about the behind the scenes stuff is really exciting to me.
+[00:24:39] Adam: I mean I think there's there's so much more to it than just the fan response. There's also the institutional inertia of the decision-making process because I think it's pretty cool. I mean, of course, Kathleen Kennedy and her team, John Knoll and all those wonderful people at Lucasfilm have a procedure that they've been doing and working with each other and to great success for decades, and the same thing is true with Kevin Feige and his whole team. But they're they're not the same at all, right? Like all of the ways in which they—it’s just hard to imagine a Star Wars universe that would let a movie like Ragnarok happen. And yet, I am really hopeful now that they're all under the Disney banner that that might occur. And what you say about the about the behind the scenes stuff is really exciting to me.
 
 [00:25:29] Norm: But in the same vein, I think there are fans that don't want that too. That I've heard directly from fans who say a Ragnarok style a comedy in Star Wars is not what I want, and they hold it on a different pedestal.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:30:14] Adam: yeah,
 
-[00:30:14] Will: yeah. I mean, the the thing about the MCU is that even even when like when they take a—a comic storyline, whether it's World Planet Hulk or or the Warren Ellis's Extremist stuff, and they like take the bits and pieces, they cherry pick the little bits of that story out and put it into a movie. As a as a fan of like Warren Ellis's Extremist line, I was really stoked, even though it wasn't the story from the comic book. I was stoked to see that reference in Iron Man Three, or I was stoked to see the the Planet Hulk stuff in like the tiny tiny tiny slice of that that came up in Ragnarok, and and it was gratifying. Whereas, like, and if you contrast that with the reaction that people had when when Luke Skywalker was a used up shell of a man in Last Jedi. Like people were pissed about that, and and like people feel very strongly about those characters in a way that I, as somebody who thought he felt very strongly about those characters, I was surprised by.
+[00:30:14] Will: yeah. I mean, the the thing about the MCU is that even even when like when they take a—a comic storyline, whether it's World Planet Hulk or or the Warren Ellis's Extremis stuff, and they like take the bits and pieces, they cherry pick the little bits of that story out and put it into a movie. As a as a fan of like Warren Ellis's Extremis line, I was really stoked, even though it wasn't the story from the comic book. I was stoked to see that reference in Iron Man Three, or I was stoked to see the the Planet Hulk stuff in like the tiny tiny tiny slice of that that came up in Ragnarok, and and it was gratifying. Whereas, like, and if you contrast that with the reaction that people had when when Luke Skywalker was a used up shell of a man in Last Jedi. Like people were pissed about that, and and like people feel very strongly about those characters in a way that I, as somebody who thought he felt very strongly about those characters, I was surprised by.
 
 [00:31:13] Adam: Um. Uh. I am going to go off on a tangent here and tell you. I forgot. I keep forgetting to let you guys know. I finished Westworld this week.
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:38:56] Will: Well, or even just sitting in the editing room, right? Like sitting in the editing room, and you're like, you have these four takes, all four of them. I watched, and I'm like, these are incredible. Like, there's nothing. The all of these would land in slightly different ways, and and the You know, yeah, like the the yeah
 
-[00:39:10] Adam: yeah. So I'm going to tease here. Uh, I’m going to tease here. Uh, I spent a—a week on a large franchise production that's been pushed back. Otherwise, I'd be able to say what it is. Um, and I got to watch a great director work with two great actors doing 12 takes of a scene, and it took them about three hours. And in the course of that scene, the first take I thought was freaking fine, just great, and the last take was world breaking. Like the everybody found seven new things to imbue that scene with over the course of 12 takes, with the director making small small changes and the actors making minor and major shifts, and also in the rhythm with each other. It was beautiful, beautiful, and it really made it clear. It made it clear that the kind of That that how difficult that job is as a director, to to take these elements and make the stew of a film. You know,
+[00:39:10] Adam: yeah. So I'm going to tease here. Uh, I spent a—a week on a large franchise production that's been pushed back. Otherwise, I'd be able to say what it is. Um, and I got to watch a great director work with two great actors doing 12 takes of a scene, and it took them about three hours. And in the course of that scene, the first take I thought was freaking fine, just great, and the last take was world breaking. Like the everybody found seven new things to imbue that scene with over the course of 12 takes, with the director making small small changes and the actors making minor and major shifts, and also in the rhythm with each other. It was beautiful, beautiful, and it really made it clear. It made it clear that the kind of That that how difficult that job is as a director, to to take these elements and make the stew of a film. You know,
 
 [00:40:14] Norm: both in the moment, you know, and in the edit, and then also it requires trust. Honestly, right to be open with the collaborators because it's a very easy situation where everyone just says yes or defers to you, and people make the easy choice, and it's the hard choices that make great products.
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:41:45] Adam: It's a great. It's lovely. You're reminding me that, uh, one of the things Sigourney Weaver said she got out of making Alien, um, which was her first film, was you can't. She said, " I realized I can't worry about the full arc of the film's narrative. I have to play each scene." In and of itself, for the scene, I the director's job is to make it all work together. My job is to make each scene work, and again, that's like that that level of consciousness about how each of these pieces fits together is really is really amazing to watch happen. I love that we live in an age where we get so much granularity from the creatives in this process about how it works for them.
 
-[00:42:30] Will: There's there's um we've talked about this movie a lot on the podcast, but there's a there's a moment in the still untitled commentary for I think the extended the one that's actually called sorry the Almost Famous, uh, box set that's that's called still untitled that has all the extended stuff, and it's Cameron Crowe talking to Frances McDormand and I think his mom maybe it's the other way around maybe he's talking to his mom and they're talking about Frances McDormand, but but they—he has this lovely conversation about how he was trying to get like how he got the performance he wanted he was trying to get the performance he wanted out of Frances McDormand, and then he realized he needed to get the Performance Frances McDormand wanted onto film, and anyway, it's good. You should listen to that.
+[00:42:30] Will: There's there's um we've talked about this movie a lot on the podcast, but there's a there's a moment in the still untitled commentary for I think the extended the one that's actually called sorry the Almost Famous, uh, box set that's that's called still untitled that has all the extended stuff, and it's Cameron Crowe talking to Frances McDormand and I think his mom maybe it's the other way around maybe he's talking to his mom and they're talking about Frances McDormand, but but they—he has this lovely conversation about how he was trying to get the performance he wanted out of Frances McDormand, and then he realized he needed to get the Performance Frances McDormand wanted onto film, and anyway, it's good. You should listen to that.
 
 [00:43:11] Adam: That's one of my all-time favorite movies. I love it. Have you watched the, um, the "Stairway to Heaven" scene in that film, Will?
 

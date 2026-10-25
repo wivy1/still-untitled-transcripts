@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:02:54] Norm: you were just at TED.
 
-[00:02:54] Adam: I was a featured speaker at TED, and it was the first time I've done a TED Ed talk. People have seen it where I talked about Eratosthenes and Armand Fizeau. And I have done, EG, talks which are up on the TED website, but I have never spoken at TED proper, and it was intense.
+[00:02:54] Adam: I was a featured speaker at TED, and it was the first time. I've done a TED-Ed talk. People have seen it where I talked about Eratosthenes and Armand Fizeau. And I have done, EG, talks which are up on the TED website, but I have never spoken at TED proper, and it was intense.
 
 [00:03:16] Will: Not to, I think everybody probably knows what TED is, but just to be safe,
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:10:06] Norm: Let's write talk for the right venue and for the right audience. So were you cognizant of the audience outside of the venue? Because TEDs it's gonna be online.
 
-[00:10:14] Adam: I hadn't performed for the TED conference, but in general, conferences like this of a bunch of really smart people tend to be really rough crowds from a performer standpoint. And I don't mean that they're not generous and good crowds. I just mean that they don't tend to be very feedback heavy. Like the EG audience is packed with friends of mine. I love that audience, but it's not like a super dynamic performer audience relationship like I get when I get up at Sketchfest and do something with Thrilling Adventure Hour or Woodstock.
+[00:10:14] Adam: I hadn't performed for the TED conference, but in general, conferences like this of a bunch of really smart people tend to be really rough crowds from a performer standpoint. And I don't mean that they're not generous and good crowds. I just mean that they don't tend to be very feedback heavy. Like the EG audience is packed with friends of mine. I love that audience, but it's not like a super dynamic performer audience relationship like I get when I get up at Sketchfest and do something with Thrilling Adventure Hour or w00tstock.
 
 [00:10:43] Will: Yeah, I mean, if if you're coming into this, you're like you could potentially. I mean, you didn't, but you could potentially follow the guys who invented an entirely new type of telescope. Telescope.
 
@@ -340,7 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:15:57] Norm: Ooh.
 
-[00:15:57] Adam: Chris Hadfield, astronaut, commander of the International Space Station, Damien Kulash, lead singer of OK Go, and the director of all their beautiful—co-director of all their beautiful videos.
+[00:15:57] Adam: Chris Hadfield, astronaut, commander of the International Space Station, Damian Kulash, lead singer of OK Go, and the director of all their beautiful—co-director of all their beautiful videos.
 
 [00:15:29] Unknown speaker: That video’s amazing.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:17:55] Adam: I did this. No, I did this at a theater with Al Gore in the audience, a bunch of TED people. And I have to tell you, after the stress of giving of giving so much energy to the talk and releasing it and feeling really good about it, to go up on a stage in front of a friendly crowd. I love Canadian audiences; they're boisterous. I've performed a lot in Canada. To go up in front of a friendly crowd and deliver five minutes of just great stand-up, and it's not real stand-up. I'm not a real stand-up comedian, but this is this is wonderful comedy, beautifully written, and I had real fun delivering it and played with the crowd. It felt like a vac. It felt like a beautiful vacation after the stress of TED.
 
-[00:18:38] Norm: I can't wait for the day that they they have the AI talk that Waylon does in the fake TED commercial for Prometheus. You remember that?
+[00:18:38] Norm: I can't wait for the day that they they have the AI talk that Weyland does in the fake TED commercial for Prometheus. You remember that?
 
 [00:18:46] Adam: Oh yeah.
 

@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=aT8qF-nF2HA
 
 [00:03:58] Adam: yeah,
 
-[00:03:58] Norm: and it's like to me they're the Nights Watch from Game of Thrones.
+[00:03:58] Norm: and it's like to me they're the Night's Watch from Game of Thrones.
 
 [00:04:15] Will: Well the crows are there because people throw out the food; they're not allowed to bring across the border, right? I, yeah, I always get really nervous crossing borders. Yeah. Yeah. I've done it a ton of times. It's always a source of like, oh, what if I, what if I mess this up and I get, I get locked in the, you know, and I'm a middle-aged white guy. I, I don't know. It's got, yeah. Anyway, so, um, okay, so it's day before Thanksgiving. Your Thanksgiving's done, Norm. You're getting ready to travel today. You're going to travel on the busiest travel day of the year.
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=aT8qF-nF2HA
 
 [00:15:19] Unknown speaker (Adam or Norm): Yes, yes.
 
-[00:15:19] Adam: she's a Mori who is in Hunt for the Wilder People, and she's brilliant in both.
+[00:15:19] Adam: she's a Māori who is in Hunt for the Wilderpeople, and she's brilliant in both.
 
 [00:15:29] Norm: She, it’s,
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=aT8qF-nF2HA
 
 [00:19:57] Will: Oh, you make stuff.
 
-[00:19:59] Adam: I made the Savage GDC one bag. Look at that! And it went on sale on Monday, and we we had a few hundred that were available to be delivered by Christmas. We sold out of those. We still have some that can be delivered by the end of January before we have to start a second a second construction phase. But the sales were fantastic. I'm really psyched to see bags out in the world.
+[00:19:59] Adam: I made the Savage EDC one bag. Look at that! And it went on sale on Monday, and we we had a few hundred that were available to be delivered by Christmas. We sold out of those. We still have some that can be delivered by the end of January before we have to start a second a second construction phase. But the sales were fantastic. I'm really psyched to see bags out in the world.
 
 [00:20:26] Norm: Adam, give us a little backstory about the the designing of this bag and how it's been percolating in your head.
 

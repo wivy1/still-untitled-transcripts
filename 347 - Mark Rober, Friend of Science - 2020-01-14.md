@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:03:55] Adam: Yeah. Yeah. But what is your like? You save your hero pieces from your videos.
 
-[00:03:59] Mark Rober: Yeah, like I have like the world's largest. They're good. World's largest. Super. So I do have those like in a storage. And we're we're kind of building a shop, and they will be in like the shop. But yeah, sometimes I will scrap a thing. Though we did one like a rock skipping robot made from like a what do you call those? Like you launch the
+[00:03:59] Mark Rober: Yeah, like I have like the world's largest. Nerf gun. World's largest. Super. So I do have those like in a storage. And we're we're kind of building a shop, and they will be in like the shop. But yeah, sometimes I will scrap a thing. Though we did one like a rock skipping robot made from like a what do you call those? Like you launch the
 
 [00:04:17] Adam: skeet shooter?
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:05:57] Adam: about your newest escapade
 
-[00:05:59] Mark Rober: My proverbial drunk drawer. Yeah.
+[00:05:59] Mark Rober: My proverbial junk drawer. Yeah.
 
 [00:06:01] Adam: You are you are matriculating from an itinerant television appearer
 
@@ -726,7 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:33:07] Mark Rober: Oh.
 
-[00:33:07] Adam: And we chatted about that for a second, and then we're like, just we're now the show's going because you know it's like a freight chain, right?
+[00:33:07] Adam: And we chatted about that for a second, and then we're like, just we're now the show's going because you know it's like a freight train, right?
 
 [00:33:14] Mark Rober: Yeah.
 
@@ -742,7 +742,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:33:56] Mark Rober: Jimmy though, he's like the real like exactly like you like walking up to his office and stuff. He knows all the security guards. He's fist bumping all of them. He's talking about their families. He's he's just like the real deal.
 
-[00:34:07] Adam: Well, the thing I liked was the White House Press Correspondent Center is totally surreal. It's totally bizarre. The number of weird famous people from all these different avenues of the world. And so when I said to him, you know, I was there when you hosted it, he was like, " Oh, cool." And then you could see him think about it, and he goes. Wasn't it weird?
+[00:34:07] Adam: Well, the thing I liked was the White House Press Correspondent Dinner is totally surreal. It's totally bizarre. The number of weird famous people from all these different avenues of the world. And so when I said to him, you know, I was there when you hosted it, he was like, " Oh, cool." And then you could see him think about it, and he goes. Wasn't it weird?
 
 [00:34:26] Mark Rober: Even for him.
 
@@ -808,7 +808,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:37:10] Mark Rober: Oh, just like to decompress.
 
-[00:37:12] Adam: I guess after the firehose of production, um, when I finished MythBusters, Patrick Brewster told me that I was going to become unhinged. She was like, I was on a show for six years, and when I stopped, like the whole world changed, and I wasn't ready for it. And so this is one production cycle, but. Still at the end of it, you're going to be like, so like plan a trip away somewhere or give yourself some time off.
+[00:37:12] Adam: I guess after the firehose of production, um, when I finished MythBusters, Paget Brewster told me that I was going to become unhinged. She was like, I was on a show for six years, and when I stopped, like the whole world changed, and I wasn't ready for it. And so this is one production cycle, but. Still at the end of it, you're going to be like, so like plan a trip away somewhere or give yourself some time off.
 
 [00:37:35] Mark Rober: Well, For MythBusters, then was it, uh, like how how how many months were you on and then off?
 

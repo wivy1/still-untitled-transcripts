@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:03:19] Tom Spina: Yeah,
 
-[00:03:19] Unknown speaker: John Berg.
+[00:03:19] Unknown speaker: Jon Berg.
 
 [00:03:19] Adam: Yeah.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:04:02] Tom Spina: Regal
 
-[00:04:02] Tom Spina: Robot is really focused, and that grew out of we made the Han Solo and Carbonite desk about ten years ago that went crazy viral, and kind of told us like, hey, maybe you're on to something.
+[00:04:02] Tom Spina: Robot is really focused, and that grew out of we made the Han Solo in Carbonite desk about ten years ago that went crazy viral, and kind of told us like, hey, maybe you're on to something.
 
 [00:04:02] Adam: There's a market.
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:07:44] Tom Spina: And cotton.
 
-[00:07:44] Adam: some cotton and pros aide and stuff, and slowly rebuilding that peach so you can't tell that it's there.
+[00:07:44] Adam: some cotton and Pros-Aide and stuff, and slowly rebuilding that peach so you can't tell that it's there.
 
 [00:08:10] Norm: It has to maintain the essence of that peach, built in that time
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:11:01] Norm: [unclear: so a lot / So it's like witness marks].
 
-[00:11:02] Tom Spina: of times, yeah, no, there there are a lot of times where we're that able to take it take advantage or whatever, capitalize on the knowing these people, where you can say like. Oh, you know what? John Berg worked on that, or oh, Rick Baker made this. Like, I'll call Rick up. So, this is not necessarily relating to the restoration, but when we restored Muftak, which is the big furry, four-eyed, as Rick called him, spider guy from Star Wars, with the little sausage snout, so we did that for Bob and Kathy. One of my favorite things I've ever worked on, obviously. I'm a little bit of a cantina nut, if people don't already know this, but I look at the cost the the costume, and it's that was in really rough shape. It was like on the verge of if we didn't do this when we did it, he could have just sort of crumbled apart because the foam inside of him it was just a poly foam, but it started to crumble, and the seams on the costume were starting to crumble because he was sort of being supported by the head weight, so the whole weight of the costume was on the neck, and yada yada yada
+[00:11:02] Tom Spina: of times, yeah, no, there there are a lot of times where we're that able to take it take advantage or whatever, capitalize on the knowing these people, where you can say like. Oh, you know what? Jon Berg worked on that, or oh, Rick Baker made this. Like, I'll call Rick up. So, this is not necessarily relating to the restoration, but when we restored Muftak, which is the big furry, four-eyed, as Rick called him, spider guy from Star Wars, with the little sausage snout, so we did that for Bob and Kathy. One of my favorite things I've ever worked on, obviously. I'm a little bit of a cantina nut, if people don't already know this, but I look at the cost the the costume, and it's that was in really rough shape. It was like on the verge of if we didn't do this when we did it, he could have just sort of crumbled apart because the foam inside of him it was just a poly foam, but it started to crumble, and the seams on the costume were starting to crumble because he was sort of being supported by the head weight, so the whole weight of the costume was on the neck, and yada yada yada
 
 [00:12:08] Tom Spina: Ah. But so we get the thing, and I look inside, and there's a shirt built into the costume as part of it.
 
@@ -292,11 +292,11 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:14:30] Norm: In the spoiler cast territory. Here we go.
 
-[00:14:32] Adam: Yes, here we go. Demi gorgons.
+[00:14:32] Adam: Yes, here we go. Demogorgons.
 
 [00:14:35] Tom Spina: Yeah.
 
-[00:14:36] Adam: I was. I loved it. Was Mike Elizalde who built the the demi gorgon for the first one?
+[00:14:36] Adam: I was. I loved it. Was Mike Elizalde who built the the Demogorgon for the first one?
 
 [00:14:36] Adam: Am I right?
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:15:35] Tom Spina: Oh yeah,
 
-[00:15:35] Adam: you can see the mat lines because the color and the the the the the balancing was done for film, not for video.
+[00:15:35] Adam: you can see the matte lines because the color and the the the the the balancing was done for film, not for video.
 
 [00:15:35] Tom Spina: right.
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:16:20] Tom Spina: I'm loving it.
 
-[00:16:20] Adam: It's great. It was very satisfying. I'm very happy with what happened and how it happened. Um, the one. Note that I had a problem with was I kept seeing significant like contrast issues between the CG dart and the demi gorgon and the and the the real stuff. Now I'd expect to see that in like a bad transfer,
+[00:16:20] Adam: It's great. It was very satisfying. I'm very happy with what happened and how it happened. Um, the one. Note that I had a problem with was I kept seeing significant like contrast issues between the CG dart and the Demogorgon and the and the the real stuff. Now I'd expect to see that in like a bad transfer,
 
 [00:16:41] Tom Spina: right?
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:18:46] Norm: it's right before
 
-[00:18:47] Adam: those are this episode and the next episode are the two that Andrew Stanton director of John Carter and Finding Dory and Wally
+[00:18:47] Adam: those are this episode and the next episode are the two that Andrew Stanton director of John Carter and Finding Dory and WALL-E
 
 [00:18:56] Norm: not Wally just finding Finding Nemo Finding Dory and John Carter
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:20:13] Norm: that that was the experience. Yeah,
 
-[00:20:16] Tom Spina: yeah, I remember playing that laser disk so many times. I I don't think I ever played Dragon Slayer for more than about twelve seconds.
+[00:20:16] Tom Spina: yeah, I remember playing that laser disk so many times. I I don't think I ever played Dragon's Lair for more than about twelve seconds.
 
 [00:20:16] Unknown speaker: Right,
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:23:24] Tom Spina: Yeah.
 
-[00:23:24] Adam: I heard them say it's like a black hole, and I thought, huh, was black hole in Carmen parlance back then? Right. As that means someplace that all and it turns out yes,
+[00:23:24] Adam: I heard them say it's like a black hole, and I thought, huh, was black hole in common parlance back then? Right. As that means someplace that all and it turns out yes,
 
 [00:23:45] Adam: we've
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:26:10] Tom Spina: Okay.
 
-[00:26:11] Adam: Really, really important San Francisco institution for a long time, and some great food combinations. And he said, " This was the kind of thing he learned at Beetle Nut. It was three to one ginger beer and yuzu.
+[00:26:11] Adam: Really, really important San Francisco institution for a long time, and some great food combinations. And he said, " This was the kind of thing he learned at Betelnut. It was three to one ginger beer and yuzu.
 
 [00:26:11] Tom Spina: Okay,
 
@@ -788,7 +788,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:30:38] Tom Spina: Yeah, what do you got?
 
-[00:30:39] Adam: It's got to open with them online to see Jedi.
+[00:30:39] Adam: It's got to open with them on line to see Jedi.
 
 [00:30:44] Tom Spina: Well, wait.
 
@@ -812,7 +812,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:31:02] Tom Spina: Well, what's oh god?
 
-[00:31:04] Adam: What else is even? I feel like it's waiting online the movies.
+[00:31:04] Adam: What else is even? I feel like it's waiting on line the movies.
 
 [00:31:07] Tom Spina: Yeah.
 

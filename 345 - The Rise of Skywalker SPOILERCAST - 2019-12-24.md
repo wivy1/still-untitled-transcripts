@@ -680,7 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:24:04] Norm: Quill, quill, quill, quill. Oh, the silence.
 
-[00:24:07] Will: Wait, is he the? Is he the Wills?
+[00:24:07] Will: Wait, is he the? Is he the Whills?
 
 [00:24:08] Will: He's Nick Nolte.
 
@@ -690,7 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:24:18] Adam: stop it! No, stop it! Sorry, I will. I will make this thing work,
 
-[00:24:21] Adam: and I will pierce you. Don't, don't. It's Wills, Wills.
+[00:24:21] Adam: and I will pierce you. Don't, don't. It's Whills, Whills.
 
 [00:24:27] Will: Oh, oh, okay,
 

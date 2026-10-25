@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:00:35] Adam: So he's a connector. Maker Effect Foundation is effectively a very similar organization to what Nation of Makers hopes to be on a on a on a similar but larger scale.
 
-[00:00:42] Ian: Yeah, we we really started in in Central Florida and and seeing the opportunity to take the skills that we had and help the makerspaces to you know to grow and work together in a very sort of collaborative way. We we did the we started producing the Maker Fair there, and that. Led to us being in that sort of connector role and and knowing everyone and and one thing led to another.
+[00:00:42] Ian: Yeah, we we really started in in Central Florida and and seeing the opportunity to take the skills that we had and help the makerspaces to you know to grow and work together in a very sort of collaborative way. We we did the we started producing the Maker Faire there, and that. Led to us being in that sort of connector role and and knowing everyone and and one thing led to another.
 
 [00:01:06] Norm: Organizationally, for Nation of Makers, since you're based in Florida and your network of makerspaces there, I'm sure has its own distinct culture. Is it that the board is kind of spread geographically around to bring what works in those parts geographically?
 
@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:02:12] Ian: Absolutely,
 
-[00:02:13] Adam: Um, but I visited a space called Insight Focus in Detroit, uh, just last week. Again, every time you visit a makerspace, it's like a whole other philosophy about what's possible. Insight Focus is geared towards, um, getting people in Detroit who need housing to put in sweat equity and build houses out of the makerspace. They're using a shopbot to, uh, to, uh, basically groove studs to build inexpensive small houses. To code working with the city of Detroit,
+[00:02:13] Adam: Um, but I visited a space called Incite Focus in Detroit, uh, just last week. Again, every time you visit a makerspace, it's like a whole other philosophy about what's possible. Incite Focus is geared towards, um, getting people in Detroit who need housing to put in sweat equity and build houses out of the makerspace. They're using a shopbot to, uh, to, uh, basically groove studs to build inexpensive small houses. To code working with the city of Detroit,
 
 [00:02:13] Ian: wow,
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:05:20] Will: That is a very good one.
 
-[00:05:23] Will: So so speaking of bringing people around from all over the world into maker spaces and connecting people, this weekend in San Francisco was Bay Area Maker Fair,
+[00:05:23] Will: So so speaking of bringing people around from all over the world into maker spaces and connecting people, this weekend in San Francisco was Bay Area Maker Faire,
 
 [00:05:23] Ian: the big one.
 
@@ -114,13 +114,13 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:05:45] Ian: I am,
 
-[00:05:45] Will: and I just I think we should talk about Maker Fair because like
+[00:05:45] Will: and I just I think we should talk about Maker Faire because like
 
 [00:05:45] Unknown speaker: yeah,
 
 [00:05:45] Will: we we haven't talked about this stuff and. We don't talk about this enough, and it's important.
 
-[00:05:59] Norm: Yeah, and we're most familiar, of course, with the Bay Area Maker Fair.
+[00:05:59] Norm: Yeah, and we're most familiar, of course, with the Bay Area Maker Faire.
 
 [00:05:59] Ian: Sure,
 
@@ -128,9 +128,9 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:06:08] Ian: But he was preaching yesterday.
 
-[00:06:09] Will: Yeah, it was good. Preaching the makers. What did you ride out? I, I, I discovered this year that the best time to see the the crowded parts of Maker Fair are when you're talking. Because we were walking around yesterday, my wife was like, " Where the hell did everybody go? It's there's nobody in the dark room. There's nobody in the yeah." So, so
+[00:06:09] Will: Yeah, it was good. Preaching the makers. What did you ride out? I, I, I discovered this year that the best time to see the the crowded parts of Maker Faire are when you're talking. Because we were walking around yesterday, my wife was like, " Where the hell did everybody go? It's there's nobody in the dark room. There's nobody in the yeah." So, so
 
-[00:06:25] Adam: along those lines, I ran into Rodney Brooks last year from MIT, and he said, " You, I can't do his accent, but his charming Australian accent." And he said, " You gave me the worst public experience, public speaking experience I've ever had." And I was like, " Why?" And he's like, " I followed you at Maker Fair years ago and watched this room empty out." I'm sorry, Rodney. Um, yeah, so I gave a sermon yesterday, and I rode out. Have you ever seen that giant the the French group that makes the giant puppets, the marionette little girl that's like. Thirty feet high and operated from cranes,
+[00:06:25] Adam: along those lines, I ran into Rodney Brooks last year from MIT, and he said, " You, I can't do his accent, but his charming Australian accent." And he said, " You gave me the worst public experience, public speaking experience I've ever had." And I was like, " Why?" And he's like, " I followed you at Maker Faire years ago and watched this room empty out." I'm sorry, Rodney. Um, yeah, so I gave a sermon yesterday, and I rode out. Have you ever seen that giant the the French group that makes the giant puppets, the marionette little girl that's like. Thirty feet high and operated from cranes,
 
 [00:06:56] Norm: spiders, the elephants.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:09:59] Ian: You know, I I view Maker Faire now from two lenses. We're the the entity that produces Maker Faire Orlando, so I'm looking at everything from the signage to potential content that we could invite to, you know, production value. How do they do it? The other side of me is still geeking out and you know thinking about how just you know how is it made and and the joy of creation. One of the things I loved and it's it's very straightforward, but there's a group that takes pinball assemblies. I love pinball machines, and they take pinball assemblies and they basically put them on small mounted pieces and show you how a pop bumper works or how a flipper works, and they turn them into all these little interactive. And they must have I don't know 30 or 40 of them, and so it's a really interesting hands-on way to get kids excited about pinball. When most kids see a pinball machine today, and they're like, eh. But you know, sort of showing them how they and they had a they had a pop bumper that not only worked at full speed, but then the one next to it. Had the ball on a rod and was sort of animating how it worked in slow motion, and I've got some friends back in in Orlando that run a local pinball and arcade show, and so I was sending them photos like, " We've got to build these. We've got to."
 
-[00:11:14] Norm: We know some people, were you in town? Did you go to the Pinagogo?
+[00:11:14] Norm: We know some people, were you in town? Did you go to the Pin-a-Go-Go?
 
 [00:11:17] Ian: I did not. They were like, " You've got to," and I I couldn't make the scheduling work.
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:11:22] Ian: Yeah.
 
-[00:11:23] Adam: Years and years ago, I did a lot of sculpture with piano mechanics, the mechanics from pianos, and I still I have a few left over from those days. But the very first one I was given was by Bozendorfer piano, gave me the mechanics of this little little piano to make a sculpture for them out of, and the first thing I did with this, I cut the end and I made a mechanic of a single hammer assembly and how it works. It's it's in the cabinet over there. Yeah, we'll take some pictures of it. Um, but it's exactly the same thing. It's like when you actually see how a piano key works, and you can't believe that this amazing music comes out of such a simple arrangement of. Dowels and felt and wooden chunks.
+[00:11:23] Adam: Years and years ago, I did a lot of sculpture with piano mechanics, the mechanics from pianos, and I still I have a few left over from those days. But the very first one I was given was by Bösendorfer piano, gave me the mechanics of this little little piano to make a sculpture for them out of, and the first thing I did with this, I cut the end and I made a mechanic of a single hammer assembly and how it works. It's it's in the cabinet over there. Yeah, we'll take some pictures of it. Um, but it's exactly the same thing. It's like when you actually see how a piano key works, and you can't believe that this amazing music comes out of such a simple arrangement of. Dowels and felt and wooden chunks.
 
 [00:12:05] Will: There was. I was going to say this year in the dark room, they had a, a, a baby grand piano that was, I think it was all it was all acrylic, it was transparent, and they it wasn't an actual baby grand piano though it was a synth hooked up to, um, a bunch of arduinos and light controllers that were firing a, a string worth of lights on each note that you played. So when somebody sat down and actually played, it was this dancing light sculpture that was happening inside a piano. It was absolutely gorgeous.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:13:19] Ian: Um, there, uh, I, I'm really interested in in, uh, mobile makerspaces right now. So we've you know we have, um, we've got some great spaces in Orlando if people will come to the space. Yeah. And I think the next phase for us from an outreach, especially from a, um, uh, you know getting out to neighborhoods where they can't come to us, is going to be a mobile makerspace. And I think it was the I want to say it was a San Jose library had this fantastic space, and, um, uh, the woman who ran it was just super helpful in in explaining their philosophies and and how they and how they built it. Really neat,
 
-[00:13:56] Will: Norm. You and I talked to some folks years ago who run a bicycle company. They make carbon fiber bicycles out of Santa Cruz, and then a couple of months a year they ship mobile makerspaces in shipping containers. And they they basically bring like it's just it's the the bicycle equivalent of a hardware the hardware burrito for for a rep wrap, but they ship enough of those that they can make hundreds of bikes and they bring a flat table and all the epoxy and and the bike hardware they need and then they take bamboo and I think baobab bark that they wrap in a that they use in place of so they normally make carbon fiber bikes and they use the the tree bark with the epoxy to make the bamboo bikes and they're these incredibly high end bikes and they're you know they're perfectly true and all like it was really fascinating and they did it all out of like two shipping containers or something like that and spend two months building but teaching people how to build bikes and then leave the hardware behind when they're done
+[00:13:56] Will: Norm. You and I talked to some folks years ago who run a bicycle company. They make carbon fiber bicycles out of Santa Cruz, and then a couple of months a year they ship mobile makerspaces in shipping containers. And they they basically bring like it's just it's the the bicycle equivalent of a hardware the hardware burrito for for a RepRap, but they ship enough of those that they can make hundreds of bikes and they bring a flat table and all the epoxy and and the bike hardware they need and then they take bamboo and I think baobab bark that they wrap in a that they use in place of so they normally make carbon fiber bikes and they use the the tree bark with the epoxy to make the bamboo bikes and they're these incredibly high end bikes and they're you know they're perfectly true and all like it was really fascinating and they did it all out of like two shipping containers or something like that and spend two months building but teaching people how to build bikes and then leave the hardware behind when they're done
 
 [00:14:47] Ian: yeah I think when you can leave a skill and you know that I think that's a lot of what happens in the maker community is we're we're giving people these little intro experiences that let them you know whether it's learn to solder or you know teaching how to make a t shirt or whatnot you know you just kind of get them started you give them enough you teach them that they can. And then they they go from there.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:18:38] Adam: I totally agree. It's really good. That is my obviously my favorite too. Yeah, you know the sharing of the information and those tiny little pieces of institutional knowledge which radically improve your experience.
 
-[00:18:48] Ian: Well, I think the thing about you know Bay Area and New York, especially because they draw people from all over, is you have this sort of you know big exciting weekend, but now all that information disseminates back to all the places. And then we'll, you know, we'll end up back at the local maker fairs, and it's just really exciting to see it to see it spread.
+[00:18:48] Ian: Well, I think the thing about you know Bay Area and New York, especially because they draw people from all over, is you have this sort of you know big exciting weekend, but now all that information disseminates back to all the places. And then we'll, you know, we'll end up back at the local maker faires, and it's just really exciting to see it to see it spread.
 
 [00:19:08] Norm: Does Make have demographic information about who travels in? Because the first couple of years of Maker Faire, it is it felt more Bay Area.
 
@@ -362,11 +362,11 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:19:15] Adam: But it was curious to me on those on that regard to compare Maker Faires to Comic Cons. We were thinking along same lines, I guess, because San Diego Comic Con, where we've been going for ten years now, is amazing. But when we went to New York Comic Con last year for the very first time, I was astonished at the level of diversity of the New York Comic Con. Put every other con I've ever been to shame, and I real and talking to one of the organizers, they're like, because most of the New York Comic Con is coming from the five boroughs. It's coming from one of the most diverse cities in the world, right? So this is they have the large number of locals to draw from, and that's great that New York pulls that, but it's quite a unique. Neat place and yeah, I'm I, you know, I was looking around the crowd and thinking about how far and wide this group had come from.
 
-[00:20:07] Will: We we had the same response when we went to New York Maker Fair the first time. I remember walking around thinking, oh, right, clearly there's a lot more robots here because the the East Coast tech schools are all around and people bring their projects and you know the the the high schools have programs that associate with those schools and yeah.
+[00:20:07] Will: We we had the same response when we went to New York Maker Faire the first time. I remember walking around thinking, oh, right, clearly there's a lot more robots here because the the East Coast tech schools are all around and people bring their projects and you know the the the high schools have programs that associate with those schools and yeah.
 
-[00:20:23] Ian: I went to Kansas City a few years ago, and one of the things I remember most was they had a a local car club that does the sort of hydraulic you know bouncing cars all behind you know. There's Maker Fair and there's this row of cars going up and down, and my you know my sons and I were like, hydraulics, how does this work? Let's go learn. And so that regional flavor that you get, you don't necessarily get that at Bay Area and New York as much because so many people travel. But when you get down to the smaller featured Maker Fairs and and the mini Maker Fairs, you get you get kind of a lot more sense of what that region makes.
+[00:20:23] Ian: I went to Kansas City a few years ago, and one of the things I remember most was they had a a local car club that does the sort of hydraulic you know bouncing cars all behind you know. There's Maker Faire and there's this row of cars going up and down, and my you know my sons and I were like, hydraulics, how does this work? Let's go learn. And so that regional flavor that you get, you don't necessarily get that at Bay Area and New York as much because so many people travel. But when you get down to the smaller featured Maker Faires and and the mini Maker Faires, you get you get kind of a lot more sense of what that region makes.
 
-[00:20:56] Adam: So I I I I did my usual stick. This year, as I gave a my Sunday talk at around noon, and I signed autographs for a couple of hours. Um, and it was wonderful. But I there was a trend this time. Well, I started a thing where I started asking everyone, " What are you making? What are you working on?" And you know, whether you're eight or eighty, I didn't. The answers were always really interesting.
+[00:20:56] Adam: So I I I I did my usual shtick. This year, as I gave a my Sunday talk at around noon, and I signed autographs for a couple of hours. Um, and it was wonderful. But I there was a trend this time. Well, I started a thing where I started asking everyone, " What are you making? What are you working on?" And you know, whether you're eight or eighty, I didn't. The answers were always really interesting.
 
 [00:21:18] Will: It's always interesting,
 
@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:21:36] Ian: All right,
 
-[00:21:36] Adam: because we need that. We need. It amazed me that coders can go to makers maker fairs and still think that they are somehow outside a loop, when they are completely inside the same nucleus that we're all playing around in.
+[00:21:36] Adam: because we need that. We need. It amazed me that coders can go to makers maker faires and still think that they are somehow outside a loop, when they are completely inside the same nucleus that we're all playing around in.
 
 [00:21:50] Ian: Most of those projects have code in them at some point, whether it's mechanical code or electronic code. But to your point, we we we even see this in Orlando in trying to recruit, you know, independent gamers or whatever. Is that they feel like they're they're outside our circle? And we had that originally with artists. We we we have a call for makers each year where we say, okay, you may now come and apply, and we would get the question, well, when is your call for artists?
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:22:16] Will: for booth space and all that?
 
-[00:22:24] Ian: No, absolutely not. So the general rule for maker fairs is if you're just exhibiting, it is free. You know, the the event itself pays for the space, and you know, you pay for your exhibit and what you're doing. If you're selling, if you're a commercial maker, then usually there's some low fee, and that's very dependent on the specific fair. And some some fairs are free fairs, some are paid. So it just really depends on the market. But generally, no, your your your person just exhibiting that thing that. They made is there for free,
+[00:22:24] Ian: No, absolutely not. So the general rule for maker faires is if you're just exhibiting, it is free. You know, the the event itself pays for the space, and you know, you pay for your exhibit and what you're doing. If you're selling, if you're a commercial maker, then usually there's some low fee, and that's very dependent on the specific fair. And some some fairs are free fairs, some are paid. So it just really depends on the market. But generally, no, your your your person just exhibiting that thing that. They made is there for free,
 
 [00:22:53] Will: and that's and that's the way it works for for this maker for Bay Area and every like you you if you apply to be a maker and you get in then then it's you have to get there and you have to bring your stuff and you have to make the stuff that you bring but otherwise you you just get a space to show off what what cool thing you've built
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:23:18] Ian: yeah absolutely
 
-[00:23:18] Adam: And the whole crew that puts on the Bay Area Maker Fair I every I've known Sherry now for a decade or more than a decade and her level of calm given what I know is going through her brain
+[00:23:18] Adam: And the whole crew that puts on the Bay Area Maker Faire I every I've known Sherry now for a decade or more than a decade and her level of calm given what I know is going through her brain
 
 [00:23:33] Ian: she's amazing
 
@@ -474,9 +474,9 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:26:51] Norm: Yeah, where can people find out more information if they're listening from the Florida area, Orlando area?
 
-[00:26:56] Ian: Yeah, so you can catch us at makerfairorlando dot com. If you want to look up the Maker Effect Foundation, we're at themakereffect dot org, and then we have a brand new space that we just started there, which is makerfx dot org.
+[00:26:56] Ian: Yeah, so you can catch us at makerfaireorlando dot com. If you want to look up the Maker Effect Foundation, we're at themakereffect dot org, and then we have a brand new space that we just started there, which is makerfx dot org.
 
-[00:27:12] Will: I was going to say I tweeted last night some pictures of of like my adventure at Maker Fair this weekend, and a lot of people responded with, " Oh my, I've got to come to San Francisco next year for this." And I said, " Well, actually, you should go to the Maker Fair website and look because there are dozens or hundreds of these around the world now.
+[00:27:12] Will: I was going to say I tweeted last night some pictures of of like my adventure at Maker Faire this weekend, and a lot of people responded with, " Oh my, I've got to come to San Francisco next year for this." And I said, " Well, actually, you should go to the Maker Faire website and look because there are dozens or hundreds of these around the world now.
 
 [00:27:12] Ian: Hundreds, yeah,
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:27:33] Will: No,
 
-[00:27:33] Ian: that's the sort of humorous part is there's this definition of mini Maker Fair, but it's only mini because you're comparing against Bay Area, which is a hundred plus thousand people,
+[00:27:33] Ian: that's the sort of humorous part is there's this definition of mini Maker Faire, but it's only mini because you're comparing against Bay Area, which is a hundred plus thousand people,
 
 [00:27:44] Adam: and it's not small and it's not small in scope either. You're still also going to see mind blowing constructions that people made one of
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:27:53] Will: Find them. Take your kids.
 
-[00:28:07] Adam: Support your local maker fair. Support your local makers.
+[00:28:07] Adam: Support your local maker faire. Support your local makers.
 
 [00:28:09] Ian: And if you, you know, if you make something amazing, consider taking that thing on vacation with you and take it to another place where you haven't been, because we love seeing people from other parts of the country as well.
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:28:20] Ian: Nice.
 
-[00:28:20] Adam: I, I entered it in because there's a thing for local artwork in the state fair, and that was like my first kind of maker-ish type of fair. Christian Ristow, a friend of mine who's a robot builder, had a big Claw there, and I had some other friends who were in there, and that was just this tiny little room at the California State Fair, whereas you know each of these Maker Fairs is like hundreds of thousands of square feet and amazing people showing the stuff.
+[00:28:20] Adam: I, I entered it in because there's a thing for local artwork in the state fair, and that was like my first kind of maker-ish type of fair. Christian Ristow, a friend of mine who's a robot builder, had a big Claw there, and I had some other friends who were in there, and that was just this tiny little room at the California State Fair, whereas you know each of these Maker Faires is like hundreds of thousands of square feet and amazing people showing the stuff.
 
 [00:29:10] Ian: But when you won that, that that was then fuel, right?
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:29:15] Adam: Totally, I couldn't believe that such a thing could had happened and could like could go on my resume and was this. Yeah, you're right.
 
-[00:29:22] Ian: It was totally cool. And, and so I think you got a blue ribbon yesterday at Maker Fair.
+[00:29:22] Ian: It was totally cool. And, and so I think you got a blue ribbon yesterday at Maker Faire.
 
 [00:29:22] Adam: I did,
 

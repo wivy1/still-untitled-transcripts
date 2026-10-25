@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:06:33] Will: That was amazing.
 
-[00:06:33] Adam: It really. I also really enjoyed how much Scott Sorenson's cinematography. He's the A camera for Savage Builds, and he's been with me for like fourteen years. Scott's camera work so well cut with the real cinematic footage. Well, we we were using mostly primes, non zoom lenses for Savage Builds. Because we wanted that heavy, that that shallow depth of field, that cinematic look,
+[00:06:33] Adam: It really. I also really enjoyed how much Scott Sorensen's cinematography. He's the A camera for Savage Builds, and he's been with me for like fourteen years. Scott's camera work so well cut with the real cinematic footage. Well, we we were using mostly primes, non zoom lenses for Savage Builds. Because we wanted that heavy, that that shallow depth of field, that cinematic look,
 
 [00:06:59] Norm: Especially with the explosion behind you, slow walking.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:10:27] Will: Yeah, if the cops like him, then somebody else hates him.
 
-[00:10:29] Adam: Exactly. Um, but it was it felt lovely to to be able to talk about those forward thinking policies about bringing technology and also equalizing access to maker spaces. I mean, everything that Namcon stands for is what Chattanooga is about, and other cities that I've gotten to spend time in, places like Cleveland and Pittsburgh are also looking towards the same methods to to uplift their populace and and and you know do what we want to do, which is train a generation of digital natives.
+[00:10:29] Adam: Exactly. Um, but it was it felt lovely to to be able to talk about those forward thinking policies about bringing technology and also equalizing access to maker spaces. I mean, everything that NOMCon stands for is what Chattanooga is about, and other cities that I've gotten to spend time in, places like Cleveland and Pittsburgh are also looking towards the same methods to to uplift their populace and and and you know do what we want to do, which is train a generation of digital natives.
 
 [00:10:56] Will: Well, that's it. Provide provide opportunity for people so that everybody doesn't move to San Francisco and New York and and all these other places.
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:12:00] Will: And this spun out of the maker initiatives that happened during the Obama administration.
 
-[00:12:02] Adam: Indeed, it did. Out of the Office of Science and Technology Policy under under the direct tutelage of. Tom Kalil, who is like a lot of my friends' gateway drug to public service, and Namcon is where we can meet up with makerspaces around the country and talk about initiatives and talk about what's working, and also how to build databases and share our knowledge and understanding. Part of this comes out of sort of the 4-H idea of the New Deal realizing that the Dust Bowl happened because farmers were using antiquated techniques for for for for farming, and that if we shared best practices across, it would be a net benefit to everybody. Nation of Makers at its loftiest is absolutely the same kind of goal. So that if you're starting a makerspace, you're not starting from scratch. You have a resource, and you have you have people you can reach out to that can that can assist you in everything from best practices for fundraising, who to go to for money, how to ask for it, and then what kind of tools might your makerspace include, and how might you get word to different communities that it exists.
+[00:12:02] Adam: Indeed, it did. Out of the Office of Science and Technology Policy under under the direct tutelage of. Tom Kalil, who is like a lot of my friends' gateway drug to public service, and NOMCon is where we can meet up with makerspaces around the country and talk about initiatives and talk about what's working, and also how to build databases and share our knowledge and understanding. Part of this comes out of sort of the 4-H idea of the New Deal realizing that the Dust Bowl happened because farmers were using antiquated techniques for for for for farming, and that if we shared best practices across, it would be a net benefit to everybody. Nation of Makers at its loftiest is absolutely the same kind of goal. So that if you're starting a makerspace, you're not starting from scratch. You have a resource, and you have you have people you can reach out to that can that can assist you in everything from best practices for fundraising, who to go to for money, how to ask for it, and then what kind of tools might your makerspace include, and how might you get word to different communities that it exists.
 
 [00:13:10] Norm: It's a lot of organizers, a lot of people who have had experience setting up,
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:21:42] Will: audio. Sound. Yeah.
 
-[00:21:43] Adam: My hearing is bad enough, but I also have yet to find what I really need is a. Do we have this? I tested a one-foot aux cable.
+[00:21:43] Adam: My hearing is bad enough, but I also have yet to find what I really need is a. Do we have this? At Tested, a one-foot aux cable?
 
 [00:21:52] Norm: Probably
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:23:19] Will: yeah. I just jam a microfiber.
 
-[00:23:22] Norm: Before we continue with the conversation, I want to let you know that support for this episode of Still Entitled also comes from the fine folks at Clear. Clear helps you get through security with a tap of your fingers, so you can get to the gate faster and reduce pre-flight stress. Clear replaces the need for physical ID cards, using your eyes and fingertips to get you through security in a tap. Create your account online, and then a Clear ambassador will help you finish the process at the airport, and then you can use Clear immediately. Clear helps you get through security faster in over forty airports and stadiums across the country, with more being added every day. If you're traveling with family, up to three family members can be added at a discounted rate, and kids under 18 are free when traveling with a Clear member. We've all had this experience, me especially. We travel a lot for Tested, and yeah, I tend to make it to the airport at the very last minute, find my parking spot. Oh no, the tram is broken, getting me late to the terminal. Running up to the gate after check-in, and there's a huge line. And I wish I'd signed up for Clear because I could then get right through real fast. Clear is the absolute best way to get through airport security. It works great with pre-check too. And right now, you can get your first two months of Clear for free. Go to Clearme.com/untitled and use the code Untitled. That's C-L-E-A-R-M-E.com/untitled and use the code Untitled for free two months of Clear. Now back to the conversation.
+[00:23:22] Norm: Before we continue with the conversation, I want to let you know that support for this episode of Still Untitled also comes from the fine folks at Clear. Clear helps you get through security with a tap of your fingers, so you can get to the gate faster and reduce pre-flight stress. Clear replaces the need for physical ID cards, using your eyes and fingertips to get you through security in a tap. Create your account online, and then a Clear ambassador will help you finish the process at the airport, and then you can use Clear immediately. Clear helps you get through security faster in over forty airports and stadiums across the country, with more being added every day. If you're traveling with family, up to three family members can be added at a discounted rate, and kids under 18 are free when traveling with a Clear member. We've all had this experience, me especially. We travel a lot for Tested, and yeah, I tend to make it to the airport at the very last minute, find my parking spot. Oh no, the tram is broken, getting me late to the terminal. Running up to the gate after check-in, and there's a huge line. And I wish I'd signed up for Clear because I could then get right through real fast. Clear is the absolute best way to get through airport security. It works great with pre-check too. And right now, you can get your first two months of Clear for free. Go to Clearme.com/untitled and use the code Untitled. That's C-L-E-A-R-M-E.com/untitled and use the code Untitled for free two months of Clear. Now back to the conversation.
 
 [00:24:54] Will: Anyway, John Wick,
 
@@ -808,7 +808,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:29:58] Norm: I think they've acknowledged that.
 
-[00:29:59] Adam: Dread was inspired by the Raid Two,
+[00:29:59] Adam: Dredd was inspired by the Raid Two,
 
 [00:30:00] Norm: the Raid One,
 
@@ -816,13 +816,13 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:30:01] Norm: Okay, it's a one building.
 
-[00:30:01] Adam: Love Dread.
+[00:30:01] Adam: Love Dredd.
 
-[00:30:01] Norm: Floor by floor, the recommendation I wanted to give has nothing to do with martial arts, but has to do with food. On Netflix, John Favreau has a show called The Chef Show.
+[00:30:01] Norm: Floor by floor, the recommendation I wanted to give has nothing to do with martial arts, but has to do with food. On Netflix, Jon Favreau has a show called The Chef Show.
 
 [00:30:01] Adam: Yeah,
 
-[00:30:01] Norm: and I don't know if you've seen this, but John Favreau did a movie called Chef,
+[00:30:01] Norm: and I don't know if you've seen this, but Jon Favreau did a movie called Chef,
 
 [00:30:17] Adam: which is a wonderful little movie.
 
@@ -848,7 +848,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:30:38] Adam: And it's it's lovely for the camaraderie and love of kitchen.
 
-[00:30:52] Norm: So it turns out, born out of the making of that film, was John Favreau not only learning and appreciating fine cooking and it's the world of cooking, but then really getting obsessed with it.
+[00:30:52] Norm: So it turns out, born out of the making of that film, was Jon Favreau not only learning and appreciating fine cooking and it's the world of cooking, but then really getting obsessed with it.
 
 [00:31:04] Adam: Well, so he had a trainer in that film,
 
@@ -856,7 +856,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:31:07] Will: Roy Choi,
 
-[00:31:07] Adam: yeah, Roy Choi. So Roy Choi, there's at at the end of Chef, the movie, you get to see some behind the scenes footage of Roy Choi teaching John Favreau how to cook, and he's specifically teaching him for a sequence that's an amazing sequence where Favreau makes a grilled cheese sandwich for his son on an electric plancha.
+[00:31:07] Adam: yeah, Roy Choi. So Roy Choi, there's at at the end of Chef, the movie, you get to see some behind the scenes footage of Roy Choi teaching Jon Favreau how to cook, and he's specifically teaching him for a sequence that's an amazing sequence where Favreau makes a grilled cheese sandwich for his son on an electric plancha.
 
 [00:31:26] Norm: I'm getting hungry just thinking about it.
 
@@ -866,11 +866,11 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:32:40] Adam: It's all like that.
 
-[00:32:40] Norm: Well, it's revisiting. Like, John Favreau turns out after he made that film, he He started cooking,
+[00:32:40] Norm: Well, it's revisiting. Like, Jon Favreau turns out after he made that film, he He started cooking,
 
 [00:32:40] Adam: yeah,
 
-[00:32:40] Norm: and he built out a great kitchen. It's filmed in his home kitchen, and so remember when we had Tracy come over years ago and make the the omelet.
+[00:32:40] Norm: and he built out a great kitchen. It's filmed in his home kitchen, and so remember when we had Traci come over years ago and make the the omelet.
 
 [00:32:40] Adam: Yeah,
 

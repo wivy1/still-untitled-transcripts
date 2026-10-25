@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:03:21] Will: So the phone thing was a was a was a unanimous decision, right?
 
-[00:03:21] Adam: Nine two zero,
+[00:03:21] Adam: Nine to zero,
 
 [00:03:21] Will: right? There was no dissent. The Aereo thing, there was a dissent. It was a four five split, I think. And the the majority basically said, " Hey, this is just some bullshit you guys came up with to bypass copyright restrictions and not have to pay the networks."
 
@@ -424,9 +424,9 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:12:56] Will: No, that's
 
-[00:12:57] Will: Natasha something.
+[00:12:57] Will: Natascha something.
 
-[00:12:58] Adam: That's Natasha McEl— McElhone. Um, no, Judy Greer plays the wife of Matthew Lillard in The Descendants.
+[00:12:58] Adam: That's Natascha McEl— McElhone. Um, no, Judy Greer plays the wife of Matthew Lillard in The Descendants.
 
 [00:12:58] Will: Oh, okay.
 

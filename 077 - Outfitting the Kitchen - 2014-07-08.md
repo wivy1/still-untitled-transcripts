@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:06:51] Adam: yeah,
 
-[00:06:51] Will: then you should subscribe to to Cooks Illustrated, which is the magazine,
+[00:06:51] Will: then you should subscribe to to Cook's Illustrated, which is the magazine,
 
 [00:07:29] Adam: which is one of the great magazines ever written. Every time it shows up, I curl up in the bath with it for a good hour and a half and think about stuff to cook.
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:09:36] Norm: left side of the page.
 
-[00:09:37] Norm: Going back to tools, we've always said sometimes that in a shop, for example, you can buy really expensive tools and really knife tools, but all the tools do is help you speed up your time, and that technique can, in some cases,
+[00:09:37] Norm: Going back to tools, we've always said sometimes that in a shop, for example, you can buy really expensive tools and really nice tools, but all the tools do is help you speed up your time, and that technique can, in some cases,
 
 [00:09:37] Adam: they actually they help you speed up your time and they aid in precision
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:13:59] Will: because you have to have them the same size.
 
-[00:14:31] Adam: Yeah, they always they have to be the same size, and it is really straightforward. Sweet potatoes, cut them into fry shapes, soak them in water for an hour. That brings the starch out. Dry them off, pat them off, put them in a paper bag, and cornstarch coat them all. Oh, the padding is really key because you don't want the cornstarch to be a goopy mess on them. You want them to be dusted. The removing the starch and adding the cornstarch will actually help you crisp up the outside and to get that bifurcated crispy outside,
+[00:14:31] Adam: Yeah, they always they have to be the same size, and it is really straightforward. Sweet potatoes, cut them into fry shapes, soak them in water for an hour. That brings the starch out. Dry them off, pat them off, put them in a paper bag, and cornstarch coat them all. Oh, the patting is really key because you don't want the cornstarch to be a goopy mess on them. You want them to be dusted. The removing the starch and adding the cornstarch will actually help you crisp up the outside and to get that bifurcated crispy outside,
 
 [00:15:01] Will: mushy,
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:22:16] Adam: is an amazing cleaning product for exactly that kind of thing.
 
-[00:22:20] Will: Tracy told me when we were doing the egg thing that you should season your stick pan,
+[00:22:20] Will: Traci told me when we were doing the egg thing that you should season your stick pan,
 
 [00:22:25] Adam: and we should try this.
 
@@ -726,7 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:29:39] Will: new best recipe—
 
-[00:29:39] Adam: You can't go wrong with America's Test Kitchen back issues of Cooks Illustrated. Um, and I sorry, or
+[00:29:39] Adam: You can't go wrong with America's Test Kitchen back issues of Cook's Illustrated. Um, and I sorry, or
 
 [00:30:03] Will: subscribe to their website. They have a website that you can pay like ten dollars a month and get all the recipes for
 

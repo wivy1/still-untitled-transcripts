@@ -856,7 +856,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:28:36] Adam: You to Pitt.
 
-[00:28:38] Will: Oh, to Pitt.
+[00:28:38] Will: Eau de Pitt.
 
 [00:28:38] Adam: Nice. Well done, Will.
 

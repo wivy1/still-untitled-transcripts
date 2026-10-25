@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:01:10] Adam: Yeah.
 
-[00:01:10] Norm:  When the official license replicas came out, and it's it's great to get tangible in person. What's cool is at Celebration, you know, we talked about Novos releasing their official or announcing their officially licensed Stormtrooper armor. They are also doing a helmet run for the original trilogy helmets, a hundred bucks. 
+[00:01:10] Norm:  When the official license replicas came out, and it's it's great to get tangible in person. What's cool is at Celebration, you know, we talked about Anovos releasing their official or announcing their officially licensed Stormtrooper armor. They are also doing a helmet run for the original trilogy helmets, a hundred bucks. 
 
 [00:01:10] Adam: Really.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:04:16] Adam: early and mid nineties. So, it was when I was working at Colossal Pictures when Jamie, who was younger than than I am now, was running the Colossal Pictures model shop, a lot younger than than I am now, and we built Blendo together.
 
-[00:04:32] Will: He Fawn said in the early days it was a lot of like special effects and robot people, 
+[00:04:32] Will: He Fon said in the early days it was a lot of like special effects and robot people, 
 
 [00:04:32] Adam: absolutely
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:07:44] Adam: The other thing is is that there's a lot that can go wrong. You've got tons of wires that go to the motors, that go between the batteries, that go to your weaponry, and all of those things can get jostled out. And frequently, people are eliminated by their own. Mistakes. I'd seen it happen to friends of mine many, many times, and it's very it's it's it can be awful.
 
-[00:08:03] Norm: It's really interesting that you said that you saw the development of the strategies throughout the first couple of years of awards when people developed things like the flipper, the wedge robots, and then also the spinners. And what was really cool to see in this incarnation of BattleBots is a lot of builders they didn't go back exactly to those same techniques. They wanted to, as engineers, experiment with a new type of grabber robot, a new type of flipper robot. They had more technologies available to them, different power systems. They could develop and iterate their in CAD their designs much quicker. These were built in a very short time frame, so it was really cool. It was like it's a literal test, not only of their robot against other robot, but of just their design principles.
+[00:08:03] Norm: It's really interesting that you said that you saw the development of the strategies throughout the first couple of years of Wars when people developed things like the flipper, the wedge robots, and then also the spinners. And what was really cool to see in this incarnation of BattleBots is a lot of builders they didn't go back exactly to those same techniques. They wanted to, as engineers, experiment with a new type of grabber robot, a new type of flipper robot. They had more technologies available to them, different power systems. They could develop and iterate their in CAD their designs much quicker. These were built in a very short time frame, so it was really cool. It was like it's a literal test, not only of their robot against other robot, but of just their design principles.
 
 [00:08:44] Will: The thing you said is super key, though. Like in the twelve years since BattleBots was on TV, last we've seen lots of smaller scale competitions, nothing quite on this level. 
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:15:50] Will: Larry Birded that.
 
-[00:15:51] Adam: Why would I have any? James Randi tells a story about some gentlemen playing darts one day, and he walked past them and said, " Hey, Randy, why don't you throw a dart?" He said, " I don't play darts." And they handed him a dart, and he threw a bullseye, and he said. I will never throw another dart for the rest of my life because why would I? That's the way I feel about robot combat. Emeritus is how I'd like to be thought of.
+[00:15:51] Adam: Why would I have any? James Randi tells a story about some gentlemen playing darts one day, and he walked past them and said, " Hey, Randi, why don't you throw a dart?" He said, " I don't play darts." And they handed him a dart, and he threw a bullseye, and he said. I will never throw another dart for the rest of my life because why would I? That's the way I feel about robot combat. Emeritus is how I'd like to be thought of.
 
 [00:16:16] Will: The the grandfather of the sport. Okay, or maybe Jamie's the grandfather of the sport. Yeah.
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:20:40] Adam: a supporting player who you've seen in many movies who never doesn't steal the scenes. He’s in.
 
-[00:20:53] Norm: a guy Richie Staple. Yeah,
+[00:20:53] Norm: a Guy Ritchie Staple. Yeah,
 
 [00:20:54] Adam: yeah, he's a wonderful actor, and the casting is is great, and the action scenes are done in a sort of I would describe them as a. Almost more sophisticated, Guy Ritchie,
 
@@ -586,7 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:27:38] Will: Yeah,
 
-[00:27:38] Norm:  in in the comic actually, because this is it's in the comic, uh. The villain is supposed to be a, you know, billionaire young guy who actually doesn't just in his arc that he saves people in. He saves his favorite celebrities as opposed to saving the world's smartest. It's a very like pop culture twist. 
+[00:27:38] Norm:  in in the comic actually, because this is it's in the comic, uh. The villain is supposed to be a, you know, billionaire young guy who actually doesn't just in his ark that he saves people in. He saves his favorite celebrities as opposed to saving the world's smartest. It's a very like pop culture twist. 
 
 [00:27:38] Adam: Right, right, right.
 

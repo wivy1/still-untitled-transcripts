@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:05:50] Will: need to ask.
 
-[00:05:51] Adam: This is one in which no. Spoiler like literally this is like seven eves go in cold get to the drop and when that drop hits you it's gonna hit you like a ton of bricks
+[00:05:51] Adam: This is one in which no. Spoiler like literally this is like Seveneves go in cold get to the drop and when that drop hits you it's gonna hit you like a ton of bricks
 
 [00:06:00] Will: So, so, okay, so speaking of unexplained plasma phenomena, did you see the scholarly...
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:08:01] Adam: Oh, nice.
 
-[00:08:01] Kishore: So there's a new paper out because you can put a grape in, and the ideal way to put the grape in the microwave is you have it, but you leave a little skin attaching the two halves of the grape, and then you just fire it up, and you'll see slowly, and usually about 15 to 20 seconds, you'll see a plasma arc from one half of the grape to the other side.
+[00:08:01] Kishore: So there's a new paper out because you can put a grape in, and the ideal way to put the grape in the microwave is you halve it, but you leave a little skin attaching the two halves of the grape, and then you just fire it up, and you'll see slowly, and usually about 15 to 20 seconds, you'll see a plasma arc from one half of the grape to the other side.
 
 [00:08:24] Will: Yeah, and and so
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:08:30] Kishore: and then you'll try to eat the grape, and I'll tell you that's a mistake.
 
-[00:08:35] Will: It's my hard reaction, not good with grapes. Okay, good to know. So, so the interesting. So, a I I had a real arc with this yesterday because I went from not knowing that this was a. I went from not knowing that this was a phenomenon
+[00:08:35] Will: It's Maillard reaction, not good with grapes. Okay, good to know. So, so the interesting. So, a I I had a real arc with this yesterday because I went from not knowing that this was a phenomenon
 
 [00:08:49] Adam: . It's all dad. Yeah,
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:09:59] Adam: At any rate, let's watching them take it in and get that they get it and enjoy the humor of the language play. So much fun! So I, I totally see where you are going with this.
 
-[00:10:10] Will: Yeah, like you have a perfect audience. They laugh at everything, and as a result, your your sense of what is truly funny and what is not truly funny is is it's a dull knife. It goes from being very sharp and and rapeyer like when you are in your mid thirties to, uh, well,
+[00:10:10] Will: Yeah, like you have a perfect audience. They laugh at everything, and as a result, your your sense of what is truly funny and what is not truly funny is is it's a dull knife. It goes from being very sharp and and rapier like when you are in your mid thirties to, uh, well,
 
 [00:10:24] Kishore: you know, it's gone too far when you go to your wife. You are like, I think I should try stand up.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:11:11] Will: Oh, no, it's yes and
 
-[00:11:12] Adam: okay. Largo is one of the great places to see comedy or music in the world, and it's an amazing place. And people like Patton Oswalt and Aimee Mann and Tig Notaro and that comedy troupe in LA, along with Thrilling Adventure Hour and folks like Wil Wheaton and our friends, it is a deeply wonderful place to go perform. But that's not. I want to tell you, I don't think that that's stand up because that's a deeply friendly, loving crowd. Stand up is going up and doing fifteen minutes at Cobs, where it's an aggressive stand up audience and people who've gone through that meat grinder. I have nothing but all respect for them. So when I say I've tried standup, I told some joke. I wrote jokes that I told in a friendly atmosphere, and they went over really well, and that was great. But I don't, I don't like to the standup comedians out there and my friends who do it. I recognize that I have just glimpsed a little peek from the mountaintop.
+[00:11:12] Adam: okay. Largo is one of the great places to see comedy or music in the world, and it's an amazing place. And people like Patton Oswalt and Aimee Mann and Tig Notaro and that comedy troupe in LA, along with Thrilling Adventure Hour and folks like Wil Wheaton and our friends, it is a deeply wonderful place to go perform. But that's not. I want to tell you, I don't think that that's stand up because that's a deeply friendly, loving crowd. Stand up is going up and doing fifteen minutes at Cobb's, where it's an aggressive stand up audience and people who've gone through that meat grinder. I have nothing but all respect for them. So when I say I've tried standup, I told some joke. I wrote jokes that I told in a friendly atmosphere, and they went over really well, and that was great. But I don't, I don't like to the standup comedians out there and my friends who do it. I recognize that I have just glimpsed a little peek from the mountaintop.
 
 [00:12:12] Will: The the the the crowd at the Chuckle Hut down at the Holiday Inn at Exit Twenty Seven is not quite as friendly on a Tuesday night.
 
@@ -808,11 +808,11 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:36:47] Will: Yeah.
 
-[00:36:47] Adam: And this came in the mail the other day. Um, we're not going to show this to camera, but I want each of you to just take a look at Wookie Rotica. I posted a picture of this on Tested.
+[00:36:47] Adam: And this came in the mail the other day. Um, we're not going to show this to camera, but I want each of you to just take a look at Wookieerotica. I posted a picture of this on Tested.
 
 [00:37:00] Will: You were going to show it to camera.
 
-[00:37:01] Adam: Wookie Rotica.
+[00:37:01] Adam: Wookieerotica.
 
 [00:37:02] Will: Goodness!
 
@@ -824,7 +824,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:37:23] Adam: It's ab it's it's abidingly weird.
 
-[00:37:26] Will: Wookie Rotica.
+[00:37:26] Will: Wookieerotica.
 
 [00:37:26] Adam: I just thought you guys. I wanted. I wanted you guys to see that before we wrap up.
 

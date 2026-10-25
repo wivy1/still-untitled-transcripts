@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=nHAUfyQf7jU
 
 [00:00:51] Will: Okay, very good. So, Tom, if you don't know Tom, Tom is a sculptor. He has made amazing art, and you you kind of I I shall let you describe because I always feel like a jerk describing other people's work.
 
-[00:01:06] Tom: So so I have a, my name is Tom Sachs I'm a sculptor that's my priority is always sculpture but I investigate other cultures and amplify them to make them my own so I have my own space program and in 2007 we landed on the moon at Gagosian Gallery in Beverly Hills our two astronauts landed on the moon Jack hammered up the Richard Meyer floor brought a sample back and tested it and found it we did petrographic analysis and found that in fact our moon rocks were made of concrete in 2012 we went to Mars at the Park Avenue Armory and we found life
+[00:01:06] Tom: So so I have a, my name is Tom Sachs I'm a sculptor that's my priority is always sculpture but I investigate other cultures and amplify them to make them my own so I have my own space program and in 2007 we landed on the moon at Gagosian Gallery in Beverly Hills our two astronauts landed on the moon Jack hammered up the Richard Meier floor brought a sample back and tested it and found it we did petrographic analysis and found that in fact our moon rocks were made of concrete in 2012 we went to Mars at the Park Avenue Armory and we found life
 
 [00:01:51] Will: I think I think you need to I think
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=nHAUfyQf7jU
 
 [00:16:03] Will: So, you are saying Adderall is is our closest equivalent to Sapho?
 
-[00:16:07] Tom: It's it is, and and that's that movie, not the book, is about drug culture. And he's making comparison between drugs that we're addicted to, like heroin and cocaine. When there was a lot of cocaine on that set, if you read the stories, and the mind altering substance of the Spice Melange that helps people see visions and gain strength, and also the worms, the the the worms' mind melange on Arrakis, and then the the navigating guilds take the melange to navigate to like fold space
+[00:16:07] Tom: It's it is, and and that's that movie, not the book, is about drug culture. And he's making comparison between drugs that we're addicted to, like heroin and cocaine. When there was a lot of cocaine on that set, if you read the stories, and the mind altering substance of the Spice Melange that helps people see visions and gain strength, and also the worms, the the the worms mine melange on Arrakis, and then the the navigating guilds take the melange to navigate to like fold space
 
 [00:16:52] Will: hyperspace.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=nHAUfyQf7jU
 
 [00:20:11] Will: right?
 
-[00:20:11] Tom: Or this one is out of Cuban fiber,
+[00:20:11] Tom: Or this one is out of Cuben fiber,
 
 [00:20:15] Will: and it appeals to me in the same way that
 

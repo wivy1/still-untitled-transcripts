@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:16:13] Will: that's great.
 
-[00:16:13] Adam: comedy web series, which is also hilarious. And obvious child stars her and also her best friend from Besties by Besties, as a young female comedian who has a breakup, a one night stand, and eventually an abortion. That's the rough outline of the plot, but the the the what happens in it just feels completely genuine. Everyone in this movie is really great. You know, there's the there's movies that fail because there's a couple that's got a meet cute, and you can tell the script writers thinking this is a cute meet, but you don't buy any of the dialogue in this movie. You buy every last bit of it. Every time someone is funny in the movie, you are laughing out loud as the audience and loving them.
+[00:16:13] Adam: comedy web series, which is also hilarious. And obvious child stars her and also her best friend from Besties by Besties, as a young female comedian who has a breakup, a one night stand, and eventually an abortion. That's the rough outline of the plot, but the the the what happens in it just feels completely genuine. Everyone in this movie is really great. You know, there's the there's movies that fail because there's a couple that's got a meet cute, and you can tell the script writers thinking this is a cute meet, but you don't buy any of the dialogue. In this movie, you buy every last bit of it. Every time someone is funny in the movie, you are laughing out loud as the audience and loving them.
 
 [00:16:59] Will: We we went through the first five episodes probably of the new Aziz Ansari show.
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:25:51] Will: Wow, that seems like it would be really smoky and burning.
 
-[00:25:53] Adam: That's the top, yeah. It's the top end of its of its ability, and yeah, it gets really smoky. I actually would need to put in a full under. Carriage suction plate in order to really be able to do that because otherwise you get smoke on the lens.
+[00:25:53] Adam: That's the top, yeah. It's the top end of its of its ability, and yeah, it gets really smoky. I actually would need to put in a full undercarriage suction plate in order to really be able to do that because otherwise you get smoke on the lens.
 
 [00:26:08] Will: One of the coolest machines we've ever seen at any shop we went to was over in the Mission, a couple of blocks from here, where they have a laser cutter that's big enough you can feed a sheet of four by eight plywood, four foot by eight foot plywood, into. And they were making like all of their furniture in the office was made on that laser cutter.
 

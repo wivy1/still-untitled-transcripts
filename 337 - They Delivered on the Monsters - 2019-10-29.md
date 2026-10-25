@@ -756,7 +756,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:36:12] Will: The Chabon is definitely my one of my favorites.
 
-[00:36:15] Adam: I, I actually just bought, uh, because I kept giving it away. I just bought another copy of Yiddish Policeman's Union because I want to read it again. I want to go back to Sitka. I want to talk about the Verboverd Mafia.
+[00:36:15] Adam: I, I actually just bought, uh, because I kept giving it away. I just bought another copy of Yiddish Policeman's Union because I want to read it again. I want to go back to Sitka. I want to talk about the Verbover Mafia.
 
 [00:36:26] Will: Have you have you read, uh, China Mieville? Mieville,
 
@@ -802,7 +802,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:37:29] Norm: Netflix.
 
-[00:37:30] Adam: Abstract is a fantastic show. Um. My friend Scott Dadich, former editor in chief of Wired magazine, uh, of Jeffrey Daitch is one of the executive producers. Is a beautiful deep dive into the creative process. That is my doorbell. Um, it is a beautiful deep dive into the creative process of each of the creators, and each episode is different depending on who it's covering. So it is very cinematic, and
+[00:37:30] Adam: Abstract is a fantastic show. Um. My friend Scott Dadich, former editor in chief of Wired magazine, uh, of Jeffrey Dadich is one of the executive producers. Is a beautiful deep dive into the creative process. That is my doorbell. Um, it is a beautiful deep dive into the creative process of each of the creators, and each episode is different depending on who it's covering. So it is very cinematic, and
 
 [00:37:57] Norm: the directors of each episode put their own.
 
@@ -848,9 +848,9 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:39:31] Will: around the country.
 
-[00:39:34] Norm: That's the other one. That's Knives Out's the Ryan Johnson movie. I really want to see that.
+[00:39:34] Norm: That's the other one. That's Knives Out's the Rian Johnson movie. I really want to see that.
 
-[00:39:38] Adam: I'm going to try Ryan. Ryan, we're going to try and get you on the podcast while you're here. He's coming up for Wire 25.
+[00:39:38] Adam: I'm going to try Rian. Rian, we're going to try and get you on the podcast while you're here. He's coming up for WIRED25.
 
 [00:39:44] Norm: That's right.
 

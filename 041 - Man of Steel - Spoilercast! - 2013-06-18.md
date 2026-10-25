@@ -1116,7 +1116,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:31:10] Will: Oh, that's fantastic.
 
-[00:31:10] Adam: Um, and you don't get a beat on him, which is kind of funny because sometimes in an office there is someone there who you just can't get a beat on, but they're in a position of responsibility and they kind of do what they do, but they're also weird. He's he's an enigma, and I love watching him go. So I'm really happy to see these two actors that I would have thought long long retired. They're just not doing stuff anymore. Come back and
+[00:31:10] Adam: Um, and you don't get a bead on him, which is kind of funny because sometimes in an office there is someone there who you just can't get a bead on, but they're in a position of responsibility and they kind of do what they do, but they're also weird. He's he's an enigma, and I love watching him go. So I'm really happy to see these two actors that I would have thought long long retired. They're just not doing stuff anymore. Come back and
 
 [00:31:32] Norm: Robocop still got it.
 

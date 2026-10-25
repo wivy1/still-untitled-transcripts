@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:01:04] Will: Is it a twin? But they broke it back open.
 
-[00:01:06] Norm: No, no. It used to be called just the Empire Theater. San Francisco has had. If you look at all the photos, okay, tons of tons of like classic, you know, Balboa Theater, Roxy Theater, Empire, and then now a lot of them are you know owned by bigger companies. This one, I believe, is a oh my god, it's a small like chain theater chain.
+[00:01:06] Norm: No, no. It used to be called just the Empire Theater. San Francisco has had. If you look at all the photos, okay, tons of tons of like classic, you know, Balboa Theater, Roxie Theater, Empire, and then now a lot of them are you know owned by bigger companies. This one, I believe, is a oh my god, it's a small like chain theater chain.
 
 [00:01:25] Will: It's not like Cinemark or something, is it?
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:14:20] Adam: I mean, they didn't do a full true detective on her, which is the worst haircut that's ever been perpetrated on an actress in history. But sorry, go ahead.
 
-[00:14:27] Norm: amazing era-appropriate pants is what is what my fancy says.
+[00:14:27] Norm: amazing era-appropriate pants is what is what my fiancée says.
 
 [00:14:30] Will: Really high waists.
 

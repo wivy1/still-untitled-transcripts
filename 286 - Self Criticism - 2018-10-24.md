@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:00:50] Norm: But this gives you the sense of that mental state you're in that people never get to see. They think that making a TV show is all fun and games, showing up and you know blowing things up, but it's it's a lot of if it just lives in your head.
 
-[00:01:03] Adam: Well, and And there's a respect for what it's there's trying to be respectful of what it wants to be. We deal with this on Tested all the time, right? Gunter and Joey are always cutting stuff, and there's no formula for cutting a Tested video. Each video kind of lives on its own, and you kind of have to figure out how it wants to be cut, right? You take all this material, and a TV show is no like this is no different. You know, we have ideas for things I'd like to do, thing people I want to play with, and parameters under which we can want to make that narratively interesting. And then the real trick is, okay, so those are rough frameworks. Let's take some solid ideas and start gaming them out into how they would beat out as to a six act normal television structure. And even then, you know, you'll shoot everything, but you're not sure how it's going to feel until you're in the cutting room. So it's always about like trying to trying to be awake to what the project itself wants.
+[00:01:03] Adam: Well, and And there's a respect for what it's there's trying to be respectful of what it wants to be. We deal with this on Tested all the time, right? Gunther and Joey are always cutting stuff, and there's no formula for cutting a Tested video. Each video kind of lives on its own, and you kind of have to figure out how it wants to be cut, right? You take all this material, and a TV show is no like this is no different. You know, we have ideas for things I'd like to do, thing people I want to play with, and parameters under which we can want to make that narratively interesting. And then the real trick is, okay, so those are rough frameworks. Let's take some solid ideas and start gaming them out into how they would beat out as to a six act normal television structure. And even then, you know, you'll shoot everything, but you're not sure how it's going to feel until you're in the cutting room. So it's always about like trying to trying to be awake to what the project itself wants.
 
 [00:02:01] Will: I mean, but it always starts in the room with a few people sitting around talking about what the idea is for
 
@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:02:07] Will: Yeah, and and then and then I don't. I assume you on real television you don't do this, but one of the things that always blew me away about the way Joey works is that when he's shooting, he's cutting he's cutting that video in his head as he's shooting.
 
-[00:02:18] Adam: Well, Joey, so Joey, like, just like the lead MythBusters cameraman Scott Sorenson, who's a friend of ours and has worked with us on several things,
+[00:02:18] Adam: Well, Joey, so Joey, like, just like the lead MythBusters cameraman Scott Sorensen, who's a friend of ours and has worked with us on several things,
 
 [00:02:27] Will: love Scott.
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:06:56] Adam: along everything, everything about it sucked.
 
-[00:06:58] Norm: And this is a realization that you came to. Not in the day, and you actually—I think—you answered a question about this at New York Comic Con in the Q and A. It was an aha moment you had, like middle of the night, very similar to when you did the Exploratorium project for your Astron Beast.
+[00:06:58] Norm: And this is a realization that you came to. Not in the day, and you actually—I think—you answered a question about this at New York Comic Con in the Q and A. It was an aha moment you had, like middle of the night, very similar to when you did the Exploratorium project for your Strandbeest.
 
 [00:07:12] Adam: Yeah, and and frankly, I was pissed. I thought I I did I did some pre work on this one day build so that we could get it done in a day because I really wanted to.
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:16:18] Norm: Before we continue with this week's conversation, I want to let you know who made this episode possible, and that's NordVPN. NordVPN is one of the most trusted online security solutions used by over hundreds of thousands of internet users worldwide. NordVPN's Chrome browser is lightweight and user-friendly from the first click, and secures your browsing in seconds. It has thousands of servers in over sixty-one countries. You can even use it in China because it bypasses the Great China Firewall, and in countries in the Middle East, get up to six simultaneous connections and unlimited bandwidth, which is really important. And with a risk-free thirty-day money-back guarantee, there's no reason to put this off. Over the past couple years, we've had the privilege of traveling all around the world for Tested to places like New Zealand and China, and even friendlier countries. And using a VPN even in those countries is useful because it localizes you and lets you check things like what's trending on Twitter at home or use Netflix abroad and all sorts of online services. I don't travel without using a VPN, it makes me feel just that much more secure. Start protecting your internet experience today at NordVPN.com/tested and use the code TESTED to get 66% off a two-year plan. That's about 3.99 per month. Or text TESTED to 900900. Once again, that's NordVPN.com/tested and the offer code is TESTED to get 66% off a two-year plan. Protect yourself online today with NordVPN. And back to the conversation. There's no way to pivot to talk about another topic, but Will, before podcast started, you told me you did something fun this past weekend. I want to hear about. You went to a concert.
 
-[00:18:01] Will: Oh yeah, so some mutual friends of ours, Palette Swap Ninja, which is Dan Amric and Judd. I don't remember what what Judd's last name is, but they they do a Weird Al style parody band that does a lot of Different parodies of video game stuff, mostly is where they started. But see, last year for the 40th anniversary of Star Wars and the 50th anniversary of Sgt. Pepper, they released an album that kind of went big on the internet called " Princess Leia's Stolen Death Star Plans."
+[00:18:01] Will: Oh yeah, so some mutual friends of ours, Palette Swap Ninja, which is Dan Amrich and Judd. I don't remember what what Jude's last name is, but they they do a Weird Al style parody band that does a lot of Different parodies of video game stuff, mostly is where they started. But see, last year for the 40th anniversary of Star Wars and the 50th anniversary of Sgt. Pepper, they released an album that kind of went big on the internet called " Princess Leia's Stolen Death Star Plans."
 
 [00:18:32] Norm: It was a song by song riff on the Beatles remake of the Beatles album with original lyrics by them telling the story of Star Wars.
 
@@ -262,11 +262,11 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:21:31] Adam: Oh, that's cool.
 
-[00:21:32] Will: People were in like Dan Dan and Kat had made costumes. Kat is Katrin Auch is Dan's wife, and she did costume design for a lot of the performers, including like a Chewbacca vest for the bassist, and like it was it was very good. But the orchestra came in costume, like the the harmony singers were in costume, and it was all super super well done, and and you know fun to see the range of and and a lot of the attendees were in costume. There were a bunch of there were a bunch of like let's say preteen Rays
+[00:21:32] Will: People were in like Dan Dan and Kat had made costumes. Kat is Katrin Auch is Dan's wife, and she did costume design for a lot of the performers, including like a Chewbacca vest for the bassist, and like it was it was very good. But the orchestra came in costume, like the the harmony singers were in costume, and it was all super super well done, and and you know fun to see the range of and and a lot of the attendees were in costume. There were a bunch of there were a bunch of like let's say preteen Reys
 
 [00:21:32] Norm: That's awesome.
 
-[00:21:32] Will: and some Princess Leas, and it was it was really good. It was a good time.
+[00:21:32] Will: and some Princess Leias, and it was it was really good. It was a good time.
 
 [00:22:12] Norm: We're very lucky to live in the Bay Area, where there are. I think SF Symphony does a regular event where they do the full movie, and a live orchestra plays the score. So they have a version of the movie without the score, and the orchestra plays the music. And I think they did Batman last past year, which was every song but the Prince song. The Prince song was the only one where it was on the soundtrack.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:22:38] Norm: Uh, with the the Joker,
 
-[00:22:40] Will: the bad dance.
+[00:22:40] Will: the Batdance.
 
 [00:22:40] Norm: Yes. Okay. And I think they're doing Nightmare Before Christmas and Jurassic Park coming up. But
 
@@ -298,9 +298,9 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:23:07] Adam: Is that the one you blow into the piano?
 
-[00:23:13] Will: I think the melodic is the one with the key keys that you blow into. Yeah, I couldn't. I honestly couldn't tell you.
+[00:23:13] Will: I think the melodica is the one with the key keys that you blow into. Yeah, I couldn't. I honestly couldn't tell you.
 
-[00:23:18] Adam: Mike Furman is amazing at that.
+[00:23:18] Adam: Mike Phirman is amazing at that.
 
 [00:23:20] Will: It sounds like a terrible recorder. Yes, is all I can think.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:23:41] Will: Yeah.
 
-[00:23:42] Norm: I have a recommendation. If you have AMC Network, there is a six-part series airing right now that EI Roth produced. AMC is doing this cool thing where they have they're producing these six-part documentary series on different topics. The one that's airing right now is a horror theme. It's called EI Roth's History of Horror. I want to believe. And earlier this year, there was James Cameron was did one, a story of science fiction, which a lot of people that we know were were guests on there. Anneli Newitz was on, which was really cool to see, like James Cameron talking with like George Lucas about their movies, talking to each other about their movies.
+[00:23:42] Norm: I have a recommendation. If you have AMC Network, there is a six-part series airing right now that Eli Roth produced. AMC is doing this cool thing where they have they're producing these six-part documentary series on different topics. The one that's airing right now is a horror theme. It's called Eli Roth's History of Horror. I want to believe. And earlier this year, there was James Cameron was did one, a story of science fiction, which a lot of people that we know were were guests on there. Annalee Newitz was on, which was really cool to see, like James Cameron talking with like George Lucas about their movies, talking to each other about their movies.
 
 [00:24:07] Will: Oh man, really?
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:28:55] Will: No, I am not sure. You should tell everybody.
 
-[00:28:56] Adam: Mark Evan Jackson, who's who who plays Sean on The Good Place, is a friend of mine, and he was telling me that they take his lines, they feed it into an online translator into another language, and then feed it into another online translator, bring it back to English, and that's how they give Derek, Derek,
+[00:28:56] Adam: Marc Evan Jackson, who's who who plays Shawn on The Good Place, is a friend of mine, and he was telling me that they take his lines, they feed it into an online translator into another language, and then feed it into another online translator, bring it back to English, and that's how they give Derek, Derek,
 
 [00:29:13] Will: Derek, I think.
 
@@ -546,15 +546,15 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:32:33] Norm: Robert Durst got it. That's right. That's it. Where he like basically confesses at the very end.
 
-[00:32:36] Adam: And and I felt like the filmmakers put themselves into that more than I am comfortable with. But I love when Errol Morris is interviewing someone using the Intertron. Do you know about this?
+[00:32:36] Adam: And and I felt like the filmmakers put themselves into that more than I am comfortable with. But I love when Errol Morris is interviewing someone using the Interrotron. Do you know about this?
 
 [00:32:47] Will: No.
 
-[00:32:47] Norm: What's Intertron?
+[00:32:47] Norm: What's Interrotron?
 
 [00:32:49] Will: Sounds terrifying.
 
-[00:32:49] Adam: Oh no, no, no. Okay, so Errol Morris is up there with Werner Herzog as, like, to me, one of the great documentary filmmakers in history. And he, if you'll notice, his documentaries, his subjects are always staring right down the camera. And what Errol does is he has built a box called the Intertron that is that uses a two-way mirror in front of the camera lens to project his face there. So he is the interviewer talking to his subject, and they are staring him in the eyes. Right down the camera barrel, and every now and then you'll hear Errol Morris ask a question. Did that upset you? You'll hear from the from the background because he's yelling all the way around,
+[00:32:49] Adam: Oh no, no, no. Okay, so Errol Morris is up there with Werner Herzog as, like, to me, one of the great documentary filmmakers in history. And he, if you'll notice, his documentaries, his subjects are always staring right down the camera. And what Errol does is he has built a box called the Interrotron that is that uses a two-way mirror in front of the camera lens to project his face there. So he is the interviewer talking to his subject, and they are staring him in the eyes. Right down the camera barrel, and every now and then you'll hear Errol Morris ask a question. Did that upset you? You'll hear from the from the background because he's yelling all the way around,
 
 [00:32:49] Will: Yeah, yeah.
 
@@ -594,11 +594,11 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:34:16] Will: Have you seen the other? Have either of you seen the other stars? Stars are born.
 
-[00:34:19] Adam: I have only seen the Streisand Christophererson one. I haven't seen either of the other two: the James Mason one or the. There's the James Mason one, and then there's another one which I can't remember.
+[00:34:19] Adam: I have only seen the Streisand Kristofferson one. I haven't seen either of the other two: the James Mason one or the. There's the James Mason one, and then there's another one which I can't remember.
 
 [00:34:30] Norm: Judy Garland.
 
-[00:34:32] Adam: Judy Garland and James Mason, and then there's one less than ten years before that. Okay. Um. But I'm a fan of the Chris Christophererson Barbara Streisand one.
+[00:34:32] Adam: Judy Garland and James Mason, and then there's one less than ten years before that. Okay. Um. But I'm a fan of the Kris Kristofferson Barbra Streisand one.
 
 [00:34:42] Will: I saw that one probably 20 years ago. I haven't seen it since then. But
 
@@ -654,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:35:43] Will: Two ships passing in the night.
 
-[00:35:44] Adam: Chris DeBono reached out and said, " Hey, I'm going to go see Scalzi read. "
+[00:35:44] Adam: Chris DiBona reached out and said, " Hey, I'm going to go see Scalzi read. "
 
 [00:35:47] Norm: Ah. There you go. And if you are doing something fun for Halloween or have a costume you are in the process of making,
 
@@ -730,7 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:36:57] Adam: What else is going on?
 
-[00:36:59] Norm: Yeah, we have a video out this week featuring our friend Daryl Maloney. He will Broken Nerd.
+[00:36:59] Norm: Yeah, we have a video out this week featuring our friend Darrell Maloney. He will Broken Nerd.
 
 [00:37:09] Adam: Ah.
 
@@ -738,7 +738,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:36:59] Adam: Excellent.
 
-[00:36:59] Norm: With Melissa Ng and and also Ruby Takie who did a Metal Gear Online helmet.
+[00:36:59] Norm: With Melissa Ng and and also Ruby Taki who did a Metal Gear Online helmet.
 
 [00:37:42] Adam: Amazing.
 

@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:05:42] Will: that seems exciting, and maybe so. Like like like Snoopy with the helmet and the goggles and the whole thing.
 
-[00:05:48] Adam: Pretty much exactly. They had a soft soft walk camel. We didn't fly in that one. We we flew around the the wilds of of New Zealand, and in one of the airplanes, Peter has an airplane factory that makes
+[00:05:48] Adam: Pretty much exactly. They had a soft Sopwith Camel. We didn't fly in that one. We we flew around the the wilds of of New Zealand, and in one of the airplanes, Peter has an airplane factory that makes
 
 [00:05:48] Will: Of course, yeah.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:06:29] Norm: No, no.
 
-[00:06:30] Adam: Um. He had a London double-decker bus, a you know pre-war London double-decker bus that he had converted into a military vehicle, as the British did in World War One. And he would drive everyone who wasn't flying out to the runway for each flight as an observation. Peterwood.
+[00:06:30] Adam: Um. He had a London double-decker bus, a you know pre-war London double-decker bus that he had converted into a military vehicle, as the British did in World War One. And he would drive everyone who wasn't flying out to the runway for each flight as an observation. Peter would.
 
 [00:06:47] Norm: He would.
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:20:28] Adam: Look, maybe we maybe we end up doing something together in the future. I don't know. We just basically got together to have dinner and and start a start a friendship.
 
-[00:20:36] Will: Did you Did you build a fire yourself? Did you nap some flint? Did you
+[00:20:36] Will: Did you Did you build a fire yourself? Did you knap some flint? Did you
 
 [00:20:41] Adam: Hey, I'm gonna go out and have a smoke.
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:20:55] Unknown speaker: Nice.
 
-[00:20:55] Will: Um, I saw a bunch of friends have tested Dan Shapiro and a bunch of other folks that that you guys all know. I learned how to. I I got to so Ord Camp is a um, it's a foo camp alike. So it's like a build your own conference. They just bring a bunch of interesting people and give everybody post it notes at the start of the at the start of the conference and tell you tell people to either. Write something that they're happy to teach people, or write something they'd like to learn about, and then you stick it on a big board, and it kind of self organizes into a schedule.
+[00:20:55] Will: Um, I saw a bunch of friends of Tested Dan Shapiro and a bunch of other folks that that you guys all know. I learned how to. I I got to so Ord Camp is a um, it's a foo camp alike. So it's like a build your own conference. They just bring a bunch of interesting people and give everybody post it notes at the start of the at the start of the conference and tell you tell people to either. Write something that they're happy to teach people, or write something they'd like to learn about, and then you stick it on a big board, and it kind of self organizes into a schedule.
 
 [00:22:29] Adam: That sounds really cool.
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:24:49] Will: Well, one of the things so there was a Q and A along with the along with the session.
 
-[00:24:49] Will: Like like basically people are asking questions. We talk about like Carol Spinney and how Carol Spinney does Big Bird. Yeah. And what like that that he's still doing TV puppetry because he's looking at a monitor down on his chest, which is incredible.
+[00:24:49] Will: Like like basically people are asking questions. We talk about like Caroll Spinney and how Caroll Spinney does Big Bird. Yeah. And what like that that he's still doing TV puppetry because he's looking at a monitor down on his chest, which is incredible.
 
 [00:25:06] Adam: Yeah.
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:25:33] Adam: Fascinating.
 
-[00:25:33] Will: Yeah, it was it was super good. Ord camp. If you have a chance to go to a food camp, a food food camp like thing, highly recommend it. If you think it sounds cool, start one yourself. Like Ord camp had 400 people, 450 people. They're basically as big as they can get for the space they have now. I think, and it started as 35 people or 50 people ten years ago. Now, so
+[00:25:33] Will: Yeah, it was it was super good. Ord camp. If you have a chance to go to a Foo Camp, a Foo Foo Camp like thing, highly recommend it. If you think it sounds cool, start one yourself. Like Ord camp had 400 people, 450 people. They're basically as big as they can get for the space they have now. I think, and it started as 35 people or 50 people ten years ago. Now, so
 
 [00:25:54] Adam: I'm so I so want to go. I've never I've never been able to make the time work. We were in New Zealand.
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:28:49] Adam: It's fantastic. Excellent. Anything on the site?
 
-[00:28:53] Norm: Yes, we actually have some some stuff for subscribers. Pushing out a couple stuff that we filmed at the end of last year. Sean and Jeremy did a really cool animatronics build with a kit they bought at Monster Palooza, and with our new friend Kayte Sabicer painted that in in the shop here. Actually, so that's up on the site right now.
+[00:28:53] Norm: Yes, we actually have some some stuff for subscribers. Pushing out a couple stuff that we filmed at the end of last year. Sean and Jeremy did a really cool animatronics build with a kit they bought at Monsterpalooza, and with our new friend Kayte Sabicer painted that in in the shop here. Actually, so that's up on the site right now.
 
 [00:28:53] Adam: Woo hoo!
 

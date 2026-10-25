@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:10:36] Will: That was just the opening bit.
 
-[00:10:40] Adam: I am, by the way, wearing my one of my favorite possessions, which is my steel ringwraith gauntlet made by my friend Scott Maple's company, Crop Circle, in Ontario.
+[00:10:40] Adam: I am, by the way, wearing my one of my favorite possessions, which is my steel ringwraith gauntlet made by my friend Scott Maple's company, Kropserkel, in Ontario.
 
 [00:10:50] Will: I didn't know those were steel. They don't. They don't feel heavy enough to be steel.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:28:30] Will: You can't.
 
-[00:28:30] Adam: It’s not like you’re putting them up against the mucus membrane. Wait a minute.
+[00:28:30] Adam: It’s not like you’re putting them up against the mucous membrane. Wait a minute.
 
 [00:28:33] Will: Oh, PPA's, but they don't make the good super sealy contact cases anymore. They're just the crappy snap on ones that always leak.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:28:44] Adam: There you go. I bet there is a whole eBay collector’s group for that.
 
-[00:28:46] Will:  Great idea. Man, I got some sort of novel form of pink eye that hasn't been seen in thirty years. Bread in a vat.
+[00:28:46] Will:  Great idea. Man, I got some sort of novel form of pink eye that hasn't been seen in thirty years. Bred in a vat.
 
 [00:28:54] Adam: Gross.
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:29:17] Will: Oh, you had gotten the paintball guns that looked like real guns.
 
-[00:29:19] Adam: Oh, those Tippmans, those beautiful Tippmans with the magazines.
+[00:29:19] Adam: Oh, those Tippmanns, those beautiful Tippmanns with the magazines.
 
 [00:29:22] Will: Yes.
 

@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=fdVm29yWCCY
 
 [00:26:26] Norm: and and that helps kind of bring everything more to a relatable, you know, a sense to us as viewers.
 
-[00:26:33] Adam: You're also something else occurred to me. I realized that because it's a television show, their per episode budget is way lower than a feature film, so they probably have to parcel out how many. Homelander lands shots they could actually achieve within a season. I mean, we know that from talking to Bob Monroe about the expanse and what we do in the shadows. And I'm curious about the development. Like, does the does the team have in reserve? Like, we can do this many of this thing and that many of that thing.
+[00:26:33] Adam: You're also something else occurred to me. I realized that because it's a television show, their per episode budget is way lower than a feature film, so they probably have to parcel out how many. Homelander lands shots they could actually achieve within a season. I mean, we know that from talking to Bob Munroe about the expanse and what we do in the shadows. And I'm curious about the development. Like, does the does the team have in reserve? Like, we can do this many of this thing and that many of that thing.
 
 [00:27:01] Joey: Like the old Superman show, they just keep reusing the same flying shot. All right, let's get back to the Homelander. Just we just have him on the green screen. We just use that, change him around.
 

@@ -592,7 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:19:04] Will: You know, it's going to be out on DVD soon. I'm sure.
 
-[00:19:07] Norm: It's different to watch it in in the theater, and and the Alamo Drafthouse. If you've been to like a Draft House theater where you can order,
+[00:19:07] Norm: It's different to watch it in in the theater, and and the Alamo Drafthouse. If you've been to like a Drafthouse theater where you can order,
 
 [00:19:13] Adam: I have absolutely
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:20:19] Will: Owl Man, okay.
 
-[00:20:20] Adam: Night Owl, and he was also he was one of the leads in the Angels in America on HBO.
+[00:20:20] Adam: Nite Owl, and he was also he was one of the leads in the Angels in America on HBO.
 
 [00:20:24] Will: Oh, right, right, right.
 
@@ -720,7 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:22:15] Will: Yeah,
 
-[00:22:15] Norm: Frazetta. Yes, and the the the the movie posters and the book covers. Andrew Struzan,
+[00:22:15] Norm: Frazetta. Yes, and the the the the movie posters and the book covers. And Drew Struzan,
 
 [00:22:21] Adam: yes, who's one of the great, one of the most. Yeah, Guillermo actually owns a couple of original Struzan
 
@@ -816,7 +816,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:24:55] Will: But real and not.
 
-[00:24:56] Adam: No, no, no, no, not within the book itself. Okay. It's got a cabinet, and the cabinet itself has some curiosities, like a little Chronos device. They're not the highest quality. But it's a it's a lovely addition.
+[00:24:56] Adam: No, no, no, no, not within the book itself. Okay. It's got a cabinet, and the cabinet itself has some curiosities, like a little Cronos device. They're not the highest quality. But it's a it's a lovely addition.
 
 [00:25:07] Will: Doesn’t matter. Yeah.
 

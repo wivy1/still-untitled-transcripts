@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:02:21] Adam: And it was there were paid performers who were dressed as Klingons and Starfleet officers and all this kind of stuff. And it was a fully immersive environment with LCARS displays.
 
-[00:02:30] Norm: They had two full Enterprise D bridges that they built because they would run these simultaneously with full casts and an emotion simulator ride. And then you could also pay to have like an event. You could get married on the bridge of the Star Trek Enterprise, like a full immersive experience, not just like a Star Tour type thing.
+[00:02:30] Norm: They had two full Enterprise D bridges that they built because they would run these simultaneously with full casts and a motion simulator ride. And then you could also pay to have like an event. You could get married on the bridge of the Star Trek Enterprise, like a full immersive experience, not just like a Star Tour type thing.
 
 [00:02:47] Adam: So I'm in Vegas a few years ago, and I can't even remember where the hell we were. I think my wife and I were staying at the Palazzo because I had a corporate appearance there. And my buddy Steve Molaro writes to me. Steve is a showrunner for Big Bang Theory, and he's like, " Dude, you're in Vegas." I'm like, " Yeah, I am." And he's like, " They're they're having a garage sale of all the props and costumes from the Star Trek experience right now." And I'm like, " Right now?" And he's like, " Well, it's 9:30 now, and the the garage sale opens at 10:00 a.m." And I was like, " Baby, I gotta go." So I'm like, I got so excited, and you know, it's Sunday at 9:30 in the morning in Vegas. Like that is maybe Vegas as quiet as possible.
 
@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:03:34] Norm: So sad.
 
-[00:03:34] Adam: and the cab pulls up out front, and I look, and there's like 500 people online, and I remember at that moment that I'm famous, and everyone turns and is like, " Oh, cool." So, you know, I get online, and people are really awesome, and we start talking about Star Trek, and then the organizers come out. They've heard that I'm in line, so they come out and it's Mr. Savage. Will you join us? And so they bring me in before it opens.
+[00:03:34] Adam: and the cab pulls up out front, and I look, and there's like 500 people on line, and I remember at that moment that I'm famous, and everyone turns and is like, " Oh, cool." So, you know, I get on line, and people are really awesome, and we start talking about Star Trek, and then the organizers come out. They've heard that I'm in line, so they come out and it's Mr. Savage. Will you join us? And so they bring me in before it opens.
 
 [00:04:25] Norm: Fantastic!
 
@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:04:29] Norm: What do they have?
 
-[00:04:30] Adam: What they had, I mean, it was it was like it was like you know panel displays and El Cars displays and costumes. I looked at it. I like touched a Klingon costume, and the the woman went, " Trust me, you don't want to do you don't want to have anything to do with that costume." And it was like it's got the DNA and sweat of like seven. Thousand actors.
+[00:04:30] Adam: What they had, I mean, it was it was like it was like you know panel displays and LCARS displays and costumes. I looked at it. I like touched a Klingon costume, and the the woman went, " Trust me, you don't want to do you don't want to have anything to do with that costume." And it was like it's got the DNA and sweat of like seven. Thousand actors.
 
 [00:04:52] Norm: I bet the smell of foam latex.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:05:04] Norm: Oh, oh! What would you have wanted from that? Do you think?
 
-[00:05:08] Adam: I, I feel like I would have wanted some type of. I tell a lie. I actually did buy a little Elcar's display, which somehow got lost in some move between shops at some point. But I would have wanted almost like a control panel, like one of the bridge, like one of the smaller bridge control panels, or some device from the background.
+[00:05:08] Adam: I, I feel like I would have wanted some type of. I tell a lie. I actually did buy a little LCARS display, which somehow got lost in some move between shops at some point. But I would have wanted almost like a control panel, like one of the bridge, like one of the smaller bridge control panels, or some device from the background.
 
 [00:05:27] Norm: Yeah, like the the the comms panel or navigation, so you can like tell tell. Wil Wheaton  I got your panel.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:20:08] Norm: It's
 
-[00:20:08] Norm: amazing. Some of the original cell back. It's not matte paintings, but I guess they're just the cell backgrounds for the layered multiplane camera for Sleeping Beauty are on display, and it's it's. Wonderful!
+[00:20:08] Norm: amazing. Some of the original cel back. It's not matte paintings, but I guess they're just the cel backgrounds for the layered multiplane camera for Sleeping Beauty are on display, and it's it's. Wonderful!
 
 [00:20:19] Adam: Awesome!
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:24:44] Adam: these are the kind of things we're trying to work out. Oh, how is that going to work out? You are just going to have to come and see how it goes.
 
-[00:24:50] Norm: And if you are in San Francisco, end of next week is tested live show Saturday, October twenty eighth at the Castro Theater, our fourth annual one.
+[00:24:50] Norm: And if you are in San Francisco, end of next week is tested live show Saturday, October twenty eighth at the Castro Theatre, our fourth annual one.
 
 [00:24:58] Adam: Tested deconstructed.
 

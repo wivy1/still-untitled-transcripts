@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:19:03] Will: Lexan. Sorry. Yeah.
 
-[00:19:13] Adam: At any rate, so Blendo was the very first spinner. Jamie's first idea for Blendo was that he'd spin it up to twenty thousand RPM, and its own momentum would keep it running for the three minutes of a match. Now he reached out to a friend of his who's a physicist to explain that at twenty thousand RPM it would explode because of the friction with the air. It would catch on fire and just disintegrate. So he's like, " All right, I'll lower my sights." And he attached a five horsepower Briggs and Stratton engine to a chassis that we that we machined out of steel. I was on this team back at back when it was Colossal Pictures Model Shop, and it was a spinning upside down walk with a steel ring around it and two hardened case hardened steel blades. And
+[00:19:13] Adam: At any rate, so Blendo was the very first spinner. Jamie's first idea for Blendo was that he'd spin it up to twenty thousand RPM, and its own momentum would keep it running for the three minutes of a match. Now he reached out to a friend of his who's a physicist to explain that at twenty thousand RPM it would explode because of the friction with the air. It would catch on fire and just disintegrate. So he's like, " All right, I'll lower my sights." And he attached a five horsepower Briggs and Stratton engine to a chassis that we that we machined out of steel. I was on this team back at back when it was Colossal Pictures Model Shop, and it was a spinning upside down wok with a steel ring around it and two hardened case hardened steel blades. And
 
 [00:19:59] Will: like
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:20:04] Will: Yeah,
 
-[00:20:05] Adam: but. When we first started it up, when we first finished the machine, the question was, how do you start a machine in which the entire exterior is is is one thing and it's spinning? So Jamie rigged up the the the pull cord spindle of the engine to a threaded attachment, and he stood on an apple box and chucked a drill into the thread of it attachment and pulled the drill until it started the engine. And then when the engine spun up, it spun the threads back out.
+[00:20:05] Adam: but. When we first started it up, when we first finished the machine, the question was, how do you start a machine in which the entire exterior is is is one thing and it's spinning? So Jamie rigged up the the the pull cord spindle of the engine to a threaded attachment, and he stood on an apple box and chucked a drill into the threaded attachment and pulled the drill until it started the engine. And then when the engine spun up, it spun the threads back out.
 
 [00:20:36] Will: Oh wow!
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:21:51] Unknown speaker: [unclear: Wow.]
 
-[00:21:51] Adam: Right. So we set this sharpened blade on the outside of this walk, welded to it, and we chuck the thing in, and we're all standing aside, and we start it, and we've got the RC right, so it can actually drive, but it drives with a clutch that's attached to the outer spinning, so it's only one motor makes everything go.
+[00:21:51] Adam: Right. So we set this sharpened blade on the outside of this wok, welded to it, and we chuck the thing in, and we're all standing aside, and we start it, and we've got the RC right, so it can actually drive, but it drives with a clutch that's attached to the outer spinning, so it's only one motor makes everything go.
 
 [00:22:10] Will: Oh, see, the only way you make the wheels go is by okay
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:25:26] Adam: ish?
 
-[00:25:27] Will: Norm, anything untested this week people should check out?
+[00:25:27] Will: Norm, anything on Tested this week people should check out?
 
 [00:25:29] Norm: Yeah. So from from the travels, from Adam's travels and our travels, we have we visited a friend's shop, and that video will be going up this week. So check that out on Thursday.
 

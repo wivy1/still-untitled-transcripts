@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:14:17] Will: Kind of the.
 
-[00:14:19] Norm: That's like the Tyler Jordan Hindu cow smile. Like,
+[00:14:19] Norm: That's like the Tyler Durden Hindu cow smile. Like,
 
 [00:14:22] Will: oh yeah, everything's cool. Okay, so
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:15:28] Will: natural wonders of North America.
 
-[00:15:35] Adam: So we took we took some time in each place. We did not dawdle for whole days to do hiking and stuff. We got ourselves to Minneapolis, where we had a lovely dinner with my Rivtrax friends. Some smoked meat at Kevin Murphy's house was delicious. Then we went down to Chicago, where we spent a couple of days with my friends Kim and Clark and some other friends.
+[00:15:35] Adam: So we took we took some time in each place. We did not dawdle for whole days to do hiking and stuff. We got ourselves to Minneapolis, where we had a lovely dinner with my RiffTrax friends. Some smoked meat at Kevin Murphy's house was delicious. Then we went down to Chicago, where we spent a couple of days with my friends Kim and Clark and some other friends.
 
 [00:15:56] Will: Chicago is lovely, isn't it?
 
@@ -696,7 +696,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:25:29] Will: Well, and it's usually you're often going through such desolate parts of the country. It's not like you're paralleling the freeway the entire way.
 
-[00:25:35] Adam: No, and but but again, still on the freeway, you're still looking at all this farmland. Most of the drive is really the nuts and bolts of America that you're driving through. And I think that when you have an autonomous car, it'll still be look. There's going to be plenty of people who will sleep the whole way there, but I don't think it's going to. I don't think it's going to inhibit the ability to enjoy how beautiful this country is.
+[00:25:35] Adam: No, and but but again, still on the freeway, you're still looking at all this farmland. Most of the drive is really the nuts and bolts of America that you're driving through. And I think that when you have an autonomous car, it'll still be look. There's going to be plenty of people who will sleep the whole way there, but I don't think it's going to inhibit the ability to enjoy how beautiful this country is.
 
 [00:25:58] Norm: and the attention
 

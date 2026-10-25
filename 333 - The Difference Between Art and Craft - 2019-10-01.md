@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:30:24] Adam: This is custom built for you.
 
-[00:30:25] Norm: Exactly. Yeah. Like being on a movie set and having complete free reign to take from his perspective,
+[00:30:25] Norm: Exactly. Yeah. Like being on a movie set and having complete free rein to take from his perspective,
 
 [00:30:31] Adam: right?
 

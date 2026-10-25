@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=7iLD6b69O28
 
 [00:10:20] Will: It all fell apart.
 
-[00:10:20] Adam: Oh wow, it's- I've never even gotten a single, I've never even gotten a single cascade to happen twice. But-
+[00:10:20] Adam: Oh wow, it's- I've never even gotten a single cascade to happen twice. But-
 
 [00:10:26] Norm: So you're saying being observational?
 

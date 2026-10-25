@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=zj_SMQFBLuA
 
 [00:03:50] Norm: and for people who don't know, what what what does that show consist of?
 
-[00:03:54] Adam: It is a touring live stage show starring Jamie and I, pretty much only Jamie and I, and a whole bunch of members of the audience. It's we we labored long and hard at the beginning over how to how the hell are we going to translate what MythBusters is and means to people and to us to a stage performance. We really had no idea except that when we started to think about it, we knew that we wanted to take the irreverent sense of humor that we have and a little bit of the subversion that we have, just by dint of having a weird, dark sense of humor, and put that on stage. And then the the place where we really hit pay dirt in terms of understanding the shape of the show was when we realized we wanted to bring lots of people up on stage that we could use the audience as test subjects, and that that was a bonus that they could have fun too. So we bring I think thirteen people total up on stage during the course of the show, and we film them on high speed camera. We pet them against each other in feats of strength. We we give them tests of character. We change the way they see things, and eventually we shoot somebody.
+[00:03:54] Adam: It is a touring live stage show starring Jamie and I, pretty much only Jamie and I, and a whole bunch of members of the audience. It's we we labored long and hard at the beginning over how to how the hell are we going to translate what MythBusters is and means to people and to us to a stage performance. We really had no idea except that when we started to think about it, we knew that we wanted to take the irreverent sense of humor that we have and a little bit of the subversion that we have, just by dint of having a weird, dark sense of humor, and put that on stage. And then the the place where we really hit pay dirt in terms of understanding the shape of the show was when we realized we wanted to bring lots of people up on stage that we could use the audience as test subjects, and that that was a bonus that they could have fun too. So we bring I think thirteen people total up on stage during the course of the show, and we film them on high speed camera. We pit them against each other in feats of strength. We we give them tests of character. We change the way they see things, and eventually we shoot somebody.
 
 [00:05:09] Norm: It's all safe. It's all.
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=zj_SMQFBLuA
 
 [00:27:31] Norm: Yeah. Oh yeah. She was on the Comedians of Comedy tour with Patton Oswalt.
 
-[00:27:34] Adam: Absolutely. I met her when we did the RiffTrax together with Bill Corbett, Kevin Murphy, at the Castro Theater, and she's got a bunch of YouTube videos called the Maria Bamford Show, which are unfetteredly, unfetteredly, unabashedly brilliant. They're incredible. I know I'm given to hyperbole, but Maria Bamford is insane. And when you watch her videos and you watch her do her voice changes
+[00:27:34] Adam: Absolutely. I met her when we did the RiffTrax together with Bill Corbett, Kevin Murphy, at the Castro Theatre, and she's got a bunch of YouTube videos called the Maria Bamford Show, which are unfetteredly, unfetteredly, unabashedly brilliant. They're incredible. I know I'm given to hyperbole, but Maria Bamford is insane. And when you watch her videos and you watch her do her voice changes
 
 [00:28:01] Norm: impressions, and her mother.
 

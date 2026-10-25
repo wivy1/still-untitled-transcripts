@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:06:34] Adam: Alameda County Sheriff's Bomb Range,
 
-[00:06:36] Norm: and really try to put it through its places because it is that's an open area, right, an environment where Spot would likely operate. But I don't think people understand it's both physically controlled with manual control.
+[00:06:36] Norm: and really try to put it through its paces because it is that's an open area, right, an environment where Spot would likely operate. But I don't think people understand it's both physically controlled with manual control.
 
 [00:06:48] Adam: I can't. It can't be manually controlled.
 
@@ -416,13 +416,13 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:17:53] Will: Uh huh. That's what that's werewolf talk right there.
 
-[00:17:55] Adam: No, but let me tell you, when I was the werewolf, it was here. We did a huge night of werewolf games here in the cave. Ben Ha and a bunch of other folks.
+[00:17:55] Adam: No, but let me tell you, when I was the werewolf, it was here. We did a huge night of werewolf games here in the cave. Ben Huh and a bunch of other folks.
 
 [00:18:02] Will: Harper and some of those guys.
 
 [00:18:02] Adam: And. My son, thing two, was playing with us, and he was like 19 at the time. And the only time I was a werewolf, he could tell I was the werewolf because he was the seer, and I somehow managed to convince people that not only was I not a werewolf, but he was not the seer, and it unhinged him being so duplicitously like slammed by me in competition.
 
-[00:18:28] Will: We play one night ultimate, which is basically no sleeps. You just do. You get one one night of werewolf, and then it's done. And they they build a bunch of extra rules rolls.
+[00:18:28] Will: We play one night ultimate, which is basically no sleeps. You just do. You get one one night of werewolf, and then it's done. And they they build a bunch of extra rules roles.
 
 [00:18:36] Adam: Oh, wow.
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:24:39] Will: Um, I, I was gonna say like a seventies, like a like a seventies,
 
-[00:24:44] Adam: like a Pal and Pakula film, or something like that.
+[00:24:44] Adam: like an Alan Pakula film, or something like that.
 
 [00:24:45] Will: yeah, yeah, yeah. Whereas the other the the expensive home is shot, um, almost almost like like the Island, like not like a Michael Bay film, but like you know how the island had that whole golden hour, like the whole thing felt like it was shot in the golden hour. It's a terrible.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:25:05] Adam: Wow.
 
-[00:25:05] Will: But but like the whole thing is shot golden, like the whole thing is shot golden hour. It's all glow, and the whole house feels like you are in in a higher plane. Which I mean, I guess.
+[00:25:05] Will: But but like the whole thing is shot golden hour. It's all glow, and the whole house feels like you are in in a higher plane. Which I mean, I guess.
 
 [00:25:14] Norm: Well, there is a precision to it from the set design to the cinematography to even the acting that's not naturalist. Like they are very precise
 

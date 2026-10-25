@@ -432,7 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:16:25] Adam: Um, and it was a great night, epic night, and I've been on the list ever since.
 
-[00:16:28] Frank: So you know, I was on a SciFi show. I was on Face Off. Yeah. And I still can't get into those parties. I've been on their show twice now.
+[00:16:28] Frank: So you know, I was on a Syfy show. I was on Face Off. Yeah. And I still can't get into those parties. I've been on their show twice now.
 
 [00:16:28] Adam: Yeah.
 
@@ -786,7 +786,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:28:18] Will: Um, well, of course, we’ll be at Comic Con with the normal stuff. You’re going to do it.
 
-[00:28:18] Adam: We’re going to Adam and Cognito Thursday.
+[00:28:18] Adam: We’re going to Adam Incognito Thursday.
 
 [00:28:37] Will: w00tstock is Thursday night. There are tickets for that available now.
 

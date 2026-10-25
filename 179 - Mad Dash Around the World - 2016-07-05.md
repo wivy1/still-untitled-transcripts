@@ -464,7 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:19:34] Adam: Yeah, we did some wonderful talking to Tim Heptner, the original curator and tour manager of the show, and but so.
 
-[00:19:41] Norm: Yes. Why this build is complicated, and we can compare to? Do you remember for people who've watched Still Entire Watcher videos a long time, there have been builds that you've done, Adam. When we come into the cave, like I remember, Patton Oswalt's docked octopus.
+[00:19:41] Norm: Yes. Why this build is complicated, and we can compare to? Do you remember for people who've watched Still Untitled watch our videos a long time, there have been builds that you've done, Adam. When we come into the cave, like I remember, Patton Oswalt's docked octopus.
 
 [00:19:41] Adam: Yes.
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:21:15] Norm: Oh wow.
 
-[00:21:15] Adam: Um, and I can bring in a welder, and I can bring in people that help in the exploratory shop right there. So it's a solvable problem. I just need to make sure I've put out the real fires before I arrive.
+[00:21:15] Adam: Um, and I can bring in a welder, and I can bring in people that help in the Exploratorium shop right there. So it's a solvable problem. I just need to make sure I've put out the real fires before I arrive.
 
 [00:21:29] Will: This is some this is some kind of performance art that you're doing the assembly of this on site.
 

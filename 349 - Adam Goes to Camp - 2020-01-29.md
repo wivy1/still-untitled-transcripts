@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:04:01] Norm: Or exiting.
 
-[00:04:02] Will: Well, so so you go, you go, you pick some sessions you want to go talk. See, usually I recommend that people find a mix of things that they're really, really interested in, and then like a couple of things that you would never think you'd be you'd be into, and you always will learn something interesting. But also, like everybody's so Fitz, who's a friend of the site and used to work at Google, now runs this site thing called Talk, has always introduced the idea of the Pac-Man rule when you're having a conversation.
+[00:04:02] Will: Well, so so you go, you go, you pick some sessions you want to go talk. See, usually I recommend that people find a mix of things that they're really, really interested in, and then like a couple of things that you would never think you'd be you'd be into, and you always will learn something interesting. But also, like everybody's so Fitz, who's a friend of the site and used to work at Google, now runs this site thing called Tock, has always introduced the idea of the Pac-Man rule when you're having a conversation.
 
 [00:04:30] Adam: Pac-Man rule for conversation is so freaking awesome. I mean, I didn't
 
@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:06:40] Will: I'm gonna I'm gonna talk to you for five minutes. I'm gonna learn like 18 things.
 
-[00:06:43] Adam: Um, about two weeks before the conference, there were three astronauts present: Chell Lindgren, Cady Coleman, and Don Pettit. Luckily, all three close friends.
+[00:06:43] Adam: Um, about two weeks before the conference, there were three astronauts present: Kjell Lindgren, Cady Coleman, and Don Pettit. Luckily, all three close friends.
 
 [00:06:54] Will: Yeah, yeah, yeah.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:07:02] Will: Which one,
 
-[00:07:02] Adam: Spaceman Don? I brought the A7L. And then when it came time to put up talks, I literally wrote, " I brought a spacesuit." And sixty people showed up. I helped five, four or five people try on the spacesuit in the course of an hour. Chell and Don both came, and
+[00:07:02] Adam: Spaceman Don? I brought the A7L. And then when it came time to put up talks, I literally wrote, " I brought a spacesuit." And sixty people showed up. I helped five, four or five people try on the spacesuit in the course of an hour. Kjell and Don both came, and
 
 [00:07:17] Unknown speaker: No pressure.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:07:39] Adam: So there was this one point at which someone I I I love exactly this specific intersection of that kind of crowd who doesn't know the Playtex ILC Dover soft versus hard one size fits all versus custom bespoke story of the NASA. Spacesuit, and I love telling that story to a crowd that doesn't know it because it's a lot of oohs and ahs, right? And I am halfway through the story, and I am like, " Tell me if I am getting anything wrong." And Don Pettit goes, " No, it's good."
 
-[00:08:08] Will: Well, and but the funny thing that came out of that was the women in the audience. You, you guys, I wasn't in the session; I was someplace else doing something else. But you apparently started talking about how, like, the spacesuits on the station are one size fits all, and Cady Coleman is a small person. Chell Lindgren is pretty big guy.
+[00:08:08] Will: Well, and but the funny thing that came out of that was the women in the audience. You, you guys, I wasn't in the session; I was someplace else doing something else. But you apparently started talking about how, like, the spacesuits on the station are one size fits all, and Cady Coleman is a small person. Kjell Lindgren is pretty big guy.
 
 [00:08:26] Adam: Yeah, Mike Massimino is a giant,
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:08:29] Will: and and like the the fit analysis of all of these things is all over the place. So like, Cady's uncomfortable. The thing we learned is that the people who are big are equally uncomfortable in different ways.
 
-[00:08:41] Adam: Yeah, and and that like being in space is super. Like Chell and and Don did a whole thing about how rough a spacewalk is.
+[00:08:41] Adam: Yeah, and and that like being in space is super. Like Kjell and and Don did a whole thing about how rough a spacewalk is.
 
 [00:08:48] Will: The fingernails was
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:15:08] Adam: Yep.
 
-[00:15:09] Adam: Um. I went to uh. I went to all the space. I went to all the space themed ones this year. So Cady Coleman, who's one of my heroes of the world, she and Mary Robinette what's that?
+[00:15:09] Adam: Um. I went to uh. I went to all the space themed ones this year. So Cady Coleman, who's one of my heroes of the world, she and Mary Robinette what's that?
 
 [00:15:21] Norm: Kowal.
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:22:43] Adam: Yeah. Yeah.
 
-[00:22:43] Will: Um. The they have a he has a spare magnet from the Tivatron.
+[00:22:43] Will: Um. The they have a he has a spare magnet from the Tevatron.
 
 [00:22:47] Adam: Right. Which
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:23:08] Adam: In fact, he pointed out that the protocol for putting in the bottom rack, the very bottom rack, was to get it somewhat in and then lie down on the ground and use your feet to kick it. The last couple, because that was the only way to not over. Yeah,
 
-[00:23:23] Will: I played. I played a couple of games that are fabulous. I played Tommy Maranges' new game, which is out to backers really soon, called Inhuman Conditions. It started as a Voight Kampf test. I've been playing it at ORD Camp now for four years.
+[00:23:23] Will: I played. I played a couple of games that are fabulous. I played Tommy Maranges' new game, which is out to backers really soon, called Inhuman Conditions. It started as a Voight-Kampff test. I've been playing it at ORD Camp now for four years.
 
 [00:23:38] Adam: You tried to get me to play that.
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:23:53] Adam: Yeah,
 
-[00:23:53] Will: with with Tommy and Corey and Max and. Basically, it it crams like a werewolf type game into a five player, two person experience. So you can play that with just one other person, maybe not your partner. And then I also played Wavelength, which is I think the best party game I've ever played.
+[00:23:53] Will: with with Tommy and Cory and Max and. Basically, it it crams like a werewolf type game into a five player, two person experience. So you can play that with just one other person, maybe not your partner. And then I also played Wavelength, which is I think the best party game I've ever played.
 
 [00:24:11] Norm: Really?
 
@@ -768,7 +768,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:33:37] Will: Did you guys see that foam cutter that I sent you last night?
 
-[00:33:40] Adam: Yeah, I [unclear: don't want / want] to talk about it. I want to. I'm curious what you're, what you find interesting about it, because I just love to get your take. It looked really interesting.
+[00:33:40] Adam: Yeah, I don't want to talk about it. I want to. I'm curious what you're, what you find interesting about it, because I just love to get your take. It looked really interesting.
 
 [00:33:46] Norm: Okay. Stay tuned for that conversation.
 

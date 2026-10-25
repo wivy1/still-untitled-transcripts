@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:17:32] Adam: I have. I've watched some of the videos of them with all the doors opening and closing.
 
-[00:17:35] Norm: Yeah, Chris James, because it's not no longer. You don't use like the single spectrum.
+[00:17:35] Norm: Yeah, Chris James, because it's not no longer. You don't use like the single Spektrum.
 
 [00:17:39] Adam: Chris is someone that uses those two.
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:18:55] Adam: Great.
 
-[00:19:08] Adam: I will tell you that having having appeared at almost all the maker fairs so far, I think all of them.
+[00:19:08] Adam: I will tell you that having having appeared at almost all the Maker Faires so far, I think all of them.
 
 [00:19:14] Will: Yeah.
 
@@ -554,13 +554,13 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:21:45] Adam: I have one of those. They're beautiful.
 
-[00:21:46] Will: Yeah, it's a it's a this mild aluminum. It's really really pretty. Um, the the Saitek X fifty two
+[00:21:46] Will: Yeah, it's a it's a this milled aluminum. It's really really pretty. Um, the the Saitek X fifty two
 
 [00:21:46] Adam: yeah
 
 [00:21:46] Will: is the science fiction ship joystick of choice for Hollywood prop designers. They take it, they paint it, they put new lights on it and stuff like that. But it's the same, same basic cast hand and throttle.
 
-[00:22:03] Adam: Have you have you guys noticed over the years? You've been going to Maker Fair for six or seven years.
+[00:22:03] Adam: Have you have you guys noticed over the years? You've been going to Maker Faire for six or seven years.
 
 [00:22:07] Will: Yeah, seven years, probably from here at this point.
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:22:20] Adam: It's a problem.
 
-[00:22:37] Adam: I don't actually get to tour Maker Fair,
+[00:22:37] Adam: I don't actually get to tour Maker Faire,
 
 [00:22:38] Will: but it's we should put you in a stormtrooper costume so you can walk around one year. Um, they they have they have amazing. Like the quality in that room has gone up so much in the last ten years, both because stuff's cheaper, like batteries, radios, motors, all that stuff is much less expensive. The internet has made a lot of stuff from China more readily available, and
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:23:46] Adam: Does Locksport ever have a?
 
-[00:23:48] Will: They're still there. The tool guys there are there every year.
+[00:23:48] Will: They're still there. The TOOOL guys there are there every year.
 
 [00:23:50] Adam: Did you see the three D printed Master Lock cracker?
 
@@ -644,7 +644,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:24:41] Adam: Oh, that's wonderful.
 
-[00:24:42] Will: It's it's I mean the thing that I love about it is. So we've been to both New York Maker Fair and San Francisco Maker Fair. And New York Maker Fair has a kind of it's kind of it has a little bit of a different flavor, just because it's all around all the New York Northeast engineering colleges, right? So like, there's a lot of robotic stuff. There's a lot more 3D printing stuff typically. A lot more kind of general CNC stuff, small CNC mills and stuff like that. And then this, the San Francisco one, a lot of the burners come in, a lot of the Burning Man folks come in, and they bring their their big art projects. And it's a second venue to show their their work. So they both have a completely different tone. Like I like I like both of them a lot.
+[00:24:42] Will: It's it's I mean the thing that I love about it is. So we've been to both New York Maker Faire and San Francisco Maker Faire. And New York Maker Faire has a kind of it's kind of it has a little bit of a different flavor, just because it's all around all the New York Northeast engineering colleges, right? So like, there's a lot of robotic stuff. There's a lot more 3D printing stuff typically. A lot more kind of general CNC stuff, small CNC mills and stuff like that. And then this, the San Francisco one, a lot of the burners come in, a lot of the Burning Man folks come in, and they bring their their big art projects. And it's a second venue to show their their work. So they both have a completely different tone. Like I like I like both of them a lot.
 
 [00:24:42] Adam: Yeah.
 

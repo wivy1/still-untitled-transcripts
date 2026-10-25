@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:00:42] Will: It's always a good morning these days.
 
-[00:00:44] Adam: Ah, you know, t here is yes, it is always a good morning. We are well. We are in the last few weeks of production on MythBusters. This is the big announcement. I guess we're starting right off with it. And my schedule is ludicrous. This moment,
+[00:00:44] Adam: Ah, you know, there is yes, it is always a good morning. We are well. We are in the last few weeks of production on MythBusters. This is the big announcement. I guess we're starting right off with it. And my schedule is ludicrous. This moment,
 
 [00:01:00] Will: yeah, it's pretty busy, and
 
@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:02:14] Adam: It's it it works out to something close to that. I mean, you know, we were in Abu Dhabi this summer, and
 
-[00:02:19] Norm: hey, we try not bearing the lead, but let's talk about that Star Wars trailer.
+[00:02:19] Norm: hey, we try not burying the lead, but let's talk about that Star Wars trailer.
 
 [00:02:24] Adam: Wait, wait, wait. No.
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:07:23] Norm: , right. And you're not gonna feel that until you know you have guys like Jason Reitman who love MythBusters and informs how they think, critically think, but could be ten, fifteen years from now before the next you know batch of astronauts.
 
-[00:07:36] Adam: Yeah, you know, and it's parents come up and we've become sort of. I've said this before, but I think we've become sort of patron saints of autism spectrum disorder. You know, I do the signings at Maker Faire. I'm sorry, I didn't go last year. I'm sorry, I didn't go last year. But whenever I do those signings. There's parents who come up and say your show is the only thing my kid slows down for, and it showed them that there was a possibility. And again, this isn't this is so far outside our original mission that is astonishing. So I love this show. I love making this show. I i i will miss making it. I really am excited about the next the next stage. And one of the great things about the the Twitter feed, my Twitter responses is a lot of people are saying exactly what I'm thinking, which is they're saying can't wait to see what happens on Tested next year,
+[00:07:36] Adam: Yeah, you know, and it's parents come up and we've become sort of. I've said this before, but I think we've become sort of patron saints of autism spectrum disorder. You know, I do the signings at Maker Faire. I'm sorry, I didn't go last year. But whenever I do those signings. There's parents who come up and say your show is the only thing my kid slows down for, and it showed them that there was a possibility. And again, this isn't this is so far outside our original mission that is astonishing. So I love this show. I love making this show. I i i will miss making it. I really am excited about the next the next stage. And one of the great things about the the Twitter feed, my Twitter responses is a lot of people are saying exactly what I'm thinking, which is they're saying can't wait to see what happens on Tested next year,
 
 [00:08:29] Unknown speaker: Me too.
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:24:43] Adam: Exactly. Exactly. So that's it's it's really exciting. Yeah,
 
-[00:24:47] Norm: the trailer or the poster, because there was a theatrical poster, which I'm not the biggest fan of. It's not a Drew Struzan, um, but it has Kylo Ren with his crosshilt lightsaber and Daisy Ridley's character, which I don't exactly remember her name. I think I believe it's Ray, but she has her staff, and they're lined together.
+[00:24:47] Norm: the trailer or the poster, because there was a theatrical poster, which I'm not the biggest fan of. It's not a Drew Struzan, um, but it has Kylo Ren with his crosshilt lightsaber and Daisy Ridley's character, which I don't exactly remember her name. I think I believe it's Rey, but she has her staff, and they're lined together.
 
 [00:25:06] Adam: Yeah.
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:26:39] Norm: Is it Billy Dee?
 
-[00:26:39] Adam: Seven. Oh no, no, no! I, I, I, my, my, my fantasy is that it's Carrie Fisher. Like the film's going to take great. So you imagine from a screenwriting standpoint, Larry Kasdan, and I love you. You imagine from a screenwriting standpoint that you've got to expend a certain amount of energy getting to Han, and then Leah, Han, Leah, and Luke are all reveals. I don't think you just start out knowing about.
+[00:26:39] Adam: Seven. Oh no, no, no! I, I, I, my, my, my fantasy is that it's Carrie Fisher. Like the film's going to take great. So you imagine from a screenwriting standpoint, Larry Kasdan, and I love you. You imagine from a screenwriting standpoint that you've got to expend a certain amount of energy getting to Han, and then Leia, Han, Leia, and Luke are all reveals. I don't think you just start out knowing about.
 
 [00:27:05] Will: I mean, that's the thing. It's Act One is all. What's happened in the twenty years since?
 
@@ -810,7 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:34:36] Adam: Oh yeah, no, I know you will.
 
-[00:34:37] Norm: Yeah, John Boyega, Daisy Ridley, the newcomers, and then there's like a cast photo. Remember that classic black and white photo where they're all at the round table and stuff like that. And people people forgotten that they announced a cast member that has not, and it's not Donald Gleason. Um,
+[00:34:37] Norm: Yeah, John Boyega, Daisy Ridley, the newcomers, and then there's like a cast photo. Remember that classic black and white photo where they're all at the round table and stuff like that. And people people forgotten that they announced a cast member that has not, and it's not Donald Gleeson. Um,
 
 [00:34:52] Adam: all right, all right.
 

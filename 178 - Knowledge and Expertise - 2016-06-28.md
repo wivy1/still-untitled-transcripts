@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:12:26] Norm: they they make up the story of that costume build,
 
-[00:12:28] Adam: right? But I don't know. I I don't need to keep those parts, and I don't want to throw them away because I'm not wasteful. But I I think I am going to I think I am going to either start an Etsy store or an eBay account in which I let go of this stuff.
+[00:12:28] Adam: right? But I don't know. I I don't need to keep those parts, and I don't want to throw them away because I'm not wasteful. But I I think I am going to either start an Etsy store or an eBay account in which I let go of this stuff.
 
 [00:12:43] Simone: As Adam Savage, are you going to have?
 
@@ -314,11 +314,11 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:14:39] Simone: Yeah, and that's always. I mean, I I tend to actually write down whenever I meet a new person, uh, or go to a new space or start a new job. I tend to write down my expectations before I actually meet the person or go to the place. That's a new friend. But it's this really fun thing to go back to and be like. Oh right, I imagine it as being this because as soon, I mean, just like coming to your shop, I mean, you've had like some sort of mental image of what it looks like, and now it's completely gone. It's just replaced with like, okay, this is what it actually looks like.
 
-[00:15:05] Adam: This is something I told one of my sons. I said, " Okay, here's a mental exercise. You've been in your school now for five years. Think about when you first entered your school. Okay, he was doing that. Okay, now think about what your expectations were about how school would go. And he said, 'Okay.' And I said, 'Now, how close for you?'" And he was like, " Way off." And I was like, " Right, that process will continue for the rest of your life."
+[00:15:05] Adam: This is something I told one of my sons. I said, " Okay, here's a mental exercise. You've been in your school now for five years. Think about when you first entered your school. Okay, he was doing that. Okay, now think about what your expectations were about how school would go. And he said, 'Okay.' And I said, 'Now, how close were you?'" And he was like, " Way off." And I was like, " Right, that process will continue for the rest of your life."
 
 [00:15:29] Simone: Right, yeah.
 
-[00:15:29] Norm: I mean, goes back to like the YouTube comments and people, and these a lot of times people don't remember what it was like when they were in offices, and so they can't relate.
+[00:15:29] Norm: I mean, goes back to like the YouTube comments and people, and these a lot of times people don't remember what it was like when they were novices, and so they can't relate.
 
 [00:15:38] Adam: Right.
 
@@ -556,7 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:24:53] Simone: so they don't follow a character.
 
-[00:24:55] Norm: They they do they do, and we don't want to spoil too much about it, but The thing that you talk about, the thing that you talk about about wanting to have some of that psychological trauma and implications of this.
+[00:24:55] Norm: They they do they do, and we don't want to spoil too much about it, but The thing that you talk about about wanting to have some of that psychological trauma and implications of this.
 
 [00:25:05] Simone: I want the psychological trauma.
 
@@ -700,7 +700,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:31:21] Norm: Yes, and stuff for us as well. We always love taking recommendations. Photos of workshops. Uh, we we want to share those as well.
 
-[00:31:29] Adam: Now this podcast is airing. Um, we have gone to Australia. I'm actually still traveling while this podcast airs. But is there anything that folks should know about what's going up on test this week?
+[00:31:29] Adam: Now this podcast is airing. Um, we have gone to Australia. I'm actually still traveling while this podcast airs. But is there anything that folks should know about what's going up on Tested this week?
 
 [00:31:39] Norm: Yeah, we have another project with our friend Frank Ippolito. Um, he teaches rotocasting, so we'll have that video on the site.
 

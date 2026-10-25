@@ -18,7 +18,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:00:48] Adam: Gathering more content for you, for everybody.
 
-[00:00:55] Will: Yeah, for all of us. For all of us. For all. He's doing. Trust me, it's rad. So. We we miss him this week, but, uh, but we had a little bit of time today and figured we'd hop on the old Zen caster and and bang out a quick podcast. Apologies for no videos since Norm's gone. I don't know how he set up the weird Phantom Zone things that he did a few weeks ago. So [unclear: no, here] we are.
+[00:00:55] Will: Yeah, for all of us. For all of us. For all. He's doing. Trust me, it's rad. So. We we miss him this week, but, uh, but we had a little bit of time today and figured we'd hop on the old Zencastr and and bang out a quick podcast. Apologies for no videos since Norm's gone. I don't know how he set up the weird Phantom Zone things that he did a few weeks ago. So [unclear: no, here] we are.
 
 [00:01:17] Adam: Well, we will we will be back and doing it next week. And I'm sorry again we're we're late this week with the podcast. That's that's me. Um, but I've been really busy because, uh, you know with the tour, but also because I took Monday and Tuesday off of the tour and went to, uh, Austin to participate in South by Southwest.
 
@@ -28,7 +28,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:02:40] Will: Cool. Anything? So so you so you did you did Joey come with you? Did you get somebody?
 
-[00:02:46] Adam: No, no. We we used we brought out Burke and Tyson from Whale Rock. There's
+[00:02:46] Adam: No, no. We we used we brought out Burke and Tyson from Whalerock. There's
 
 [00:02:46] Will: gotcha
 
@@ -36,7 +36,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:03:12] Will: It's one of those things you you kind of get little glimpses of it when when you watch like a kid play a video game not not not like a clicky just a you know a skinner box type game but something that has real problem solving or or playing a board game even where they have to kind of put pieces together and you see how they learn and it's it's absolutely fascinating I think
 
-[00:03:30] Adam: I I totally agree I totally agree yeah and Austin man what so I stayed at the same hotel this time that I did a few years ago the Driskill downtown which is right on Sixth and College and it really is it feels like you're in the middle of Mardi Gras it's a what I called it hipster Disneyland it was amazing just millions of people there millions I don't think there were millions but It was a really a fun scene. I saw my friends from One Wheel, the makers of my my favorite bit of travel hardware. And let's see, I saw Alexis Ohanian there. We had a late night drink. That was awesome. I had dinner with some of my friends who are Muppeteers because Frank Oz was premiering a documentary with some footage he'd shot way back in the day,
+[00:03:30] Adam: I I totally agree I totally agree yeah and Austin man what so I stayed at the same hotel this time that I did a few years ago the Driskill downtown which is right on Sixth and College and it really is it feels like you're in the middle of Mardi Gras it's a what I called it hipster Disneyland it was amazing just millions of people there millions I don't think there were millions but It was a really a fun scene. I saw my friends from Onewheel, the makers of my my favorite bit of travel hardware. And let's see, I saw Alexis Ohanian there. We had a late night drink. That was awesome. I had dinner with some of my friends who are Muppeteers because Frank Oz was premiering a documentary with some footage he'd shot way back in the day,
 
 [00:03:30] Unknown speaker: Yeah.
 
@@ -248,7 +248,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:19:58] Will: Yeah, where are you now? Are you in Are you on the East Coast? Are you socked in someplace?
 
-[00:20:03] Adam: I am not socked in. We we left Norfolk, Virginia, on Sunday to head to South Bay, and I am now in Saint Petersburg, Florida.
+[00:20:03] Adam: I am not socked in. We we left Norfolk, Virginia, on Sunday to head to South by, and I am now in Saint Petersburg, Florida.
 
 [00:20:12] Will: Oh, nice. Okay, very cool.
 
@@ -280,7 +280,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:22:06] Will: Yeah, I think that's. I think that's. If you have, it's it's definitely worth your your you know twenty bucks, whatever it costs to go to the movies now. And I would encourage you to turn off the podcast now and come back later.
 
-[00:22:17] Adam: In fact, I'll even say, you know what, we should put in the in the in the paragraph that announces this podcast up on Tesla. We should tell you that you can you listen to the podcast for the first like eighteen or nineteen minutes. I don't know exactly what the
+[00:22:17] Adam: In fact, I'll even say, you know what, we should put in the in the in the paragraph that announces this podcast up on Tested. We should tell you that you can you listen to the podcast for the first like eighteen or nineteen minutes. I don't know exactly what the
 
 [00:22:28] Will: twenty two. I think twenty ish.
 
@@ -326,7 +326,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:24:53] Adam: And then there is at the edge of the highway, like a verge, and he is stepping through it. So total foreshadowing. Like he is when on this drive, he is stepping into the unknown. He is walking into a deep forest. Right. He is he is the person who thinks civilization is one way, and he's about to find out that it's another. All of that's happening, and I I could see that was happening, and that's when I personally felt like, oh my god, this isn't like The Descent, which is one of my favorite horror movies. This is like Hitchcock. He's like he's building the entire sense of dread with every last bit of film language in this. It's really sophisticated, I think.
 
-[00:26:19] Will: And the the score, the way the the way the scenes shot. There's a there's a bit in that same moment where Alison Williams, who plays the girlfriend, and Daniel Kaluuya, I think, plays plays the boyfriend.
+[00:26:19] Will: And the the score, the way the the way the scenes shot. There's a there's a bit in that same moment where Allison Williams, who plays the girlfriend, and Daniel Kaluuya, I think, plays plays the boyfriend.
 
 [00:26:32] Adam: And hats off to him for a really amazing performance.
 
@@ -370,7 +370,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:29:41] Adam: right.
 
-[00:29:41] Will: Yeah, so the the car pulls up behind him. He's like, " Shit, this isn't happening to me. This is bad news." And then some guy in a mask jumps out and clogs him. At this point, I thought that the gardener was the guy with the mask, right? And I thought we were going to see a typical kind of Friday the Thirteenth Jason, you know,
+[00:29:41] Will: Yeah, so the the car pulls up behind him. He's like, " Shit, this isn't happening to me. This is bad news." And then some guy in a mask jumps out and clocks him. At this point, I thought that the gardener was the guy with the mask, right? And I thought we were going to see a typical kind of Friday the Thirteenth Jason, you know,
 
 [00:30:20] Adam: ah, right, right,
 
@@ -418,7 +418,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:35:01] Will: So and then it gets really sinister and weird after after Chris talks to Stephen Root. I don't remember where Stephen Root's. Name, character name is well, and there's two. There's two bits in there. There's the Stephen Root bit, and then there's
 
-[00:35:16] Adam: Stephen Root, the boss from the from from News Radio.
+[00:35:16] Adam: Stephen Root, the boss from the from from NewsRadio.
 
 [00:35:19] Will: Yeah, and
 

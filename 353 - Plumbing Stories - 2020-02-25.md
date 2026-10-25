@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:01:08] Adam: The exciting and funny safety video.
 
-[00:01:10] Norm: Yeah, well, they did one even before John M. Chu directed the famous...
+[00:01:10] Norm: Yeah, well, they did one even before Jon M. Chu directed the famous...
 
 [00:01:14] Will: They did the animated one.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:11:23] Adam: Bingo.
 
-[00:11:23] Will: Adrian Brody, uh, his character,
+[00:11:23] Will: Adrien Brody, uh, his character,
 
 [00:11:26] Adam: Adam Brody,
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:11:27] Adam: Adam Brody,
 
-[00:11:27] Will: Adam, not Adrian Brody
+[00:11:27] Will: Adam, not Adrien Brody
 
 [00:11:28] Will: from the OC, from the OC, yeah, the OC guy.
 
@@ -832,7 +832,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:27:44] Will: Wow,
 
-[00:27:46] Adam: it's the only real candle in the show. So that's not the lead that I thought we were bearing. Well, yeah, and we have three more of those videos.
+[00:27:46] Adam: it's the only real candle in the show. So that's not the lead that I thought we were burying. Well, yeah, and we have three more of those videos.
 
 [00:27:50] Will: Yes, just the ropes. There are hundreds of ropes, and they're all specific.
 
@@ -848,7 +848,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:28:06] Will: that's so cool.
 
-[00:28:06] Adam: Um, No, the lead that I was thinking we were bearing, which because we also announced on Thursday that I am the creative director of Silicon Valley Comic Con, heretofore in the future known as SiliCon.
+[00:28:06] Adam: Um, No, the lead that I was thinking we were burying, which because we also announced on Thursday that I am the creative director of Silicon Valley Comic Con, heretofore in the future known as SiliCon.
 
 [00:28:15] Will: Yeah, I think it's a great name.
 

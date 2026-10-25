@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:02:29] Norm: good for him because his sculptural work is all the standard kind of brick, and so he can organisationally get everything done. I can't even imagine if he was the type of sculptor who used you know all the pins and mechanical connections. That's yeah.
 
-[00:02:44] Adam: So when I when I talked to Angus McLean about it, he was like, basically every time he got more specific than color. You realized you were touching an iceberg of of potential, and each time he would like start with color, start with color, just start with color. Everything else is easy after color.
+[00:02:44] Adam: So when I when I talked to Angus MacLane about it, he was like, basically every time he got more specific than color. You realized you were touching an iceberg of of potential, and each time he would like start with color, start with color, just start with color. Everything else is easy after color.
 
 [00:03:06] Will: I mean that that's what we've done for stuff that's non, that doesn't go with a kit. We break it all out by color, and it goes into like stackable bins
 

@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=6XTL4cF5GtA
 
 [00:06:12] Norm: But this is the big one, right? Like this is this is the one where you know 100,000 people, which, who would normally be you know in San Diego at the end of July, will will be watching from home.
 
-[00:06:27] Adam: Well, and everybody's trying to figure this out. We're trying to figure it out with Silicon as well, and the number of questions is is is jaw dropping, right? Because it's not just like how do you create unique experiences for the fans, but how do you create experiences that feel unique and collective, and also, you know, these cons are served by the commerce that they represent, right?
+[00:06:27] Adam: Well, and everybody's trying to figure this out. We're trying to figure it out with SiliCon as well, and the number of questions is is is jaw dropping, right? Because it's not just like how do you create unique experiences for the fans, but how do you create experiences that feel unique and collective, and also, you know, these cons are served by the commerce that they represent, right?
 
 [00:06:51] Unknown speaker: Mm-hmm.
 

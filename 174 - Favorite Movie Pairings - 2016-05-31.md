@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:04:29] Adam: Also in Gremlins.
 
-[00:04:30] Will: Okay. So so what what what stands out on Beverly Hills Cop is the one the first one is the one without um Sylvester Stallone's wife Bridget former ex wife Bridget Nielsen, right?
+[00:04:30] Will: Okay. So so what what what stands out on Beverly Hills Cop is the one the first one is the one without um Sylvester Stallone's wife Brigitte former ex wife Brigitte Nielsen, right?
 
 [00:04:40] Adam: Yes. Okay. Yes. Um. So it's lovely to see a movie where they're not sure if it's going to be a giant or not, right? Because Beverly Hills Cop two suffers from what I remember suffers from like this is going to be even bigger.
 
@@ -504,15 +504,15 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:13:10] Will: Dredd, obviously.
 
-[00:13:11] Adam: There's Dredd, but then he's in Lord of the Rings. He's in the Two Towers. Born,
+[00:13:11] Adam: There's Dredd, but then he's in Lord of the Rings. He's in the Two Towers. Bourne,
 
-[00:13:15] Will: I don't think I want to watch. I don't think I want to watch all of Lord of the Rings again.
+[00:13:15] Will: I don't think I want to watch all of Lord of the Rings again.
 
 [00:13:17] Adam: No, you got you got to.
 
-[00:13:19] Norm: He's born supremacy.
+[00:13:19] Norm: He's Bourne Supremacy.
 
-[00:13:20] Adam: Born supremacy. Born
+[00:13:20] Adam: Bourne Supremacy. Bourne
 
 [00:13:21] Will: supremacy is definitely I would watch. Yeah,
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:16:37] Will: Well, so so. The neat thing about the Strandbeest work is you can make them walk by just pushing them.
 
-[00:16:41] Adam: Right? You can make them walk by just pushing them. But he puts them on the beach and uses sails that are adjustable in terms of their pressure, profile to let them walk down the beach. And so he did this at the beach at Chrissy Field.
+[00:16:41] Adam: Right? You can make them walk by just pushing them. But he puts them on the beach and uses sails that are adjustable in terms of their pressure, profile to let them walk down the beach. And so he did this at the beach at Crissy Field.
 
 [00:16:53] Will: But like when he when he like this one that's in front of us, the demo one, which is one of the ones from one of the Japanese
 
@@ -840,7 +840,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:26:14] Will: Or or or Apocalypse Now.
 
-[00:26:16] Adam: Right. But Apocalypse Now is a different set of difficulties. Yeah. Really. Um. And self-created, and admittedly self-created. I mean, admitted by Coppola as self-created. Godfather. The studio didn't like him as the director. His first ad was ready to replace him any given day that they were filming.
+[00:26:16] Adam: Right. But Apocalypse Now is a different set of difficulties. Yeah. Really. Um. And self-created, and admittedly self-created. I mean, admitted by Coppola as self-created. Godfather. The studio didn't like him as the director. His first AD was ready to replace him any given day that they were filming.
 
 [00:26:16] Norm: Wow.
 

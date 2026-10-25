@@ -38,7 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:01:10] Adam: It's already back.
 
-[00:01:11] Will: I I rented a car last week, and the rental car had one of the best. The rental car place had one of the best disclaimers I've ever seen on this on the counter when you were renting the car, and it was basically like, look, we allow you to take your car to Burning these rental cars to Burning Man, but when it comes back, we're going to check the engine compartment and the interior, and if there's any dust, we're going to charge you a four hundred dollar detailing fee.
+[00:01:11] Will: I I rented a car last week, and the rental car place had one of the best disclaimers I've ever seen on this on the counter when you were renting the car, and it was basically like, look, we allow you to take your car to Burning these rental cars to Burning Man, but when it comes back, we're going to check the engine compartment and the interior, and if there's any dust, we're going to charge you a four hundred dollar detailing fee.
 
 [00:01:32] Adam: Oh, nice.
 
@@ -227,8 +227,6 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 [00:10:07] Will: Oh, yeah. Whoa. Yeah.
 
 [00:10:08] Will: Did you did you load? Did you have the pad app on your phone so you could do the stuff there?
-
-[00:10:11] Norm: I didn't do that.
 
 [00:10:11] Norm: I didn't do that.
 

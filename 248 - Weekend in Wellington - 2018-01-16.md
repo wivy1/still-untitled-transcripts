@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:06:55] Joey: Five hours of training, and then you're out.
 
-[00:06:57] Norm: And most of the people on on the stop with Campbell, like higher percentage of the pilots. Crashed, and from the training than from battle, and I guess if you if you make it through the training, you're going to be competent enough to to fly in battle, but you're at a higher risk of dying from the training than you did in actual battle stuff. And these are you know these are teenagers.
+[00:06:57] Norm: And most of the people on on the Sopwith Camel, like higher percentage of the pilots. Crashed, and from the training than from battle, and I guess if you if you make it through the training, you're going to be competent enough to to fly in battle, but you're at a higher risk of dying from the training than you did in actual battle stuff. And these are you know these are teenagers.
 
 [00:07:22] Adam: Yeah, yeah, totally terrifying when you consider also how young they were. Last time I was here, I mentioned to Peter that my grandfather had flown in World War One, and that I had recently been given his flight diary. Peter was very excited because he collects all this stuff. So I scanned my grandfather's whole flight log and sent it to Peter, and Peter was able to find reference to my grandfather Joe Savage and some other records. He looked through flight log and told me, yeah, your grandfather trained extensively in France in 1918, but never saw action. And he said he flew the Avro 504K airplane, and then when we were at the airfield, he brought me over and he was like, hey, Joe Savage flew this plane, and there was the Avro 504K, not the actual plane my grandfather trained in, but the exact same make and model.
 
@@ -218,13 +218,13 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:11:09] Adam: One hundred and fifty. One hundred and fifty full-time staff. One hundred and forty.
 
-[00:11:11] Norm: Yeah, it's well over a hundred people here, spread across the departments that we typically have covered on testing in terms of sculpting, you know, mold making, casting. But these are big, big departments working on multiple projects at once,
+[00:11:11] Norm: Yeah, it's well over a hundred people here, spread across the departments that we typically have covered on Tested in terms of sculpting, you know, mold making, casting. But these are big, big departments working on multiple projects at once,
 
 [00:11:28] Adam: with large amounts of output required at high degrees of perfection. You know, if they're they're working on some a whole bunch of weapons downstairs, there are stunt weapons, background weapons, foreground weapons, hero weapons, all being finished in different degrees of perfection. Yeah, it's a it's a humming machine,
 
 [00:11:46] Norm: and it's not one giant warehouse. You know, some some shops are we've seen in LA are just very big empty spaces. Here it's it's
 
-[00:11:53] Adam: [unclear: kind of a rabbit war / kind of. It’s a rabbit world / kind of, it’s a rabid war].
+[00:11:53] Adam: [unclear: kind of a rabbit warren / kind of. It’s a rabbit warren / kind of, it’s a rabbit warren].
 
 [00:11:54] Norm: Yeah, it is. Yeah, yeah. Nobody get lost.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:16:54] Joey: Yeah, Those are kind of nodes, like if you think of it as this pathway of like the story, and then this central like node or beat or pivot point to where you now enter a new part of this World War One story,
 
-[00:17:03] Adam: and it's well, and that's what I mean. That's sort of the subject of what we're doing here this week. This entire place, Weta, Weta Digital, Peter, Richard. This is an engine for storytelling, an engine for making movies, making television shows, making props and pieces and costumes, making exhibits. They take, they make exhibits that they take all over the world. They work with our friend Greg Broadmore on the Dr. Grobort’s, Dr. Grobort’s exhibits. And it's just, it's so lovely to be in a place that pays such deep attention to that.
+[00:17:03] Adam: and it's well, and that's what I mean. That's sort of the subject of what we're doing here this week. This entire place, Weta, Weta Digital, Peter, Richard. This is an engine for storytelling, an engine for making movies, making television shows, making props and pieces and costumes, making exhibits. They take, they make exhibits that they take all over the world. They work with our friend Greg Broadmore on the Dr. Grordbort’s, Dr. Grordbort’s exhibits. And it's just, it's so lovely to be in a place that pays such deep attention to that.
 
 [00:17:37] Norm: Yeah. What else are you hoping to do in the next next while you're here in Australia?
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:25:19] Adam: Peter owned At least three suits of Terry's armor already, so we were able to talk about comparison things and original production details and. Details of the suit that he made with me.
 
-[00:25:29] Norm: And He brings the filmmaker's perspective when he watches that film and having empathy for Borman's production and and and the yeah how influential that was.
+[00:25:29] Norm: And He brings the filmmaker's perspective when he watches that film and having empathy for Boorman's production and and and the yeah how influential that was.
 
 [00:25:39] Adam: I was I was in Peter Lyon's sword shop
 

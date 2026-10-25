@@ -138,7 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:04:57] Norm: So you would never see them do that, though. And Adam, he doesn’t want to be the greatest guitarist on Earth, off Earth. Off Earth, yes, exactly. I think it's he set the high bar.
 
-[00:05:06] Adam: You, when you talk about the pooping, last year I was at Johnson Space Center. I was at both Kennedy and Johnson, but it was Johnson that I was hanging out with Chell Lindgren at the Neutral Buoyancy Lab, and he took me into the shuttle mockup and showed me just how tiny the living quarters are on
+[00:05:06] Adam: You, when you talk about the pooping, last year I was at Johnson Space Center. I was at both Kennedy and Johnson, but it was Johnson that I was hanging out with Kjell Lindgren at the Neutral Buoyancy Lab, and he took me into the shuttle mockup and showed me just how tiny the living quarters are on
 
 [00:05:25] Adam: the shuttle.
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:10:27] Simone: Yeah,
 
-[00:10:27] Adam: and there are pictures of him walking out to the plane, and he's walking all hunched over because it wouldn't allow him to stand up. It was a B.F. Goodrich. He convinced B.F. Goodrich. Let's see, Wiley Post was a pilot in 1934. Most of the planes were made of wood, and he flew this wooden plane for a sorry, and he flew this wooden plane for a millionaire that he worked for, and surmised he knew everyone knew you couldn't fly above a certain altitude, like you know twenty thousand plus feet, because you there's not enough oxygen, you suffocate. And he thought, well, what if I brought my own atmosphere? He thought wooden planes can't be pressurized because they're too weak. But what if I brought my own atmosphere? He got B.F. Goodrich to make him this anthropomorphic rubber bladder. That he encased in fabric material with stitching. What he called a good God, I can't believe I'm forgetting the the term. It's basically holding on to the bladder with a net so that it can only expand so much. And then he flew hundreds of miles at like 45,000 feet
+[00:10:27] Adam: and there are pictures of him walking out to the plane, and he's walking all hunched over because it wouldn't allow him to stand up. It was a B.F. Goodrich. He convinced B.F. Goodrich. Let's see, Wiley Post was a pilot in 1934. Most of the planes were made of wood, and he flew this wooden plane for a millionaire that he worked for, and surmised he knew everyone knew you couldn't fly above a certain altitude, like you know twenty thousand plus feet, because you there's not enough oxygen, you suffocate. And he thought, well, what if I brought my own atmosphere? He thought wooden planes can't be pressurized because they're too weak. But what if I brought my own atmosphere? He got B.F. Goodrich to make him this anthropomorphic rubber bladder. That he encased in fabric material with stitching. What he called a good God, I can't believe I'm forgetting the the term. It's basically holding on to the bladder with a net so that it can only expand so much. And then he flew hundreds of miles at like 45,000 feet
 
 [00:10:27] Simone: Oh, wow.
 
@@ -450,17 +450,17 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:17:37] Norm: I know so much is going on.
 
-[00:17:39] Adam: The wedding party is tonight. That's where we get to hang out. The thing is, is that among the professionals, you end up coming here, and you and your fellow professional friends just sort of whiz by each other between different things.
+[00:17:39] Adam: The Weta party is tonight. That's where we get to hang out. The thing is, is that among the professionals, you end up coming here, and you and your fellow professional friends just sort of whiz by each other between different things.
 
 [00:17:39] Norm: Yeah.
 
-[00:17:39] Adam: And that's why the that's why the parties are like. Throwing a party last night and going to the wedding tonight is like how you catch up.
+[00:17:39] Adam: And that's why the that's why the parties are like. Throwing a party last night and going to the Weta tonight is like how you catch up.
 
 [00:17:59] Norm: They're social events. They're literally—it's not a place to get hammered. It's a place to literally just catch up. It's like the summer camp.
 
 [00:17:59] Adam: Exactly.
 
-[00:17:59] Norm: Every year, on the main floor for people who collect toys and or collect collectibles, a bunch of things I want to give shout-outs to. Mobius, or at the Mobius booth, the company that made the 2001 Discovery model, they have a new one that is almost twice as long.
+[00:17:59] Norm: Every year, on the main floor for people who collect toys and or collect collectibles, a bunch of things I want to give shout-outs to. Moebius, or at the Moebius booth, the company that made the 2001 Discovery model, they have a new one that is almost twice as long.
 
 [00:18:28] Adam: It's like eight feet long.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:19:55] Adam: Yes,
 
-[00:19:55] Norm: and I caught glimpses. People who followed our friends Tom Spina and Fon Davis and Michael Basser on Instagram.
+[00:19:55] Norm: and I caught glimpses. People who followed our friends Tom Spina and Fon Davis and Michael McMaster on Instagram.
 
 [00:20:01] Adam: [unclear: I think the contribution / I did a Titan contribution] to Fon Davis's ship.
 

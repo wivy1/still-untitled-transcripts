@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:08:37] Adam: Exactly.
 
-[00:08:39] Adam: And he brought it to school, and he brought it to school. He was apparently telling everyone, " I'm making a clock. I'm making a clock." And he brought it to school, and he showed it to his teachers. And the response, I think, what I heard was one of the teachers, the science teacher,
+[00:08:39] Adam: And he brought it to school. He was apparently telling everyone, " I'm making a clock. I'm making a clock." And he brought it to school, and he showed it to his teachers. And the response, I think, what I heard was one of the teachers, the science teacher,
 
 [00:08:50] Will: his engineering teacher,
 
@@ -466,9 +466,9 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:17:26] Adam: I wanted to talk. I wanted to talk. Let's
 
-[00:17:29] Will: talk about red shirts. Yes.
+[00:17:29] Will: talk about Redshirts. Yes.
 
-[00:17:31] Adam: Yes. We have some time. Um, we have all read the wonderful John Scalzi novel Red Shirts. Is this a semi-spoiler cast?
+[00:17:31] Adam: Yes. We have some time. Um, we have all read the wonderful John Scalzi novel Redshirts. Is this a semi-spoiler cast?
 
 [00:17:39] Norm: Set me up.
 
@@ -480,9 +480,9 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:17:47] Adam: All right, but so
 
-[00:17:48] Will: red shirts you can't spoil.
+[00:17:48] Will: Redshirts you can't spoil.
 
-[00:17:49] Adam: It's red shirts is hard to spoil. Although the the
+[00:17:49] Adam: It's Redshirts is hard to spoil. Although the the
 
 [00:17:52] Norm: the there is a point which there is there is absolutely
 
@@ -500,13 +500,13 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:18:13] Unknown speaker: That's good.
 
-[00:18:13] Adam: but I've been I've been plowing through. Scalzi this week, this last couple of weeks. I think I've polished off four, but Red Shirts is about your classic Star Trek original series ensigns and yeomen.
+[00:18:13] Adam: but I've been I've been plowing through. Scalzi this week, this last couple of weeks. I think I've polished off four, but Redshirts is about your classic Star Trek original series ensigns and yeomen.
 
 [00:18:29] Will: It's kind of like Below decks, Below decks, the episode of TNG.
 
 [00:18:32] Norm: Yes, that's right. It is a variation of that, and also Rosencrantz and Guildenstern, like characters who realize they're not the main characters.
 
-[00:18:39] Adam: Well, it's basically so in Star Trek, the red shirts are the guys that go down to the planet and they get the liver stuck to their face and they die, whilst Spock and Kirk do not. The book Red Shirts is about these characters learning why they get hurt and the main guys do not.
+[00:18:39] Adam: Well, it's basically so in Star Trek, the red shirts are the guys that go down to the planet and they get the liver stuck to their face and they die, whilst Spock and Kirk do not. The book Redshirts is about these characters learning why they get hurt and the main guys do not.
 
 [00:18:53] Norm: It takes a joke in pop culture, a trope, and then expounds on it in a really interesting way.
 
@@ -820,7 +820,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:30:44] Will: Yeah, he's right.
 
-[00:30:46] Norm: I see Andy Doll, the main character, main extra. I see is Justin Long.
+[00:30:46] Norm: I see Andy Dahl, the main character, main extra. I see is Justin Long.
 
 [00:30:50] Adam: Martin Starr has to be in there somewhere.
 
@@ -870,7 +870,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:31:35] Norm: Yeah,
 
-[00:31:35] Adam: I think, I think our work is done here. Yeah, get out and make red shirts, people.
+[00:31:35] Adam: I think, I think our work is done here. Yeah, get out and make Redshirts, people.
 
 [00:31:46] Will: What?
 
@@ -952,7 +952,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:33:23] Adam: Can can we do it from inside of one of the Anglin brothers' cells?
 
-[00:33:26] Will: I think we're gonna do it. I think we're gonna do it in the cafeteria.
+[00:33:26] Will: I think we're gonna do it in the cafeteria.
 
 [00:33:29] Adam: Ah,
 

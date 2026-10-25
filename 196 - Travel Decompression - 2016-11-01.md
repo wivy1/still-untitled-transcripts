@@ -324,7 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:16:27] Adam: He's got a bunch of stuff that he’s been doing for Blizzard.
 
-[00:16:29] Norm: Yeah, yeah, we'll see all of that on Saturday. It's all hush hush right now, and then in November, we're going to be down at DesignerCon, and this is a convention. It's a it's a smaller one. It's almost like Monster Palooza size. I don't know if you've heard this, Adam, but you know how we've talked on the podcast about those craft fairs that we get,
+[00:16:29] Norm: Yeah, yeah, we'll see all of that on Saturday. It's all hush hush right now, and then in November, we're going to be down at DesignerCon, and this is a convention. It's a it's a smaller one. It's almost like Monsterpalooza size. I don't know if you've heard this, Adam, but you know how we've talked on the podcast about those craft fairs that we get,
 
 [00:16:29] Adam: yeah,
 
@@ -340,7 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:17:21] Joey Fameli: Wooden ties I've seen.
 
-[00:17:22] Norm: Yeah, a lot of, a lot of, yeah, a lot of things. This designer con that's coming up is like those four tables, but for an entire convention. It's just custom art that people make and modifications of toys and garage kits.
+[00:17:22] Norm: Yeah, a lot of, a lot of, yeah, a lot of things. This DesignerCon that's coming up is like those four tables, but for an entire convention. It's just custom art that people make and modifications of toys and garage kits.
 
 [00:17:35] Adam: Nice.
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:28:42] Norm: there's still the Tom Sachs exhibit.
 
-[00:28:45] Adam: Tom Sachs is a space program. It's still at Yerba Buena Center for the Arts. If you've ever heard me mention him on the podcast, and you live in San Francisco, go see it. It is a, it is a, the deepest of dives into Tom's whole uh whole oeuvre, and um it's really thrilling and overwhelming and amazing. It's an incredible show, and it's got some pieces from his whole history.
+[00:28:45] Adam: Tom Sachs's A Space Program. It's still at Yerba Buena Center for the Arts. If you've ever heard me mention him on the podcast, and you live in San Francisco, go see it. It is a, it is a, the deepest of dives into Tom's whole uh whole oeuvre, and um it's really thrilling and overwhelming and amazing. It's an incredible show, and it's got some pieces from his whole history.
 
 [00:29:07] Norm: Yeah, and even like the lobby and the the cafe, it's all decked out.
 

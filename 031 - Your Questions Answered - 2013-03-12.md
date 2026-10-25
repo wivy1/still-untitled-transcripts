@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:01:22] Unknown speaker: Yeah.
 
-[00:01:23] Adam: The Japanese maples we had out front. The Japanese maples we had out front of the house, which we thought were going to be really nice, looked like someone took a blowtorch to them.
+[00:01:23] Adam: The Japanese maples we had out front of the house, which we thought were going to be really nice, looked like someone took a blowtorch to them.
 
 [00:01:29] Will: Well, the thing I the way I judge is if you see rosemary growing wild on the side of the street, it's going to be cold and foggy because it's English,
 

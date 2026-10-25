@@ -4,7 +4,7 @@
 **Duration:** 45m 28s  
 Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
-[00:00:03] Will: Welcome to Still Entitled the Adam Savage Project. I'm Will.
+[00:00:03] Will: Welcome to Still Untitled the Adam Savage Project. I'm Will.
 
 [00:00:03] Adam: I'm Adam,
 
@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:00:17] Will: Norm's the producer and the editor, so it's all on him.
 
-[00:00:17] Will: Welcome to Still Entitled, the Adam Savage—
+[00:00:17] Will: Welcome to Still Untitled, the Adam Savage—
 
 [00:00:17] Norm: Now it has to go in.
 
@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:00:17] Norm: We all good?
 
-[00:00:17] Will: Welcome to Still Entitled the Adam Savage Project. I'm Will.
+[00:00:17] Will: Welcome to Still Untitled the Adam Savage Project. I'm Will.
 
 [00:00:17] Adam: I'm Adam,
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:06:04] Adam: dude, you know that was a masterpiece of of engineering and design, and it was precisely the size of a pack of cigarettes.
 
-[00:06:04] Norm: Digital elf,
+[00:06:04] Norm: Digital ELPH,
 
 [00:06:04] Adam: completely on purpose, I'm sure.
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:06:35] Will: Oh, of the bigature or the
 
-[00:06:35] Adam: Of the bigotry.
+[00:06:35] Adam: Of the bigature.
 
 [00:06:35] Will: Oh wow!
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:13:00] Will: Yeah, but there's no decision there. You just you're just hoping everything goes well, and there to wave the flag, man.
 
-[00:13:05] Adam: This is um, so this is actually one of my favorite quotes. There's a book called Letters to a Young Poet, Rayna Maria Rilke, the poet. This is early 20th century, I think. Like, yeah, very early 20th century. He was reached out to by a young poet for advice, and they corresponded. And there's a book of I think 20 of Rilke's letters to the young poet, and they're amazing.
+[00:13:05] Adam: This is um, so this is actually one of my favorite quotes. There's a book called Letters to a Young Poet, Rainer Maria Rilke, the poet. This is early 20th century, I think. Like, yeah, very early 20th century. He was reached out to by a young poet for advice, and they corresponded. And there's a book of I think 20 of Rilke's letters to the young poet, and they're amazing.
 
 [00:13:30] Will: But that's that's awesome.
 
@@ -666,7 +666,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:24:01] Norm: Number ten is from Breaking Bad. It's Ozymandias.
 
-[00:24:05] Adam: Now you told me off mic that Ryan Johnson directed that, and I didn't know this. This is the episode in which Hank dies.
+[00:24:05] Adam: Now you told me off mic that Rian Johnson directed that, and I didn't know this. This is the episode in which Hank dies.
 
 [00:24:05] Norm: Yes.
 
@@ -712,7 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:25:09] Will: Oh man. So so the pilot. Oh
 
-[00:25:12] Adam: man. Really? That's supposedly better than Ozzy Mandy's.
+[00:25:12] Adam: man. Really? That's supposedly better than Ozymandias.
 
 [00:25:16] Norm: According to this,
 
@@ -796,7 +796,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:27:15] Will: So they they they focused on people who work. Yeah, it's like red shirts, yeah, basically. They focus on people who work work in different parts of the ship, and it's very good.
 
-[00:27:22] Adam: When is red shirts being made into a movie? John Scalzi.
+[00:27:22] Adam: When is Redshirts being made into a movie? John Scalzi.
 
 [00:27:25] Will: I don't know. I'm reading Scalzi's new book right now, which is very good.
 
@@ -1060,9 +1060,9 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:34:21] Norm: You know this one.
 
-[00:34:21] Adam: one of my favorite episodes is where Bobby, the comedian's wife, and Don get in a car accident, and Elizabeth Moss takes care of her. That's some of the best writing, acting that I can think of in that show.
+[00:34:21] Adam: one of my favorite episodes is where Bobby, the comedian's wife, and Don get in a car accident, and Elisabeth Moss takes care of her. That's some of the best writing, acting that I can think of in that show.
 
-[00:34:35] Will: Oh, is it? Is it the one where Elizabeth Moss and and and John Hem
+[00:34:35] Will: Oh, is it? Is it the one where Elisabeth Moss and and and Jon Hamm
 
 [00:34:35] Adam: Have the fight?
 
@@ -1096,13 +1096,13 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:35:33] Norm: Oh wow!
 
-[00:35:33] Adam: And the director told me that when John Hamm and Elizabeth Moss are in a room, just things happen.
+[00:35:33] Adam: And the director told me that when Jon Hamm and Elisabeth Moss are in a room, just things happen.
 
 [00:35:42] Norm: And that that whole episode is just putting them in the room.
 
 [00:35:44] Will: It's a capsule episode again. It's like it's it's and it's the essence of what that show is: is this relationship between these two people? And
 
-[00:35:51] Adam: the two of them are so amazing. I mean, the two of them are so incredible, and also getting to watch t here is like three different scenes throughout the series between Don and Joan, like the two alpha sharks just talking to each other, and it's just. But that that episode of Suitcases,
+[00:35:51] Adam: the two of them are so amazing. I mean, the two of them are so incredible, and also getting to watch there is like three different scenes throughout the series between Don and Joan, like the two alpha sharks just talking to each other, and it's just. But that that episode of Suitcases,
 
 [00:36:11] Will: the episode when she's negotiating the the transaction with was it the car dealer when when when when he's like don't when he tells her not to sleep with the car dealer, and he she already has. That's
 
@@ -1334,21 +1334,21 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:42:48] Will: think of how broken you'll be by the end of that, and and the kind of weird shit everybody will be excited about at the end of the list.
 
-[00:42:53] Norm: I'm gonna add to the list, I'm, I'm gonna add to the list of ideas have come up on Still Entitled that we are still developing.
+[00:42:53] Norm: I'm gonna add to the list of ideas have come up on Still Untitled that we are still developing.
 
 [00:42:58] Will: Yeah, all right, good. We should do our top five movies of all time next week.
 
-[00:43:01] Adam: No, our top five lists. We've determined top five projects from Still Entitled.
+[00:43:01] Adam: No, our top five lists. We've determined top five projects from Still Untitled.
 
 [00:43:01] Will: Top five projects.
 
-[00:43:07] Norm: Number five is the Carl Urban Film Festival.
+[00:43:07] Norm: Number five is the Karl Urban Film Festival.
 
-[00:43:08] Will: Yeah. Look, Kishore has been doing those movies, those science movies at the Draft House. [unclear: We have an end now / we have it in now].
+[00:43:08] Will: Yeah. Look, Kishore has been doing those movies, those science movies at the Drafthouse. [unclear: We have an end now / we have it in now].
 
 [00:43:08] Adam: Did?
 
-[00:43:08] Will: Well, we can make this Carl Urban thing happen?
+[00:43:08] Will: Well, we can make this Karl Urban thing happen?
 
 [00:43:17] Adam: Did I ever? Years ago, I was corresponding with Hodgman, and he said something about Oh, Serpent in the Rainbow was. He said, " Oh, Serpent in the Rainbow. That's my favorite of the Let's Fuck with Bill Pullman's Mind genre. " Oh my god! Oh my god!.
 

@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:07:22] Norm: It's Ridley Scott. He knows how to tell a story.
 
-[00:07:24] Adam: He really does. He's got an incredible cast. We've just we named a whole bunch of them. The costume designer is one of my favorite costume designers in the world, Janti Yates, who's done most of Ridley Scott's films recently. She did Gladiator. She also did Prometheus. I think their Prometheus helmets are perhaps my favorite space helmet in film history.
+[00:07:24] Adam: He really does. He's got an incredible cast. We've just we named a whole bunch of them. The costume designer is one of my favorite costume designers in the world, Janty Yates, who's done most of Ridley Scott's films recently. She did Gladiator. She also did Prometheus. I think their Prometheus helmets are perhaps my favorite space helmet in film history.
 
 [00:07:44] Will: and suits in general are amazing. Yeah.
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:09:35] Adam: It's the next book I read.
 
-[00:09:36] Will: It is. It is. I think once you start reading it, there's no way we're not going to talk about it on the show. So if you want to go ahead and get a head start, go pick up a copy, start reading it. I bought the Kindle version, and I was having so much fun reading it this morning when I was laying in bed procrastinating, getting up that I went and got the Audible so I could whisper sync the voice and do all that. It's really good.
+[00:09:36] Will: It is. It is. I think once you start reading it, there's no way we're not going to talk about it on the show. So if you want to go ahead and get a head start, go pick up a copy, start reading it. I bought the Kindle version, and I was having so much fun reading it this morning when I was laying in bed procrastinating, getting up that I went and got the Audible so I could Whispersync the voice and do all that. It's really good.
 
 [00:09:54] Adam: I'm going to do the hard copy.
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:09:58] Will: It's a big giant book.
 
-[00:09:59] Adam: Yeah, yeah, yeah. No, that's I. I'm still a hard copy guy. I I love reading. I've tried to read. I listen to audiobooks. Especially since I've got a bunch of commuting this week for MythBusters, I have a book that I'm reading. I'm reading the new book by the guy who wrote Clockers, and his name is escaping me, but it's called Samaritan, The Samaritan, and it's really, really wonderful and intense, and I'm enjoying it. But with Neil's book, it's awesome. It's all about having it in the hand.
+[00:09:59] Adam: Yeah, yeah, yeah. No, that's I. I'm still a hard copy guy. I I love reading. I've tried to read. I listen to audiobooks. Especially since I've got a bunch of commuting this week for MythBusters, I have a book that I'm reading. I'm reading the new book by the guy who wrote Clockers, and his name is escaping me, but it's called Samaritan, The Samaritan, and it's really, really wonderful and intense, and I'm enjoying it. But with Neal's book, it's awesome. It's all about having it in the hand.
 
 [00:10:29] Will: This is, I mean, I I'm a little bit more than halfway through. It is right up there with Snow Crash and Victorian Age and Cryptonomicon and Anathem
 
@@ -710,6 +710,6 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:32:55] Norm: Bye.
 
-[00:32:55] Unknown speaker: Bye. Bye. Bye. Bye. Bye. Bye. Bye. Bye.
+
 
 [00:33:02] Norm: Don't forget, you can now get Piper, an all-in-one home security and home automation system, without the fees and better yet, without the security companies. Packed with a camera, multiple environmental sensors, and even a blaring siren. Okay. See exactly what's going on directly from your mobile device with encrypted live or recorded HD videos. There's no wire required. It's easy to use, and you're completely in control. Starting at $ 199, you'll have a security system that you can customize to focus on exactly what matters to you. Go to getpiper.com/untitled and collect $ 25 off any Piper or Piper bundle. Thanks.

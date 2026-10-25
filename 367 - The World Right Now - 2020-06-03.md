@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=4fu9C719cHw
 
 [00:29:44] Norm: And you know, as tested, you know, if you are here to learn about, you know, different makers and maker culture and people doing wonderful things in this space, you know, share those things from. People who are not represented, right? From Black makers and from Black engineers and scientists, and you know, we're going to try to do our part to amplify those voices too. But there are so many that we probably don't know of through our own blindness. And please share those with us so we can, you know, learn about them and engage them.
 
-[00:30:18] Will: On that, on that note, absolutely, Khalif Jenkins of the Spawn on Me podcast is a friend, and he put together a great roundtable of people to talk about George Floyd and the protests and and what it's like to be Black in America. And and it's it was a really really fantastic podcast that I learned a lot. So I I highly recommend it.
+[00:30:18] Will: On that, on that note, absolutely, Kahlief Jenkins of the Spawn on Me podcast is a friend, and he put together a great roundtable of people to talk about George Floyd and the protests and and what it's like to be Black in America. And and it's it was a really really fantastic podcast that I learned a lot. So I I highly recommend it.
 
 [00:30:44] Adam: Thank you, Will. We'll include some some links here in the comments below. There's you know we're we're we're let's not there's not much to talk about for tested this week. I think we should wrap this up.
 

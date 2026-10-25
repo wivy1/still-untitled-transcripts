@@ -4,7 +4,7 @@
 **Duration:** 43m 39s  
 Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
-[00:00:00] Norm: This week's episode of Still Entitled is brought to you by LeVar Burton Reads. So many of us learn to love a good story by watching LeVar Burton, host of the wonderful TV show Reading Rainbow. Although you might also know LeVar from his years as Geordi on Star Trek: The Next Generation. Well, LeVar has a new podcast that recreates the magic for grown-ups. It's called LeVar Burton Reads. Each episode, LeVar picks one of his favorite short stories, like the great sci-fi story " Kin" by Bruce McAllister, and reads it to you. Simple, awesome. I think you'll really enjoy it. Subscribe it to Lavar Burton Reads in Stitcher, Apple Podcasts, or wherever you listen to podcasts, and thank him for sponsoring this week's show. Welcome to Still Entitled, the Adam Savage Project. I'm Norm.
+[00:00:00] Norm: This week's episode of Still Untitled is brought to you by LeVar Burton Reads. So many of us learn to love a good story by watching LeVar Burton, host of the wonderful TV show Reading Rainbow. Although you might also know LeVar from his years as Geordi on Star Trek: The Next Generation. Well, LeVar has a new podcast that recreates the magic for grown-ups. It's called LeVar Burton Reads. Each episode, LeVar picks one of his favorite short stories, like the great sci-fi story " Kin" by Bruce McAllister, and reads it to you. Simple, awesome. I think you'll really enjoy it. Subscribe it to LeVar Burton Reads in Stitcher, Apple Podcasts, or wherever you listen to podcasts, and thank him for sponsoring this week's show. Welcome to Still Untitled, the Adam Savage Project. I'm Norm.
 
 [00:00:49] Adam: I'm Adam,
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:02:57] Adam: I have
 
-[00:02:57] Adam: reed switches, and that is a terrible, terrible way to go. Reed switches are super, super finicky. They're touchy. They fail. We had a failure mode of like fifty percent of the read switches. And there is solid state electronics that do this that can switch a switch a current because of magnetism.
+[00:02:57] Adam: reed switches, and that is a terrible, terrible way to go. Reed switches are super, super finicky. They're touchy. They fail. We had a failure mode of like fifty percent of the reed switches. And there is solid state electronics that do this that can switch a switch a current because of magnetism.
 
 [00:03:18] Jeremy: Right. Yeah. Well, and there is pinball machines are filled with them nowadays.
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:05:19] Norm: Now that's the that's the real old school brute force method. Putting a laptop behind everything. Oh, I have an old laptop, and then that's just waste of power.
 
-[00:05:26] Adam: Well, I mean, so one of my dream props is the Voight Kampf machine from Blade Runner, and if you can see some of the behind the scenes photos of the crafts people and tech people working on the Voight Kampf machine, which had three different monitors, which in the 1979, 1980, these were done with tiny CRT monitors,
+[00:05:26] Adam: Well, I mean, so one of my dream props is the Voight-Kampff machine from Blade Runner, and if you can see some of the behind the scenes photos of the crafts people and tech people working on the Voight-Kampff machine, which had three different monitors, which in the 1979, 1980, these were done with tiny CRT monitors,
 
 [00:05:48] Norm: right?
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:14:38] Norm: Yeah, six months ago. Yeah, six months ago. Yes, absolutely. So
 
-[00:14:40] Adam: then you dropped. You had the same thing happen again. This time, confident that I knew I could do this, I again took it to the bandsaw and notched it. We covered it, untested, but there was a whole bunch of commentary in the thread.
+[00:14:40] Adam: then you dropped. You had the same thing happen again. This time, confident that I knew I could do this, I again took it to the bandsaw and notched it. We covered it on Tested, but there was a whole bunch of commentary in the thread.
 
 [00:14:53] Norm: Yes, and people were posting in the the comments of the video. I've seen this. This is a video I've seen before, to the point where people on Twitter were saying they had seen, they had vividly remembered the thumbnail of the video. Which was the thumbnail is the lens going into the bandsaw, and
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:17:10] Jeremy: I got it
 
-[00:17:10] Adam: right, and so then I know that aluminum is strong enough to use as a wrench, and I needed a material on either side of the fully hardened alloy. What do you call it? Ring of the filter that is also anodized, so it's very rigid. And if I'm 180 degrees offset, I'm balancing the the load. So then it's just a matter of holding on to the lens carefully, which is better with hands than any vice. So yeah, I if you saw, I didn't come. There wasn't zero margin of error. There literally was like the thickness of a paper match, which from a machining standpoint is like scads. And I, you know, I [unclear: couldn’t / can] go very.
+[00:17:10] Adam: right, and so then I know that aluminum is strong enough to use as a wrench, and I needed a material on either side of the fully hardened alloy. What do you call it? Ring of the filter that is also anodized, so it's very rigid. And if I'm 180 degrees offset, I'm balancing the the load. So then it's just a matter of holding on to the lens carefully, which is better with hands than any vise. So yeah, I if you saw, I didn't come. There wasn't zero margin of error. There literally was like the thickness of a paper match, which from a machining standpoint is like scads. And I, you know, I [unclear: couldn’t / can] go very.
 
 [00:17:54] Jeremy: I'd forgotten. So I, I was imagining you were actually cutting it off.
 
@@ -882,9 +882,9 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:37:06] Adam: yes, Ken Adams.
 
-[00:37:08] Norm: Yes, Ken Adams. Thank you. Yes,
+[00:37:08] Norm: Yes, Ken Adam. Thank you. Yes,
 
-[00:37:10] Adam: yes. Did Doctor Strangelove did so many important Bond films, including Moonraker and yeah. Yeah, Ken Adams is a is an absolute giant, and those big sets, like the War Room with its strangely slanted ceiling, that is all Ken Adams' brilliance. And there's a wonderful large coffee table book of Ken Adams' production design, and it's really worth seeing because it's astounding to see how much what
+[00:37:10] Adam: yes. Did Doctor Strangelove did so many important Bond films, including Moonraker and yeah. Yeah, Ken Adams is a is an absolute giant, and those big sets, like the War Room with its strangely slanted ceiling, that is all Ken Adam's brilliance. And there's a wonderful large coffee table book of Ken Adam's production design, and it's really worth seeing because it's astounding to see how much what
 
 [00:37:36] Norm: it's out of print
 

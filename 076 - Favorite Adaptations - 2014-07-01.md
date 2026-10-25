@@ -546,13 +546,13 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:24:17] Norm: Strange film was right.
 
-[00:24:18] Adam: Strange, yes. Wait, but was it? Was by? Wasn't that also partly iRobot or no? It was Positronic Men?
+[00:24:18] Adam: Strange, yes. Wait, but was it? Was by? Wasn't that also partly I, Robot or no? It was Positronic Men?
 
-[00:24:25] Norm: the same universe as iRobot. Yeah, it's the same universe.
+[00:24:25] Norm: the same universe as I, Robot. Yeah, it's the same universe.
 
 [00:24:26] Adam: Okay,
 
-[00:24:27] Will: I got to give iRobot as my least favorite adaptation.
+[00:24:27] Will: I got to give I, Robot as my least favorite adaptation.
 
 [00:24:29] Adam: That is a pretty, pretty, pretty shitty.
 

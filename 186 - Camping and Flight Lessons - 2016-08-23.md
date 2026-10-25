@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:06:09] Rebecca: Yeah.
 
-[00:06:10] Adam: Um. But it was me, my kids, thing one and thing two, Rebecca, your boyfriend, Adam, Simone, Yetch, um,
+[00:06:10] Adam: Um. But it was me, my kids, thing one and thing two, Rebecca, your boyfriend, Adam, Simone, Giertz, um,
 
 [00:06:18] Norm: Sean,
 

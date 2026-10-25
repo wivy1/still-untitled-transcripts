@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:04:50] Will: yes, watching it.
 
-[00:04:51] Adam: Oh, it's you know they continue, they continue. Damien Kulash was on one of the morning shows with his drummer, and and they they continue to be crazy, charming, and sweet. But to surprise, and what he says is, they they got an, a request from Honda to work with these things and go to Japan, and he said they showed up with an idea, and then they work with these collaborators
+[00:04:51] Adam: Oh, it's you know they continue, they continue. Damian Kulash was on one of the morning shows with his drummer, and and they they continue to be crazy, charming, and sweet. But to surprise, and what he says is, they they got an, a request from Honda to work with these things and go to Japan, and he said they showed up with an idea, and then they work with these collaborators
 
 [00:05:17] Norm: with the director, the famous Japanese director,
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:05:53] Will: they did a Rube Goldberg domino years ago. It was amazing.
 
-[00:06:01] Adam: The thing that Damien said that I really like is that they don't really make a distinction between the making of the music and the making of the. Thing about the music,
+[00:06:01] Adam: The thing that Damian said that I really like is that they don't really make a distinction between the making of the music and the making of the. Thing about the music,
 
 [00:06:10] Norm: it's
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:07:43] Will: don't buy a scooter
 
-[00:07:43] Norm: and then two I thought wait a minute this is Wally like this is this this is
+[00:07:43] Norm: and then two I thought wait a minute this is WALL-E like this is this this is
 
 [00:07:48] Adam: how we all get fat and stupid.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:18:25] Will: Oh my god! That’s amazing.
 
-[00:18:25] Adam: And it's got a bob relief in gold foam core of me shooting Jamie with arrows. Oh dear! You know, Halloween is one of those. It is. I love Halloween. I and I grew up loving Halloween. Like, I very specifically remember the early '70s when the most popular I can't think of anything Halloween costume was a hobo.
+[00:18:25] Adam: And it's got a bas-relief in gold foam core of me shooting Jamie with arrows. Oh dear! You know, Halloween is one of those. It is. I love Halloween. I and I grew up loving Halloween. Like, I very specifically remember the early '70s when the most popular I can't think of anything Halloween costume was a hobo.
 
 [00:18:59] Norm: Oh wow! Yeah, yeah. Or stick a little,
 

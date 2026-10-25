@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:07:29] Adam: yes,
 
-[00:07:30] Norm: ah, before I, I don't know if people know where it is, and I'll want you to talk about that. But if you're watching the video, you'll notice Adam has bookcases. You have bookcases behind you, and did you know there's a Twitter account now that reviews like the correspondence and who you see on cable television and all their sets because all of everyone's standing with bookcases behind them. They're, it's a wide range of. Of bookcase styles, which books are prominently displayed, which spines are displayed,
+[00:07:30] Norm: ah, before I, I don't know if people know where it is, and I'll want you to talk about that. But if you're watching the video, you'll notice Adam has bookcases. You have bookcases behind you, and did you know there's a Twitter account now that reviews like the correspondents and who you see on cable television and all their sets because all of everyone's standing with bookcases behind them. They're, it's a wide range of. Of bookcase styles, which books are prominently displayed, which spines are displayed,
 
 [00:08:01] Adam: Oh.
 
@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:08:12] Adam: I hadn't even considered that, but sure, like Woody Allen in " Play It Again, Sam," opening interesting books to leave around his house, so he seems really educated and erudite.
 
-[00:08:24] Norm: Yes, I'll read an example. The Twitter account is B Credibility, and for one example, they name that they have screenshots of the people, and it's all the same type of screenshot. You know, kind of flatly lit with the bookcase in the back. It goes: This person has gone big with poses in front of a big bookcase. The bold grab at its credibility is someone undermined by the hardback copy of Da Vinci Code. That political biographies and a book about crime suggests politics, knavery, and bullshit.
+[00:08:24] Norm: Yes, I'll read an example. The Twitter account is B Credibility, and for one example, they name that they have screenshots of the people, and it's all the same type of screenshot. You know, kind of flatly lit with the bookcase in the back. It goes: This person has gone big with poses in front of a big bookcase. The bold grab at its credibility is somewhat undermined by the hardback copy of Da Vinci Code. That political biographies and a book about crime suggests politics, knavery, and bullshit.
 
 [00:08:53] Will: Have they found anybody who has, like,
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:13:06] Norm: Wow.
 
-[00:13:06] Adam: Um. And we moved. This sounds so bourgeois to say. We moved the fiction section from downstairs to upstairs, but the fact was was we we rejiggered a couple of the rooms in our house, and we ended up moving a bookshelf which housed all of Julia's therapy and mindfulness books. And then we realized it would be better to have our fiction section up there, just make a better room. And so we we just went through that a few months ago of like all the books down and a delicious library of everything, and sort of trying to track where everything is. I have comic books is the one that I have the hardest part with because I've got three different sections: one at the house, one in the basement, and one here of different graphic novels and comic books.
+[00:13:06] Adam: Um. And we moved. This sounds so bourgeois to say. We moved the fiction section from downstairs to upstairs, but the fact was was we we rejiggered a couple of the rooms in our house, and we ended up moving a bookshelf which housed all of Julia's therapy and mindfulness books. And then we realized it would be better to have our fiction section up there, just make a better room. And so we we just went through that a few months ago of like all the books down and a Delicious Library of everything, and sort of trying to track where everything is. I have comic books is the one that I have the hardest part with because I've got three different sections: one at the house, one in the basement, and one here of different graphic novels and comic books.
 
 [00:13:53] Norm: You mean hardest part was sorting?
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:18:45] Norm: you have the Criterion Collection, and I'm gonna do this as a sales pitch for that because the Criterion Channel is a really awesome streaming service that I think everyone should should try at least for the two weeks that it's free.
 
-[00:18:59] Adam: It's amazing. It's totally amazing. I managed to get it up on my Samsung TV, which is tricky because the Samsung televisions don't have a Criterion app. I had to buy a Roku box. It doesn't work just using the Roku channel on the Samsung. I had to buy a Roku box, which was cheap. It was like twenty bucks, and through Roku, I was able to sign on to my Criterion and have it. And I watched Wong Kar-wai's in the Mood for Love until the end of the world, Seven Samurai, yeah, all that within the first couple of weeks of having it. It's fantastic.
+[00:18:59] Adam: It's amazing. It's totally amazing. I managed to get it up on my Samsung TV, which is tricky because the Samsung televisions don't have a Criterion app. I had to buy a Roku box. It doesn't work just using the Roku channel on the Samsung. I had to buy a Roku box, which was cheap. It was like twenty bucks, and through Roku, I was able to sign on to my Criterion and have it. And I watched Wong Kar-wai's In the Mood for Love, Until the End of the World, Seven Samurai, yeah, all that within the first couple of weeks of having it. It's fantastic.
 
 [00:19:33] Will: Well, the Kurosawa collection on there is the thing I started browsing at first, and and I've seen almost all of one, probably not almost all, because there's a bazillion of them. But I've seen a lot of the Kurosawa Samurai movies, and I'd never seen the crime movies before.
 

@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:00:40] Norm: Origin Stories.
 
-[00:00:41] Adam: Origin Sci-Fi Twenty Five Origin Stories. So
+[00:00:41] Adam: Origin Syfy Twenty Five Origin Stories. So
 
 [00:00:43] Will: you had Neil Gaiman, Chris Hardwick. I've listened to a bunch of them so far.
 
@@ -68,9 +68,9 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:01:44] Adam: Makes a huge difference.
 
-[00:01:44] Will: It makes a huge difference. Like like ZenCaster and stuff. There are good solutions that work around the remote thing, but it's still not quite the same.
+[00:01:44] Will: It makes a huge difference. Like like Zencastr and stuff. There are good solutions that work around the remote thing, but it's still not quite the same.
 
-[00:02:00] Adam: I mean, look, I wouldn't mind a Skype picture of the person. There is a way in which I notice that my affect is tamped down on a phone call that when it isn't in in the room. One of my favorite notes I kept on getting from my producer Jennifer on the Sci-Fi Origin Stories podcast was she kept on holding up signs going less technical detail. And not because sci-fi is afraid of technical detail, not by any stretch of the imagination. But there was a couple like when I was interviewing John Knoll, we went way down a rabbit hole.
+[00:02:00] Adam: I mean, look, I wouldn't mind a Skype picture of the person. There is a way in which I notice that my affect is tamped down on a phone call that when it isn't in in the room. One of my favorite notes I kept on getting from my producer Jennifer on the Syfy Origin Stories podcast was she kept on holding up signs going less technical detail. And not because Syfy is afraid of technical detail, not by any stretch of the imagination. But there was a couple like when I was interviewing John Knoll, we went way down a rabbit hole.
 
 [00:02:32] Will: Inventor of Knolling.
 
@@ -98,15 +98,15 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:03:10] Norm: It's interesting because for some of this fifteen interviews that you did, many of them were people that you were either acquainted with or friends with, that you had good rapport with. But some of them were the first time you've met them, and you were learning. I mean, the whole thing was to discuss love of science fiction and their own personal origin stories. You learn any interesting things?
 
-[00:03:28] Adam: Completely, no, no, no. So, I said this in a lot of the press, but sci-fi didn't sci-fi came to the first meeting with me about this podcast without a list of people they were hoping I'd interview. Well,
+[00:03:28] Adam: Completely, no, no, no. So, I said this in a lot of the press, but Syfy didn't Syfy came to the first meeting with me about this podcast without a list of people they were hoping I'd interview. Well,
 
 [00:03:38] Will: they want, I mean, I hope I would hope with your network of people they would come in and say, pick your twenty five favorite science fiction people, right?
 
-[00:03:46] Adam: It wasn't even like that. They were just like, we don't have, we don't want to impose any. Outside thing on this, we want to work it out with you, and so I, you know, I called up the people that I knew, people like Jonathan Frakes and Neil Gaiman, and you know the guys at ILM, Doug Chang, John, John Knoll,
+[00:03:46] Adam: It wasn't even like that. They were just like, we don't have, we don't want to impose any. Outside thing on this, we want to work it out with you, and so I, you know, I called up the people that I knew, people like Jonathan Frakes and Neil Gaiman, and you know the guys at ILM, Doug Chiang, John, John Knoll,
 
 [00:04:04] Norm: Rick Baker,
 
-[00:04:05] Adam: and then they brought in people like D.C. Fontana, Nnedi Okorafor, Sana Amanat, and like these interviews were so so invigorating, and because those folks weren't on my first list radar, for me it was like this awesome treat of getting to unpack these these other ways of looking at the same thing that I love. Right? I sit down with with with Doug Chang, and it's not like I know exactly where it's going to go, but I I understand the territory. You know, I know Doug, and
+[00:04:05] Adam: and then they brought in people like D.C. Fontana, Nnedi Okorafor, Sana Amanat, and like these interviews were so so invigorating, and because those folks weren't on my first list radar, for me it was like this awesome treat of getting to unpack these these other ways of looking at the same thing that I love. Right? I sit down with with with Doug Chiang, and it's not like I know exactly where it's going to go, but I I understand the territory. You know, I know Doug, and
 
 [00:04:05] Will: we've a working relationship.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:07:16] Norm: For for sci-fi fans.
 
-[00:07:25] Adam: Well, and obviously we're interviewing people, many of whom are actively working constantly, and so the scheduling because there were lots of people on our list who said yes, yes, they wanted to do it, but we couldn't find the time. We couldn't coordinate with Jordan Boat Roberts directed Kong. I really wanted him, and we had a great conversation at Comic Con.
+[00:07:25] Adam: Well, and obviously we're interviewing people, many of whom are actively working constantly, and so the scheduling because there were lots of people on our list who said yes, yes, they wanted to do it, but we couldn't find the time. We couldn't coordinate with Jordan Vogt-Roberts directed Kong. I really wanted him, and we had a great conversation at Comic Con.
 
 [00:07:43] Will: Skull Island Kong.
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:08:28] Adam: Sci Fi had its own set of questions that it wanted, but I also brought in a ringer to help me compile questions, and his name was Norman Chan.
 
-[00:09:14] Will: Turns out Norman Chan does a lot about science fiction.
+[00:09:14] Will: Turns out Norman Chan knows a lot about science fiction.
 
 [00:09:14] Unknown speaker: Yeah.
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:14:38] Unknown speaker: Yeah.
 
-[00:14:38] Will: So so this this seconds thing though is one of my favorite science fiction tropes. Like when you think about an interstellar civilization, days are meaningless, right? Because days are based around the orbit of one particular the rotation one particular planet around one particular sun. So really. The way to think about days is in terms of kiloseconds, right? So, like, if you look at like the Ian Banks culture novels, which are my all-time favorite science fiction novels, or I think this Charlie Stross post-singularity stuff does this too. It's all kiloseconds,
+[00:14:38] Will: So so this this seconds thing though is one of my favorite science fiction tropes. Like when you think about an interstellar civilization, days are meaningless, right? Because days are based around the orbit of one particular the rotation one particular planet around one particular sun. So really. The way to think about days is in terms of kiloseconds, right? So, like, if you look at like the Iain Banks culture novels, which are my all-time favorite science fiction novels, or I think this Charlie Stross post-singularity stuff does this too. It's all kiloseconds,
 
 [00:15:08] Will: which requires a
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:15:49] Adam: All right.
 
-[00:15:49] Will: You should get Charlie Stross. If you get to do this again, you need to get Charlie Strauss because he's he is a fascinating interviewer.
+[00:15:49] Will: You should get Charlie Stross. If you get to do this again, you need to get Charlie Stross because he's he is a fascinating interviewer.
 
 [00:15:55] Adam: I totally will. I totally will. And we're going to go out to dinner to a nice dinner tonight.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:18:17] Norm: It's really funny because you posted something on Twitter. You now have three.
 
-[00:18:20] Adam: The Harrison Court trifecta. People were like, " What about the whip?" So I actually took a picture of the whip. I'm going to post that too.
+[00:18:20] Adam: The Harrison Ford trifecta. People were like, " What about the whip?" So I actually took a picture of the whip. I'm going to post that too.
 
 [00:18:27] Will: What would be a trifecta if you had the whip? That's four things.
 
@@ -648,7 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:23:47] Adam: God, that's awesome. That sounds like so much fun.
 
-[00:23:49] Will: And then last week I was in Atlanta, that's why I wasn't here last week. But we were shooting the second episode, and we shot a pilot last last winter with Adult Swim of a sports show that they're doing that's live, a live call-in sports show with two cartoon hosts. Ah, and it features Carl, Carl from New Jersey, from Aqua Teen Hunger Force, and it's called a pregame prognostifications from the Pigskin Wizard.
+[00:23:49] Will: And then last week I was in Atlanta, that's why I wasn't here last week. But we were shooting the second episode, and we shot a pilot last last winter with Adult Swim of a sports show that they're doing that's live, a live call-in sports show with two cartoon hosts. Ah, and it features Carl, Carl from New Jersey, from Aqua Teen Hunger Force, and it's called a pregame prognostifications from the Pigskin Wyzzard.
 
 [00:24:18] Unknown speaker: That's right, football season.
 
@@ -690,7 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:25:47] Adam: I thought you would have seen Mayor McCheese there.
 
-[00:25:49] Will: All the lift, all the lift drivers were really, really like. You're not with Dragon Con, are you?
+[00:25:49] Will: All the Lyft, all the Lyft drivers were really, really like. You're not with Dragon Con, are you?
 
 [00:25:55] Norm: You look like a Dragon Con.
 
@@ -968,7 +968,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:34:40] Unknown speaker: What?
 
-[00:34:40] Adam: Yeah, yeah, yeah. I am interviewing JJ on stage at City Arts and Lectures alongside Andy Cruz from House Industries, the House Industries wonderful font shop and design house has just released a book. Called enthusiasm. The process is the enthusiasm. Is sorry. The process is the inspiration, which of course speaks deeply to everything that I believe in my whole life. So the three of us are going to have a long form conversation on stage at the Norse Auditorium here in San Francisco on Thursday night. I'm really looking forward to it.
+[00:34:40] Adam: Yeah, yeah, yeah. I am interviewing JJ on stage at City Arts and Lectures alongside Andy Cruz from House Industries, the House Industries wonderful font shop and design house has just released a book. Called enthusiasm. The process is the enthusiasm. Is sorry. The process is the inspiration, which of course speaks deeply to everything that I believe in my whole life. So the three of us are going to have a long form conversation on stage at the Nourse Auditorium here in San Francisco on Thursday night. I'm really looking forward to it.
 
 [00:35:18] Norm: It'll be on the radio also afterward for people in the Bay Area.
 

@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:07:38] Adam: Sure,
 
-[00:07:38] Will: which because why would you have that market?
+[00:07:38] Will: which because why would you halve that market?
 
 [00:07:43] Adam: You don't want to alienate people who already like part of the franchise, even if some of us think episodes one, two, and three. Well, sorry. Episodes six, one, two, and three are all terrible, but that's fine.
 
@@ -522,9 +522,9 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:18:17] Frank: I was just at the archives a couple weeks ago, and I saw one of those. You know those droids that are like a ball, and they unfold, and they have the force field around.
 
-[00:18:23] Will: Yeah, yeah. The droid dikes.
+[00:18:23] Will: Yeah, yeah. The droidekas.
 
-[00:18:24] Adam: Oh yeah, droid dikes. Yeah. Yeah, they built one full.
+[00:18:24] Adam: Oh yeah, droidekas. Yeah. Yeah, they built one full.
 
 [00:18:27] Frank: Those paint jobs are amazing.
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:21:22] Adam: Okay. You can do yeah. You can now do animatronic stuff so inexpensively and simply that normally would have taken massive banks of controllers, and now servos have gotten smaller, gotten stronger. You rubbers have gotten lighter. The techniques people have had, you know, you now have people that have been doing animatronics for thirty years.
 
-[00:21:43] Will: It's like the it's like the Wallies, right? The Wallies that Mike Senna and Mike McMaster made in their garages. Well, definitely the work of skilled craftsmen costs a, a fraction of a fraction of the millions of dollars that Imagineering spent to build one that would drive around Disneyland.
+[00:21:43] Will: It's like the it's like the WALL-Es, right? The WALL-Es that Mike Senna and Mike McMaster made in their garages. Well, definitely the work of skilled craftsmen costs a, a fraction of a fraction of the millions of dollars that Imagineering spent to build one that would drive around Disneyland.
 
 [00:21:57] Adam: Yeah, yeah, yeah, yeah.
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:23:25] Norm: thirty
 
-[00:23:25] Frank: years. Maybe that's another Corillian cruiser.
+[00:23:25] Frank: years. Maybe that's another Corellian cruiser.
 
 [00:23:28] Adam: It could be. It's got to be the Falcon. I'm saying, why, why would you assume John Boyega is a stormtrooper?
 
@@ -736,7 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:27:35] Norm: yeah, back in those days, send your letters in for story ideas. I'll take your.
 
-[00:27:39] Adam: Look at Han, find themselves stranded in a cabin over the weekend.
+[00:27:39] Adam: Luke and Han find themselves stranded in a cabin over the weekend.
 
 [00:27:41] Adam: Is that where they ended up? Is that
 
@@ -750,7 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:27:52] Will: Seems like a good one, yeah. Thank you guys for listening. Thanks for coming by, Frank. If you would like to
 
-[00:27:57] Adam: Talk about Star Wars slash Vague,
+[00:27:57] Adam: Talk about Star Wars slash fic,
 
 [00:27:59] Will: yeah. If you'd like to support the podcast, go to iTunes and write us a review. Like us on Facebook. Like us on YouTube.
 

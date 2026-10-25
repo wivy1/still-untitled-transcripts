@@ -88,9 +88,9 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:02:58] Adam: I'm glad. I'm glad racism ended in 2004.
 
-[00:03:02] Norm: So, if you're in San Francisco, the Bay Area, we'd love to see you Saturday. It's at part of the Bay Area Science Festival at the Castro Theater. At
+[00:03:02] Norm: So, if you're in San Francisco, the Bay Area, we'd love to see you Saturday. It's at part of the Bay Area Science Festival at the Castro Theatre. At
 
-[00:03:08] Adam: the amazing, beautiful Castro Theater.
+[00:03:08] Adam: the amazing, beautiful Castro Theatre.
 
 [00:03:10] Norm: Yes, everyone who's gone in past years have had a wonderful time, and we promise you a good time this year as well,
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:14:38] Will: Yeah, Norm doesn't remember. Norm doesn't remember the '90s. I don't remember. It's it's for for me like if your expectation if you go if you watch a trailer for Con Air and you think oh man that looks like it's going to be a really You know, a heavy think piece with a lot of character development, and we're going to go on a spiritual journey with Nick Cage through the the the the Con Air. Then you're going to be disappointed. Yeah,
 
-[00:15:01] Adam: it's not high art, but it's it's it's wonderful. There's somebody did a beautiful article defending the acting of Nicholas Cage, and they it might have been a BuzzFeed article.
+[00:15:01] Adam: it's not high art, but it's it's it's wonderful. There's somebody did a beautiful article defending the acting of Nicolas Cage, and they it might have been a BuzzFeed article.
 
 [00:15:01] Norm: Okay.
 
