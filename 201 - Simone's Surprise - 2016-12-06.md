@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:03:42] Simone: GIFs.
 
-[00:03:42] Will: The graphics interchange format, as invented in the early eighties.
+[00:03:42] Will: The graphics interchange format, as invented in the early '80s.
 
 [00:03:42] Adam: A GIF. Yeah.
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:17:19] Adam: Oh, this is.
 
-[00:17:20] Will: I wore my gloves and my hat this morning when I got in the car, despite it being forty one degrees. I also have gone soft. Yeah.
+[00:17:20] Will: I wore my gloves and my hat this morning when I got in the car, despite it being 41 degrees. I also have gone soft. Yeah.
 
 [00:17:27] Adam: You laugh,
 
@@ -798,7 +798,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:27:31] Adam: [unclear: No idea / I have No idea] what I am saying.
 
-[00:27:31] Will: Mid early two thousands reference.
+[00:27:31] Will: Mid early 2000s reference.
 
 [00:27:33] Adam: Yeah,
 

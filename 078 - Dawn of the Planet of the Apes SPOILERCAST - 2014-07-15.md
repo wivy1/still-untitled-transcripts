@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:20:10] Adam: and the home of the old Exploratorium.
 
-[00:20:12] Norm: Yes, exactly. A lovely theater, uh, done in three D. And when I got there, uh, first of all, I decided what to wear to a premiere because I got to come. It's a world premiere. I got to wear a suit.
+[00:20:12] Norm: Yes, exactly. A lovely theater, uh, done in 3D. And when I got there, uh, first of all, I decided what to wear to a premiere because I got to come. It's a world premiere. I got to wear a suit.
 
 [00:20:12] Adam: Yeah.
 
@@ -676,7 +676,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:20:52] Adam: Yeah.
 
-[00:20:52] Norm: Uh, sixty percent of it is reserved seating. Like, it's clear signs on the seats, and this is the the best seats in the house. Reserved
+[00:20:52] Norm: Uh, 60% of it is reserved seating. Like, it's clear signs on the seats, and this is the the best seats in the house. Reserved
 
 [00:21:06] Adam: center
 
@@ -814,11 +814,11 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:26:10] Adam: Yeah,
 
-[00:26:10] Norm: and you, I think I don't know if it's with you. I spent the first twenty percent of the movie because apes are on screen a lot. It's all but mostly about the apes.
+[00:26:10] Norm: and you, I think I don't know if it's with you. I spent the first 20% of the movie because apes are on screen a lot. It's all but mostly about the apes.
 
 [00:26:33] Adam: Well, I spent half the movie.
 
-[00:26:35] Norm: I spent about first twenty percent of the movie whenever an ape is on screen. That looks like really good CG. Like trying to pick out. The CG
+[00:26:35] Norm: I spent about first 20% of the movie whenever an ape is on screen. That looks like really good CG. Like trying to pick out. The CG
 
 [00:26:41] Will: So were your first three rows,
 
@@ -856,7 +856,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:27:50] Will: Looks cartoony or
 
-[00:27:51] Adam: but. But that being said, the facial movement of the apes and the amount of communication, the eyes and the the. I mean, the sweat and the tears and the blood and everything. One hundred percent. I totally was the same with you, and for most of the movie, just come along for the ride.
+[00:27:51] Adam: but. But that being said, the facial movement of the apes and the amount of communication, the eyes and the the. I mean, the sweat and the tears and the blood and everything. 100%. I totally was the same with you, and for most of the movie, just come along for the ride.
 
 [00:28:07] Norm: Yeah, and and the stuff you know, you had to have a big set piece of apes fighting. You had to have that. That was much less thrilling than when Koba and Caesar when they fight the first fight they have, and Koba's on the ground.
 
@@ -962,7 +962,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:32:02] Will: Okay,
 
-[00:32:02] Norm: July eleven.
+[00:32:02] Norm: July 11.
 
 [00:32:04] Adam: So I will say that last night at the party, I found myself talking for a while to one of these lovely young men, uh, Gary Oldman's sons. And Gary Oldman's in the film; and he's wonderful, um, and his son is a fan of Tested.
 

@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:07:36] Adam: So I had the same thing happen to me as happened with you at Maker Faire at the rally to restore sanity and or fear. Jamie and I
 
-[00:07:44] Will: the first, the one that you did in two thousand twelve.
+[00:07:44] Will: the first, the one that you did in 2012.
 
 [00:07:45] Adam: Yeah, Jamie and I were the opening act for Stephen and John. Wow! They asked us to do twenty minutes as a warm up to the crowd. We did a couple of experiments, and I am looking at a quarter of a million people.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:11:38] Adam: From, from, yeah
 
-[00:11:38] Norm: and and I turned a corner and I caught my hand on something, and the whole camera fell on the ground. With the lens, the five D Mark Four.
+[00:11:38] Norm: and and I turned a corner and I caught my hand on something, and the whole camera fell on the ground. With the lens, the 5D Mark Four.
 
 [00:11:49] Unknown: [unclear: Will: “Oh no!” / Adam: “Oh no!” / Norm: “Oh”—Will: “no!”].
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:14:21] Adam: They're they're they're edge rounders.
 
-[00:14:24] Will: Somebody a farm hand with fifteen minutes and a pair of vice grips can do it easily five thousand dollars a minute of damage.
+[00:14:24] Will: Somebody a farm hand with fifteen minutes and a pair of vice grips can do it easily 5,000 dollars a minute of damage.
 
 [00:14:31] Adam: Oh yeah, totally. And so I have channel locks that are very funny. I I had sent a runner out to go get something, and he was like, " I'm at eighty dollars, and they have a hundred dollar minimum at this store I'm at." And I was like, " Just get me the largest pair of vice grips they have." And they brought me back this pair of vice.
 
@@ -862,7 +862,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:30:55] Norm: May have been filmed. Um. I don't know.
 
-[00:30:58] Will: I don't. Maybe. Yeah. The they're live stream. They they live streamed the panel on Saturday morning at ten thirty a. M. Uh. To The Twitch channel,
+[00:30:58] Will: I don't. Maybe. Yeah. The they're live stream. They they live streamed the panel on Saturday morning at 10:30 a. M. Uh. To The Twitch channel,
 
 [00:31:09] Norm: okay.
 

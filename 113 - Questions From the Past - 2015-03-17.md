@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:05:49] Will: Okay.
 
-[00:05:49] Adam: for a few years, and this is in the late nineties during the previous tech boom. And they sent him to the good one of the Good Morning America, the Regis and Kathie Lee, and he was on their show, and he was visibly nervous. And it was lovely watching. He said they are Regis and Kathie Lee, and all those guys. You know, we were on Kelly Ripa. They're so good at relaxing you, like they're asking him about stuff, and they really know their marks. And if at one point he got just a little flustered and like wasn't sure where he was, and Kathie Lee put her hand on his shoulder, and she he said he felt a hand at the small of his back, sort of calming him down. Like they really know how to slow things down for you. And when Damien and I were on David Letterman, I'm sitting there across from him at his desk. It's one of the most
+[00:05:49] Adam: for a few years, and this is in the late '90s during the previous tech boom. And they sent him to the good one of the Good Morning America, the Regis and Kathie Lee, and he was on their show, and he was visibly nervous. And it was lovely watching. He said they are Regis and Kathie Lee, and all those guys. You know, we were on Kelly Ripa. They're so good at relaxing you, like they're asking him about stuff, and they really know their marks. And if at one point he got just a little flustered and like wasn't sure where he was, and Kathie Lee put her hand on his shoulder, and she he said he felt a hand at the small of his back, sort of calming him down. Like they really know how to slow things down for you. And when Damien and I were on David Letterman, I'm sitting there across from him at his desk. It's one of the most
 
 [00:05:49] Will: Good God.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:13:38] Will: and let you pull multi things from multiple disciplines. So that if you want to be an industrial designer and your school doesn't have an industrial design program,
 
-[00:13:52] Adam: well, and that's exactly what I was going to say is product design. Is a fantastic general degree that will give you access to every making lab that college has. Any college that offers product design will give you access to a wood shop, a metal shop, a plastic shop, three D printing, laser cutting, water cutting. All of that stuff should be within their offering.
+[00:13:52] Adam: well, and that's exactly what I was going to say is product design. Is a fantastic general degree that will give you access to every making lab that college has. Any college that offers product design will give you access to a wood shop, a metal shop, a plastic shop, 3D printing, laser cutting, water cutting. All of that stuff should be within their offering.
 
 [00:14:15] Will: Essentially, a badass state-supported maker space.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:15:19] Will: and take a while to get there.
 
-[00:15:20] Adam: Absolutely. So the idea that you might be wasting your money in degree—that's your own choice to make. But I think there are plenty of community colleges with fantastic wood shops, metal shops, building shops. Three three D printers are cheap enough now, and so are laser cutters. That I'll bet a lot of schools have them.
+[00:15:20] Adam: Absolutely. So the idea that you might be wasting your money in degree—that's your own choice to make. But I think there are plenty of community colleges with fantastic wood shops, metal shops, building shops. Three 3D printers are cheap enough now, and so are laser cutters. That I'll bet a lot of schools have them.
 
 [00:15:38] Will: High school labs should be putting 3D printers in now.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:18:36] Adam: Yeah, totally.
 
-[00:18:38] Will: Um, but the the spend as little as you can, unless you're going to be an engineer or a doctor or a lawyer or something. Where the difference between graduating first in your class at law school and graduating last in your class at law school is, you know, half a million dollars a year versus thirty-five thousand dollars a year. Yeah, you know, you don't spend as avoid debt as much as possible. When it comes to college, so in that regard, I think the community college thing is the way to go.
+[00:18:38] Will: Um, but the the spend as little as you can, unless you're going to be an engineer or a doctor or a lawyer or something. Where the difference between graduating first in your class at law school and graduating last in your class at law school is, you know, half a million dollars a year versus 35,000 dollars a year. Yeah, you know, you don't spend as avoid debt as much as possible. When it comes to college, so in that regard, I think the community college thing is the way to go.
 
 [00:19:03] Adam: All right, next question. Okay,
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:25:37] Will: I would consider that, you know,
 
-[00:25:38] Adam: but that that happened on a Shark Week shoot with John Landis back in two thousand four, and then they had to repair them so that you couldn't see the break. It was very fun.
+[00:25:38] Adam: but that that happened on a Shark Week shoot with John Landis back in 2004, and then they had to repair them so that you couldn't see the break. It was very fun.
 
 [00:25:49] Will: Did you do a drill and put a pin?
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:29:30] Adam: That's cool. That's a while back.
 
-[00:29:31] Will: So it was right before. So this was probably in what March of twenty ten, twenty twelve, and we had so.
+[00:29:31] Will: So it was right before. So this was probably in what March of 2010, 2012, and we had so.
 
 [00:29:39] Adam: Yeah, we went out on our first tour that winter.
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:29:43] Adam: Yeah.
 
-[00:29:43] Will: I mean, if you just know Tested through Jamie and Adam, Norm and I started Tested in twenty ten, two years before we we met you guys, and then the company that we worked for was sold to another company, which is the most boring thing in the world, except for the people who are involved.
+[00:29:43] Will: I mean, if you just know Tested through Jamie and Adam, Norm and I started Tested in 2010, two years before we we met you guys, and then the company that we worked for was sold to another company, which is the most boring thing in the world, except for the people who are involved.
 
 [00:30:03] Adam: And who had the great foresight to put us together?
 
@@ -756,7 +756,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:38:34] Will: Yeah,
 
-[00:38:34] Adam: and then spend time reloading, and then shoot each other. At the end of a battle like that, I am really positive that ninety nine percent of the people who engage in the battle who are still alive, their thought isn't, " Hey, we won the battle," or " Darn, we lost the battle." It's yes, I have both of my limbs, I have both of my arms left,
+[00:38:34] Adam: and then spend time reloading, and then shoot each other. At the end of a battle like that, I am really positive that 99% of the people who engage in the battle who are still alive, their thought isn't, " Hey, we won the battle," or " Darn, we lost the battle." It's yes, I have both of my limbs, I have both of my arms left,
 
 [00:38:34] Will: Yay.
 

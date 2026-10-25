@@ -16,7 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:00:40] Adam: All your cues.
 
-[00:00:40] Will: We're running at point two five percent speed this week, so people get through the podcast twenty five percent faster.
+[00:00:40] Will: We're running at 0.25% speed this week, so people get through the podcast 25% faster.
 
 [00:00:44] Adam: Actually, one of the high compliments I got for the audio book version of Every Tool's a Hammer is someone said I liked it so much I went back down to one to one to one speed.
 
@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:00:54] Will: Wow.
 
-[00:00:57] Norm: I can't do that. You can do point five, two X speed, or one point five.
+[00:00:57] Norm: I can't do that. You can do 0.5, two X speed, or 1.5.
 
 [00:00:59] Will: No, never.
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:02:15] Adam: it's hot. Yeah,
 
-[00:02:16] Adam: it's not hot. It's seventy five degrees, but with like seventy percent humidity.
+[00:02:16] Adam: it's not hot. It's 75 degrees, but with like 70% humidity.
 
 [00:02:20] Norm: But in New York,
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:06:49] Will: that's very. I can totally see that.
 
-[00:06:50] Adam: The funny story was the second the I did tell one story about confiscating the kids' phones and how we confiscated them every night at nine thirty from the moment they had phones until they were like sixteen and a half, and we were like the only parents in our peer group that were actually taking all electronics every night.
+[00:06:50] Adam: The funny story was the second the I did tell one story about confiscating the kids' phones and how we confiscated them every night at 9:30 from the moment they had phones until they were like sixteen and a half, and we were like the only parents in our peer group that were actually taking all electronics every night.
 
 [00:07:10] Will: Yeah, no, it's a good move.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:10:19] Norm: And you’d call and it would tell you
 
-[00:10:20] Adam: It’s eight fifty nine and forty seconds.
+[00:10:20] Adam: It’s 8:59 and forty seconds.
 
 [00:10:21] Will: Yeah, yeah. The sound of the third beep. Blah blah blah. Mm-hmm. Yeah. So, I couldn't receive a call that made the phones ring, and we didn't. We only had one line. Okay, so I would just pick up and call the time number because you could stay on it for like two minutes, and I'd wait until she called and the call waiting came in, and then I just beep over.
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:12:37] Will: That's good.
 
-[00:12:38] Adam: And on a couple, I've done expert, not expert plus, and I'm not saying I'm getting a hundred percent of these bricks. I'm, you know, it's not competition grade. Survival. But I find it, I find it really fun, and it's it's a little bit. It makes me a little sweaty. It feels good to move my body around. What hundred dollar bills?
+[00:12:38] Adam: And on a couple, I've done expert, not expert plus, and I'm not saying I'm getting 100% of these bricks. I'm, you know, it's not competition grade. Survival. But I find it, I find it really fun, and it's it's a little bit. It makes me a little sweaty. It feels good to move my body around. What hundred dollar bills?
 
 [00:12:56] Will: Yeah.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:17:04] Will: They're not losing tracking at the edges. No, I haven't. I haven't hit that. Either. I was kind of surprised.
 
-[00:17:07] Adam: Look, I do find sometimes when the batteries of the handsets are below forty percent, they start to cut out when I'm really, really swinging them hard.
+[00:17:07] Adam: Look, I do find sometimes when the batteries of the handsets are below 40%, they start to cut out when I'm really, really swinging them hard.
 
 [00:17:17] Will: You're using rechargeables.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:19:38] Adam: and it literally was like
 
-[00:19:40] Norm: one percent.
+[00:19:40] Norm: 1%.
 
 [00:19:40] Adam: It would take all night long to charge the laptop to full, and then I'd have to do whatever I had to do all day long.
 
@@ -626,13 +626,13 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:21:37] Will: I did. I didn't either. But like, there they launched a Mac Pro workstation desktop that starts at six grand
 
-[00:21:44] Adam: with a with a one thousand dollar monitor stand.
+[00:21:44] Adam: with a with a 1,000 dollar monitor stand.
 
-[00:21:47] Will: Well, yeah, and a six thousand dollar monitor, one thousand dollar stand, and and the six thousand dollar computer with a two hundred and fifty six gigabyte SSD in it.
+[00:21:47] Will: Well, yeah, and a 6,000 dollar monitor, 1,000 dollar stand, and and the 6,000 dollar computer with a 256 gigabyte SSD in it.
 
 [00:21:55] Norm: Starting price, base price.
 
-[00:21:56] Will: That's the for the for the cheap one, the six thousand dollar one.
+[00:21:56] Will: That's the for the for the cheap one, the 6,000 dollar one.
 
 [00:21:59] Norm: Yeah,
 

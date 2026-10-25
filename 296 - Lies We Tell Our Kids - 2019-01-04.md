@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:12:36] Norm: M e r u. It's on Netflix.
 
-[00:12:37] Adam: It's a Netflix show, and it's about these three world-class Climbers climbing a heretofore unclimbed peak in the Himalayas, twenty-two thousand foot. The problem with this is it is like this six thousand foot face where the last two and a half thousand feet is just this smooth granite shark fin.
+[00:12:37] Adam: It's a Netflix show, and it's about these three world-class Climbers climbing a heretofore unclimbed peak in the Himalayas, 22,000 foot. The problem with this is it is like this 6,000 foot face where the last two and a half thousand feet is just this smooth granite shark fin.
 
 [00:13:01] Norm: Oh God! In the snow, what in the like in the cold?
 
@@ -352,19 +352,19 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:13:05] Adam: And so it's a it's a documentary about two different attempts at this climb.
 
-[00:13:11] Will: It can't be twenty-two thousand feet, can it? Isn't Everest eighteen?
+[00:13:11] Will: It can't be 22,000 feet, can it? Isn't Everest eighteen?
 
 [00:13:14] Adam: No, Everest is twenty-nine.
 
 [00:13:15] Will: Twenty-nine. Okay.
 
-[00:13:16] Adam: And wow! So there was one attempt in two thousand eight, and then another attempt much more recently, which is what the film is about. But about half the film is two thousand eight attempt, which is it's mind blowing in and of itself
+[00:13:16] Adam: And wow! So there was one attempt in 2008, and then another attempt much more recently, which is what the film is about. But about half the film is 2008 attempt, which is it's mind blowing in and of itself
 
 [00:13:28] Norm: to see the failure.
 
 [00:13:29] Adam: It's an incredible film. Wow!
 
-[00:13:31] Norm: Yeah, so it's uh the filmmakers. This is like the rehearsal because they made this released in twenty fifteen, then also released the movie. Free Solo.
+[00:13:31] Norm: Yeah, so it's uh the filmmakers. This is like the rehearsal because they made this released in 2015, then also released the movie. Free Solo.
 
 [00:13:39] Adam: Right. So Free Solo is shot by Jimmy Chin and his wife, and Meru is Jimmy Chin not only filming this film but also being one of the three climbers to summit Meru.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:16:26] Will: Like like thinking about the kind of focus and and concentration and intensity you would have to have to do something like this, like. I mean, I I'm sure I'm not a I'm not a good climber, but I'm sure that if you spend ten thousand hours climbing, then you get to the point that climbing up the side of a normal mountain is is like walking down the street for one of us, right? Yeah, you just do it, and then you you like you said, Norm, you know when you get to the hard part, and you know you need to focus. But I think that there's a level of complexity to this that that that doesn't account for in in that you know most of what we do is you know semi evolved primates doesn't involve putting your finger in the wrong place and then dying because of that,
 
-[00:17:07] Adam: right? Yes, it's true. The stakes are not a hundred percent
+[00:17:07] Adam: right? Yes, it's true. The stakes are not 100%
 
 [00:17:13] Will: all the time. Yeah, yeah.
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:19:09] Adam: Yeah,
 
-[00:19:10] Will: and then once we got there, it just became about getting each shot and and getting getting the work done and doing what we could do to make it easier for everyone, figuring out solutions on the fly. But it wasn't I wasn't worried about the fact that it was costing thirty thousand dollars an hour or a minute or whatever whatever our spend was.
+[00:19:10] Will: and then once we got there, it just became about getting each shot and and getting getting the work done and doing what we could do to make it easier for everyone, figuring out solutions on the fly. But it wasn't I wasn't worried about the fact that it was costing 30,000 dollars an hour or a minute or whatever whatever our spend was.
 
 [00:19:25] Adam: Right. So right, what you're bringing up that I realize is is It's basically about where you can achieve total focus. So Honnold can achieve total focus in the most extreme circumstances that many people can picture.
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:25:03] Norm: Nice. I see what you did there.
 
-[00:25:05] Adam: This is coming out, so it's it's half instructional, half autobiographical. It's subtitle is " Life is What You Make It," and it's about my history of making. The title " Every Tool's a Hammer" comes from one of my old ILM colleagues, the sadly late Mark Buck, was the best motorcyclist I ever knew. He got killed on his motorcycle a few years back, tragically. I believe at an intersection on 19th Avenue, side side blindsided. But Mark used to say, " In every tool, there is a hammer." And it's to me one of the greatest maker axioms there there is. You can always use a tool for a purpose it was not intended in a pinch. And so that comes out on May seventh.
+[00:25:05] Adam: This is coming out, so it's it's half instructional, half autobiographical. It's subtitle is " Life is What You Make It," and it's about my history of making. The title " Every Tool's a Hammer" comes from one of my old ILM colleagues, the sadly late Mark Buck, was the best motorcyclist I ever knew. He got killed on his motorcycle a few years back, tragically. I believe at an intersection on 19th Avenue, side side blindsided. But Mark used to say, " In every tool, there is a hammer." And it's to me one of the greatest maker axioms there there is. You can always use a tool for a purpose it was not intended in a pinch. And so that comes out on May 7.
 
 [00:25:57] Will: Oh, awesome!
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:28:37] Adam: exactly.
 
-[00:28:37] Norm: You know, I did watch. It was interesting exercise. I watched both the original, I think 1940s, 70s, Murder on the Orient Express,
+[00:28:37] Norm: You know, I did watch. It was interesting exercise. I watched both the original, I think 1940s, '70s, Murder on the Orient Express,
 
 [00:28:49] Adam: oh yeah,
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:29:01] Adam: Oh, this is the black and white.
 
-[00:29:03] Norm: No, no, no. It's color. It's it's made in the 70s. But
+[00:29:03] Norm: No, no, no. It's color. It's it's made in the '70s. But
 
 [00:29:06] Adam: isn't Peter Ustinov play Hercule Poirot?
 
@@ -658,7 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:29:39] Adam: Just culturally, we like our films faster.
 
-[00:29:41] Norm: Yeah, and and also the mystery and put things and and movies in seventies were long.
+[00:29:41] Norm: Yeah, and and also the mystery and put things and and movies in '70s were long.
 
 [00:29:47] Adam: Yeah, it took a lot of time.
 
@@ -666,11 +666,11 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:29:49] Norm: Yeah,
 
-[00:29:49] Will: it's a it's it's it was a fast seventies movie too.
+[00:29:49] Will: it's a it's it's it was a fast '70s movie too.
 
 [00:29:53] Unknown (Adam or Norm): Right, right, right.
 
-[00:29:54] Norm: But you have Ingrid Bergman. You had Sean Connery's in the in the seventies one, and it's so it's really fun to see.
+[00:29:54] Norm: But you have Ingrid Bergman. You had Sean Connery's in the in the '70s one, and it's so it's really fun to see.
 
 [00:30:00] Will: We've got to be coming up on the fortieth anniversary of people bitching about the MTVization of film at this point, right?
 
@@ -896,7 +896,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:35:36] Will: Happy New Year!
 
-[00:35:37] Adam: Yeah, glad to put an end to twenty eighteen. That was an intense year, and I hope that things are brighter this year. I hope they feel brighter. I hope they are bright.
+[00:35:37] Adam: Yeah, glad to put an end to 2018. That was an intense year, and I hope that things are brighter this year. I hope they feel brighter. I hope they are bright.
 
 [00:35:46] Will: Things seem, yeah, things seem better. Fingers crossed.
 

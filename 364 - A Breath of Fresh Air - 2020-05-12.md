@@ -26,13 +26,13 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:00:20] Adam: I hit traffic this weekend for the first time in ten weeks.
 
-[00:00:25] Will: I I drove the car this morning for the first time since March sixth. I think.
+[00:00:25] Will: I I drove the car this morning for the first time since March 6. I think.
 
 [00:00:31] Norm: Did you feel guilty about it, or did you like?
 
 [00:00:34] Norm: How did you feel?
 
-[00:00:34] Will: Well, first I had to, I had to top off the battery because I I forgot to start one of them for a you know let's say a month and it didn't it cranked a little slower than I liked so I just put the charger on it yeah. Um. But then after it was it was going, I was like, well, let's go for a drive and see what it's like out in the world. And and my daughter and I piled in the car and we drove around town for a little bit and checked out familiar places. She's like, Dad, it feels like we're going really fast. It was like we're going twenty two miles an hour, sweetheart. This is fine.
+[00:00:34] Will: Well, first I had to, I had to top off the battery because I I forgot to start one of them for a you know let's say a month and it didn't it cranked a little slower than I liked so I just put the charger on it yeah. Um. But then after it was it was going, I was like, well, let's go for a drive and see what it's like out in the world. And and my daughter and I piled in the car and we drove around town for a little bit and checked out familiar places. She's like, Dad, it feels like we're going really fast. It was like we're going 22 miles an hour, sweetheart. This is fine.
 
 [00:01:03] Adam: Yeah, we uh we hit a little bit of actual traffic, which felt like, to be honest, San Francisco. This last, we've been doing a lot of driving around town, right? We've been getting some stuff from Jane the Bakery over on Geary Street, and, uh, we take the dog over to a couple of the meadows at Golden Gate Park, and you know the whole city's felt like the weekend that Burning Man happens,
 
@@ -172,15 +172,15 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:14:51] Adam: Right?
 
-[00:14:52] Will: Yeah. The what they're really asking for is the hard part, right? Because like, like you see this. It's funny. We get this on TechPod emails a lot, and somebody's like, hey, you know, I have this thing, and it does exactly what I need, and you get that from the first three sentences. But they're like, but there's this other one out there that's a little bit better, and I should should I spend three thousand dollars and get rid of this old thing that's been perfect? For it? It happens in cameras too, Norm. You know, like this happens in all all all of the places where there’s, where there’s product density. You can you can go crazy,
+[00:14:52] Will: Yeah. The what they're really asking for is the hard part, right? Because like, like you see this. It's funny. We get this on TechPod emails a lot, and somebody's like, hey, you know, I have this thing, and it does exactly what I need, and you get that from the first three sentences. But they're like, but there's this other one out there that's a little bit better, and I should should I spend 3,000 dollars and get rid of this old thing that's been perfect? For it? It happens in cameras too, Norm. You know, like this happens in all all all of the places where there’s, where there’s product density. You can you can go crazy,
 
-[00:15:23] Adam: yeah. And it's what what are the and the increments? You spend more time on the last one percent of accuracy than on the first ninety eight percent, right?
+[00:15:23] Adam: yeah. And it's what what are the and the increments? You spend more time on the last 1% of accuracy than on the first 98%, right?
 
 [00:15:32] Norm: And yeah, and that’s not—
 
 [00:15:33] Adam: also more money.
 
-[00:15:34] Norm: Yes, and that's not to discount the like personal value or utility in that last one percent, or in the perceived value because perceived value is a form of value, right? It's just knowing who's making the ask. If the person making the ask is the type of person that really that's what they want, they want to pay the extra because they get a lot from that part of it. Then that might be right.
+[00:15:34] Norm: Yes, and that's not to discount the like personal value or utility in that last 1%, or in the perceived value because perceived value is a form of value, right? It's just knowing who's making the ask. If the person making the ask is the type of person that really that's what they want, they want to pay the extra because they get a lot from that part of it. Then that might be right.
 
 [00:15:55] Adam: Yeah, well, no, look, I—it’s like it's. I mean, very specifically for all of the obvious reasons, I am not looking to spend money right now, but I can certainly see a point in the future where. A windfall came in, and I thought to myself, " I am going to go buy the Cadillac of Chucks, and I'm going to love that thing till the end of my days." You know, that is that type of pleasure of augmenting and upgrading your stuff is a deep and abiding pleasure, and it's really like I've pursued it at many points in my life, just not right now.
 

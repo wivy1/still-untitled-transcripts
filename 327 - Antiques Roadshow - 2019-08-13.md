@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:08:50] Norm: yeah,
 
-[00:08:50] Sam Farrell: and were worth a lot of money. And I said, but everybody's seen Star Wars. Everybody knows it so well. The Ark is, you know, everybody's seen that too. But they haven't, you know, it's not something you think of immediately when you think of star when you think of movies and so on. So it seemed to me like it was the best. The best thing to pull out of this, and it ended up being worth, I believe, I think, eighty thousand dollars.
+[00:08:50] Sam Farrell: and were worth a lot of money. And I said, but everybody's seen Star Wars. Everybody knows it so well. The Ark is, you know, everybody's seen that too. But they haven't, you know, it's not something you think of immediately when you think of star when you think of movies and so on. So it seemed to me like it was the best. The best thing to pull out of this, and it ended up being worth, I believe, I think, 80,000 dollars.
 
 [00:09:17] Adam: Wow!
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:19:20] Will: Right.
 
-[00:19:20] Sam Farrell: And and it um it it was actually only worth eight hundred dollars as as an item you know that you could buy and put in your collection and so on so forth, but as a human story and it wasn't even so the the guy had got it I can't remember exactly how it wasn't some hugely personal object to him, but it was hugely personal to all of us and this is what I like to say about Antiques Roadshow, is it is the story of American identity everybody can identify, with some aspect of each appraisal,
+[00:19:20] Sam Farrell: And and it um it it was actually only worth 800 dollars as as an item you know that you could buy and put in your collection and so on so forth, but as a human story and it wasn't even so the the guy had got it I can't remember exactly how it wasn't some hugely personal object to him, but it was hugely personal to all of us and this is what I like to say about Antiques Roadshow, is it is the story of American identity everybody can identify, with some aspect of each appraisal,
 
 [00:19:50] Adam: right?
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:25:03] Adam: Totally amazing how effective that is.
 
-[00:25:05] Sam Farrell: Yeah, so so we get that, and we we also have. I mean, I have to say, everybody is is almost a hundred percent wonderful, and we
+[00:25:05] Sam Farrell: Yeah, so so we get that, and we we also have. I mean, I have to say, everybody is is almost 100% wonderful, and we
 
 [00:25:13] Adam: obviously. But I just wonder: is there someone whose picture you have on the wall of the van that says, " Don't let this guy in"?
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:28:40] Adam: Yeah.
 
-[00:28:40] Sam Farrell: And as as Marsha will tell tell people when she's giving presentations, we all try and guess when we're in the screenings. You know, has it gone up or down? And we are not much better than fifty percent.
+[00:28:40] Sam Farrell: And as as Marsha will tell tell people when she's giving presentations, we all try and guess when we're in the screenings. You know, has it gone up or down? And we are not much better than 50%.
 
 [00:28:54] Adam: Wow!
 
@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:30:22] Adam: Wow! Are there cases in which you and your crew have become experts at things that are chronically under or overvalued on eBay?
 
-[00:30:33] Sam Farrell: That's an interesting point. The people come in expecting, well, I saw this on eBay, and so on and so forth. And I like to say where we differentiate ourselves is it's all very well you can you can categorize things, you can even catalogue things, but it takes an expert to spot the really special things. And so they come in with this and they say, " Well, I know it's worth you know ten thousand dollars." Well, it would be if you know. I mean, you are in the in the Star Wars collectibles. You know, if what is that? There is the Jawa with a with a cape,
+[00:30:33] Sam Farrell: That's an interesting point. The people come in expecting, well, I saw this on eBay, and so on and so forth. And I like to say where we differentiate ourselves is it's all very well you can you can categorize things, you can even catalogue things, but it takes an expert to spot the really special things. And so they come in with this and they say, " Well, I know it's worth you know 10,000 dollars." Well, it would be if you know. I mean, you are in the in the Star Wars collectibles. You know, if what is that? There is the Jawa with a with a cape,
 
 [00:31:08] Norm: the Kenner, or yes,
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:36:04] Unknown speaker (Adam or Will): That's hilarious.
 
-[00:36:04] Will: So I I think one of my my my as many people did, I started watching the show with my parents twenty years ago because they're really into like Appalachian frontier era furniture from like the early eighteen hundreds, late seventeen hundreds, stuff like that. And they used to watch it like fast forwarding through to get to those bits, which made me crazy. But that's all a different story. And one of the things that my mom loves is when, and and I think is fabulous, is when somebody finds something that's a fake that was made in an interesting period of time that's still incredibly old. So a lot of times people will have what were you know eighty year later reproductions of furniture that was made in the you know early eighteen hundreds, but that was made like the the post Civil War basically.
+[00:36:04] Will: So I I think one of my my my as many people did, I started watching the show with my parents twenty years ago because they're really into like Appalachian frontier era furniture from like the early 1800s, late 1700s, stuff like that. And they used to watch it like fast forwarding through to get to those bits, which made me crazy. But that's all a different story. And one of the things that my mom loves is when, and and I think is fabulous, is when somebody finds something that's a fake that was made in an interesting period of time that's still incredibly old. So a lot of times people will have what were you know eighty year later reproductions of furniture that was made in the you know early 1800s, but that was made like the the post Civil War basically.
 
 [00:36:50] Adam: Well, there's that famous case of the sideboard in which they'd stripped off the original fake mahogany lacquer. It was on your show.
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:36:59] Adam: I seem to remember.
 
-[00:37:00] Adam: It was it was a it was an eighteenth century piece of furniture, if I remember correctly.
+[00:37:00] Adam: It was it was a it was an 18th century piece of furniture, if I remember correctly.
 
 [00:37:04] Will: Adam, did you just on episode C thirty one part two?
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:39:44] Adam: Fake by Philippe de Montebello about Elmyr de Hory, the famous art forger, which is a lovely book.
 
-[00:39:50] Sam Farrell: But but this guy Perenyi had started out faking Dutch masters, and then he moved into early American painting. And he said, you know, people bring these things down from their attic, and nobody has any provenance of those things. And he actually said, and I don't know if this is true or not, but that the amount of fake art in in out there in the world is somewhere between twenty five and forty percent.
+[00:39:50] Sam Farrell: But but this guy Perenyi had started out faking Dutch masters, and then he moved into early American painting. And he said, you know, people bring these things down from their attic, and nobody has any provenance of those things. And he actually said, and I don't know if this is true or not, but that the amount of fake art in in out there in the world is somewhere between 25 and 40%.
 
 [00:40:16] Will: Wow,
 

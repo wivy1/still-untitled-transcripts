@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:06:19] Will: Yeah, it's cooler in there, and they're not hooked up to mainframes or anything anymore. They're all hooked up to PCs. But it is, it's, it's not taking advantage of the form factors that we have available today. So they've, they've designed this new thing called 21MCC. Is that it?
 
-[00:06:33] Norm: For twenty-first century—
+[00:06:33] Norm: For 21st century—
 
 [00:06:35] Will: Mission Control Center. Oh, and it's—it looks like the, it looks like the set of 24.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:11:09] Adam: Oh, right. You would think they'd strip out the cockpit.
 
-[00:11:11] Will: Well, before they put those put them in the places, they they took in the gigapans and they did like the the four hundred megapixel images of the inside three hundred sixty panorama, so we could see it all. But then they're they're being preserved, so they seal them off, and you know it's limited access and all that.
+[00:11:11] Will: Well, before they put those put them in the places, they they took in the gigapans and they did like the the 400 megapixel images of the inside three hundred sixty panorama, so we could see it all. But then they're they're being preserved, so they seal them off, and you know it's limited access and all that.
 
 [00:11:26] Adam: But even with a limited access, I mean, you were saying you'll probably never get to space, but I would have to say that you guys in your position as communicators,
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:11:39] Adam: On a shorter list of people who might get to space.
 
-[00:11:42] Will: yes. And I am going to go ahead and tell you right now: if I had sixty million dollars, I would spend fifty million for for two weeks, no question.
+[00:11:42] Will: yes. And I am going to go ahead and tell you right now: if I had 60,000,000 dollars, I would spend fifty million for for two weeks, no question.
 
 [00:11:50] Adam: So I have to tell you when this. All right, so yeah, this won't mess up the auction right now. There is. Freaking Mercury helmet on eBay,
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:12:07] Will: Wow.
 
-[00:12:08] Adam: It's really genuine, or it's one of the best—it's the best copy I have ever seen. It's sitting currently at about fifteen hundred bucks.
+[00:12:08] Adam: It's really genuine, or it's one of the best—it's the best copy I have ever seen. It's sitting currently at about 1,500 bucks.
 
 [00:12:15] Will: Ooh.
 

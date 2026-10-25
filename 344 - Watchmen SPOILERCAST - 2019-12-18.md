@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:22:50] Adam: You know, I I have loved Lady Trieu as a brand new character whose whose position within the cosmology of heroes and villains is unknown until now, and I thought the actress was so amazing in that role, so weirdly believable, like. Just perfection in terms. Wait, actually, even more believable as a genius gazillionaire than Jeremy Irons.
 
-[00:23:23] Norm: Yes, yes, one hundred percent. Use her, the confidence that she had, the the wryness of her delivery, and the lines they gave her, and especially in the finale, because you do have a flashback to the first time she confronts Jeremy Irons and reveals his legacy, her lineage. The the the turn where she goes from playing naive to be lured in and a fan of his to saying, " Well, that's just a rerun." Is is wonderful acting.
+[00:23:23] Norm: Yes, yes, 100%. Use her, the confidence that she had, the the wryness of her delivery, and the lines they gave her, and especially in the finale, because you do have a flashback to the first time she confronts Jeremy Irons and reveals his legacy, her lineage. The the the turn where she goes from playing naive to be lured in and a fan of his to saying, " Well, that's just a rerun." Is is wonderful acting.
 
 [00:23:54] Adam: Yes, I agree.
 
@@ -1070,7 +1070,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:45:52] Will: Yeah.
 
-[00:45:53] Adam: Also, I feel like Watchmen leaves a lot of opinions unanswered. I think Watchmen has. I think. I think the show itself doesn't necessarily feel a hundred percent one way or the other about mask wearing. I think they're talking about the ways in which it serves and doesn't serve, and while it tends to take a stance against the masks, I think that they're also Like they're not exactly sure how they feel about everything, and that's also extent in the narrative. And I really I appreciate that.
+[00:45:53] Adam: Also, I feel like Watchmen leaves a lot of opinions unanswered. I think Watchmen has. I think. I think the show itself doesn't necessarily feel 100% one way or the other about mask wearing. I think they're talking about the ways in which it serves and doesn't serve, and while it tends to take a stance against the masks, I think that they're also Like they're not exactly sure how they feel about everything, and that's also extent in the narrative. And I really I appreciate that.
 
 [00:46:25] Will: Well, I mean, I think individual characters feel strongly. Like Laurie clearly is a is a pretty anti the vigilante mask wearer. But but most of the rest of the it's there's there's an appropriate amount of ambiguity at the ending of the show for a Watchman. I think.
 

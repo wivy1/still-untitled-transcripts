@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:04:23] Will: So the the blog post is a good good you mentioned that they're up pretty much every day on on tested, um, and and they're just little glimpses of the road. Like you talked about, we went to an Army Navy store when we were in Bakersfield with you.
 
-[00:04:36] Adam: Yeah. My mom. My mom reminded me after reading that that my dad actually drove a tank when he was stationed in the Army in Germany in the late forties, early fifties, and he loved driving a tank.
+[00:04:36] Adam: Yeah. My mom. My mom reminded me after reading that that my dad actually drove a tank when he was stationed in the Army in Germany in the late '40s, early '50s, and he loved driving a tank.
 
 [00:04:49] Norm: And you've been going to thrift stores. There've been flea markets. Some places have been um have been more fruitful than others. Since we've seen you last, have there been places that you really surprised you, or things that you've seen that you you didn't really expect to see on the road that you really enjoyed?
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:13:38] Will: I think Capricorn One. You know.
 
-[00:13:39] Adam: Yeah, or or I guess Apollo eighteen. I haven't either, but this is what I've heard. You know, so we think of low budget as meaning like you know someone bangs into the set and it moves like cardboard. This film doesn't suffer from any of that. It is very well constructed. There's there's a lot of action on the set, and when they're—there's action, the whole set moves. They really built a set, and they can you know jiggle it and move it. The weightless stuff that they do and the simulated gravity stuff that they do is is really well thought out. They use their money incredibly wisely. So I got to give them huge props for a film that looks fantastic and not. I don't think. It would be obvious to a ton of people how low the budget probably was, and the acting like I said was great.
+[00:13:39] Adam: Yeah, or or I guess Apollo 18. I haven't either, but this is what I've heard. You know, so we think of low budget as meaning like you know someone bangs into the set and it moves like cardboard. This film doesn't suffer from any of that. It is very well constructed. There's there's a lot of action on the set, and when they're—there's action, the whole set moves. They really built a set, and they can you know jiggle it and move it. The weightless stuff that they do and the simulated gravity stuff that they do is is really well thought out. They use their money incredibly wisely. So I got to give them huge props for a film that looks fantastic and not. I don't think. It would be obvious to a ton of people how low the budget probably was, and the acting like I said was great.
 
 [00:14:24] Norm: They wrote they wrote the movie so they could work around the low budget. Like you said, there is simulated gravity, and they designed it in a way their ship,
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:24:39] Will: Are you gonna go get pork buns? What's your What's your food strategy for New York?
 
-[00:24:43] Adam: Oh my goodness, my I haven't even thought about the food strategy for New York. I have so much press and meetings during the day. My only thinking was that I really wanted to get to do a couple of stores that I love while I'm there. The Paul Smith store on Fifth Avenue is one of my favorite places in the world. So I haven't even thought of a New York food strategy, and I really need to. Oh, it's time. Yeah, it's time to reach out.  to some folks.
+[00:24:43] Adam: Oh my goodness, my I haven't even thought about the food strategy for New York. I have so much press and meetings during the day. My only thinking was that I really wanted to get to do a couple of stores that I love while I'm there. The Paul Smith store on 5th Avenue is one of my favorite places in the world. So I haven't even thought of a New York food strategy, and I really need to. Oh, it's time. Yeah, it's time to reach out.  to some folks.
 
 [00:25:05] Will: It's important. Yeah, that's that's serious business. Well, have a good rest of your trip, Adam, and we'll talk to you soon. I'm sure.
 

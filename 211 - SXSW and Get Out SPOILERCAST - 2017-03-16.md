@@ -48,7 +48,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:05:17] Adam: So this is 1980-ish, right? That was, I think, roughly
 
-[00:05:17] Will: late 70s, early 80s.
+[00:05:17] Will: late '70s, early '80s.
 
 [00:05:17] Adam: Yeah, yeah. So you know that at that point, I think the Muppet Show was one of the most expensive shows ever made for television.
 
@@ -196,7 +196,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:16:27] Adam: Yeah.
 
-[00:16:27] Will: that that I tend to go down. Like the the most poison. Like I love a good list of you know Wikipedia has like the the list of alternative rock albums from two thousand two. That's like stuff like that, and then they get into really weird esoteric ones, like the list of the most deadly jellyfish. The little tiny one in the Indian Ocean is the winner there.
+[00:16:27] Will: that that I tend to go down. Like the the most poison. Like I love a good list of you know Wikipedia has like the the list of alternative rock albums from 2002. That's like stuff like that, and then they get into really weird esoteric ones, like the list of the most deadly jellyfish. The little tiny one in the Indian Ocean is the winner there.
 
 [00:16:52] Adam: Yes, but that's because you can fall into a swarm of them. Am I right about that?
 
@@ -266,7 +266,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:20:56] Will: We we traded child care duty one day, and and both went and. Like I basically got a text from her when she came out of the movie. It was just like, " Holy shit! I'm not going to say anything to you until you go see this movie." So if you haven't seen Get Out, I think, like, I I don't know how we can talk about this without spoiling stuff.
 
-[00:21:16] Adam: No, no, no, no. That's the thing about Get Out. We will we will announce when it's spoilerific, but it is it is it shouldn't even be discussed because even the framework is really unique. And actually, this isn't a spoiler, but congratulations to Jordan Peele for being the first African American director to break a hundred million dollars of revenue for his debut film.
+[00:21:16] Adam: No, no, no, no. That's the thing about Get Out. We will we will announce when it's spoilerific, but it is it is it shouldn't even be discussed because even the framework is really unique. And actually, this isn't a spoiler, but congratulations to Jordan Peele for being the first African American director to break 100,000,000 dollars of revenue for his debut film.
 
 [00:21:16] Will: Nice job.
 
@@ -438,9 +438,9 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:36:45] Will: Well, so then there's this other there's another moment there when he when Chris the the protagonist meets an elder an older white woman and her seemingly husband a like a twenty eight year old black guy it looks like
 
-[00:37:01] Adam: right but a twenty eight year old black guy from nine from some weird vision of nineteen forty
+[00:37:01] Adam: right but a twenty eight year old black guy from nine from some weird vision of 1940
 
-[00:37:05] Will: yeah I would assume like a like a jazz he was in a jazz band in nineteen forty based on the attire. And and like something's just profoundly off. So that actor was Lakeith Stanfield, who's a actor slash rapper. He's
+[00:37:05] Will: yeah I would assume like a like a jazz he was in a jazz band in 1940 based on the attire. And and like something's just profoundly off. So that actor was Lakeith Stanfield, who's a actor slash rapper. He's
 
 [00:37:20] Adam: amazing.
 

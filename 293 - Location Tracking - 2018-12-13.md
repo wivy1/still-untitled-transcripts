@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:03:06] Will: wearing right now,
 
-[00:03:07] Adam: and now plaid shirts. They're they're making the first plaid shirts to be built in the United States since the 80s.
+[00:03:07] Adam: and now plaid shirts. They're they're making the first plaid shirts to be built in the United States since the '80s.
 
 [00:03:07] Will: Wow.
 
@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:03:15] Adam: I'm not sure flannel specifically, but if you there's a beautiful New York Times article I tweeted from a couple weeks ago that's a deep dive into the work that American Giant did with manufacturers all over the country to bring this to fruition. Anyway, um, one of the first compendiums I did. Favorite things included the American Giant hoodie, and we were talking about the the fact that when I was talking about it, it wasn't really about the hoodie itself. It's also about the story of the hoodie, the story of local manufacturing, and the things that we like to highlight here on Tested.
 
-[00:03:44] Will: Taylor Stitch. I did Taylor Stitch years and years ago, and they're just down the street at Valencia and and 15th, I think. And they they brought they they do jeans manufacturing and they make really amazing jeans that should cost way more money than they do, and they're like one hundred and fifty bucks. I mean, they were cheaper then.
+[00:03:44] Will: Taylor Stitch. I did Taylor Stitch years and years ago, and they're just down the street at Valencia and and 15th, I think. And they they brought they they do jeans manufacturing and they make really amazing jeans that should cost way more money than they do, and they're like 150 bucks. I mean, they were cheaper then.
 
 [00:04:01] Adam: And Taylor Stitch is a terrific gift certificate to buy someone.
 
@@ -138,7 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:05:37] Norm: right? It's it should be, but the way you're measuring it is has to be calibrated for your basically your photography setup because the lens on your phone, the distance that you're taking the pictures from. I'm not even talking about light quality. That all factors into the calibration.
 
-[00:05:56] Will: Okay, so the phone lens is pretty straightforward because you know I was using an iPhone ten and everybody like they know what that is, right? Yeah. But I was really like I couldn't there. I have a relatively small San Francisco house, and there was only one spot in the house that I could get the right distance from it and still have room to rotate without knocking stuff off of walls.
+[00:05:56] Will: Okay, so the phone lens is pretty straightforward because you know I was using an iPhone X and everybody like they know what that is, right? Yeah. But I was really like I couldn't there. I have a relatively small San Francisco house, and there was only one spot in the house that I could get the right distance from it and still have room to rotate without knocking stuff off of walls.
 
 [00:06:13] Adam: Right. No, seriously.
 
@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:07:37] Will: have quite
 
-[00:07:37] Will: accessible. Yeah, but but like I have a pair of shoes that I really love, and they had gotten damaged, and I took them down. He was like, " Yeah, okay, it'll be like three days, and it's going to be fifteen dollars to fix what was a two hundred dollar pair of shoes.
+[00:07:37] Will: accessible. Yeah, but but like I have a pair of shoes that I really love, and they had gotten damaged, and I took them down. He was like, " Yeah, okay, it'll be like three days, and it's going to be fifteen dollars to fix what was a 200 dollar pair of shoes.
 
 [00:07:37] Adam: Amazing.
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:14:21] Norm: To all.
 
-[00:14:21] Norm: on the flip side that you've seen those computer generated human images where like you can't tell that this photo of a person was one hundred percent
+[00:14:21] Norm: on the flip side that you've seen those computer generated human images where like you can't tell that this photo of a person was 100%
 
 [00:14:21] Adam: manufactured
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:26:54] Will: Yeah, it's really good.
 
-[00:26:54] Adam: Fabulous. I have been. I've spent the last couple of weeks in fervid pre-production on a new show that I'm working on for the Science Channel. I can't tell you much more about it than that, but I will say the production team is firing on every cylinder, and we are bringing in some some some guests on this show that are pretty amazing, and it's it's working. Like like people are having time to come participate and come play, and I'm really looking forward to reveal more details about this show. And of course, MythBusters Junior, which I shot this summer with six amazing new MythBusters. These kids airs on Wednesday, January second, nine p.m. on the Science Channel. Please watch for it. Please watch it. It is such a beautiful show. The first episode is duct tape tires and duct tape parachute. The duct tape tires were inspired by an article on Jalopnik, and parachute came from one of my producers, Jax Marker. I thought we were all done with duct tape. I thought we'd done everything you could possibly do with duct tape, and the kids tested two brand new things to an incredible effect. Wait,
+[00:26:54] Adam: Fabulous. I have been. I've spent the last couple of weeks in fervid pre-production on a new show that I'm working on for the Science Channel. I can't tell you much more about it than that, but I will say the production team is firing on every cylinder, and we are bringing in some some some guests on this show that are pretty amazing, and it's it's working. Like like people are having time to come participate and come play, and I'm really looking forward to reveal more details about this show. And of course, MythBusters Junior, which I shot this summer with six amazing new MythBusters. These kids airs on Wednesday, January 2, nine p.m. on the Science Channel. Please watch for it. Please watch it. It is such a beautiful show. The first episode is duct tape tires and duct tape parachute. The duct tape tires were inspired by an article on Jalopnik, and parachute came from one of my producers, Jax Marker. I thought we were all done with duct tape. I thought we'd done everything you could possibly do with duct tape, and the kids tested two brand new things to an incredible effect. Wait,
 
 [00:27:59] Will: did you throw the kids out of an airplane with a duct tape parachute?
 

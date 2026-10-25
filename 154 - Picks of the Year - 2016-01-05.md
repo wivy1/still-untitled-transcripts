@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:03:30] Norm: the emergency sous vide.
 
-[00:03:31] Will: The like who I was sitting there, I was like, I open the I opened the oven two hours before the the meat was supposed to be done because I was doing it. It's like you cook it at one hundred and fifty, one hundred and seventy degrees as low as your oven goes. Yeah, and I opened the door and I stuck my hand in there. I was like, man, it feels a lot cooler than one hundred and seventy degrees. Wait, it's room to,. Wait, this hasn't cooked at all. What's and and you know, it was the full on full on Christmas emergency. Yeah, and then it worked out, so it was all good. That's we had a really good time. Norm,
+[00:03:31] Will: The like who I was sitting there, I was like, I open the I opened the oven two hours before the the meat was supposed to be done because I was doing it. It's like you cook it at one hundred and fifty, one hundred and seventy degrees as low as your oven goes. Yeah, and I opened the door and I stuck my hand in there. I was like, man, it feels a lot cooler than 170 degrees. Wait, it's room to,. Wait, this hasn't cooked at all. What's and and you know, it was the full on full on Christmas emergency. Yeah, and then it worked out, so it was all good. That's we had a really good time. Norm,
 
 [00:03:57] Norm: I was over at a friend's place in Alameda. Some friends have tested. Hung out with Sean Charlesworth, Frank Ippolito, Rebecca Watson, and had a lovely New Year.
 
@@ -482,7 +482,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:19:16] Norm: Oh, I can't.
 
-[00:19:16] Adam: I went, I went to The Big Short. Um, so this is here's the pitch. It's a semi comedy about the financial disaster of of two thousand seven, two thousand and eight. Um, it gives you a. Here's the thing. In order for you to get what's going on in this movie, you it is required that you understand the financial instruments of credit, default swaps, and all of that. And in order to get through this exposition, they have famous people show up randomly in the middle of the film. Like now, to explain what a credit default swap is, here's Margot Robbie in a bathtub. Here's Anthony Bourdain cooking some cooking some meat while he tells you about how this works.
+[00:19:16] Adam: I went, I went to The Big Short. Um, so this is here's the pitch. It's a semi comedy about the financial disaster of of 2007, 2008. Um, it gives you a. Here's the thing. In order for you to get what's going on in this movie, you it is required that you understand the financial instruments of credit, default swaps, and all of that. And in order to get through this exposition, they have famous people show up randomly in the middle of the film. Like now, to explain what a credit default swap is, here's Margot Robbie in a bathtub. Here's Anthony Bourdain cooking some cooking some meat while he tells you about how this works.
 
 [00:20:02] Will: Oh, that's great! And
 
@@ -736,7 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:30:01] Will: this is a big one.
 
-[00:30:02] Adam: Yeah, Discovery has been telling people that the season premiere is next Saturday, January ninth, nine p.m. on Discovery. But in point of fact, the initial episode of the season happened on Saturday night, which we were covering on my social. And yeah, MythBusters revealed a bit of a teaser into how an episode of MythBusters gets put together, and also a harbinger of the next dozen or so episodes that will ring out the end of MythBusters.
+[00:30:02] Adam: Yeah, Discovery has been telling people that the season premiere is next Saturday, January 9, nine p.m. on Discovery. But in point of fact, the initial episode of the season happened on Saturday night, which we were covering on my social. And yeah, MythBusters revealed a bit of a teaser into how an episode of MythBusters gets put together, and also a harbinger of the next dozen or so episodes that will ring out the end of MythBusters.
 
 [00:30:32] Will: So, wow, hold on, wait just a second. Yeah. Okay, that was enough. What? What? What was? So you kind of went behind the scenes and showed like writers' rooms or production team, production meetings, and all that stuff.
 
@@ -752,7 +752,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:32:26] Will: If if you can do the lowest level job, then you can. Yeah, you can. It'll work itself. It works itself up as you keep promoting people into their level of of competence.
 
-[00:32:35] Adam: This morning, I had Thing One doing some sorting for me of some Apollo level documentation that I had for my spacesuit, and he was like, " This is really tedious." I'm like, " This is ninety five percent of the special effects industry. What you're doing right now."
+[00:32:35] Adam: This morning, I had Thing One doing some sorting for me of some Apollo level documentation that I had for my spacesuit, and he was like, " This is really tedious." I'm like, " This is 95% of the special effects industry. What you're doing right now."
 
 [00:32:48] Will: I mean, was it you that told me that that on Star Wars they didn't have superglue yet, so people were just standing there holding stuff with epoxy for ten minutes?
 

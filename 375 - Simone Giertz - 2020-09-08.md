@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:09:38] Adam: I mean, I know you've had so many hills and valleys with the process of getting here.
 
-[00:09:43] Simone: It's like an anxiety pit, like an endless anxiety pit that people pay you money because they trust you to pull something off, and you're like, yeah, sure, I can pull this off, but then it just takes longer, and you're like, I mean, I'm just terrified. Like, what if something goes wrong? And in a year, all calendars break down, which is like we have no indication that that's going to happen, but like. You you can only be ninety nine point nine percent sure, and that zero point one percent has a very good way at making itself look bigger. Um. So yeah, a lot of it has just been like being online. I'm like, oh, I hope there is not somebody who's upset about their calendar. Not that like even the people who had problems. I mean, we had somebody like lose one in the mail. Um, have been so sweet about it, but that's like I'm just terrified that I'm like the shit is about to hit the fan, and it's going to be in my Twitter feed. That's where it's going to happen. But but so far so good, and people have been super super sweet.
+[00:09:43] Simone: It's like an anxiety pit, like an endless anxiety pit that people pay you money because they trust you to pull something off, and you're like, yeah, sure, I can pull this off, but then it just takes longer, and you're like, I mean, I'm just terrified. Like, what if something goes wrong? And in a year, all calendars break down, which is like we have no indication that that's going to happen, but like. You you can only be 99.9% sure, and that 0.1% has a very good way at making itself look bigger. Um. So yeah, a lot of it has just been like being online. I'm like, oh, I hope there is not somebody who's upset about their calendar. Not that like even the people who had problems. I mean, we had somebody like lose one in the mail. Um, have been so sweet about it, but that's like I'm just terrified that I'm like the shit is about to hit the fan, and it's going to be in my Twitter feed. That's where it's going to happen. But but so far so good, and people have been super super sweet.
 
 [00:10:41] Adam: Um, in putting together a product, okay, first of all, I just want to say a little comment, which is, I love, I love the deep permission slip that your first big splash of making shitty robots gave to people. Of you don't know that that perfect is the enemy of the done, and that freedom to explore. But making a a really high quality product is is so close to almost the polar opposite of that that I. I love that you encompass both, and I know that you want to make more. I know that you want to make more things for people. Do you feel, I mean, and I imagine you've just gotten the most incredible crash course in making a product. If if you could go back and tell yourself something two years ago, what what advice would you give yourself that would make this process a little bit easier?
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:34:23] Adam: Well, Simone, thank you so much for joining us today. It's so good to see you, my friend. Um, good luck on the move to LA, and let's let's let's have you back on the podcast in three months and check in and see how it's going.
 
-[00:34:33] Simone: Oh yeah. Oh my god, I can't even imagine where I will have turned thirty. I turned thirty soon, or November first, so soonish. But yeah, there's just so many things happening.
+[00:34:33] Simone: Oh yeah. Oh my god, I can't even imagine where I will have turned thirty. I turned thirty soon, or November 1, so soonish. But yeah, there's just so many things happening.
 
 [00:34:43] Adam: You are almost precisely the age of the amount of time I've lived in San Francisco.
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:34:51] Adam: 1990.
 
-[00:34:53] Simone: Oh wow, November first, 1990. Yeah, crazy.
+[00:34:53] Simone: Oh wow, November 1, 1990. Yeah, crazy.
 
 [00:34:59] Adam: I was probably watching television on Broderick Street at the moment you were being born.
 

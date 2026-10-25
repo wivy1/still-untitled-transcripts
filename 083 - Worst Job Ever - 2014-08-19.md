@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:00:29] Adam: At what did Past you do?
 
-[00:00:31] Will: Past Me came in at like nine thirty last night and thought, ah, gas station's on the wrong side of the road. I'll just get gas on the way. I can get up five minutes earlier, and then I got up. I forgot.
+[00:00:31] Will: Past Me came in at like 9:30 last night and thought, ah, gas station's on the wrong side of the road. I'll just get gas on the way. I can get up five minutes earlier, and then I got up. I forgot.
 
 [00:00:31] Adam: Right.
 
@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:02:00] Will: It's really bad with a fuel injected. Car to let your car run out of gas. Just to be clear.
 
-[00:02:03] Adam: Yeah, no, I know. I did that. In my my friend lent me a Jaguar mid eighties XJ6, which is—
+[00:02:03] Adam: Yeah, no, I know. I did that. In my my friend lent me a Jaguar mid '80s XJ6, which is—
 
 [00:02:03] Will: Oh, that’s a gorgeous car.
 
@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:02:19] Adam: Well, it's a touring car, right? So, oh yeah, you sit there and it's like, bump, bump, bump. You mean you just feel so cushioned? It's meant to do that. It's what it's built for.
 
-[00:02:28] Will: It's the kind of car that you get in and you think, you know, I'm going to go on on one instead of on the freeway. Like I'm going to go on the windy coastal road.
+[00:02:28] Will: It's the kind of car that you get in and you think, you know, I'm going to go on on 1 instead of on the freeway. Like I'm going to go on the windy coastal road.
 
 [00:02:37] Adam: Yeah.
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:03:16] Will: Oh, of course.
 
-[00:03:16] Adam: And I didn’t do the switch over, and that that fuel pump, which ran dry and failed, cost me sixteen hundred bucks.
+[00:03:16] Adam: And I didn’t do the switch over, and that that fuel pump, which ran dry and failed, cost me 1,600 bucks.
 
 [00:03:29] Norm: So when you run out of gas, it sputters, and then you just pressing accelerator does nothing. You pull.
 
@@ -198,11 +198,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:05:30] Will: of the SUV
 
-[00:05:31] Adam: of the of the thirty thousand dollars sedan.
+[00:05:31] Adam: of the of the 30,000 dollars sedan.
 
-[00:05:33] Norm: So they announced they just announced a new one called the Model Three, and it is there's no pictures of it yet, but it's called it's a thirty five thousand dollars sedan.
+[00:05:33] Norm: So they announced they just announced a new one called the Model 3, and it is there's no pictures of it yet, but it's called it's a 35,000 dollars sedan.
 
-[00:05:41] Will: Does it have the the three hundred mile range?
+[00:05:41] Will: Does it have the the 300 mile range?
 
 [00:05:43] Norm: They have not said. They just said the price.
 
@@ -244,17 +244,17 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:07:11] Will: What was your first car, Adam?
 
-[00:07:12] Adam: Oh, god. A Volvo, nineteen seventy-six Volvo two forty-five DL station wagon. That thing was a beast.
+[00:07:12] Adam: Oh, god. A Volvo, 1976 Volvo 245 DL station wagon. That thing was a beast.
 
 [00:07:24] Will: Is that a car that you bought, or that your parents like you inherited from your parents?
 
-[00:07:28] Adam: Oh no, no, no. I sorry. Yeah, no, I bought it. My parents gave me money to buy the car. I had moved out here in nineteen ninety, and in nineteen ninety-one, they were like, " You should have a car. We're going to send you twenty-five hundred bucks."
+[00:07:28] Adam: Oh no, no, no. I sorry. Yeah, no, I bought it. My parents gave me money to buy the car. I had moved out here in 1990, and in 1991, they were like, " You should have a car. We're going to send you 2,500 bucks."
 
 [00:07:41] Will: Yeah, that's amazing.
 
 [00:07:41] Adam: And I I spent every penny of it on this Volvo, which you know that was a good car, fourteen years old back then.
 
-[00:07:49] Will: So this is funny. Sorry, I don't mean to interrupt, but nineteen ninety-one is when you bought this car.
+[00:07:49] Will: So this is funny. Sorry, I don't mean to interrupt, but 1991 is when you bought this car.
 
 [00:07:53] Adam: Yeah,
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:08:08] Adam: So this Volvo was a fabulous fuel injected five four speed with a fifth speed overdrive. I learned all I've written extensively about it, but I've learned all my all my basic car repairs on that car. It was a great car to learn. I frankly want to buy one for my kids to learn in, so that they don't have to wreck the gears in my Fiat.
 
-[00:08:28] Will: Well, so my father and I, my father and I went out and bought a CJ three, like the fifties era one from the Korean War.
+[00:08:28] Will: Well, so my father and I, my father and I went out and bought a CJ three, like the '50s era one from the Korean War.
 
 [00:08:28] Adam: What’s a CJ?
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:14:17] Norm: What were the signs?
 
-[00:14:18] Adam: So one of them was in in the West Village of New York on West Fourth Street, right near right near God, what is the name of the place? Anyway, on West Fourth Street in the village in New York, there used to be this poster store that sold all these movie posters,
+[00:14:18] Adam: So one of them was in in the West Village of New York on West 4th Street, right near right near God, what is the name of the place? Anyway, on West 4th Street in the village in New York, there used to be this poster store that sold all these movie posters,
 
 [00:14:38] Will: like the kind of stuff that people get at college. On your first day of school?
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:15:45] Adam: Go.
 
-[00:15:45] Will: It’s Abercrombie and Fitch. This was in the early nineties, so it’s a different thing.
+[00:15:45] Will: It’s Abercrombie and Fitch. This was in the early '90s, so it’s a different thing.
 
 [00:16:04] Norm: That was not what I expected at all.
 
@@ -508,9 +508,9 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:18:01] Adam: Um, and it was a flat fee, fifty bucks a day, which even in 1986 was a shitty, shitty, shitty salary, especially when they wanted you to show up at 7 a.m. and work until they said you were dead.
 
-[00:18:15] Will: Yeah, I am sure that was not a punch out at four thirty job.
+[00:18:15] Will: Yeah, I am sure that was not a punch out at 4:30 job.
 
-[00:18:19] Adam: Oh, and so at one point, my parents were in town, and I was going to go have dinner with them. And so it was like six fifteen, and I am like, I am going to go have dinner with my parents. And Frank, the my manager, was like, " Ah, okay, I guess you can go, but in the future, I'd hate to have to tell you you couldn't leave."
+[00:18:19] Adam: Oh, and so at one point, my parents were in town, and I was going to go have dinner with them. And so it was like 6:15, and I am like, I am going to go have dinner with my parents. And Frank, the my manager, was like, " Ah, okay, I guess you can go, but in the future, I'd hate to have to tell you you couldn't leave."
 
 [00:18:35] Will: Was this the kind of thing where they're like, like this was the entry level
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:20:13] Adam: An order of magnitude cheaper.
 
-[00:20:13] Will: Order of magnitude cheaper. I I worked like three nights a week usually, just installing networks, doing maintenance, upgrading servers, installing Windows ninety five stuff like that.
+[00:20:13] Will: Order of magnitude cheaper. I I worked like three nights a week usually, just installing networks, doing maintenance, upgrading servers, installing Windows 95 stuff like that.
 
 [00:20:13] Adam: Wow.
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:22:54] Will: Wow.
 
-[00:22:54] Adam: When it was at SUNY Purchase, New York, and I think nineteen eighty three.
+[00:22:54] Adam: When it was at SUNY Purchase, New York, and I think 1983.
 
 [00:23:12] Will: What a varied group of interest: miming, juggling.
 
@@ -800,9 +800,9 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:31:04] Adam: That’s a huge amount of money to a twenty-three-year-old, right?
 
-[00:31:06] Will: What was your rent at the time, like four hundred dollars a month, or
+[00:31:06] Will: What was your rent at the time, like 400 dollars a month, or
 
-[00:31:08] Adam: No, no, no, no? My rent was my rent was eight hundred bucks a month at that point. I was living alone in an artist loft.
+[00:31:08] Adam: No, no, no, no? My rent was my rent was 800 bucks a month at that point. I was living alone in an artist loft.
 
 [00:31:08] Will: Oh, in New York?
 

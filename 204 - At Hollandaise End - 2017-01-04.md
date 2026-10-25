@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:07:21] Will: Two years ago was the last big one,
 
-[00:07:22] Adam: yeah. Um, and, uh, that one got fatter in the middle, but was much lighter at midnight. And this one was, I think, ours reached a peak at like eight p.m. and then reached its stasis at like ten and stayed that way until about twelve thirty.
+[00:07:22] Adam: yeah. Um, and, uh, that one got fatter in the middle, but was much lighter at midnight. And this one was, I think, ours reached a peak at like eight p.m. and then reached its stasis at like ten and stayed that way until about 12:30.
 
 [00:07:39] Will: Gina and I showed up at ten, and it was like it was like like a really nice size. There were people there. Everybody, I knew a ton of people that I could talk to. I met a bunch of interesting new people. Yeah, lovely party.
 
@@ -552,7 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:18:34] Will: O.J.’s wife was murdered
 
-[00:18:35] Norm: I, when I saw that, you know, when the when the trial is happening I never got the 60s context.
+[00:18:35] Norm: I, when I saw that, you know, when the when the trial is happening I never got the '60s context.
 
 [00:18:39] Adam: There's no mystery. There's no mystery. I,
 
@@ -794,11 +794,11 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:30:44] Adam: Well, and they did, and they did it pretty cheaply, if I remember correctly.
 
-[00:30:46] Will: thirty mil, right? Which I mean, look, it's yeah, like yeah, yeah. I I was so interested in that I walked out of the theater and was like, how much did that movie cost to make? It was it's like a five million dollar thing that they used their own money and didn't do anything else for. And it was a yeah thirty thirty million
+[00:30:46] Will: thirty mil, right? Which I mean, look, it's yeah, like yeah, yeah. I I was so interested in that I walked out of the theater and was like, how much did that movie cost to make? It was it's like a 5,000,000 dollar thing that they used their own money and didn't do anything else for. And it was a yeah thirty thirty million
 
 [00:31:02] Adam: thirty million is is almost for free in Hollywood. Well, it’s not quite, but it's really really inexpensive for a for a movie starring Ryan Gosling and Emma Stone.
 
-[00:31:13] Will: Well, it’s, um, but, um, uh, John Waters years ago wrote an essay about how it's impossible to get an eight million dollar movie made today. Yeah. Um, the thing that I realized is that they they the the meta awareness of the people that created that film of what audiences expect at specific moments and because of specific setups and and as our as the audiences
+[00:31:13] Will: Well, it’s, um, but, um, uh, John Waters years ago wrote an essay about how it's impossible to get an 8,000,000 dollar movie made today. Yeah. Um, the thing that I realized is that they they the the meta awareness of the people that created that film of what audiences expect at specific moments and because of specific setups and and as our as the audiences
 
 [00:31:35] Norm: you mean narratively
 
@@ -886,7 +886,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:36:08] Will: Really? Okay. Corgies?
 
-[00:36:10] Norm: Uh, no, no. This is, uh, set in the 40s, 50s. Uh, this is post-war. This is as Queen Elizabeth is ascending. Yeah.
+[00:36:10] Norm: Uh, no, no. This is, uh, set in the '40s, '50s. Uh, this is post-war. This is as Queen Elizabeth is ascending. Yeah.
 
 [00:36:18] Will: And who who plays Queen Elizabeth?
 

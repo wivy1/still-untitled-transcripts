@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:02:23] Adam: This this is a puppet in which
 
-[00:02:24] Adam: it's a stop motion puppet in which every joint is pretty much visible, but there is, there is over two hundred parts in this. So when I first got it, I actually paid one of the machinists from Tippett's studio to build parts of the legs so it could stand on its own, and that got it about eighty percent there. And then over the last couple of weeks, I brought in Brett Foxwell, a wonderful machinist who also works at Tippett.
+[00:02:24] Adam: it's a stop motion puppet in which every joint is pretty much visible, but there is, there is over two hundred parts in this. So when I first got it, I actually paid one of the machinists from Tippett's studio to build parts of the legs so it could stand on its own, and that got it about 80% there. And then over the last couple of weeks, I brought in Brett Foxwell, a wonderful machinist who also works at Tippett.
 
 [00:02:48] Norm: He made the armatures for the Force Awakens. Puppets, Dejarik
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:10:43] Norm: Thank God for two hundred eighty characters.
 
-[00:10:46] Will: So, what? A couple nights ago, he started tweeting. It's the second or third time I've seen him do this since he since he came on Twitter. Which I assume was for the Dark Crystal re release. Maybe I don't know why he's why he's suddenly on Twitter. Like I don't know why you in twenty eighteen look up and are like, man, I should really get get a Twitter account finally. It's time.
+[00:10:46] Will: So, what? A couple nights ago, he started tweeting. It's the second or third time I've seen him do this since he since he came on Twitter. Which I assume was for the Dark Crystal re release. Maybe I don't know why he's why he's suddenly on Twitter. Like I don't know why you in 2018 look up and are like, man, I should really get get a Twitter account finally. It's time.
 
 [00:11:02] Adam: I I haven't asked him, but I will. Maybe I will.
 

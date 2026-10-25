@@ -706,7 +706,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:31:06] Adam: Oh, Fabulous!
 
-[00:31:06] Will: With your props from the twenty sixteen live show,
+[00:31:06] Will: With your props from the 2016 live show,
 
 [00:31:10] Adam: That's right.
 

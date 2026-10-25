@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:06:13] Will: Oh man,
 
-[00:06:13] Adam: I am here to tell you this is maybe my favorite movie of twenty sixteen.
+[00:06:13] Adam: I am here to tell you this is maybe my favorite movie of 2016.
 
 [00:06:17] Will: Really?
 
@@ -872,7 +872,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:29:15] Adam: they kill everybody off.
 
-[00:29:16] Will: They don't have to make a sequel for this because it's already you know it's already done. They're gonna re-release the original trilogy as they were originally intended to be seen and like like it was it was it's amazing to watch a hundred plus million dollar movie, hundred and fifty million dollar movie, whatever it is that there's no cliffhanger that there's no to be continued.
+[00:29:16] Will: They don't have to make a sequel for this because it's already you know it's already done. They're gonna re-release the original trilogy as they were originally intended to be seen and like like it was it was it's amazing to watch a hundred plus million dollar movie, 150,000,000 dollar movie, whatever it is that there's no cliffhanger that there's no to be continued.
 
 [00:29:34] Adam: And and I found that really really lovely. I found that fantastic. The sacrifice for a greater good. The the
 
@@ -1038,7 +1038,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:34:51] Adam: She sold it, and I loved the bit where she's talking to the guys, and they're all actually wearing like World War II helmets.
 
-[00:34:57] Norm: Oh yeah. Oh, casting in this film marvelous. The mustaches, the old seventies British look. I mean, Blue Leader is my hero. He he dies in the film, but he has he chuckles. He has like that World War II pilot look. Yeah.
+[00:34:57] Norm: Oh yeah. Oh, casting in this film marvelous. The mustaches, the old '70s British look. I mean, Blue Leader is my hero. He he dies in the film, but he has he chuckles. He has like that World War II pilot look. Yeah.
 
 [00:35:10] Adam: Yeah. Also, you get to see you get to see Donnie Yen do some beautiful martial arts.
 
@@ -1300,7 +1300,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:43:17] Unknown speaker: Yeah,
 
-[00:43:17] Will: and making it a capsule gives it the opportunity to do things that would be impossible. Like if at the end of episode seven they had murdered Luke and Leia and Han and Chewie and R2D2 and C3PO, like they would have just pissed away four billion dollars.
+[00:43:17] Will: and making it a capsule gives it the opportunity to do things that would be impossible. Like if at the end of episode seven they had murdered Luke and Leia and Han and Chewie and R2D2 and C3PO, like they would have just pissed away 4,000,000,000 dollars.
 
 [00:43:30] Adam: It gave them a lot of narrative freedom too, because they're not having to tease. Is there somebody? I read something where I said if you didn't like the second Avengers, Age of Ultron, just think about having to tease, having to introduce fourteen new characters, a fight scene every twenty-five minutes, and you know you've got to tease eight other films.
 

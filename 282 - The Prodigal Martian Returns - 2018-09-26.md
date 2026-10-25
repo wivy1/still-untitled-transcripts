@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:06:46] Unknown speaker: Yeah, yeah, the Stark Expo. Stark Expo
 
-[00:06:48] Will: happened there way back in fifty six.
+[00:06:48] Will: happened there way back in '56.
 
 [00:06:50] Norm: But while like New York Comic Con and San Diego Comic Con. Are also widely different because they're just different organizations. Maker Faire thinks of these as different flagships. Also, New York is World Maker Faire, while the San Mateo one is the the the home base. And one, it's it's they curate different types of projects that are shown. It's not it's different different place, different projects, and different people. And so it's a whole different flavor.
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:11:49] Adam: yeah,
 
-[00:11:49] Norm: with home three D printers and home laser cutters.
+[00:11:49] Norm: with home 3D printers and home laser cutters.
 
 [00:11:51] Adam: Well, the price has just been diving lower and lower,
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:17:56] Will: That's awesome. That's that that is exactly the kind of thing that we need to be doing.
 
-[00:17:59] Adam: Um, and this is this case has been winding through the courts for years. The Obama administration fought it. For a long time, but clearly the Trump administration has been fighting it. But in January, they were found by the Ninth Circuit to officially have standing, which was the big hurdle, and they didn't know how that was going to go. And so the actual trial begins on October twenty ninth this year.
+[00:17:59] Adam: Um, and this is this case has been winding through the courts for years. The Obama administration fought it. For a long time, but clearly the Trump administration has been fighting it. But in January, they were found by the Ninth Circuit to officially have standing, which was the big hurdle, and they didn't know how that was going to go. And so the actual trial begins on October 29 this year.
 
 [00:18:21] Will: Well, I mean, it's it's one of those things that I mean, we should have been thinking about for a long time, but having a kid brings it into sharp relief that we every generation has left the world a little worse than the one that came before, in in some ways, and in some ways better,
 
@@ -504,19 +504,19 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:20:35] Will: yeah,
 
-[00:20:35] Adam: and you know we've talked about this before. When I got to ILM, I loved the laser cutter. The laser cutter and I we got so close that Tory Belleci used to sing " There He Goes, Laser Boy" as I walked down the hallways in the late 90s.
+[00:20:35] Adam: and you know we've talked about this before. When I got to ILM, I loved the laser cutter. The laser cutter and I we got so close that Tory Belleci used to sing " There He Goes, Laser Boy" as I walked down the hallways in the late '90s.
 
 [00:20:50] Will: Mm-hmm.
 
 [00:20:52] Adam: Um, all that being said, I have started to incorporate 3D printing into my process, and it you know the first one was Sean Charlesworth building the the Millenbaugh Motivator for my Hellboy mecha hand, and ever since there's been certain types of Highly complicated parts, in which the collaborators I've reached collaborators I've reached out to have delivered just incredible expansion of what's possible to to make out of this shop.
 
-[00:21:18] Norm: There really is a transformation for the three D printed part. The moment that filler goes on there and it's sanded, it looks machined or injection molded.
+[00:21:18] Norm: There really is a transformation for the 3D printed part. The moment that filler goes on there and it's sanded, it looks machined or injection molded.
 
 [00:21:30] Adam: Yeah,
 
-[00:21:30] Norm: like the the the very distinct look of a of a three D printed part with all those print lines. From that to once the primer goes on, the filler goes on, the bondo goes on, and then it it just it's magic.
+[00:21:30] Norm: like the the the very distinct look of a of a 3D printed part with all those print lines. From that to once the primer goes on, the filler goes on, the bondo goes on, and then it it just it's magic.
 
-[00:21:43] Adam: as a as a prop maker and you're making when you're when you're building stuff you learn you learn these techniques that are all fall under the category of called what I call hiding crimes. So if you have a a surface, let's say you have a prop gun like this, and you have a surface on it that you've sculpted, so it's not quite perfect. You're under the gun; you don't have enough time, so you can't sit there and make it. Perfectly smooth. So what do you do? You machine an aluminum disc, which has got some, you know, detail on it, and you glue it to that surface. And then your eye looks at that and says, " That is a perfect surface because it sees a perfect thing that's shiny on it." And to a certain extent, while in the beginning I thought of three D prints as incredibly rough because of the filament layers and stuff like that, the fact is that they're bilaterally perfectly symmetrical. If that's what you want, if that's what your drawing is, it makes your eye see this thing as as much more perfect than it feels like it will be when you first handle one of those rough prints.
+[00:21:43] Adam: as a as a prop maker and you're making when you're when you're building stuff you learn you learn these techniques that are all fall under the category of called what I call hiding crimes. So if you have a a surface, let's say you have a prop gun like this, and you have a surface on it that you've sculpted, so it's not quite perfect. You're under the gun; you don't have enough time, so you can't sit there and make it. Perfectly smooth. So what do you do? You machine an aluminum disc, which has got some, you know, detail on it, and you glue it to that surface. And then your eye looks at that and says, " That is a perfect surface because it sees a perfect thing that's shiny on it." And to a certain extent, while in the beginning I thought of 3D prints as incredibly rough because of the filament layers and stuff like that, the fact is that they're bilaterally perfectly symmetrical. If that's what you want, if that's what your drawing is, it makes your eye see this thing as as much more perfect than it feels like it will be when you first handle one of those rough prints.
 
 [00:22:44] Norm: You get precision.
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:22:45] Norm: symmetry. You get
 
-[00:22:48] Adam: so I've been showing pictures to people of the stuff on my workbench, which will be the New York Comic Con costume, and they're like, " That's not three D printed," and it's like, " No, it is." We one of my techniques for priming stuff is, I take a can of filler primer. I'm always trying different new types of filler primers. This is they have high amounts of particulate in them, so they go into the small valleys of the filament. So I will, at the end of a day, unload an entire can of filler primer onto a prop, and then the next morning it's sandable. It needs that much time to flash off and to dry, and then I'll do the same thing for two days where I've spent relatively little time sanding, a lot of time adding filler.
+[00:22:48] Adam: so I've been showing pictures to people of the stuff on my workbench, which will be the New York Comic Con costume, and they're like, " That's not 3D printed," and it's like, " No, it is." We one of my techniques for priming stuff is, I take a can of filler primer. I'm always trying different new types of filler primers. This is they have high amounts of particulate in them, so they go into the small valleys of the filament. So I will, at the end of a day, unload an entire can of filler primer onto a prop, and then the next morning it's sandable. It needs that much time to flash off and to dry, and then I'll do the same thing for two days where I've spent relatively little time sanding, a lot of time adding filler.
 
 [00:23:29] Will: Do you sand until you see the ridges? Is that the kind of goal?
 
@@ -536,13 +536,13 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:23:35] Will: Okay.
 
-[00:23:36] Will: I was going to say, I wondered how much of I was curious how much of the changes is in your head and your approach, and how much the because the technology of three D printing has also advanced dramatically in the last five or six years.
+[00:23:36] Will: I was going to say, I wondered how much of I was curious how much of the changes is in your head and your approach, and how much the because the technology of 3D printing has also advanced dramatically in the last five or six years.
 
 [00:23:46] Adam: It has. No, it's mostly in my thinking about what what I want to try and build out of here.
 
 [00:23:52] Will: Okay.
 
-[00:23:52] Adam: And you know, obviously, I'm obsessed with the spacesuit, so I'm starting to think about ways in which three D printing can help me make spacesuits. At least make master parts for spacesuits, for instance.
+[00:23:52] Adam: And you know, obviously, I'm obsessed with the spacesuit, so I'm starting to think about ways in which 3D printing can help me make spacesuits. At least make master parts for spacesuits, for instance.
 
 [00:24:02] Will: Well, I guess you've also had more time to kind of think about it and figure out new approaches over the last few years than you did while you were shooting Mythbusters.
 

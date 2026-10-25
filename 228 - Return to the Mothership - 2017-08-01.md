@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:20:43] Norm: Yeah, no, and that's the Blade Runner event is one I didn't get to see.
 
-[00:20:47] Adam: That was that was actually really fun. So, Blade Runner twenty forty nine had a tent set up in the Gaslamp across the street from Comic Con, and on display they set up a piece of the world of Blade Runner, which is all in this you know sort of it's post the big war and there is a lot of nuclear winter fallout. So they had ground rock salt on the floor to look like snow slush, which was really awesome. They had props and costumes on display, and by the way, Ryan Gosling's jacket
+[00:20:47] Adam: That was that was actually really fun. So, Blade Runner 2049 had a tent set up in the Gaslamp across the street from Comic Con, and on display they set up a piece of the world of Blade Runner, which is all in this you know sort of it's post the big war and there is a lot of nuclear winter fallout. So they had ground rock salt on the floor to look like snow slush, which was really awesome. They had props and costumes on display, and by the way, Ryan Gosling's jacket
 
 [00:21:17] Norm: from the Blade Runner,
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:21:31] Norm: The costumes were right there on the.
 
-[00:21:32] Adam: The costumes were there, and some props were there. I got some photos of the props, but the the big thing that they were doing was a VR experience in Blade Runner twenty forty nine in chairs, and the chairs were articulated and they were robotic, and it was this great solution to VR where if you're, how do you move around in a world in VR when you want to put a few hundred people a day through it? Well, you sat in these chairs, and the chairs had this way of moving you in conjunction with the VR you were watching that felt incredibly realistic. You were in a spinner moving through the city, looking out the window, and I met the guy that designed the designed the digital stuff for that, and it was really really well done.
+[00:21:32] Adam: The costumes were there, and some props were there. I got some photos of the props, but the the big thing that they were doing was a VR experience in Blade Runner 2049 in chairs, and the chairs were articulated and they were robotic, and it was this great solution to VR where if you're, how do you move around in a world in VR when you want to put a few hundred people a day through it? Well, you sat in these chairs, and the chairs had this way of moving you in conjunction with the VR you were watching that felt incredibly realistic. You were in a spinner moving through the city, looking out the window, and I met the guy that designed the designed the digital stuff for that, and it was really really well done.
 
 [00:22:15] Norm: That’s cool. I mean, it's what motion roller coasters are sometimes doing too, like not like the some of the big ones even, but even like small train like your your mom and pop.
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:23:49] Simone: There were some jump scares.
 
-[00:23:51] Adam: when the chestburster came out. So that chestburster, when it came out, made cinema history as the most disturbing thing that anyone had ever put to film in nineteen eighty.
+[00:23:51] Adam: when the chestburster came out. So that chestburster, when it came out, made cinema history as the most disturbing thing that anyone had ever put to film in 1980.
 
 [00:24:01] Simone: I were on the internet. I've seen
 

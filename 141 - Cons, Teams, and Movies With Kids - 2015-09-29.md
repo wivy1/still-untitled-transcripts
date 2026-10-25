@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:11:58] Will: Even like $10 million houses don't have air conditioning.
 
-[00:12:00] Adam: I've been thinking about it, and I don't have a ten million dollar house, but I've been toying around with the idea of putting AC in.
+[00:12:00] Adam: I've been thinking about it, and I don't have a 10,000,000 dollar house, but I've been toying around with the idea of putting AC in.
 
 [00:12:04] Will: You know what my mistake was? We did a whole furnace system last year when the baby was born because we needed heat.
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:24:28] Will: That Speed that he shoots through him to get the bad guy. Because Keanu makes the tough decisions?
 
-[00:24:33] Adam: Um. Anyway, Point Break. So whenever I think of Point Break, I think of this wonderful satirical magazine from the eighties called Spy Magazine, super super important magazine. What
+[00:24:33] Adam: Um. Anyway, Point Break. So whenever I think of Point Break, I think of this wonderful satirical magazine from the '80s called Spy Magazine, super super important magazine. What
 
 [00:24:44] Norm: it's Gary.
 

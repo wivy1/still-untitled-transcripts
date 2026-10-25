@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:21:10] Adam: Three directors,
 
-[00:21:12] Norm: yes, three directors. One of the co writers was, I believe, Chris Miller, Phil Lord, the directors and writers of the Lego Movie, Twenty One Jump Street. They were producers on this, so you had their sensibility. I mean, watching this,
+[00:21:12] Norm: yes, three directors. One of the co writers was, I believe, Chris Miller, Phil Lord, the directors and writers of the Lego Movie, 21 Jump Street. They were producers on this, so you had their sensibility. I mean, watching this,
 
 [00:21:26] Adam: it's also laugh out loud funny. It is. A bunch of really, really funny jokes all the way through.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:22:57] Adam: Yeah.
 
-[00:22:57] Norm: and released twenty twenty twenty one and twenty twenty two because twenty twenty is when Top Gun is coming out, which he's also working on.
+[00:22:57] Norm: and released twenty twenty twenty one and 2022 because 2020 is when Top Gun is coming out, which he's also working on.
 
 [00:23:09] Adam: Wow,
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:25:14] Adam: It definitely does.
 
-[00:25:15] Norm: And when once you've done it, it's fine. So I don't think you need the added three D necessarily.
+[00:25:15] Norm: And when once you've done it, it's fine. So I don't think you need the added 3D necessarily.
 
 [00:25:19] Adam: No, I didn't feel like I needed that. Who is Kingpin again?
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:26:13] Adam: Chris Pine.
 
-[00:26:14] Norm: Yeah, that's the one we'll talk about because one of the reasons I love this, like I love the Miles Morales comics, Ultimate Spider-Man. But I grew up in the 90s reading an adult Peter Parker.
+[00:26:14] Norm: Yeah, that's the one we'll talk about because one of the reasons I love this, like I love the Miles Morales comics, Ultimate Spider-Man. But I grew up in the '90s reading an adult Peter Parker.
 
 [00:26:24] Adam: Right.
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:27:24] Adam: From all the lack of sleep,
 
-[00:27:25] Norm: I got eighty five percent of the names. Ten fifteen percent have been gone, but all the different versions. I think there’s a little bit of like it doesn't feel like your Spider Man, whatever you grew up with, was stepped over or wiped.
+[00:27:25] Norm: I got 85% of the names. Ten fifteen percent have been gone, but all the different versions. I think there’s a little bit of like it doesn't feel like your Spider Man, whatever you grew up with, was stepped over or wiped.
 
 [00:27:40] Adam: In fact, the John Mulaney Spider Pig,
 

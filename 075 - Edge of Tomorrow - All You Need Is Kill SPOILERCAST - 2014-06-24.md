@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:05:12] Will: Well, it’s all Tom Cruise movies.
 
-[00:05:13] Adam: But you know the fake actually, and Tom Cruise's Twitter profile, I love running in movies since nineteen eighty one. Um, he does a lot of running in this movie, and the poster really looks like the end of the player when they come up with that fake movie with Bruce Willis and Julia Roberts.
+[00:05:13] Adam: But you know the fake actually, and Tom Cruise's Twitter profile, I love running in movies since 1981. Um, he does a lot of running in this movie, and the poster really looks like the end of the player when they come up with that fake movie with Bruce Willis and Julia Roberts.
 
 [00:05:29] Norm: It is the most Generic two people posing in armor behind a dramatically lit backdrop.
 
@@ -914,9 +914,9 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:29:47] Will: Brick is so well. Brick is square in your alley though.
 
-[00:29:50] Adam: Brick is totally my alley. Yeah yeah. Hundred percent.
+[00:29:50] Adam: Brick is totally my alley. Yeah yeah. 100%.
 
-[00:29:50] Will: Hundred percent.
+[00:29:50] Will: 100%.
 
 [00:29:55] Will: It's so good.
 

@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:04:31] Norm: if you school, yeah, they're like just over three because there's actually twenty minutes at the extra credits sequence. The Lord of the Rings fan club gets put in there, so they're only about a little over three three and a half.
 
-[00:04:49] Will: And and so one of the things that Gina and I were talking about the other day because we were we were looking for a movie to watch and it was maybe nine thirty. We're like, I don't want to watch anything that's more than two hours because you know we want to get in bed by midnight. And like Thor Ragnarok is two hours and thirty minutes, right?
+[00:04:49] Will: And and so one of the things that Gina and I were talking about the other day because we were we were looking for a movie to watch and it was maybe 9:30. We're like, I don't want to watch anything that's more than two hours because you know we want to get in bed by midnight. And like Thor Ragnarok is two hours and thirty minutes, right?
 
 [00:04:49] Adam: Yeah.
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:06:53] Norm: His BBC project, which is his restoration of World War One. He's making a documentary. His next thing, his his passion, obviously, as we're talking about World War One, is huge passion of his, and his next project is going to be a documentary, maybe a series or a film, using lots of archival footage from the BBC.
 
-[00:07:18] Adam: So this is BBC's archival. They've been basically everything they had on file had been converted to video in the seventies. You know, basically filming it off a screen.
+[00:07:18] Adam: So this is BBC's archival. They've been basically everything they had on file had been converted to video in the '70s. You know, basically filming it off a screen.
 
 [00:07:18] Will: Yeah.
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:14:54] Adam: That is three. It takes three people to puppet and one of those.
 
-[00:14:58] Will: A full-size T-Rex is like twenty feet tall, twenty-five feet tall,
+[00:14:58] Will: A full-size T-Rex is like twenty feet tall, 25 feet tall,
 
 [00:15:01] Adam: [unclear: eighteen / twenty, eighteen],
 

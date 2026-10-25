@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:10:06] Adam: but it's also fatter, wider, and then he bends it on this arc that's shocking, and he's like, " This shows you how strong, how strong it is." And and
 
-[00:10:15] Norm: Joey's like, " Can I try that?" Yeah. And so Joey takes the sword, and Joey goes, " Bends it," and then Peter says, " Wow, yeah, that's that's that's impressive that you would bend something with market value of four hundred fifty thousand dollars." And Joey, that
+[00:10:15] Norm: Joey's like, " Can I try that?" Yeah. And so Joey takes the sword, and Joey goes, " Bends it," and then Peter says, " Wow, yeah, that's that's that's impressive that you would bend something with market value of 450,000 dollars." And Joey, that
 
 [00:10:15] Unknown: [speaker unclear: Norm / unnamed local M speaker] Here you go.
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:19:41] Norm: Even with the maze, you had. I mean, you had iteration, but you had the idea. But this one, you don't have that.
 
-[00:20:13] Adam: Well, it's not that I don't have it. It's just that there are so many parts. There's 12 legs. Each of those legs has a linkage to a cam. Each of those legs is in a pair. So each of those six pairs is attached to a cam that's offset by 120 degrees from its neighbor. Et cetera, et cetera, et cetera. So these are things facts I understand, but in terms of how the central structure grabs the legs and what gets in the way of what, basically, you're exactly right. I don't have. I can't right now yet put this whole machine in my head. I've got it. I I busted ass on this yesterday, which was my first day, full day back, all day, and I got myself to like ninety percent. But what I the the problem is is if there's a blank spot, that's a place where you could lose everything.
+[00:20:13] Adam: Well, it's not that I don't have it. It's just that there are so many parts. There's 12 legs. Each of those legs has a linkage to a cam. Each of those legs is in a pair. So each of those six pairs is attached to a cam that's offset by 120 degrees from its neighbor. Et cetera, et cetera, et cetera. So these are things facts I understand, but in terms of how the central structure grabs the legs and what gets in the way of what, basically, you're exactly right. I don't have. I can't right now yet put this whole machine in my head. I've got it. I I busted ass on this yesterday, which was my first day, full day back, all day, and I got myself to like 90%. But what I the the problem is is if there's a blank spot, that's a place where you could lose everything.
 
 [00:20:13] Norm: Yeah.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:27:11] Will: This is some social.
 
-[00:27:14] Adam: I am not trying to set aside to set a road rage thing going. So, yeah, so today, um, oh right, did I mention I am leaving for Oregon tomorrow to visit family for the Fourth of July? So, I am got I've got uh my guy welding in here sub assemblies, and mostly, as long as the sub assemblies are built, that's like ninety percent of the physical labor. It's just the mental labor of how the construction goes that I need to leave him with all the proper sub assemblies by the end of today.
+[00:27:14] Adam: I am not trying to set aside to set a road rage thing going. So, yeah, so today, um, oh right, did I mention I am leaving for Oregon tomorrow to visit family for the Fourth of July? So, I am got I've got uh my guy welding in here sub assemblies, and mostly, as long as the sub assemblies are built, that's like 90% of the physical labor. It's just the mental labor of how the construction goes that I need to leave him with all the proper sub assemblies by the end of today.
 
 [00:27:40] Will: I mean, the good thing is once you get the first piece done. It should go pretty quickly. It's just repetitive, right?
 

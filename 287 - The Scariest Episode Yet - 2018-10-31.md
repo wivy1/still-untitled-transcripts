@@ -240,9 +240,9 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:09:52] Joe: The cost has decreased about fifty thousand fold in the last ten years.
 
-[00:09:55] Will: So in what the nineties, we spent a few billion dollars doing it for one person.
+[00:09:55] Will: So in what the '90s, we spent a few billion dollars doing it for one person.
 
-[00:09:59] Joe: Ten billion dollars for the first human genome in ten years. You can do it in less than twenty four hours for less than a thousand dollars.
+[00:09:59] Joe: 10,000,000,000 dollars for the first human genome in ten years. You can do it in less than twenty four hours for less than a thousand dollars.
 
 [00:10:05] Adam: Wow.
 
@@ -1060,7 +1060,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:38:31] Adam: You guys isolated the SARS virus.
 
-[00:38:34] Joe: We helped identify it in two thousand three with the CDC and others. Yeah, absolutely. We work on bizarre organisms you've probably never heard of, like Balamuthia. It's got a great name, though.
+[00:38:34] Joe: We helped identify it in 2003 with the CDC and others. Yeah, absolutely. We work on bizarre organisms you've probably never heard of, like Balamuthia. It's got a great name, though.
 
 [00:38:43] Will: It's a pretty good name. What is it?
 
@@ -1098,7 +1098,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:40:36] Will: That’s just describing what happened.
 
-[00:40:38] Joe: Yeah, it's just like okay, bunch of stuff died. And so we, you know, even though we couldn't save the patient in this case, it's still important us to know what happened because you know what happened that was so fast. And you know, it's also true that fifty or sixty percent, depending where you're at, of encephalitis is what she had. You know, infection of the brain or inflammation goes completely undiagnosed, even at UCSF. Although that number is going down now because we're doing all this technology. And so we sequence the bejesus out of it. Same game. Now the game is okay. Separate what's human genome from non-human genome, and then look at what's non-human genome. And then we compare that to the world's collection of organisms, and the organism that pops the top of the list is called Balamuthia. I'd never heard of this. What the hell is that? Never looked at it. And it turns out it's neither virus nor bacteria nor a fungus.
+[00:40:38] Joe: Yeah, it's just like okay, bunch of stuff died. And so we, you know, even though we couldn't save the patient in this case, it's still important us to know what happened because you know what happened that was so fast. And you know, it's also true that 50 or 60%, depending where you're at, of encephalitis is what she had. You know, infection of the brain or inflammation goes completely undiagnosed, even at UCSF. Although that number is going down now because we're doing all this technology. And so we sequence the bejesus out of it. Same game. Now the game is okay. Separate what's human genome from non-human genome, and then look at what's non-human genome. And then we compare that to the world's collection of organisms, and the organism that pops the top of the list is called Balamuthia. I'd never heard of this. What the hell is that? Never looked at it. And it turns out it's neither virus nor bacteria nor a fungus.
 
 [00:41:31] Will: Is it an amoeba?
 
@@ -1422,7 +1422,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:52:15] Joe: Wow.
 
-[00:52:15] Joe: And you know, one hundred fifty thousand dollars of antibiotics, none of which work against amoebas.
+[00:52:15] Joe: And you know, 150,000 dollars of antibiotics, none of which work against amoebas.
 
 [00:52:20] Will: Mm hmm.
 
@@ -1502,7 +1502,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:55:11] Joe: So you know this idea of using an unbiased approach, a data-driven approach to capture things—that's great. You live in you know California or the United States, you can send a sample there. I mean, that's well and fine. And it's kind of a you know, it is an expensive test. It's not going to be a cheap diagnostic that can go around the world. But
 
-[00:55:28] Will: like, I had a face rash a few years ago, and we spent ten thousand dollars.
+[00:55:28] Will: like, I had a face rash a few years ago, and we spent 10,000 dollars.
 
 [00:55:31] Joe: Yeah, okay.
 
@@ -1544,7 +1544,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:56:18] Will: Okay,
 
-[00:56:18] Joe: all right. So the eyeball. All right, so you know, a thing called uveitis, which is inflammation of the eye, is another one of those. Hey, fifty percent of it, we have no idea what it is. And people, you know, when they lose their vision or have inflammation, they're pissed. I mean, it hurts.
+[00:56:18] Joe: all right. So the eyeball. All right, so you know, a thing called uveitis, which is inflammation of the eye, is another one of those. Hey, 50% of it, we have no idea what it is. And people, you know, when they lose their vision or have inflammation, they're pissed. I mean, it hurts.
 
 [00:56:31] Will: It's really scary.
 
@@ -1688,7 +1688,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:00:52] Joe: yeah, sure.
 
-[01:00:52] Adam: And we were talking about something else, but I met. He's like, " What are you working on?" And I said, " We're about to. I'm about to get the high speed shot of a." Tip of the whip breaking the speed of sound, non-trivial from a methodological standpoint, and we did it. And he was like, " Oh," he said, " I did some, I did a bunch of research on whips for my last book." And the thing is, is when Neal tells you he's done a lot of research, it's been a dive, right? And he ends up finding the first guy to figure out that the speed of sound is a thing that can be broken, and he's this French scientist from the nineteen twenties. And it all begins in the end of World War Two, where there are no more trucks. Sorry, the end of World War One. There is no trucks left in Europe. They've all been utilized for the war effort, and people still have to move commerce. So they start reintroducing horse-driven teams to drag large vehicles to drag trucks effectively, but they no longer have buggy whips or anything. So they they start using what's left, which is in the factories. They find that copper grounding braided copper grounding straps make terrific whips. So, this guy comes in in the twenties to this French doctor, and what he's he's got an irritation in his eye. And when the doctor looks really close, what he finds is these microscopic metal cylinders embedded in the lens of his eye.
+[01:00:52] Adam: And we were talking about something else, but I met. He's like, " What are you working on?" And I said, " We're about to. I'm about to get the high speed shot of a." Tip of the whip breaking the speed of sound, non-trivial from a methodological standpoint, and we did it. And he was like, " Oh," he said, " I did some, I did a bunch of research on whips for my last book." And the thing is, is when Neal tells you he's done a lot of research, it's been a dive, right? And he ends up finding the first guy to figure out that the speed of sound is a thing that can be broken, and he's this French scientist from the 1920s. And it all begins in the end of World War Two, where there are no more trucks. Sorry, the end of World War One. There is no trucks left in Europe. They've all been utilized for the war effort, and people still have to move commerce. So they start reintroducing horse-driven teams to drag large vehicles to drag trucks effectively, but they no longer have buggy whips or anything. So they they start using what's left, which is in the factories. They find that copper grounding braided copper grounding straps make terrific whips. So, this guy comes in in the '20s to this French doctor, and what he's he's got an irritation in his eye. And when the doctor looks really close, what he finds is these microscopic metal cylinders embedded in the lens of his eye.
 
 [01:02:16] Unknown (Joe or Will): What?
 
@@ -1696,7 +1696,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:02:55] Joe: That is nuts.
 
-[01:02:56] Adam: Totally nuts, and then he actually manages. Neal sent me; he had he had to have this French or German paper translated that had never been translated. Then he found a scientist who had actually used in the twenties chemical flashes to isolate and show that the tip of a whip breaks the speed of sound. This magnificent methodology to do it.
+[01:02:56] Adam: Totally nuts, and then he actually manages. Neal sent me; he had he had to have this French or German paper translated that had never been translated. Then he found a scientist who had actually used in the '20s chemical flashes to isolate and show that the tip of a whip breaks the speed of sound. This magnificent methodology to do it.
 
 [01:03:20] Joe: Yeah. Wow. That's cool.
 
@@ -1722,7 +1722,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:04:05] Adam: We can be inferred.
 
-[01:04:06] Joe: You can be inferred. So you know, I mean, depending on your genetic makeup and what you've inherited, there might be disease-related mutations of interest to you. The ancestry might be of interest to you. I think it is fascinating to look at one's ancestry. You know, there are more and more cancers that are actionable or susceptibilities. You know, whether you know a one percent more chance of getting diabetes is going to matter to you or not? Probably not. But there are lots of other things in there that might be of interest. And the more we learn, and the more we collect, and link genotype to phenotype, the more actionable.
+[01:04:06] Joe: You can be inferred. So you know, I mean, depending on your genetic makeup and what you've inherited, there might be disease-related mutations of interest to you. The ancestry might be of interest to you. I think it is fascinating to look at one's ancestry. You know, there are more and more cancers that are actionable or susceptibilities. You know, whether you know a 1% more chance of getting diabetes is going to matter to you or not? Probably not. But there are lots of other things in there that might be of interest. And the more we learn, and the more we collect, and link genotype to phenotype, the more actionable.
 
 [01:04:41] Will: You should explain genotype to phenotype.
 

@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:03:46] Adam: No.
 
-[00:03:42] Norm: And we have so much stuff going on that it's tough to get a sense of maybe like even ten percent of what goes on at Comic Con. It is. It's still going on right now as we're recording this. Have you guys read online, seen what news has come out, or what? What are the big things?
+[00:03:42] Norm: And we have so much stuff going on that it's tough to get a sense of maybe like even 10% of what goes on at Comic Con. It is. It's still going on right now as we're recording this. Have you guys read online, seen what news has come out, or what? What are the big things?
 
 [00:04:01] Will: Affleck is directing a Batman movie. Which, like ten years ago, would have been the worst news ever, and now it's the only hope for the franchise.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:12:23] Will: So it was found by the production team, but it's something that's hyper rare.
 
-[00:12:26] Adam: It's like some German quick release parachute harness buckle. It's a far out kind of [unclear: best / vessel]. It's the most esoteric prop piece, and when you can find them on eBay, they're about eight hundred dollars a piece.
+[00:12:26] Adam: It's like some German quick release parachute harness buckle. It's a far out kind of [unclear: best / vessel]. It's the most esoteric prop piece, and when you can find them on eBay, they're about 800 dollars a piece.
 
 [00:12:37] Will: Wow!
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:17:32] Norm: So, your first Comic Con, what are your anticipations for the floor? What is? How has Adam prepped you?
 
-[00:17:39] Chris Hadfield: I was thinking about it, and I was originally inspired to to become an astronaut by the fantasy of of science fiction, my own imagination, the stuff I read, and then Star Trek, and then two thousand and one, A Space Odyssey. All those things ganged up on me to to kind of open my mind wide enough to then blend that with the reality of actual spaceflight to make me want to turn myself into an astronaut. So, for me, this is sort of now coming back at it. This is this is the the fantasy made real. This is all of those images that that help people. Imagine things that otherwise don't exist, that then push the reality. To me, this is a chance to see all that process. So I'm I'm really delighted on that side, and the other is to see what Adam has come up with to to mimic some of the reality that I've experienced as well.
+[00:17:39] Chris Hadfield: I was thinking about it, and I was originally inspired to to become an astronaut by the fantasy of of science fiction, my own imagination, the stuff I read, and then Star Trek, and then 2001, A Space Odyssey. All those things ganged up on me to to kind of open my mind wide enough to then blend that with the reality of actual spaceflight to make me want to turn myself into an astronaut. So, for me, this is sort of now coming back at it. This is this is the the fantasy made real. This is all of those images that that help people. Imagine things that otherwise don't exist, that then push the reality. To me, this is a chance to see all that process. So I'm I'm really delighted on that side, and the other is to see what Adam has come up with to to mimic some of the reality that I've experienced as well.
 
 [00:18:33] Adam: Well, so yeah, the costume the costume that we've got is the Clavius based silver spacesuit from 2001. And apropos of my spacesuit walk last year, which was in the alien spacesuit where I almost got heatstroke, these costumes have a fully integrated recirculating cooling system of a shirt. What do you call that shirt?
 
@@ -404,13 +404,13 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:21:20] Adam: I think that's exactly what we should do. I love that idea.
 
-[00:21:24] Will: So, okay, so they know the suit. They know the suit by now. So let's talk about it a little bit because this is the Clavius suit from two thousand one. This is, I think, probably it's. I think it's visually more interesting. It's the same suit, different paint scheme, different color scheme, more or less.
+[00:21:24] Will: So, okay, so they know the suit. They know the suit by now. So let's talk about it a little bit because this is the Clavius suit from 2001. This is, I think, probably it's. I think it's visually more interesting. It's the same suit, different paint scheme, different color scheme, more or less.
 
-[00:21:39] Adam: When people see two thousand one spacesuits, they think of the red one or the yellow one, the Frank Poole or the David Bowman or David Bowman suit that he disables HAL in, which is both orange and green because it's from pieces from the the bay. But the the the one that no one's ever replicated is the Clavius suit. It's what Heywood Floyd rides to Tycho Crater in when he's on his way to investigate the magnetic anomaly.
+[00:21:39] Adam: When people see 2001 spacesuits, they think of the red one or the yellow one, the Frank Poole or the David Bowman or David Bowman suit that he disables HAL in, which is both orange and green because it's from pieces from the the bay. But the the the one that no one's ever replicated is the Clavius suit. It's what Heywood Floyd rides to Tycho Crater in when he's on his way to investigate the magnetic anomaly.
 
 [00:22:01] Will: And and you you've been working on this for what two three five years at this point?
 
-[00:22:06] Adam: I think four or five years, yeah. Assembling the parts, I commissioned the the soft parts and the front pack was made by a friend of mine, and then the backpack was was first sculpted by my friend John Goodson, who's a model maker at ILM. I did all the machining of all the the parts and the dials. The cooling units come. Basically, the cool shirts are from a company called Cool Shirt. They make cooling systems for race car drivers. Oh, and the submersible pumps are a standard cooling system submersible pump for getting people back from being having heat stroke. Like ambulance drivers would have the system in their in their in their trucks. What else? And the boots, the boots of the Clavius suit are in fact the original boots are Tebbutt and Hall firemen's boots, which is a British company from the 50s and 60s. You can't find them. They're actually suede on the outside, but there is a boot that looks almost precisely like it. And
+[00:22:06] Adam: I think four or five years, yeah. Assembling the parts, I commissioned the the soft parts and the front pack was made by a friend of mine, and then the backpack was was first sculpted by my friend John Goodson, who's a model maker at ILM. I did all the machining of all the the parts and the dials. The cooling units come. Basically, the cool shirts are from a company called Cool Shirt. They make cooling systems for race car drivers. Oh, and the submersible pumps are a standard cooling system submersible pump for getting people back from being having heat stroke. Like ambulance drivers would have the system in their in their in their trucks. What else? And the boots, the boots of the Clavius suit are in fact the original boots are Tebbutt and Hall firemen's boots, which is a British company from the '50s and '60s. You can't find them. They're actually suede on the outside, but there is a boot that looks almost precisely like it. And
 
 [00:23:01] Will: unfortunately,
 

@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:14:56] Max: Oh, like the Borg Queen puts on Brent Spiner and starts her First Contact. Right. Yeah.
 
-[00:14:59] Adam: So I'm talking to her, and we're we're chatting, and we're talking about the conference. And I said, " Wait, let's listen to this crowd. " About a hundred people around the fire pit, and you know, forty conversations going on, and. I'm realizing, you know, a party a party where everyone's drinking. Usually, you're hearing a lot of loud stories, a lot of hearty laughter, a lot of posturing, and the sound of this. And it's like eleven thirty at night. Is all these people just trading information as fast as they can, all really, really excited, and you can feel that energy. And it was stunning. So last night was the final night of the conference. I interviewed.
+[00:14:59] Adam: So I'm talking to her, and we're we're chatting, and we're talking about the conference. And I said, " Wait, let's listen to this crowd. " About a hundred people around the fire pit, and you know, forty conversations going on, and. I'm realizing, you know, a party a party where everyone's drinking. Usually, you're hearing a lot of loud stories, a lot of hearty laughter, a lot of posturing, and the sound of this. And it's like 11:30 at night. Is all these people just trading information as fast as they can, all really, really excited, and you can feel that energy. And it was stunning. So last night was the final night of the conference. I interviewed.
 
 [00:15:35] Max: Was Jeff Bezos there?
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:17:54] Will: I think that's true.
 
-[00:17:55] Max: What can we do? Right, so Star Trek in this from the 60s through the 90s was this like
+[00:17:55] Max: What can we do? Right, so Star Trek in this from the '60s through the '90s was this like
 
 [00:17:59] Adam: utopic vision,
 
@@ -468,17 +468,17 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:20:58] Max: fun and I enjoy, but it's not it doesn't feel the same as Star Trek to me.
 
-[00:21:02] Will: I think the third one is more of a traditional Star Trek. Like the third one is is is very much a the one that made like eight million dollars or something.
+[00:21:02] Will: I think the third one is more of a traditional Star Trek. Like the third one is is is very much a the one that made like 8,000,000 dollars or something.
 
 [00:21:08] Max: I like the opening scene.
 
 [00:21:10] Will: Look, the opening, the opening, the cold opens of those movies are the best part of the movies.
 
-[00:21:13] Adam: Well, the cold open of the two thousand nine,
+[00:21:13] Adam: Well, the cold open of the 2009,
 
 [00:21:15] Will: all three of them.
 
-[00:21:16] Adam: One, I think the cold open of the two thousand nine is one of my favorite cold opens of. Is a good action movie. That's the that's
+[00:21:16] Adam: One, I think the cold open of the 2009 is one of my favorite cold opens of. Is a good action movie. That's the that's
 
 [00:21:21] Will: the birth of Kirk.
 
@@ -858,7 +858,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:39:01] Max: I mean, Uniball Vision Elite.
 
-[00:39:04] Adam: It's extra fine. It's the one I love, and I buy them by the case. And so I'll so if it's a if it's a simple build like oh I'm going to organize a drawer with foam core, I do just jump in and start grabbing. But if it's has any level of complexity to it, I will sit and think about how I want it to. I want the overall structure to be, and so there's I can't begin until I've solved a certain level of the problems, and it may be only ten percent of the problems, but I've solved the ones that I know are going to kick my ass mentally. Um. And one of the ways I do that is I just I start drawing the thing, I do sketches of it, and then I start doing sketches of the components. Okay, it's going to require some electronics. Going to try five buttons, which means I got to do a wiring diagram, and then I start to think it through. And in some cases, I have sketches of the same prop in four different sketchbooks over the last eight years.
+[00:39:04] Adam: It's extra fine. It's the one I love, and I buy them by the case. And so I'll so if it's a if it's a simple build like oh I'm going to organize a drawer with foam core, I do just jump in and start grabbing. But if it's has any level of complexity to it, I will sit and think about how I want it to. I want the overall structure to be, and so there's I can't begin until I've solved a certain level of the problems, and it may be only 10% of the problems, but I've solved the ones that I know are going to kick my ass mentally. Um. And one of the ways I do that is I just I start drawing the thing, I do sketches of it, and then I start doing sketches of the components. Okay, it's going to require some electronics. Going to try five buttons, which means I got to do a wiring diagram, and then I start to think it through. And in some cases, I have sketches of the same prop in four different sketchbooks over the last eight years.
 
 [00:39:53] Will: The other thing you do that I think is really interesting is you have that catalog. You like you catalog photos in a exhaustively like research materials and photos.
 
@@ -916,7 +916,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:42:28] Adam: It's like 98.
 
-[00:42:29] Will: Yeah, it was it was like a one megapixel or point six megapixel digital camera or something.
+[00:42:29] Will: Yeah, it was it was like a one megapixel or 0.6 megapixel digital camera or something.
 
 [00:42:33] Adam: So that Canon sold bundled software with that for for surfing on your Finder through your photos, and Bridge is like the super advanced version of that.
 

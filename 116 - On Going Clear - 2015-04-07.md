@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:07:05] Adam: An actor's face could hold the screen for minutes at a time, showing this whole wealth of emotion
 
-[00:07:11] Norm: to hold his own against a film where Seymour Hoffman shot sixty-five millimeters,
+[00:07:11] Norm: to hold his own against a film where Seymour Hoffman shot 65 millimeters,
 
 [00:07:16] Adam: Yeah.
 
@@ -690,7 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:26:28] Norm: Yeah, so you can do much tighter turns.
 
-[00:26:30] Will: If you are driving a nineteen seventy four Lincoln Continental, you have a larger, larger hood to do.
+[00:26:30] Will: If you are driving a 1974 Lincoln Continental, you have a larger, larger hood to do.
 
 [00:26:34] Adam: But I loved all the comments about learning to drive in other countries, learning to. I mean, fantastic.
 

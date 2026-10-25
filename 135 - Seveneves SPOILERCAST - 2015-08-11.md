@@ -68,7 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:04:05] Adam: Yeah, it is a very ah, it it lit up the same parts of my brain that the Martian did.
 
-[00:04:14] Will: You mean the the the movie that's about the square thing going into the round hole in Apollo Thirteen, stretched out over an entire book?
+[00:04:14] Will: You mean the the the movie that's about the square thing going into the round hole in Apollo 13, stretched out over an entire book?
 
 [00:04:20] Adam: Well, there is that, right? So, okay, so this is a half spoiler because it happens fairly early in the book. The moon blows up very quickly. It becomes apparent that the large chunks that make up the moon are going to start raining down on Earth, and humanity will not survive this. So, how will how will humanity survive what they call the white rain, which is the the the
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:23:45] Will: for for especially for stuff that has like nuance.
 
-[00:23:47] Adam: Well, yeah. Well, you in a movie, it's like if the if the actor who gets twenty million bucks hasn't is is in danger, you kind of know he's not going to die.
+[00:23:47] Adam: Well, yeah. Well, you in a movie, it's like if the if the actor who gets 20,000,000 bucks hasn't is is in danger, you kind of know he's not going to die.
 
 [00:23:57] Will: Right.
 
@@ -676,7 +676,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:29:50] Will: So literally, I just got chills.
 
-[00:29:51] Adam: I know I'm getting a little choked up. So I I. I came to this part of the book. It was about two thirty in the morning of the weekend. I was polishing it off, and I just—I literally dropped the book and openly wept. I just—I couldn't believe how lovely that that that construction was. Of course, of course, of course.
+[00:29:51] Adam: I know I'm getting a little choked up. So I I. I came to this part of the book. It was about 2:30 in the morning of the weekend. I was polishing it off, and I just—I literally dropped the book and openly wept. I just—I couldn't believe how lovely that that that construction was. Of course, of course, of course.
 
 [00:30:09] Will: But I mean, it's it's it highlights the fragility of our existence as a whole.
 

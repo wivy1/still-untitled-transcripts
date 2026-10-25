@@ -58,7 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:02:26] Norm: She lacks. She lacks brand consistency.
 
-[00:02:28] Adam: She a hundred percent killed her Sound of Music musical number.
+[00:02:28] Adam: She 100% killed her Sound of Music musical number.
 
 [00:02:32] Will: That's that's. I mean, can you imagine how hard it is to sing Julie Andrews songs with Julie Andrews standing waiting in the wings?
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:19:00] Will: You watched Reality Bites, and it spoke to you at a deep and core level.
 
-[00:19:03] Adam: I am pretty sure that he and I actually worked on a friend's play for a few weeks way back in the mid eighties.
+[00:19:03] Adam: I am pretty sure that he and I actually worked on a friend's play for a few weeks way back in the mid '80s.
 
 [00:19:03] Will: Oh, that’s funny.
 
@@ -658,7 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:23:37] Adam: Well,
 
-[00:23:38] Norm: you don't need to spend a hundred million dollars.
+[00:23:38] Norm: you don't need to spend 100,000,000 dollars.
 
 [00:23:39] Adam: I think that that I think that that that delineation is going to get softer and softer. Where you will have these companies that can spend the two hundred million on the tentpole, but for the rest of the filmmaking world, it's it's a fundraising thing. You know, and it's going to it's like poli. It's and fortunately, it's like politics. You've just got to go around and find people who want to fund your movie without with while hoping that they don't mess it up too much with whatever input they want for their money.
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:24:18] Adam: John Waters, right?
 
-[00:24:19] Will: Said in an interview a few months ago, like, look. I can get a movie made for two million dollars, or I can get a movie made for ten million dollars. In between, basically impossible to get funding for right now.
+[00:24:19] Will: Said in an interview a few months ago, like, look. I can get a movie made for 2,000,000 dollars, or I can get a movie made for 10,000,000 dollars. In between, basically impossible to get funding for right now.
 
 [00:24:19] Adam: No,
 

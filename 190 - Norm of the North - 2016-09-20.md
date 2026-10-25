@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:08:48] Adam: I am going to go do it up in Toronto in November,
 
-[00:08:50] Norm: November twelfth. If you are in Toronto, you can see Adam, and we're actually thinking about going as well.
+[00:08:50] Norm: November 12. If you are in Toronto, you can see Adam, and we're actually thinking about going as well.
 
 [00:08:55] Adam: Oh, nice! Yeah,
 

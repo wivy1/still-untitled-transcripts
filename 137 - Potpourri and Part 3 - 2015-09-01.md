@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:18:14] Will: [unclear: It/Well, it] was racism. Yeah, I mean, it was it was look, it was it was unabashed racism. Yeah, these people, these people are opportunists. These people help everyone. These people. Yeah, and that that's like I found that part. Well, first off, I loved the idea that they had spent a significant portion of the last five thousand years blasting comets back onto the surface and doing things, reseeding it to make Earth habitable, making these doing these massive engineering projects on a multi generational scale.
 
-[00:18:41] Adam: And if you're going to jump five thousand years. In the future, [unclear: I/Yeah. Right.] you're going to wonder, well, how how do these things progress? At what point do they reach the kind of point of no return of the ring around Earth? Because when they jump five thousand years in the future, humanity still living ninety nine point nine percent of it in space in a ring that.
+[00:18:41] Adam: And if you're going to jump five thousand years. In the future, [unclear: I/Yeah. Right.] you're going to wonder, well, how how do these things progress? At what point do they reach the kind of point of no return of the ring around Earth? Because when they jump five thousand years in the future, humanity still living 99.9% of it in space in a ring that.
 
 [00:18:58] Norm: Billions and
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:19:42] Adam: Oh, he's I mean the most. Optimistic disaster novel ever written. Actually, because it, because of the big reveal at the end.
 
-[00:19:48] Norm: Yes, and when you think of it, the reveal being five thousand years later, humanity is one. We've if we have survived for five thousand years and repopulated a point, any measure. If you look, we've we've had more than our current civilization. Have we're talking about three thousand BC to two thousand AD now? It could have ended just there. We made it. We did.
+[00:19:48] Norm: Yes, and when you think of it, the reveal being five thousand years later, humanity is one. We've if we have survived for five thousand years and repopulated a point, any measure. If you look, we've we've had more than our current civilization. Have we're talking about 3000 BC to 2000 AD now? It could have ended just there. We made it. We did.
 
 [00:19:48] Will: Yeah.
 
@@ -678,7 +678,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:29:19] Adam: yeah, dramatically.
 
-[00:29:20] Will: If you ever read two thousand one, so the spoilers for two thousand one here.
+[00:29:20] Will: If you ever read 2001, so the spoilers for 2001 here.
 
 [00:29:20] Adam: Spoiler alert!
 
@@ -686,7 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:29:27] Adam: Is this on? Is anybody here?
 
-[00:29:27] Will: At the end of two thousand one, it basically you know two thousand two thousand one. The novel ends with I think because the novel is about Saturn, not Jupiter, but the the gist is the same, right?
+[00:29:27] Will: At the end of 2001, it basically you know 2000 2001. The novel ends with I think because the novel is about Saturn, not Jupiter, but the the gist is the same, right?
 
 [00:29:27] Adam: Yeah.
 
@@ -974,7 +974,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:39:08] Adam: Yes, I have that. That's on my next one..
 
-[00:39:09] Will: It is one of my favorite science fiction books of the the two thousands. So highly recommended.
+[00:39:09] Will: It is one of my favorite science fiction books of the the 2000s. So highly recommended.
 
 [00:39:14] Norm: And there are audio books for most of these.
 

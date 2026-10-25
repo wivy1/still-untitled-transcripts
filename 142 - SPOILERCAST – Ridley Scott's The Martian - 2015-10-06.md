@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:06:32] Norm: yeah, and and you know, you you do something from a dramatic standpoint. You know, when you are reading the book, we love The Martian because it is an exercise in one solving one problem after another, and to get that type of thing across in under two hour film is difficult. And it while there are montage sequences of problem solving, the Ridley and the writer does allow Matt Damon to verbalize and give you enough science. So even if you didn't read the book, you get the sense that he's doing the math, and he's it's not just spewing nonsense; it's real math, real problem solving.
 
-[00:07:04] Will: Yeah, but, but I, I. I hesitate. Like this isn't a science movie, right? I mean, it is a science movie, but it's a. It stands alone. The science is what makes it plausible and believable, and gives it weight that makes it feel like the greatest adventure story of mankind's ever had, rather than, you know, a science fiction like tale of survival, right? Like there's a there's a difference between there's a difference between a movie like Wild, which is about a harrowing human story, and the the the pulpy kind of tales of survival from the 50s. You know you know you know what I mean. And this feels more like something that that is real that could happen to a real person.
+[00:07:04] Will: Yeah, but, but I, I. I hesitate. Like this isn't a science movie, right? I mean, it is a science movie, but it's a. It stands alone. The science is what makes it plausible and believable, and gives it weight that makes it feel like the greatest adventure story of mankind's ever had, rather than, you know, a science fiction like tale of survival, right? Like there's a there's a difference between there's a difference between a movie like Wild, which is about a harrowing human story, and the the the pulpy kind of tales of survival from the '50s. You know you know you know what I mean. And this feels more like something that that is real that could happen to a real person.
 
 [00:07:46] Norm: Yeah, it's it's then then straight up science fiction.
 
@@ -284,15 +284,15 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:12:46] Norm: We should really enjoy it. Let's let's talk about characterization.
 
-[00:12:49] Will: Do you think people should see the three D?
+[00:12:49] Will: Do you think people should see the 3D?
 
-[00:12:51] Norm: Yes, okay, okay. We talk about a lot of things. Three D. I actually thought it was a fine three D movie.
+[00:12:51] Norm: Yes, okay, okay. We talk about a lot of things. 3D. I actually thought it was a fine 3D movie.
 
-[00:12:57] Adam: I thought it was a fine three D. I am not a fan of three D films, yeah, and I agree with you. The three D was very subtle. There wasn't a lot of arrows shooting right into your face.
+[00:12:57] Adam: I thought it was a fine 3D. I am not a fan of 3D films, yeah, and I agree with you. The 3D was very subtle. There wasn't a lot of arrows shooting right into your face.
 
 [00:13:05] Will: Kind of. There was no steering wheel blasting.
 
-[00:13:07] Norm: in three D, and the ways they use three D, and we've talked about the things we like about when they how use three D is the framing of. the the cinema you know using a UI as the thing that pops out or when you're filming a landscape the landscape goes inward as opposed to popping out so those are effective
+[00:13:07] Norm: in 3D, and the ways they use 3D, and we've talked about the things we like about when they how use 3D is the framing of. the the cinema you know using a UI as the thing that pops out or when you're filming a landscape the landscape goes inward as opposed to popping out so those are effective
 
 [00:13:24] Will: some some of the Martian landscapes were just absolutely gorgeous in 3D I don't think you're I think you're okay if you want to see this not in 3D
 
@@ -324,7 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:15:22] Adam: Yeah,
 
-[00:15:23] Norm: and little things like you know to tip the hat to book readers, things like why he had potatoes. You know, don't open until Thanksgiving. Right, just being written on on the package. He needed to say, " Oh, now this is why we had live spuds." I will say for the Mars thing, and going back to the in-situ cameras, Joey pointed this out when I was chatting with him last night. When they filmed on Earth and interior, they actually it looked like they lowered the shutter. So you have your typical forty-eight shutter, twenty-four fps, a little filmic look. But anytime you moved outdoors into the Martian landscape, you they ramped up the shutter so look more like fast motion,
+[00:15:23] Norm: and little things like you know to tip the hat to book readers, things like why he had potatoes. You know, don't open until Thanksgiving. Right, just being written on on the package. He needed to say, " Oh, now this is why we had live spuds." I will say for the Mars thing, and going back to the in-situ cameras, Joey pointed this out when I was chatting with him last night. When they filmed on Earth and interior, they actually it looked like they lowered the shutter. So you have your typical forty-eight shutter, 24 fps, a little filmic look. But anytime you moved outdoors into the Martian landscape, you they ramped up the shutter so look more like fast motion,
 
 [00:16:03] Adam: interesting,
 
@@ -622,7 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:30:07] Will: And and that she's Helping, I can't remember who was out in the in the suit in the book, but helping with the feeding course corrections and all that kind of stuff to make the rescue happen, and you lose all of that because it's just math that's going to get cut from the film. So if you want her to be the driving force, she has to be in the suit.
 
-[00:30:35] Adam: And I thought that, to be honest, that rescue of him getting tangled up in her web from the ship, the six hundred meter web webbing, and them spinning around each other was absolutely beautiful. I was really blown away by that.
+[00:30:35] Adam: And I thought that, to be honest, that rescue of him getting tangled up in her web from the ship, the 600 meter web webbing, and them spinning around each other was absolutely beautiful. I was really blown away by that.
 
 [00:30:51] Will: Yeah, the whole Iron Man bit from Iron Man on was was the only place the movie lost me.
 
@@ -922,7 +922,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:42:28] Will: you're talking about an eleven year old.
 
-[00:42:31] Adam: No, I know, I realize that. But there's a there's an old Mel Brooks joke. Is Mel Brooks and Carl Reiner used to have a party joke that they would do called the two thousand year old man, where Carl Reiner would interview Mel Brooks. It became a couple of comedy albums that I grew up on. And at one point, Mel, but Carl Reiner says, " Did you always believe in God?" He goes, " No, no, no, no. What did you believe in before God? Well, we used to believe in Phil. What really? Yeah. Well, who was Phil? Phil was a very big man. Very big man. He would, he would beat you up, right? He says that one day, one day, Phil was out walking, and the clouds formed and lightning bolt came down and struck Phil, and we all looked up and we said. There's something bigger than Phil.
+[00:42:31] Adam: No, I know, I realize that. But there's a there's an old Mel Brooks joke. Is Mel Brooks and Carl Reiner used to have a party joke that they would do called the 2000 year old man, where Carl Reiner would interview Mel Brooks. It became a couple of comedy albums that I grew up on. And at one point, Mel, but Carl Reiner says, " Did you always believe in God?" He goes, " No, no, no, no. What did you believe in before God? Well, we used to believe in Phil. What really? Yeah. Well, who was Phil? Phil was a very big man. Very big man. He would, he would beat you up, right? He says that one day, one day, Phil was out walking, and the clouds formed and lightning bolt came down and struck Phil, and we all looked up and we said. There's something bigger than Phil.
 
 [00:43:13] Norm: Ah. The other thing that Danica actually brought up, and I didn't know if anyone had written about this before, is you know when you go into the mind of the mom and the mind of the dad and other characters, they're all like one gender. So the mom inside the mom's mind, all the versions of their emotions are the female versions. In the dad's, it's it's all male, and the boys it's all male.
 

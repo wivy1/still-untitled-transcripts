@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:01:54] Will: But so this is one of those situations where. Are they they're a thousand bucks because there's mechanical there's a lot of mechanical work that goes in them or they're a thousand bucks because they don't sell very many and they need to make enough money to stay in business?
 
-[00:02:04] Adam: That's a good question. I'm not positive. Okay. But from an engineering standpoint, you want the you want the flesh as it were to be somewhat pliable so it can move. You want it to be poseable so you can get it. Now, when you talk about poseable and you're holding up an arm, if it has anything in it, even if it weighs two pounds, there's tremendous amount of stress right here on the shoulder, and that means that you've got to have some mechanical arrangement that's both movable and rigid. That's expensive. Yeah. It's just it's hard to do. Yes, you could do it with eye bolts and lock nuts and some heavy stuff, but to a degree that's fully three hundred and sixty degree articulatable, maybe. Then that's not even the toughest problem. The toughest problem is you can't really support it through the feet like in the stores because they can just take an old pair of shoes and drill holes through them. When you're doing costume stuff, I don't want to drill holes in my costume shoes, which means I've got to support from really the center of the back. And again, in any kind of pose, there is a huge amount of stress on the mechanical linkage right there. Now, again, I can make it out of welded steel, and I can have it sock into a port that's on a piece of quarter-inch plate. But frankly, I've been thinking about this for days. It's been driving me crazy.
+[00:02:04] Adam: That's a good question. I'm not positive. Okay. But from an engineering standpoint, you want the you want the flesh as it were to be somewhat pliable so it can move. You want it to be poseable so you can get it. Now, when you talk about poseable and you're holding up an arm, if it has anything in it, even if it weighs two pounds, there's tremendous amount of stress right here on the shoulder, and that means that you've got to have some mechanical arrangement that's both movable and rigid. That's expensive. Yeah. It's just it's hard to do. Yes, you could do it with eye bolts and lock nuts and some heavy stuff, but to a degree that's fully 360 degree articulatable, maybe. Then that's not even the toughest problem. The toughest problem is you can't really support it through the feet like in the stores because they can just take an old pair of shoes and drill holes through them. When you're doing costume stuff, I don't want to drill holes in my costume shoes, which means I've got to support from really the center of the back. And again, in any kind of pose, there is a huge amount of stress on the mechanical linkage right there. Now, again, I can make it out of welded steel, and I can have it sock into a port that's on a piece of quarter-inch plate. But frankly, I've been thinking about this for days. It's been driving me crazy.
 
 [00:03:19] Will: So, I think the easy solution next time we need a bunch of costumes on mannequins is just hire people to stand there in the costumes.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:14:04] Will: Like as a design challenge, Disney World is and Disneyland are fascinating.
 
-[00:14:07] Adam: When I went to Disney World and saw, I saw one of their three D films. But what most astonished me about the three D film was that they could fill a three thousand four thousand seat auditorium in about six minutes.
+[00:14:07] Adam: When I went to Disney World and saw, I saw one of their 3D films. But what most astonished me about the 3D film was that they could fill a three thousand four thousand seat auditorium in about six minutes.
 
 [00:14:21] Will: That's amazing.
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:17:19] Norm: yeah, the haunted mansion
 
-[00:17:20] Will: about the haunted mansion. Yeah, it's it's uh, it's funny because the haunted mansion is one of those things that I didn't appreciate as a kid at all. Like we went through the haunted mansion, despite my parents' misgivings that it was going to give everybody involved nightmares. And when I went back and saw that as like a twenty four, twenty five year old, I was like, " This is an incredible thing, considering that was built in like nineteen sixty two."
+[00:17:20] Will: about the haunted mansion. Yeah, it's it's uh, it's funny because the haunted mansion is one of those things that I didn't appreciate as a kid at all. Like we went through the haunted mansion, despite my parents' misgivings that it was going to give everybody involved nightmares. And when I went back and saw that as like a twenty four, twenty five year old, I was like, " This is an incredible thing, considering that was built in like 1962."
 
 [00:17:20] Adam: Yeah,
 
@@ -730,7 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:24:30] Adam: Like, you can feed mayonnaise to tuna fish like that.
 
-[00:24:34] Will: It occurs to yeah, yeah, not quite that far, but dial it back like ten percent, you're right there. Is shyster a slur that we have to remove?
+[00:24:34] Will: It occurs to yeah, yeah, not quite that far, but dial it back like 10%, you're right there. Is shyster a slur that we have to remove?
 
 [00:24:41] Adam: It could be.
 

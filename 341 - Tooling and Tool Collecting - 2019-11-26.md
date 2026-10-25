@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:02:25] Norm: Wow.
 
-[00:02:25] Adam: Season four airs on December thirteenth on Amazon Prime.
+[00:02:25] Adam: Season four airs on December 13 on Amazon Prime.
 
 [00:02:30] Zach: Thanks, Amazon.
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:13:52] Adam: Exactly, um, but it taught my brain how to think in terms of turning simple curves into compound curves with, you know, parabolas and things like that.
 
-[00:14:01] Zach: Two D, to three D.
+[00:14:01] Zach: 2D, to 3D.
 
 [00:14:02] Adam: And when I finally learned how to use the laser cutter, when I saw the laser cutter at Industrial Light Magic in 1998, I was like, " Oh, this plugs perfectly into that part of my brain."
 
@@ -268,9 +268,9 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:14:32] Adam: There is a funny thing that you get to learn with the laser cutter, which is that the thickness of plexiglass is totally arbitrary.
 
-[00:14:38] Zach: Oh, oh, absolutely, yeah. Well, and and the problem is most companies sell you know quarter inch plexiglass, and it's like, oh no, it's o two three or you know two point two three
+[00:14:38] Zach: Oh, oh, absolutely, yeah. Well, and and the problem is most companies sell you know quarter inch plexiglass, and it's like, oh no, it's o two three or you know 2.23
 
-[00:14:45] Adam: anywhere from o point two three to point two six.
+[00:14:45] Adam: anywhere from 0.23 to 0.26.
 
 [00:14:47] Zach: Yeah, right,
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:18:28] Zach: Well, I mean, it depends. There's there's always different levels. You can do aluminum. You can do so. It's all how many you want to make, It’s how long the tool lasts,
 
-[00:18:34] Adam: how complex the tool is, how thick the part you're going to shoot in it. But you could you could start out with injection molding with a tool that costs you less than like three thousand bucks.
+[00:18:34] Adam: how complex the tool is, how thick the part you're going to shoot in it. But you could you could start out with injection molding with a tool that costs you less than like 3,000 bucks.
 
 [00:18:42] Zach: Yeah,
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:18:53] Adam: out of styrene that he injection molded. He made the tools himself. He injection molded them himself, and we bought them by the metric ton at ILM as detailing on the sides of ships and stuff.
 
-[00:19:02] Zach: Yeah, absolutely. I mean, there's people that are actually doing injection molding out of three D printed materials. So you know, if you only want like you know ten, or
+[00:19:02] Zach: Yeah, absolutely. I mean, there's people that are actually doing injection molding out of 3D printed materials. So you know, if you only want like you know ten, or
 
 [00:19:10] Norm: And you don't care about the longevity of it,
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:20:09] Zach: Was that Arthur Ganson? That was was he there?
 
-[00:20:11] Adam: He was one of the consultants on it. Yeah, I love Arthur. Uh, I met him in the in the early '90s at a machine art show at the University of Chicago. Uh, anyway, um, he was one of the early consultants on that. It was, uh, Michael Joaquin Grey invented it, and one of the primary was hook is ball and socket joints. Uh, but the ball had a geodesic arrangement of detents in it, and the tooling apparently when they had that run in the mid 90s was like
+[00:20:11] Adam: He was one of the consultants on it. Yeah, I love Arthur. Uh, I met him in the in the early '90s at a machine art show at the University of Chicago. Uh, anyway, um, he was one of the early consultants on that. It was, uh, Michael Joaquin Grey invented it, and one of the primary was hook is ball and socket joints. Uh, but the ball had a geodesic arrangement of detents in it, and the tooling apparently when they had that run in the mid '90s was like
 
 [00:20:40] Zach: That was super hard.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:25:42] Adam: Dude, Mandalorian episode three is fantastic. Also, Watchmen remains phenomenal.
 
-[00:25:48] Norm: Oh God, that last— I got back from DesignerCon at like twelve thirty a.m. last night, and I still had to stay up to watch the latest episode, episode six of Watchmen. That that should win all the Emmys. That episode
+[00:25:48] Norm: Oh God, that last— I got back from DesignerCon at like 12:30 a.m. last night, and I still had to stay up to watch the latest episode, episode six of Watchmen. That that should win all the Emmys. That episode
 
 [00:25:59] Adam: it is. There are levels of cultural intersection of talking about important issues that television can do in a way that is way deeper than films can do because you can carry things across long arcs like. Breaking Bad,
 
@@ -530,7 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:27:07] Zach: Yeah.
 
-[00:27:08] Adam: especially with choosing at as its as its temporal center the Tulsa race massacre in the 20s, and performances like. Every performance down the line is incredible, super exciting. I also have another show to recommend.
+[00:27:08] Adam: especially with choosing at as its as its temporal center the Tulsa race massacre in the '20s, and performances like. Every performance down the line is incredible, super exciting. I also have another show to recommend.
 
 [00:27:26] Zach: Oh yeah,
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:30:29] Zach: Yeah.
 
-[00:30:29] Adam: Um. Then I had to try and make that work, and they had all those custom remotes that are like three hundred fifty bucks a piece.
+[00:30:29] Adam: Um. Then I had to try and make that work, and they had all those custom remotes that are like 350 bucks a piece.
 
 [00:30:35] Zach: Oh yeah.
 
@@ -614,7 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:31:20] Norm: that's it.
 
-[00:31:21] Adam: And so I'm getting for four hundred bucks, I'm getting this thing that would have cost me ten thousand dollars ten years ago.
+[00:31:21] Adam: And so I'm getting for 400 bucks, I'm getting this thing that would have cost me 10,000 dollars ten years ago.
 
 [00:31:27] Zach: And it wouldn't work.
 

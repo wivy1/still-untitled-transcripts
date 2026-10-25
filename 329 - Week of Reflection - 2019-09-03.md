@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:01:10] Adam: It's already back.
 
-[00:01:11] Will: I I rented a car last week, and the rental car place had one of the best disclaimers I've ever seen on this on the counter when you were renting the car, and it was basically like, look, we allow you to take your car to Burning these rental cars to Burning Man, but when it comes back, we're going to check the engine compartment and the interior, and if there's any dust, we're going to charge you a four hundred dollar detailing fee.
+[00:01:11] Will: I I rented a car last week, and the rental car place had one of the best disclaimers I've ever seen on this on the counter when you were renting the car, and it was basically like, look, we allow you to take your car to Burning these rental cars to Burning Man, but when it comes back, we're going to check the engine compartment and the interior, and if there's any dust, we're going to charge you a 400 dollar detailing fee.
 
 [00:01:32] Adam: Oh, nice.
 
@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:01:43] Will: Yeah,
 
-[00:01:43] Adam: but one of the side benefits of Burning Man is that San Francisco becomes as quiet as it was when I moved here in the early nineties.
+[00:01:43] Adam: but one of the side benefits of Burning Man is that San Francisco becomes as quiet as it was when I moved here in the early '90s.
 
 [00:01:52] Will: Yeah,
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:12:21] Adam: yeah,
 
-[00:12:21] Will: often fit into the same slot that like Bad Arnold and Sly Stallone movies fit into, like late 80s, early 90s.
+[00:12:21] Will: often fit into the same slot that like Bad Arnold and Sly Stallone movies fit into, like late '80s, early '90s.
 
 [00:12:27] Adam: Indeed, look, Demolition Man or The Running Man, like bad movies.
 
@@ -368,13 +368,13 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:14:09] Adam: Indeed, I will also say that I believe, and I would love to know if any of the Beat Saber people listen to this podcast, if you would let us know. But I feel like some of the levels actually teach you while you're playing them how to play.
 
-[00:14:24] Will: Oh, a hundred percent.
+[00:14:24] Will: Oh, 100%.
 
 [00:14:25] Adam: I think that's a really neat little
 
 [00:14:28] Norm: subconsciously
 
-[00:14:29] Adam: going on because they'll basically you'll you'll always get to it the twenty percent mark. You'll always get to this crap that's too hard, and then it slows down and it kind of shows you how to do the crap that's too hard, so that when the crap comes up again, now you're ready with the ba ba ba ba ba ba ba, you know.
+[00:14:29] Adam: going on because they'll basically you'll you'll always get to it the 20% mark. You'll always get to this crap that's too hard, and then it slows down and it kind of shows you how to do the crap that's too hard, so that when the crap comes up again, now you're ready with the ba ba ba ba ba ba ba, you know.
 
 [00:14:45] Will: And that's the thing that it does too, as it progresses through the through the tracks on one difficulty level, especially with the the first soundtrack.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:21:40] Norm: So it's it's ten episodes. It is, you know, as practical as any as it could be, and I find myself I find myself watching every fifteen minutes, like pinching myself. How does this show exist? How could right you know? How could
 
-[00:21:57] Will: four billion dollars a year, Norm?
+[00:21:57] Will: 4,000,000,000 dollars a year, Norm?
 
 [00:21:58] Norm: Right? Obviously, Netflix paid for it, and and they've been trying to work on this for a long time. I listened to a couple interviews with the director. All ten episodes directed by the French director Louis Leterrier. He did The Incredible Hulk. He did Transporter. That was like one of his first films.
 

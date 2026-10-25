@@ -372,15 +372,15 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:14:14] Adam: What is the year the computer wore tennis shoes came out? Um,
 
-[00:14:17] Will: like nineteen eighty three or something, right?
+[00:14:17] Will: like 1983 or something, right?
 
 [00:14:19] Unknown speaker: No, no.
 
-[00:14:19] Adam: No, no, no. It's early seventy.
+[00:14:19] Adam: No, no, no. It's early '70s.
 
 [00:14:21] Will: Hold on, is that is that the one? I thought that was the computer wore tennis shoes. Is the one with the growing pains kid?
 
-[00:14:26] Adam: Um, no, I am thinking of an early, early Disney film that I. Yeah, yeah, you won't believe this. Is it nineteen sixty nine? Oh, so that's what Kurt Russell looks like.
+[00:14:26] Adam: Um, no, I am thinking of an early, early Disney film that I. Yeah, yeah, you won't believe this. Is it 1969? Oh, so that's what Kurt Russell looks like.
 
 [00:14:26] Will: Oh my god!
 

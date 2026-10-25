@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:01:41] Simone: We were talking about sweat.
 
-[00:01:42] Adam: that's how Comic Con is. I was up until one thirty. Yeah.
+[00:01:42] Adam: that's how Comic Con is. I was up until 1:30. Yeah.
 
 [00:01:46] Norm: Well, it's perfect because Comic Con is an annual get together with friends. Like, yes, there are a hundred to two hundred thousand people out there beyond the scope of this hotel room exploring Comic Con, but for us, yeah, we want to see some cool stuff. But for us, it's Really, seeing old friends.
 

@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:03:01] Adam: I had no idea.
 
-[00:03:02] Norm: To be clear, it's all old, black and white, fifties.
+[00:03:02] Norm: To be clear, it's all old, black and white, '50s.
 
 [00:03:04] Will: It's like Prelinger.
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:03:20] Adam: I, I have gone down the Prelinger hole a couple of times.
 
-[00:03:23] Will: I mean, I guess we should. Prelinger is a, it's, it's this guy who collected a, tons of footage. It's all sorts of stuff. It's like educational film strips. There's a lot of ads. There's forties stag films.
+[00:03:23] Will: I mean, I guess we should. Prelinger is a, it's, it's this guy who collected a, tons of footage. It's all sorts of stuff. It's like educational film strips. There's a lot of ads. There's '40s stag films.
 
 [00:03:34] Adam: To be honest, actually, uh, uh, the RiffTrax guys, um, they also buy their own on eBay, and they, they buy hundreds to find maybe ten or fifteen good ones. They, it's, it's a very low percentage. It's—
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:04:42] Unknown speaker: Wow.
 
-[00:04:42] Adam: That is anomalous in the last couple of years. I flew a hundred and forty thousand miles last year, so it's quite nice to, you know. I am flying in two weeks.
+[00:04:42] Adam: That is anomalous in the last couple of years. I flew 140,000 miles last year, so it's quite nice to, you know. I am flying in two weeks.
 
 [00:04:51] Will: Put your feet on the ground for a while.
 
@@ -156,11 +156,11 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:05:55] Will: Yeah, and, and that's her thing. So, like, I have the easy end of this deal for sure.
 
-[00:06:00] Adam: When, when I, when I, when my boys were born, which was ninety-nine, uh, and I lived over on Twenty-third between, uh, Mission and Valencia, um, and there's a Walgreens right there on Twenty-third and Mission, and I'd go there all the time for the diapers. You know, that, that was the emergency diapers.
+[00:06:00] Adam: When, when I, when I, when my boys were born, which was '99, uh, and I lived over on 23rd between, uh, Mission and Valencia, um, and there's a Walgreens right there on 23rd and Mission, and I'd go there all the time for the diapers. You know, that, that was the emergency diapers.
 
 [00:06:14] Will: Yeah. You get them cheaper—
 
-[00:06:15] Adam: Over at the, yeah, yeah. You get them cheaper over at the, at the Safeway. But the thing is, is back in ninety-nine it seemed like everybody, everybody had children. It was, there was like a glut, and you could never find the Huggies in the size you specifically needed when you needed them.
+[00:06:15] Adam: Over at the, yeah, yeah. You get them cheaper over at the, at the Safeway. But the thing is, is back in '99 it seemed like everybody, everybody had children. It was, there was like a glut, and you could never find the Huggies in the size you specifically needed when you needed them.
 
 [00:06:30] Norm: I'm gonna go Amazon.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:10:49] Will: Gruyère is great.
 
-[00:10:50] Adam: Uh, Gruyère, absolutely. Um, and then I put avocado in. Now I used to slice my avocado and put it in in chunks. I've actually discovered that if you put it in in scalloped spoon scoops, where it's like really thin at the edges, um, the avocado becomes a much better texture inside the omelet, and it marries with the eggs much better. Then a little cayenne, a little salt, a little pepper. I fold it over. I then put a little swash of Búfalo chipotle sauce, which is available at any of the Mexican places here in the Mission for ninety-nine cents a bottle. And I swear it is, it is like sriracha sauce for us. It's a lifeblood sauce that we'll put on almost everything.
+[00:10:50] Adam: Uh, Gruyère, absolutely. Um, and then I put avocado in. Now I used to slice my avocado and put it in in chunks. I've actually discovered that if you put it in in scalloped spoon scoops, where it's like really thin at the edges, um, the avocado becomes a much better texture inside the omelet, and it marries with the eggs much better. Then a little cayenne, a little salt, a little pepper. I fold it over. I then put a little swash of Búfalo chipotle sauce, which is available at any of the Mexican places here in the Mission for 99 cents a bottle. And I swear it is, it is like sriracha sauce for us. It's a lifeblood sauce that we'll put on almost everything.
 
 [00:11:30] Will: I like the sound of this.
 
@@ -418,11 +418,11 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:14:52] Will: Influences.
 
-[00:14:53] Adam: Design influences. So, yeah, you know, uh, it's an interesting question because I started out actually one of my first jobs as an adult was working as a graphic designer in New York, and this is in eighty-seven, eighty-eight. Before computers, not before computers, but before computers were regularly used as graphic design tools.
+[00:14:53] Adam: Design influences. So, yeah, you know, uh, it's an interesting question because I started out actually one of my first jobs as an adult was working as a graphic designer in New York, and this is in '87, '88. Before computers, not before computers, but before computers were regularly used as graphic design tools.
 
 [00:15:10] Will: So when you, at this point, when you were doing graphic design, you were probably making something that was a mock, and then shooting it on film, and then using that to enlarge or whatever, right?
 
-[00:15:18] Adam: So allow me to explain some of the process of doing graphic design in nineteen eighty-seven. You would, let's say, be doing an annual report. Your client, AT&T, we did AT&T's annual report one year, the small design firm I worked for. Um, AT&T would give you all the copy that would go into that report. Then someone needed to count how many words and characters were in that copy. That's called type speccing.
+[00:15:18] Adam: So allow me to explain some of the process of doing graphic design in 1987. You would, let's say, be doing an annual report. Your client, AT&T, we did AT&T's annual report one year, the small design firm I worked for. Um, AT&T would give you all the copy that would go into that report. Then someone needed to count how many words and characters were in that copy. That's called type speccing.
 
 [00:15:43] Will: Yeah.
 
@@ -450,9 +450,9 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:17:44] Adam: So you have to, yeah. So when you, when you do graphic design like that, when I did graphic design like that, that's how it had been done. Excuse me, that's how it had been done for decades.
 
-[00:17:54] Will: Yeah, since the fifties probably.
+[00:17:54] Will: Yeah, since the '50s probably.
 
-[00:17:55] Adam: And so the people that I was paying attention to when I was getting into graphic design were people who are still huge influences for me, which is the, the, the Saul Bass, the, the, the whole New York School from the forties, fifties and sixties, Ivan Chermayeff, Chermayeff and Geismar, the Push Pin style of Seymour Chwast and Milton Glaser. Uh, all of those guys were so brilliant. And especially, I was just telling my cameraman about this because he's really good at drawing fonts. He doesn't know that he is, but he, he didn't know that he was.
+[00:17:55] Adam: And so the people that I was paying attention to when I was getting into graphic design were people who are still huge influences for me, which is the, the, the Saul Bass, the, the, the whole New York School from the '40s, '50s and '60s, Ivan Chermayeff, Chermayeff and Geismar, the Push Pin style of Seymour Chwast and Milton Glaser. Uh, all of those guys were so brilliant. And especially, I was just telling my cameraman about this because he's really good at drawing fonts. He doesn't know that he is, but he, he didn't know that he was.
 
 [00:18:27] Will: Don't encourage him to design fonts. That is a, that is a path towards ruin and destruction.
 
@@ -470,17 +470,17 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:19:26] Adam: Yeah.
 
-[00:19:26] Will: And if you look at some of the stuff from the late fifties, early sixties, I think a lot of those designs have aged much better than any of the stuff that came after and that replaced those designs.
+[00:19:26] Will: And if you look at some of the stuff from the late '50s, early '60s, I think a lot of those designs have aged much better than any of the stuff that came after and that replaced those designs.
 
 [00:19:34] Adam: Well, and it's also because we, you know, we've spent the last twenty years. I mean, remember when desktop publishing first became really big, which is like—
 
 [00:19:44] Will: QuarkXPress.
 
-[00:19:45] Adam: Ninety-one—
+[00:19:45] Adam: '91—
 
 [00:19:45] Unknown speaker: Yeah.
 
-[00:19:46] Adam: Ninety-two. The first QuarkXPress, and then Mondo 2000 came out, and that was like how to use every font on every page in every color possible.
+[00:19:46] Adam: '92. The first QuarkXPress, and then Mondo 2000 came out, and that was like how to use every font on every page in every color possible.
 
 [00:19:55] Will: Well, but the tools always affect how design. I mean, the tools that are available always affect stuff.
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:23:03] Will: All right, I'll, I'll, I'll fact check.
 
-[00:23:05] Adam: Hold on, fact check me while we're, while we're, while we're talking here. Um, and, uh, uh, sorry, Marcel Duchamp, perhaps my favorite artist of the twentieth century. Um, Marcel, Marcel Duchamp is the, is the—
+[00:23:05] Adam: Hold on, fact check me while we're, while we're, while we're talking here. Um, and, uh, uh, sorry, Marcel Duchamp, perhaps my favorite artist of the 20th century. Um, Marcel, Marcel Duchamp is the, is the—
 
 [00:23:19] Unknown speaker: So—
 
@@ -550,15 +550,15 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:23:21] Norm: Some of your art, your early art kind of has a little bit of, you can tell that Duchamp, right?
 
-[00:23:27] Adam: Yeah, absolutely, some of my art, the found stuff has a lot of Duchamp influence, but I'd say the, the thing that, that, that would classify my early art more than anything else is steampunk, although that was, I was doing that in ninety-one, ninety-two. Well, I've said this here before.
+[00:23:27] Adam: Yeah, absolutely, some of my art, the found stuff has a lot of Duchamp influence, but I'd say the, the thing that, that, that would classify my early art more than anything else is steampunk, although that was, I was doing that in '91, '92. Well, I've said this here before.
 
 [00:23:42] Unknown speaker: Yeah.
 
-[00:23:43] Adam: Um, but I love Duchamp because he was not only commenting on art, he was not only commenting on the form and the formality of art, he was commenting on art itself and the culture of art, uh, which he didn't necessarily always have a tremendous amount of respect for, and I, I think that's deserved. Um, not many people know, we know Cubism is something that Picasso and Braque sort of birthed in the, in, in early part of the century in Paris, um, and yet not many people realize that the first splash that Cubism made in the United States is actually Duchamp's painting Nude Descending a Staircase, which, by calling it Nude Descending a Staircase, he's actually in a way thumbing his nose at the Cubists, giving it such a classic, classicist title was actually. So it arrived in New York at the Armory Show, the famous Armory Show, I think in nineteen fourteen, if my memory is correct, and it made this terrible splash, and people were all up in arms about this, this new art form. It was terrible; everyone was very upset about it. But at the same time, the Cubists were also upset about Duchamp sort of calling it Nude Descending a Staircase. You know.
+[00:23:43] Adam: Um, but I love Duchamp because he was not only commenting on art, he was not only commenting on the form and the formality of art, he was commenting on art itself and the culture of art, uh, which he didn't necessarily always have a tremendous amount of respect for, and I, I think that's deserved. Um, not many people know, we know Cubism is something that Picasso and Braque sort of birthed in the, in, in early part of the century in Paris, um, and yet not many people realize that the first splash that Cubism made in the United States is actually Duchamp's painting Nude Descending a Staircase, which, by calling it Nude Descending a Staircase, he's actually in a way thumbing his nose at the Cubists, giving it such a classic, classicist title was actually. So it arrived in New York at the Armory Show, the famous Armory Show, I think in 1914, if my memory is correct, and it made this terrible splash, and people were all up in arms about this, this new art form. It was terrible; everyone was very upset about it. But at the same time, the Cubists were also upset about Duchamp sort of calling it Nude Descending a Staircase. You know.
 
 [00:24:54] Will: He was a troll.
 
-[00:24:55] Adam: He was a troll, and so when you talk about Andy Warhol or someone like Jeff Koons or someone like Damien Hirst, uh, commenting on the state of art at the same time as contributing to it, Duchamp is the proto; he's the, the prototype for that, and I just, I revere him. Calder, Calder is also a huge early influence for me. So for me, when I think about design, it, it, it falls under all of these guys' rubric, from the graphic guys of Herb Lubalin and, uh, the, the New York School all the way to, you know, mid-twentieth century and early twentieth-century art.
+[00:24:55] Adam: He was a troll, and so when you talk about Andy Warhol or someone like Jeff Koons or someone like Damien Hirst, uh, commenting on the state of art at the same time as contributing to it, Duchamp is the proto; he's the, the prototype for that, and I just, I revere him. Calder, Calder is also a huge early influence for me. So for me, when I think about design, it, it, it falls under all of these guys' rubric, from the graphic guys of Herb Lubalin and, uh, the, the New York School all the way to, you know, mid-20th century and early 20th-century art.
 
 [00:25:29] Will: Fantastic!
 

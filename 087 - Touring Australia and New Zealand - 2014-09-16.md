@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:20:25] Will: That’s what, that’s what podcasts are for, is getting the radio in your car.
 
-[00:20:26] Adam: But it felt very much like Industrial Light and Magic when I first got there in the late 90s. Which is Industrial Light and Magic used to be both sides of Kerner Boulevard in San Rafael here, all the buildings pointed to anyone, and there was a George building.
+[00:20:26] Adam: But it felt very much like Industrial Light and Magic when I first got there in the late '90s. Which is Industrial Light and Magic used to be both sides of Kerner Boulevard in San Rafael here, all the buildings pointed to anyone, and there was a George building.
 
 [00:20:43] Norm: You start with one, and as you expand, you go. Well, we'll lease that building.
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:25:15] Will: Yeah.
 
-[00:25:15] Adam: and mostly lost in the clouds. So the next morning we got up at this beautiful bed and breakfast, and our the proprietor showed us a couple of great hikes, and we drove back down south to a couple of beautiful little hikes in Tongariro State Park, which is like looking up at these beautiful this beautiful volcano. We went to this waterfall where part of The Hobbit was shot, and then we spent the rest of the day driving up north back to Auckland. Now, when you're driving up through the center of the country, you can take Route One, is the big highway. Big highway. It's the two lane road that heads all the way through New Zealand, but past Lake Taupo. Um. You can actually take these little side roads all the way north, and that's what we did through farm country. All these little tiny hilly roads,
+[00:25:15] Adam: and mostly lost in the clouds. So the next morning we got up at this beautiful bed and breakfast, and our the proprietor showed us a couple of great hikes, and we drove back down south to a couple of beautiful little hikes in Tongariro State Park, which is like looking up at these beautiful this beautiful volcano. We went to this waterfall where part of The Hobbit was shot, and then we spent the rest of the day driving up north back to Auckland. Now, when you're driving up through the center of the country, you can take Route 1, is the big highway. Big highway. It's the two lane road that heads all the way through New Zealand, but past Lake Taupo. Um. You can actually take these little side roads all the way north, and that's what we did through farm country. All these little tiny hilly roads,
 
 [00:25:15] Will: Sheep farms, cows.
 
@@ -890,7 +890,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:40:36] Adam: full cast recording.
 
-[00:40:38] Will: Yeah, and that's everybody should read American Gods. You American Gods is ninety nine cents on Kindle pretty much all the time now on Amazon. Get it, just go get it and read it if you know. But but we should do it.
+[00:40:38] Will: Yeah, and that's everybody should read American Gods. You American Gods is 99 cents on Kindle pretty much all the time now on Amazon. Get it, just go get it and read it if you know. But but we should do it.
 
 [00:40:48] Norm: But the Martian,
 

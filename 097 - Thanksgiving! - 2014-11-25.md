@@ -12,7 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:00:06] Norm: Still Untitled. The Adam Savage project is coming up real soon. Oh, we need your help real quick.
 
-[00:00:11] Will: Yeah, we need you to fill out a short anonymous survey. It'll take less than five minutes. It is completely anonymous, and it really helps the podcast. It will help us connect people who listen to the podcast and advertisers who want to advertise to people who listen to the podcast, so that the ads on the show make sense given the audience we have. And the best part is if you complete the survey and give them your email address, you'll be entered to win a one hundred dollar gift card from Amazon.
+[00:00:11] Will: Yeah, we need you to fill out a short anonymous survey. It'll take less than five minutes. It is completely anonymous, and it really helps the podcast. It will help us connect people who listen to the podcast and advertisers who want to advertise to people who listen to the podcast, so that the ads on the show make sense given the audience we have. And the best part is if you complete the survey and give them your email address, you'll be entered to win a 100 dollar gift card from Amazon.
 
 [00:00:33] Norm: That's pretty good, and this helps keep Still Untitled free to listen. So help us out. It'll take less than five minutes. Go to podsurvey. dot com slash Untitled. That's like the name of the show.
 
@@ -576,7 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:18:10] Norm: Compresses.
 
-[00:18:11] Adam: And then at like nine thirty, after dinner's good, Jamie’s a wonderful cook. This does not belie the fact that Jamie and I have never had a dinner alone together. This was a dinner with at his house with his.
+[00:18:11] Adam: And then at like 9:30, after dinner's good, Jamie’s a wonderful cook. This does not belie the fact that Jamie and I have never had a dinner alone together. This was a dinner with at his house with his.
 
 [00:18:21] Will: That'll happen at some point. You know, you're gonna do it by accident now.
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:18:29] Will: Like you're sitting there at the table, one of the big tables with the crew, and everybody just gets up and leaves all at the same time.
 
-[00:18:35] Adam: Shit! Finish up. And then at nine thirty, Jamie goes. All right, it's nine thirty. I'm gonna go home. We were laughing hysterically. We couldn't believe it. It was literally like get the fuck out.
+[00:18:35] Adam: Shit! Finish up. And then at 9:30, Jamie goes. All right, it's 9:30. I'm gonna go home. We were laughing hysterically. We couldn't believe it. It was literally like get the fuck out.
 
 [00:18:47] Will: I mean, just to be clear, haven't you wanted to do that before though?
 

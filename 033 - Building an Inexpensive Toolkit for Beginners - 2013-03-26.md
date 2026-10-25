@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:05:36] Adam: right?
 
-[00:05:36] Norm: If you have two hundred dollars, three hundred dollars to spend,
+[00:05:36] Norm: If you have 200 dollars, 300 dollars to spend,
 
 [00:05:39] Adam: your basic toolkit, and what should be in that kit?
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:07:29] Will: Well, so before we go any further, we should say a lot of this stuff. If you do some garage sale hunting, you can or or watch Craigslist for like estate sales.
 
-[00:07:37] Adam: Craigslist is fantastic. You can often buy toolboxes with tools already in them. I have, um, and you'll get a probably about a twenty percent hit ratio with that. Twenty percent of the tools in those all-inclusive toolboxes will actually be good tools. The rest will be a lot of crap.
+[00:07:37] Adam: Craigslist is fantastic. You can often buy toolboxes with tools already in them. I have, um, and you'll get a probably about a 20% hit ratio with that. 20% of the tools in those all-inclusive toolboxes will actually be good tools. The rest will be a lot of crap.
 
 [00:07:51] Will: But that's, I mean, you're probably looking at, if you're at a garage sale, you're looking at probably, you know, four bucks for a toolbox full of tools.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:10:20] Will: the awesome part about the whole thing. Um.
 
-[00:10:21] Adam: But again, that's not the two hundred dollars starter kit. That's that's something to move up to. Now you're also going to need, in addition to the pair of dikes, those won't cut really hard things.
+[00:10:21] Adam: But again, that's not the 200 dollars starter kit. That's that's something to move up to. Now you're also going to need, in addition to the pair of dikes, those won't cut really hard things.
 
 [00:10:31] Will: Yeah, you should only use those for copper wire, maybe maybe aluminum,
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:12:34] Will: So you don't have to use the key.
 
-[00:12:35] Adam: You don't have to use a chuck key. Um, you can buy one of those now for like twenty-five dollars. That is absolutely a critical tool to have.
+[00:12:35] Adam: You don't have to use a chuck key. Um, you can buy one of those now for like 25 dollars. That is absolutely a critical tool to have.
 
 [00:12:43] Will: I I I have probably four drills in the in the garage. Most of mine at this point are cordless.
 
@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:15:52] Adam: Um, so—
 
-[00:15:52] Norm: are you buying for things to last, or just spending two hundred bucks, or you're just buying so you?
+[00:15:52] Norm: are you buying for things to last, or just spending 200 bucks, or you're just buying so you?
 
 [00:15:56] Adam: I think if you're a beginning maker, you're getting what you can afford. Um, if something breaks, you definitely need to invest in a better one. That's absolutely true.
 
@@ -432,7 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:18:22] Adam: Yeah, you can now buy. Again, when I was first starting out, the minimum price on those was like forty dollars. But now you can go onto Amazon and buy a digital caliper for probably ten dollars.
 
-[00:18:33] Will: I bought a really nice one for twenty-five bucks.
+[00:18:33] Will: I bought a really nice one for 25 bucks.
 
 [00:18:35] Adam: Yeah, and i—it's not expensive. I'll tell you, in general, the cheap ones are every bit as useful to you as the expensive ones. Make sure it's made of metal. Don't buy the plastic ones; they are really, really cheap.
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:19:45] Will: Okay.
 
-[00:19:45] Adam: I will tell you, it is so not worth saving the fifteen bucks to buy a ten dollar pop riveter. Go spend the twenty-five dollars, and you will be so much happier. They clear the pins that they pull on the rivets much faster. Uh, they cycle faster. They're they're, uh, easier to adjust for different sizes of rivets by putting in, uh, different nozzle tips. Um, I have had cheap pop riveters. They are not. They are garbage. Absolute garbage. Go go ahead and spend. And again, even on an automatic pop riveter, uh, I know that Harbor Freight sells one for like thirty dollars that's air powered. Don't buy it. Go spend a hundred dollars on the really good one. You will be so much happier. Pop rivets is one of those things that I've been using since the very beginning of making. Rivets are a really inexpensive way of attaching things like sheet metal and leather and rubber to each other. They're incredibly versatile. Learn to use backing plates. It's not something that's often covered in books about making stuff. With a rivet, it's basically an aluminum mushroom or a steel mushroom that you put through a hole, and when you pull on the tool, it pulls effectively what is a a headed brad through that mushroom and makes it expand to pressure fit in the hole it's in. If you use a backing plate, you actually are grabbing it from both sides, uh, and a backing plate is effectively just a little washer you put on the other side of the rivet. So you've got a head of the rivet on one side, the body of the rivet through the two pieces of material adjoining, and a backing plate pressure fit on the other side.
+[00:19:45] Adam: I will tell you, it is so not worth saving the fifteen bucks to buy a ten dollar pop riveter. Go spend the 25 dollars, and you will be so much happier. They clear the pins that they pull on the rivets much faster. Uh, they cycle faster. They're they're, uh, easier to adjust for different sizes of rivets by putting in, uh, different nozzle tips. Um, I have had cheap pop riveters. They are not. They are garbage. Absolute garbage. Go go ahead and spend. And again, even on an automatic pop riveter, uh, I know that Harbor Freight sells one for like thirty dollars that's air powered. Don't buy it. Go spend a hundred dollars on the really good one. You will be so much happier. Pop rivets is one of those things that I've been using since the very beginning of making. Rivets are a really inexpensive way of attaching things like sheet metal and leather and rubber to each other. They're incredibly versatile. Learn to use backing plates. It's not something that's often covered in books about making stuff. With a rivet, it's basically an aluminum mushroom or a steel mushroom that you put through a hole, and when you pull on the tool, it pulls effectively what is a a headed brad through that mushroom and makes it expand to pressure fit in the hole it's in. If you use a backing plate, you actually are grabbing it from both sides, uh, and a backing plate is effectively just a little washer you put on the other side of the rivet. So you've got a head of the rivet on one side, the body of the rivet through the two pieces of material adjoining, and a backing plate pressure fit on the other side.
 
 [00:21:19] Will: So just, it distributes the stress. It distributes the stress on the plate rather than the material.
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:26:20] Will: Wrenches, stuff like that. Box box wrenches, maybe.
 
-[00:26:23] Adam: You know, a crescent wrench is going to be, again, for your starting out, your two hundred dollar budget. A crescent wrench is going to supply you with most of what you need. Investing in box-end wrenches later, that's an investment. You are going to want to, you know, even a small set of reasonable, uh, English and metric is going to run you thirty or forty dollars. That's a that's a that's a real investment. But a two sizes of crescent wrench is going to supply you most of what you need. A small one like a little six inch and a large one like a nine inch.
+[00:26:23] Adam: You know, a crescent wrench is going to be, again, for your starting out, your 200 dollar budget. A crescent wrench is going to supply you with most of what you need. Investing in box-end wrenches later, that's an investment. You are going to want to, you know, even a small set of reasonable, uh, English and metric is going to run you thirty or forty dollars. That's a that's a that's a real investment. But a two sizes of crescent wrench is going to supply you most of what you need. A small one like a little six inch and a large one like a nine inch.
 
 [00:26:51] Will: Yeah,
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:33:02] Norm: those are expensive, right?
 
-[00:33:03] Will: I spent a hundred and fifty bucks on clamps.
+[00:33:03] Will: I spent 150 bucks on clamps.
 
 [00:33:05] Adam: Grip clips are great. Also, C clamps. Cheapy little C clamps, ones that are like two inches and four inches.
 

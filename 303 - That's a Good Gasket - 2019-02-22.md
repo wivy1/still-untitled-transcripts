@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:02:14] Adam: Is it somewhere they've got a gasket specialist? that's off the hook.
 
-[00:02:17] Will: Yes. Sometime in the fifties, they there was a gasket company. They were like, we need to we need to round up all the vertical interests around gaskets. And that's that's what they that's what they did. So they they like locked down all the Japanese industries that involved gasket making.
+[00:02:17] Will: Yes. Sometime in the '50s, they there was a gasket company. They were like, we need to we need to round up all the vertical interests around gaskets. And that's that's what they that's what they did. So they they like locked down all the Japanese industries that involved gasket making.
 
 [00:02:31] Adam: Oh my god!
 
@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:03:34] Will: It's a new translation, though, right?
 
-[00:03:35] Adam: It is. He wrote it back in o three o four.
+[00:03:35] Adam: It is. He wrote it back in '03 '04.
 
 [00:03:39] Will: Cixin Liu is the Three Body Problem author, just for context, if you don't remember.
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:24:23] Adam: It's so beautiful, and I love the narrative. Just the sciences.
 
-[00:24:26] Kishore: I gotta say, there's one trailer that came up that blew me away. I didn't know there's a new Apollo Eleven documentary coming out this summer.
+[00:24:26] Kishore: I gotta say, there's one trailer that came up that blew me away. I didn't know there's a new Apollo 11 documentary coming out this summer.
 
 [00:24:33] Will: I didn't know that either.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:25:07] Will: That's pretty cool. Do you know what the name of the documentary is?
 
-[00:25:09] Kishore: It's called Apollo Eleven. It's like it's like
+[00:25:09] Kishore: It's called Apollo 11. It's like it's like
 
 [00:25:11] Adam: How did it come up with that?
 

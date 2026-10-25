@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:05:59] Will: [unclear: it was not / Witch’s switch situation in there?].
 
-[00:06:00] Adam: It was they were so lovely. I learned so much in that shop. But their big business was annual reports, and that was the sweet jobs to get in graphic design back then was annual reports because big public companies had to put them out. They were packed with information that had to be precisely laid out, and often the companies would allocate a real budget for these. And so designers, like all the top designers, got all the top companies and would cut loose on the design. Like there was a famous Minneapolis design firm called the Duffy Group that kind of established that. If you might be too young to remember, but in the in the mid eighties, there was this big return to a kind of a mid century boys' life sort of aesthetic.
+[00:06:00] Adam: It was they were so lovely. I learned so much in that shop. But their big business was annual reports, and that was the sweet jobs to get in graphic design back then was annual reports because big public companies had to put them out. They were packed with information that had to be precisely laid out, and often the companies would allocate a real budget for these. And so designers, like all the top designers, got all the top companies and would cut loose on the design. Like there was a famous Minneapolis design firm called the Duffy Group that kind of established that. If you might be too young to remember, but in the in the mid '80s, there was this big return to a kind of a mid century boys' life sort of aesthetic.
 
 [00:06:42] Will: Oh yeah, yeah.
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:10:10] Adam: Maybe not
 
-[00:10:10] Will: a Jamiroquai. What it's it's funny that so that happened. The analog to digital transition happened with print, and then everything's been kind of like in two thousand four, two thousand five. We switched from the from the film prepress to PDF,
+[00:10:10] Will: a Jamiroquai. What it's it's funny that so that happened. The analog to digital transition happened with print, and then everything's been kind of like in 2004, 2005. We switched from the from the film prepress to PDF,
 
 [00:10:10] Adam: yeah,
 
@@ -314,9 +314,9 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:13:40] Will: No, I don't want to do that.
 
-[00:13:43] Norm: That's bad. Every time I go, like it's random. I want to wake me up at six forty-two, and it just stays.
+[00:13:43] Norm: That's bad. Every time I go, like it's random. I want to wake me up at 6:42, and it just stays.
 
-[00:13:50] Adam: Well, I and I never say six forty-two. I always say, okay, tomorrow's mission critical. Siri, wake me up at five oh five, five ten, and five fifteen. Right. And then they all stay there, and then I end up with hundreds, and the only way to get rid of them is ask Siri to do the sweeping up.
+[00:13:50] Adam: Well, I and I never say 6:42. I always say, okay, tomorrow's mission critical. Siri, wake me up at 5:05, 5:10, and 5:15. Right. And then they all stay there, and then I end up with hundreds, and the only way to get rid of them is ask Siri to do the sweeping up.
 
 [00:14:06] Will: So the InDesign Quark thing, though, is interesting, though, because it's a transition from a skeuomorphic design. Skeuomorphic meaning it's mimicking the old analog way of doing things.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:26:43] Adam: well, and Touching the Void is a terrific example of a reenactment that is as good as the best mountain climbing narrative you've ever seen.
 
-[00:26:51] Norm: And then Gunther led me to another Netflix watch because Meru was on Netflix, but it's about it's called Valley Uprising. It's about the climbing culture in Yosemite from the fifties to today.
+[00:26:51] Norm: And then Gunther led me to another Netflix watch because Meru was on Netflix, but it's about it's called Valley Uprising. It's about the climbing culture in Yosemite from the '50s to today.
 
 [00:26:51] Adam: Oh wow!
 
@@ -816,9 +816,9 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:36:02] Will: Yeah, so
 
-[00:36:02] Will: ninety-nine percent invisible, great podcast. I wish you'd listen to it. The takeaway.
+[00:36:02] Will: 99% invisible, great podcast. I wish you'd listen to it. The takeaway.
 
-[00:36:08] Norm: One last thing: we talked about a Ghost in the Shell. There was a big auction that Propstore did, and we got some pieces from it. They're doing more pieces from that movie in an auction, I believe, January sixteenth. The Thermoptic suit. There's another Thermoptic suit that's going to go up for auction.
+[00:36:08] Norm: One last thing: we talked about a Ghost in the Shell. There was a big auction that Propstore did, and we got some pieces from it. They're doing more pieces from that movie in an auction, I believe, January 16. The Thermoptic suit. There's another Thermoptic suit that's going to go up for auction.
 
 [00:36:22] Adam: Are you going to buy it for Danica?
 

@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:03:55] Unknown speaker (Bill or Norm): you can't use the bag for that.
 
-[00:03:56] Adam: So I'm debating. I'm debating. Do I use the bathroom? I mean, I have to use the bathroom, and I start to conclude. Wait a minute, I can't wait until we're at ten thousand feet because if the need strikes me, I'm not going to shit my pants, right? So. Clearly, I have to use the bathroom before we lock the door and go up to altitude. So I make my way to the bathroom, and as I close the door behind me, I realize I also have to throw up.
+[00:03:56] Adam: So I'm debating. I'm debating. Do I use the bathroom? I mean, I have to use the bathroom, and I start to conclude. Wait a minute, I can't wait until we're at 10,000 feet because if the need strikes me, I'm not going to shit my pants, right? So. Clearly, I have to use the bathroom before we lock the door and go up to altitude. So I make my way to the bathroom, and as I close the door behind me, I realize I also have to throw up.
 
 [00:04:20] Bill: Oh,
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:06:22] Bill: no sonogram until the day of for some reason
 
-[00:06:25] Norm: the 80s or something.
+[00:06:25] Norm: the '80s or something.
 
 [00:06:26] Bill: Yep.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:10:03] Adam: Bow before me.
 
-[00:10:11] Bill: I mean, I'm I like to think I'm a little more humble than that, but yeah, we I quit my day job. I worked at Microsoft. Publishing video of all things, quit that in twenty twelve. Started making props and costumes, turned that into a YouTube channel, turned that into books, and now we just moved into a new shop space, a real big kid shop space, not in my basement.
+[00:10:11] Bill: I mean, I'm I like to think I'm a little more humble than that, but yeah, we I quit my day job. I worked at Microsoft. Publishing video of all things, quit that in 2012. Started making props and costumes, turned that into a YouTube channel, turned that into books, and now we just moved into a new shop space, a real big kid shop space, not in my basement.
 
 [00:10:34] Adam: So awesome!
 
@@ -330,13 +330,13 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:12:03] Bill: Okay.
 
-[00:12:03] Adam: Bill George worked on Blade Runner, and you can find pictures of him online building like spinners and working on the the Tyrell building, and he's an effects supervisor, a really amazing one. He still works at Lucasfilm. He looks younger today than he did in the seventies. Wow. It's Absolutely bizarre! He's got some sort of magic painting in the attic,
+[00:12:03] Adam: Bill George worked on Blade Runner, and you can find pictures of him online building like spinners and working on the the Tyrell building, and he's an effects supervisor, a really amazing one. He still works at Lucasfilm. He looks younger today than he did in the '70s. Wow. It's Absolutely bizarre! He's got some sort of magic painting in the attic,
 
 [00:12:26] Norm: or he's wearing the respirators.
 
 [00:12:28] Bill: Yeah, hey, that's a really good plug for people. PPE very important keeps you young. Clearly, I haven't. Clearly, I haven't been wearing mine enough. That's that's actually a side effect of making YouTube videos for the last six or seven years. Is if I go back and watch them, I can watch my beard get less gray.
 
-[00:12:49] Adam: Oh yeah, well MythBusters is you. It's all like this. At the beginning of making MythBusters in Oh three, I had no gray in my beard at all, and now you can see it's like rising like a water level.
+[00:12:49] Adam: Oh yeah, well MythBusters is you. It's all like this. At the beginning of making MythBusters in '03, I had no gray in my beard at all, and now you can see it's like rising like a water level.
 
 [00:12:58] Unknown speaker (Bill or Norm): Yeah.
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:19:22] Bill: Oh yeah, but I definitely did.
 
-[00:19:25] Adam: But I also kind of went to school on other people's dime. Like one of the earliest, actually, one of the earliest deals that I regularly made. So San Francisco in the early '90s, big theater town, and theaters are famous for never having any dough. So they'd be like, " Could you make us a bucket that looks like it's full of water for maybe seventy-five bucks? You know, it'd be like dirt cheap." So one of the things I would do with a lot of smaller theaters that were even smaller than that is I would say, " I'll build your prop for free if you pay for materials," and then and I get to keep the prop when it's done. So I invest in it because I want to make something that I want. I get materials for my shop, and the labor is. I'm just having fun.
+[00:19:25] Adam: But I also kind of went to school on other people's dime. Like one of the earliest, actually, one of the earliest deals that I regularly made. So San Francisco in the early '90s, big theater town, and theaters are famous for never having any dough. So they'd be like, " Could you make us a bucket that looks like it's full of water for maybe 75 bucks? You know, it'd be like dirt cheap." So one of the things I would do with a lot of smaller theaters that were even smaller than that is I would say, " I'll build your prop for free if you pay for materials," and then and I get to keep the prop when it's done. So I invest in it because I want to make something that I want. I get materials for my shop, and the labor is. I'm just having fun.
 
 [00:20:04] Bill: Oh yeah, I still have. We did the District Nine gun three or four years ago,
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:22:43] Norm: Kickstarter success.
 
-[00:22:44] Adam: Yeah. So so back in the day, I had a loft space, and a guy I knew who was a television producer called me up, and he goes, " Hey, um, I need to build some flats. Could I rent your space to build some flats?" And I said, " Yeah." And he's like, " Cool, I'm willing to pay this." And I was like, " Cool, all right, two hundred bucks a day to rent my thing." And he's like, " Now I'm hoping that you can do the building." And I was like, " What?" He's like, " No, I'm willing to pay. I'm willing to pay." And it was a full room set, a full room as a set. And I think he wanted to pay me like nine grand or something like that. No, wait, yeah, something like that. And to me, that sounded like an absolute Midas King's ransom worth of money. But I called up my friend Todd Bright. Was an experienced scenic artist, and I was like, " Todd, what's wrong with this picture?" And he's like, " Oh, they're totally screwing you. That is easily a twenty thousand dollar job, and not even forget about the show. They are totally screwing you, given the who it was and what they were doing it for, because it was for a big corporate job." And he's like, " And thank God he counseled me through negotiating a reasonable price for this."
+[00:22:44] Adam: Yeah. So so back in the day, I had a loft space, and a guy I knew who was a television producer called me up, and he goes, " Hey, um, I need to build some flats. Could I rent your space to build some flats?" And I said, " Yeah." And he's like, " Cool, I'm willing to pay this." And I was like, " Cool, all right, 200 bucks a day to rent my thing." And he's like, " Now I'm hoping that you can do the building." And I was like, " What?" He's like, " No, I'm willing to pay. I'm willing to pay." And it was a full room set, a full room as a set. And I think he wanted to pay me like nine grand or something like that. No, wait, yeah, something like that. And to me, that sounded like an absolute Midas King's ransom worth of money. But I called up my friend Todd Bright. Was an experienced scenic artist, and I was like, " Todd, what's wrong with this picture?" And he's like, " Oh, they're totally screwing you. That is easily a 20,000 dollar job, and not even forget about the show. They are totally screwing you, given the who it was and what they were doing it for, because it was for a big corporate job." And he's like, " And thank God he counseled me through negotiating a reasonable price for this."
 
 [00:23:52] Norm: Wow.
 
@@ -534,11 +534,11 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:24:53] Norm: and the only way it works is at scale.
 
-[00:24:55] Adam: Back when I was freelancing, I took I took on both Jamie Hyneman and Industrial Light and Magic used the same number to bid a person day, and it was five hundred bucks. And that covered the person, the space, the insurance, the workman's comp, and all of that. And I, my freelancing years, which was about fifteen years freelancing, I always bid stuff out at that all in that increment one one and a half days, thousand bucks.
+[00:24:55] Adam: Back when I was freelancing, I took I took on both Jamie Hyneman and Industrial Light and Magic used the same number to bid a person day, and it was 500 bucks. And that covered the person, the space, the insurance, the workman's comp, and all of that. And I, my freelancing years, which was about fifteen years freelancing, I always bid stuff out at that all in that increment one one and a half days, thousand bucks.
 
 [00:25:22] Bill: Yep.
 
-[00:25:22] Adam: And again, it sounds like a lot of money when you think, " Wow, I'm going to charge someone two thousand bucks for something that takes me four days." That sounds like a lot because I've never been paid a thousand dollars a day to do anything or five hundred dollars a day to do anything. And in the end, you will find you're not rolling in the dough
+[00:25:22] Adam: And again, it sounds like a lot of money when you think, " Wow, I'm going to charge someone 2,000 bucks for something that takes me four days." That sounds like a lot because I've never been paid a thousand dollars a day to do anything or 500 dollars a day to do anything. And in the end, you will find you're not rolling in the dough
 
 [00:25:40] Norm: because you're not working necessarily
 
@@ -722,7 +722,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:33:35] Bill: That's it.
 
-[00:33:35] Norm: Is the thing? The thing I love about you is that you start off with foam, but one of the projects that we just did, I don't want to spoil it. You went to computer model, three D printing, laser cutting, you know, mold making, casting, sanding. Machining and all those came together for one thing.
+[00:33:35] Norm: Is the thing? The thing I love about you is that you start off with foam, but one of the projects that we just did, I don't want to spoil it. You went to computer model, 3D printing, laser cutting, you know, mold making, casting, sanding. Machining and all those came together for one thing.
 
 [00:33:53] Bill: Yeah, that particular project, which I'm very excited to share when everyone gets to see it, I think that one pulled in just about every skill I have. Now, my background, my my formal training is in 3D modeling and animation. So when 3D printing became a thing and I got my first printer, I I was like, I'm Tony Stark. I really like I can visualize it, I can model it, and that machine will make it real. That was my I am Iron Man moment. Nice. So yeah, this particular project was all 3D printing, lots of sanding, lots of mold making. It took me about six months off and on to to finish it, but it
 
@@ -772,7 +772,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:36:34] Adam: So we're going to have to have a spoiler cast about it.
 
-[00:36:35] Norm: Yes, one hundred percent. So [unclear: we’ll / Will] go watch Sorry to bother you, and then if you have time, matinee this week, Blindspotting.
+[00:36:35] Norm: Yes, 100%. So [unclear: we’ll / Will] go watch Sorry to bother you, and then if you have time, matinee this week, Blindspotting.
 
 [00:36:42] Adam: No, I'm Blindspotting. Absolutely on the list. It's the next thing we're going to go see.
 

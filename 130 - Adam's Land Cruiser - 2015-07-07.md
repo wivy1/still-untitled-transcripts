@@ -378,11 +378,11 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:11:27] Will: Okay,
 
-[00:11:27] Adam: I took a picture of a car that I owned, my Land Cruiser BJ42 nineteen eighty two diesel right hand drive Land Cruiser in front of my house in San Francisco, and I had locat—location tracking on, and someone used that to figure out the GPS coordinates of my house and to confirm that they went by my house. and took a picture of the car, and the DoD built a briefing based on this occurrence, saying you got to be careful with smartphones because the pictures are carrying data you don't know about. This is early days. Now that's standard. Everyone knows to turn it on if you want and turn it off if you want.
+[00:11:27] Adam: I took a picture of a car that I owned, my Land Cruiser BJ42 1982 diesel right hand drive Land Cruiser in front of my house in San Francisco, and I had locat—location tracking on, and someone used that to figure out the GPS coordinates of my house and to confirm that they went by my house. and took a picture of the car, and the DoD built a briefing based on this occurrence, saying you got to be careful with smartphones because the pictures are carrying data you don't know about. This is early days. Now that's standard. Everyone knows to turn it on if you want and turn it off if you want.
 
 [00:11:27] Unknown speaker: Mm-hmm.
 
-[00:11:27] Adam: But the salient point is that back in two thousand and eight, I had I bought a Land Cruiser. I had it restored, except for the engine. I had the body restored, and I drove it around a bunch, and I really enjoyed it. Then I moved here into the Mission, where parking was much more at a premium, and I had it stored for a while. And I pulled it out of storage a couple months ago. I had it mechanically fixed back up again with the idea that I was going to sell it because
+[00:11:27] Adam: But the salient point is that back in 2008, I had I bought a Land Cruiser. I had it restored, except for the engine. I had the body restored, and I drove it around a bunch, and I really enjoyed it. Then I moved here into the Mission, where parking was much more at a premium, and I had it stored for a while. And I pulled it out of storage a couple months ago. I had it mechanically fixed back up again with the idea that I was going to sell it because
 
 [00:12:36] Will: you you have said multiple times, " Hey, it doesn't make sense for me to have this car. I'm never going to drive it. It's not a good San Francisco car. Can't take it on the freeway. Yada yada
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:16:02] Adam: Oh wow!
 
-[00:16:02] Will: And, and my grandparents' farm up in Northern Virginia when I was a kid, it's, it's left-hand drive, like the sane person would would have. But when you put that thing into the low gear, it would drive. You could take a fallen tree tree trunk that was, you know, twenty-four inches diameter, and it would just drive right over it if it if it had clearance to get over. You could go right up on it, no problem. It was amazing.
+[00:16:02] Will: And, and my grandparents' farm up in Northern Virginia when I was a kid, it's, it's left-hand drive, like the sane person would would have. But when you put that thing into the low gear, it would drive. You could take a fallen tree tree trunk that was, you know, 24 inches diameter, and it would just drive right over it if it if it had clearance to get over. You could go right up on it, no problem. It was amazing.
 
 [00:16:32] Adam: We, we, I took my boys camping down in a place called the Tumey Hills a few years ago, which is BLM land, which means where we camped there were shell casings everywhere.
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:20:54] Will: we've talked about it a lot the last few weeks. We'll just do the high points. Adam, you made an amazing poster again
 
-[00:21:14] Adam: of my toolboxes from when I was a model maker during the ILM days in the late '90s, early aughts.
+[00:21:14] Adam: of my toolboxes from when I was a model maker during the ILM days in the late '90s, early 2000s.
 
 [00:21:20] Will: If you want to find out about that, you can go to tested.com/membership for the details. By now, we may even have a way for existing members to tack on another year to their membership so they can get the poster. I want that to happen. But if we don’t, we’ll have that. That'll happen soon. It's going to happen. It's just a matter of like getting all the dev resources in the right places at the right time. So, anyway, thanks for watching, guys. We'll see you all next week.
 

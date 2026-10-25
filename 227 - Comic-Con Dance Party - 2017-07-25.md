@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:05:00] Adam: That was really catch you unexpected with a song from your childhood, that you really loved, and then bang! Oh, and Danica had me doing a dance, all in sequence for a while.
 
-[00:05:11] Danica: There's a dance. It's the Axl Rose dance called the Philly Dog from the 60s.
+[00:05:11] Danica: There's a dance. It's the Axl Rose dance called the Philly Dog from the '60s.
 
 [00:05:15] Adam: I was working it with you.
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:06:30] Danica: Yeah,
 
-[00:06:31] Adam: that and that is that was a absolutely groundbreaking technique in nineteen ninety nine.
+[00:06:31] Adam: that and that is that was a absolutely groundbreaking technique in 1999.
 
 [00:06:31] Danica: Seven?
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:06:42] Norm: Yeah.
 
-[00:06:43] Adam: I was already working at Industrial Light Magic when it came out, and I started in ninety eight.
+[00:06:43] Adam: I was already working at Industrial Light Magic when it came out, and I started in '98.
 
 [00:06:47] Adam: I remember because I took Grant and I took Grant Imahara on a day date because we were we were like Matrix buds, and we went to see it for our third time each.
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:08:26] Norm: That was cool. Yeah,
 
-[00:08:27] Adam: and then I guess you pointed at your watch. It was about one one. Oh yeah, it was about one fifteen when you pointed to your watch, and I went and grabbed Thing Two and his girlfriend, and we all walked back to the hotel. I figured you guys left soon after.
+[00:08:27] Adam: and then I guess you pointed at your watch. It was about one one. Oh yeah, it was about 1:15 when you pointed to your watch, and I went and grabbed Thing Two and his girlfriend, and we all walked back to the hotel. I figured you guys left soon after.
 
 [00:08:27] Norm: Oh yeah.
 
@@ -810,7 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:32:33] Danica: thoroughly enjoyed.
 
-[00:32:38] Adam: Yeah, and the first one, you know, it's anchored by Andy Serkis's performance as Caesar. As Caesar becomes self aware, the second film much more about the apes. I think the apes are like sixty five percent of the screen time, and you don't care. And the performances again, Judy Greer, Andy Serkis, a host of really great actors. Only playing apes, not appearing as themselves in the movie at all. This movie, it's official. I we have left the uncanny valley,
+[00:32:38] Adam: Yeah, and the first one, you know, it's anchored by Andy Serkis's performance as Caesar. As Caesar becomes self aware, the second film much more about the apes. I think the apes are like 65% of the screen time, and you don't care. And the performances again, Judy Greer, Andy Serkis, a host of really great actors. Only playing apes, not appearing as themselves in the movie at all. This movie, it's official. I we have left the uncanny valley,
 
 [00:33:05] Norm: at least for these animals. There are scenes, and without going into the plotty, there are scenes and close-ups of the faces of Andy Serkis and Maurice, the orangutan, and the the emotion that you get out of them. Just camera held onto a face for ten seconds. It's unbelievable.
 
@@ -910,13 +910,13 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:38:43] Adam: Oh, that's lovely.
 
-[00:38:46] Norm: That's one of the amazing movies. I think it's out this summer. If you look at Rotten Tomatoes, and like, oh, a movie should I watch? Well, there are eight movies in the past two months that have ninety percent or higher on Rotten Tomatoes.
+[00:38:46] Norm: That's one of the amazing movies. I think it's out this summer. If you look at Rotten Tomatoes, and like, oh, a movie should I watch? Well, there are eight movies in the past two months that have 90% or higher on Rotten Tomatoes.
 
 [00:38:58] Adam: The reviews are skewing higher, but I mean, like, we just did that. We just did this piece on on some prop store stuff from Spectral, a Netflix. Film
 
 [00:38:58] Norm: Yeah.
 
-[00:38:58] Adam: that that has over eighty percent on Rotten Tomatoes. I'm like, I didn't even hear about this movie. Eighty percent, and it's got all this great military hardware built by Weta. We got to watch that,
+[00:38:58] Adam: that that has over 80% on Rotten Tomatoes. I'm like, I didn't even hear about this movie. 80%, and it's got all this great military hardware built by Weta. We got to watch that,
 
 [00:39:16] Norm: right? Exactly. It's like there's no way. I think our reviewers supposed to be jaded, but if the movies are good,
 

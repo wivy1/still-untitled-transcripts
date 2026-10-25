@@ -58,7 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:01:10] Norm: weather balloon
 
-[00:01:11] Adam: a weather balloon to seventy nine thousand feet with a GoPro,
+[00:01:11] Adam: a weather balloon to 79,000 feet with a GoPro,
 
 [00:01:14] Will: holy cow,
 
@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:01:19] Norm: They look tinier.
 
-[00:01:20] Adam: They look even tinier. And I go, that's amazing, seventy nine thousand feet. She's like, yeah, and I am like, and that's your cat. And she went, no, that's a picture of my cat.
+[00:01:20] Adam: They look even tinier. And I go, that's amazing, 79,000 feet. She's like, yeah, and I am like, and that's your cat. And she went, no, that's a picture of my cat.
 
 [00:01:28] Norm: And then she did the the most precious thing ever, which is, are you from MythBusters?
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:09:37] Norm: How many places did you go to? And were they schools?
 
-[00:09:40] Adam: I went to a I went to a couple of schools. I went to Boys and Girls Club. I went to the local public library where they have makerspaces set up. And the the the president of that library is about to become president of the National Library Association. Okay, it was really really impressive. Perhaps the most impressive was a fifty million dollar endowed seven story makerspace called ThinkBox.
+[00:09:40] Adam: I went to a I went to a couple of schools. I went to Boys and Girls Club. I went to the local public library where they have makerspaces set up. And the the the president of that library is about to become president of the National Library Association. Okay, it was really really impressive. Perhaps the most impressive was a 50,000,000 dollar endowed seven story makerspace called ThinkBox.
 
 [00:09:40] Will: Oh wow!
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:11:18] Adam: It's amazing. They've built software so that when you go up to laser cutter and put yourself on on the on the list, you put your phone number and it texts you when you're close to being ready. Um,
 
-[00:11:28] Norm: I mean that's advanced and that's for a facility that has you know fifty million dollars and set up from the ground up to be that purpose
+[00:11:28] Norm: I mean that's advanced and that's for a facility that has you know 50,000,000 dollars and set up from the ground up to be that purpose
 
 [00:11:33] Adam: to be that purpose and is free to the public.
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:11:46] Norm: as like the new public library, but even in the old institutions like public libraries and schools that then incorporate makerspaces, how do they reconcile like just the different skills needed and the the mindset of people going in?
 
-[00:11:57] Adam: Well, again, you there there are in a library you don't necessarily need to have dust making tools, but you could have a variety of three D printers where the access. The execution is much more reasonable for a low threshold of somebody who doesn't have a lot of technical. Still, can still actually get something done, and the library is perfect for this. I talked to the superintendent of a school in which they had placed sewing machines in the local libraries.
+[00:11:57] Adam: Well, again, you there there are in a library you don't necessarily need to have dust making tools, but you could have a variety of 3D printers where the access. The execution is much more reasonable for a low threshold of somebody who doesn't have a lot of technical. Still, can still actually get something done, and the library is perfect for this. I talked to the superintendent of a school in which they had placed sewing machines in the local libraries.
 
 [00:11:57] Will: I mean, look,
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:12:36] Adam: Yeah,
 
-[00:12:36] Norm: and I think you know there's going to be a huge opportunity in the next ten fifteen years as kids who grew up with three D printers who know how to use it and those type of CNC machines then get to work in environments so they're not having to learn new technologies like teachers today and maintain them.
+[00:12:36] Norm: and I think you know there's going to be a huge opportunity in the next ten fifteen years as kids who grew up with 3D printers who know how to use it and those type of CNC machines then get to work in environments so they're not having to learn new technologies like teachers today and maintain them.
 
 [00:13:03] Adam: Yeah, yeah, and again, yeah, this is really it's a fascinating thing. There are a lot of cities like Cleveland, Cleveland's way. Way out there in terms of being really clear about its mission, and it was, you know, on the tail end of having traveled to Memphis with this incredible diverse group of super talented teenagers, it felt like being part of the solution. That's really what it felt like. So we were on a bus all day. We're traveling around with city council members and state senators, and we're getting the stories of the people who live in the neighborhoods and how these neighborhoods were harmed by the crack epidemic or harmed by the financial crisis. How Cleveland's divides haven't yielded the right things, and how there are people building groups to gather other groups to heal these things. And so you talk to someone, and you know, the Boys and Girls Club. I didn't. I'd forgotten about the Boys and Girls Club. There's four thousand of them that serve over four million kids around the country.
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:19:03] Will: Lexan. Sorry. Yeah.
 
-[00:19:13] Adam: At any rate, so Blendo was the very first spinner. Jamie's first idea for Blendo was that he'd spin it up to twenty thousand RPM, and its own momentum would keep it running for the three minutes of a match. Now he reached out to a friend of his who's a physicist to explain that at twenty thousand RPM it would explode because of the friction with the air. It would catch on fire and just disintegrate. So he's like, " All right, I'll lower my sights." And he attached a five horsepower Briggs and Stratton engine to a chassis that we that we machined out of steel. I was on this team back at back when it was Colossal Pictures Model Shop, and it was a spinning upside down wok with a steel ring around it and two hardened case hardened steel blades. And
+[00:19:13] Adam: At any rate, so Blendo was the very first spinner. Jamie's first idea for Blendo was that he'd spin it up to 20,000 RPM, and its own momentum would keep it running for the three minutes of a match. Now he reached out to a friend of his who's a physicist to explain that at 20,000 RPM it would explode because of the friction with the air. It would catch on fire and just disintegrate. So he's like, " All right, I'll lower my sights." And he attached a five horsepower Briggs and Stratton engine to a chassis that we that we machined out of steel. I was on this team back at back when it was Colossal Pictures Model Shop, and it was a spinning upside down wok with a steel ring around it and two hardened case hardened steel blades. And
 
 [00:19:59] Will: like
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:21:09] Will: you mean the horns, the blades?
 
-[00:21:10] Adam: Yeah, the blades. This exterior ring was its ID was about thirty inches, and its OD was about forty-two inches. Right, so it's very fairly thick, and it's thicker than quarter-inch plate. It might have even been three-eighths.
+[00:21:10] Adam: Yeah, the blades. This exterior ring was its ID was about thirty inches, and its OD was about 42 inches. Right, so it's very fairly thick, and it's thicker than quarter-inch plate. It might have even been three-eighths.
 
 [00:21:10] Norm: How did you bend it?
 

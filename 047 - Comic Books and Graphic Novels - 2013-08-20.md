@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:03:30] Adam: That's a lot. I'm I'm not going to buy a whole. bunch of these.
 
-[00:03:32] Will: I mean, for seven hundred bucks, I'll just put the costume on and stand there.
+[00:03:32] Will: I mean, for 700 bucks, I'll just put the costume on and stand there.
 
 [00:03:35] Adam: But I would really like more costumes standing here, and I I I think I'm going to take one of the poseables and hang the Rocketeer in full backpack mode here
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:07:13] Adam: Okay.
 
-[00:07:13] Will: I I I'm a late. I was a late entry to comic books. Like we, my father had a big box of like fifties era Batman's Detective Comics, I guess, and stuff like that that were you know had been obviously much loved and read as a child. Yeah. But like I, I didn't. I grew up in the. I was living in a rural area, so I didn't have a like a corner store. I could go down and pick up the weekly comic books at. Um, and they. I don't think they even sold them in the grocery store, which is weird, I guess. So I, I didn't really get into comics until I was an adult, fully like the Watchmen. Somebody, somebody loaned me a copy of Dark Knight Rises, and I was like, " This is amazing. Why have I not been — Returns. Sorry. See, I told you I'm terrible at this.
+[00:07:13] Will: I I I'm a late. I was a late entry to comic books. Like we, my father had a big box of like '50s era Batman's Detective Comics, I guess, and stuff like that that were you know had been obviously much loved and read as a child. Yeah. But like I, I didn't. I grew up in the. I was living in a rural area, so I didn't have a like a corner store. I could go down and pick up the weekly comic books at. Um, and they. I don't think they even sold them in the grocery store, which is weird, I guess. So I, I didn't really get into comics until I was an adult, fully like the Watchmen. Somebody, somebody loaned me a copy of Dark Knight Rises, and I was like, " This is amazing. Why have I not been — Returns. Sorry. See, I told you I'm terrible at this.
 
 [00:07:51] Adam: Well, Dark Knight Returns, Dark Knight Rises is the last.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:07:56] Will: Yeah.
 
-[00:07:57] Adam: Sorry. Um. Yeah, I too. I you know I read some of the horror comics that you could get back in the seventies, and you know had that kind of stuff. But it wasn't until I was eighteen, living in New York, and my best friend David introduced me to The Dark Knight.
+[00:07:57] Adam: Sorry. Um. Yeah, I too. I you know I read some of the horror comics that you could get back in the '70s, and you know had that kind of stuff. But it wasn't until I was eighteen, living in New York, and my best friend David introduced me to The Dark Knight.
 
 [00:08:14] Will: Yeah,
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:11:45] Will: Sorry, that was my bad.
 
-[00:11:47] Norm: So, the the comic books you guys all mention, and a lot of people did start with Frank Miller and Alan Moore with Dark Knight Rises, and that was a big turning point in the late eighties or late eighties or mid mid eighties.
+[00:11:47] Norm: So, the the comic books you guys all mention, and a lot of people did start with Frank Miller and Alan Moore with Dark Knight Rises, and that was a big turning point in the late '80s or late '80s or mid mid '80s.
 
 [00:11:59] Will: It was
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:15:02] Norm: maybe a year or two, and that's it. And then you can buy the compendium.
 
-[00:15:06] Adam: It's, I will also say that it, I grew up with comics being a key part of my childhood because my dad was obsessed with early American comics, and so I early on was deeply inculcated with things like. Krazy Kat, drawn by George Herriman in the in the teens and twenties and thirties, and is one of the most beautiful comics. Super surreal. Herriman spent a ton of time in the American Southwest. They're semi mystical but totally absurdist, almost like surrealist.
+[00:15:06] Adam: It's, I will also say that it, I grew up with comics being a key part of my childhood because my dad was obsessed with early American comics, and so I early on was deeply inculcated with things like. Krazy Kat, drawn by George Herriman in the in the '10s and '20s and '30s, and is one of the most beautiful comics. Super surreal. Herriman spent a ton of time in the American Southwest. They're semi mystical but totally absurdist, almost like surrealist.
 
 [00:15:36] Norm: So that, like the American Splendor, or Crumb days?
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:18:07] Norm: and it's about a, it's future, um, techno.
 
-[00:18:11] Will: It's Hunter Thompson in the year three thousand.
+[00:18:11] Will: It's Hunter Thompson in the year 3000.
 
 [00:18:13] Adam: Ah,
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:23:09] Adam: What's that?
 
-[00:23:09] Norm: He's the the lead writer on Stephen King's Under a Dome. He wrote the pilot episode. He— great, great comic book writer. Uh, he also did this, uh, series called Ex Machina, uh, about the mayor of New York, um, who can talk to machines. And a big twist in issue one is he stopped the second plane in nine eleven. Which was crazy!
+[00:23:09] Norm: He's the the lead writer on Stephen King's Under a Dome. He wrote the pilot episode. He— great, great comic book writer. Uh, he also did this, uh, series called Ex Machina, uh, about the mayor of New York, um, who can talk to machines. And a big twist in issue one is he stopped the second plane in 9/11. Which was crazy!
 
 [00:23:28] Adam: Wow,
 
@@ -950,7 +950,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:34:12] Adam: before my time. So not slightly, Petticoat Junction was definitely before my time. Okay. I grew up on Happy Days, Mary Tyler Moore. Bob Newhart was a little bit old for me when I was a young kid.
 
-[00:34:22] Will: The seventies, Bob Newhart, not the not Newhart.
+[00:34:22] Will: The '70s, Bob Newhart, not the not Newhart.
 
 [00:34:24] Adam: Yeah, no, the original Bob Newhart.
 

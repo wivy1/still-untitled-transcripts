@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=6XTL4cF5GtA
 
 [00:02:51] Will: I mean, it's it's funny because it's like the right stuff, right? Like Ed Harris and John Glenn. I, like, I've met John Glenn in person, and I still picture Ed Harris in right stuff when I think of John Glenn.
 
-[00:03:03] Adam: Hey, so as a slight tangent to this, Apollo thirteen. In addition to the wonderful Kevin Bacon and Tom Hanks, has Bill Paxton, the late and the great. And I've been catching a lot of Bill Paxton in movies.
+[00:03:03] Adam: Hey, so as a slight tangent to this, Apollo 13. In addition to the wonderful Kevin Bacon and Tom Hanks, has Bill Paxton, the late and the great. And I've been catching a lot of Bill Paxton in movies.
 
 [00:03:19] Will: Ooh.
 
@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=6XTL4cF5GtA
 
 [00:10:06] Norm: Yeah, I think it's a fear of liability, right? Like eBay, because they're processing so many transactions, they've built their communication system to service customer service, right? Like they they think of their sellers as businesses and the shoppers as pure customers, and the communication tools are to solve the problem of a delivery not happening.
 
-[00:10:26] Adam: Do, do you remember? Do you remember the very first time you built a website? I remember the first time I was putting a hyperlink into HTML, and I was chatting with my, like one of my closest friends at the time, and he was like, " Yeah, I'm not using a lot of hyperlinks. I want to keep people on my site." And I remember, I remember this has got to be like ninety five or ninety six, and I remember thinking, even then, that's ridiculous. Why would you want a false economy of of a walled garden? You've got the hyperlinks. You've got, you, you engender the goodwill by sending someone out to go get good information. That's what this is all about.
+[00:10:26] Adam: Do, do you remember? Do you remember the very first time you built a website? I remember the first time I was putting a hyperlink into HTML, and I was chatting with my, like one of my closest friends at the time, and he was like, " Yeah, I'm not using a lot of hyperlinks. I want to keep people on my site." And I remember, I remember this has got to be like '95 or '96, and I remember thinking, even then, that's ridiculous. Why would you want a false economy of of a walled garden? You've got the hyperlinks. You've got, you, you engender the goodwill by sending someone out to go get good information. That's what this is all about.
 
 [00:11:05] Will: Yeah, if if you give them something that they're excited about, they're going to come back to get the next thing that you're excited about. That's the whole point. That's what we do.
 

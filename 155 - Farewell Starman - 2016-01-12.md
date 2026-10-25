@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:06:12] Rebecca: he was gender fluid before gender fluid was a thing.
 
-[00:06:16] Adam: He he was gender fluid and gave he was a. I've often I've often enjoyed saying that I like to feel like in my best I can be a permission machine for a ten year old me to go ahead and let the freak flag fly. Yeah, but Bowie's confidence at that fluidity—I think he announced that he was gay in nineteen seventy-three as part of space as part of Ziggy Stardust. And there are some accounts that it was a cynical attempt to get more attention for the album, but really, in the in the arc of his life, none of that matters. He really was so weird and so bizarre. And so confident at it that he transcended any opinions you could have about it, because at the same time it was totally public. It was also completely personal, and it was his, and he owned it totally.
+[00:06:16] Adam: He he was gender fluid and gave he was a. I've often I've often enjoyed saying that I like to feel like in my best I can be a permission machine for a ten year old me to go ahead and let the freak flag fly. Yeah, but Bowie's confidence at that fluidity—I think he announced that he was gay in 1973 as part of space as part of Ziggy Stardust. And there are some accounts that it was a cynical attempt to get more attention for the album, but really, in the in the arc of his life, none of that matters. He really was so weird and so bizarre. And so confident at it that he transcended any opinions you could have about it, because at the same time it was totally public. It was also completely personal, and it was his, and he owned it totally.
 
 [00:07:05] Rebecca: Yeah, I I watched Man Who Fell to Earth in college, and I I remember thinking I've never been so bored by a movie that, while still finding the central protagonist so so completely captivating.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:20:09] Norm: He thinks he's a hero, and
 
-[00:20:14] Adam: well, it's the it's the he's the physical embodiment of the of the one question narcissist test. Are you a narcissist? And the narcissist will eighty percent of the time say yes because they don't view the things that make them a narcissist as nags.
+[00:20:14] Adam: well, it's the it's the he's the physical embodiment of the of the one question narcissist test. Are you a narcissist? And the narcissist will 80% of the time say yes because they don't view the things that make them a narcissist as nags.
 
 [00:20:14] Norm: Right. Right.
 

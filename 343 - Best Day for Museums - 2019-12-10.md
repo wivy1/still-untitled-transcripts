@@ -78,17 +78,17 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:02:16] Will: Oh my god!
 
-[00:02:16] Adam: We didn't see another car for the most for most of the. I got the Prius up to one hundred and fourteen on Route forty headed west towards LA.
+[00:02:16] Adam: We didn't see another car for the most for most of the. I got the Prius up to one hundred and fourteen on Route 40 headed west towards LA.
 
 [00:02:25] Norm: [There's a serious pod — unclear]
 
 [00:02:26] Will: We we do not endorse this.
 
-[00:02:29] Adam: No, I actually. So Route forty is like you know, dozens of miles of this very slight downgrade, and I'm just slowly letting the Prius creep up and up and up. And it was just after
+[00:02:29] Adam: No, I actually. So Route 40 is like you know, dozens of miles of this very slight downgrade, and I'm just slowly letting the Prius creep up and up and up. And it was just after
 
 [00:02:39] Will: You're just charging at that point, officer.
 
-[00:02:40] Adam: It was just after it was just after Woz had gotten pulled over for doing a hundred and two on two eighty. So I took a picture of my dashboard with one hundred and fourteen on it, and I the finger, and I sent it to Woz.
+[00:02:40] Adam: It was just after it was just after Woz had gotten pulled over for doing a hundred and two on 280. So I took a picture of my dashboard with one hundred and fourteen on it, and I the finger, and I sent it to Woz.
 
 [00:02:54] Will: Still Untitled is not an advice podcast, and the things that Adam are saying should not be tested by anyone.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:07:35] Adam: and they they they rely. It's a very behind the music kind of format. The narrator redounds to like puns repeatedly, which is fine.
 
-[00:07:47] Norm: It's I love the eighties. It's it's like that when VH1 used to do those shows. It's like that produced by Netflix. It gives you like now more so than ever, gives great like contextual awareness of what. The public perceptions of those films were like.
+[00:07:47] Norm: It's I love the '80s. It's it's like that when VH1 used to do those shows. It's like that produced by Netflix. It gives you like now more so than ever, gives great like contextual awareness of what. The public perceptions of those films were like.
 
 [00:07:58] Will: Since the '80s are back.
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:17:47] Unknown speaker: Mm-hmm. Mm-hmm.
 
-[00:17:47] Adam: We came within a one day of getting all the correct permitting to replicate the Bullitt chase in all of the correct locations in San Francisco, including catching air. Including catching air on Twenty Second Street above Noe Valley,
+[00:17:47] Adam: We came within a one day of getting all the correct permitting to replicate the Bullitt chase in all of the correct locations in San Francisco, including catching air. Including catching air on 22nd Street above Noe Valley,
 
 [00:18:04] Will: yeah,
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:18:33] Will: They were like, " You need
 
-[00:18:34] Adam: fifty percent," and so we got fifty percent. No, no, you need seventy-five percent, and we need seventy-five percent. And the day before shooting, they were like, " You need a hundred percent buy off from everyone on that street." And we're like, " Yesterday, you said seventy percent," and they were like, " Are you calling me a liar?" You know that kind of crazy person.
+[00:18:34] Adam: 50%," and so we got 50%. No, no, you need 75%, and we need 75%. And the day before shooting, they were like, " You need 100% buy off from everyone on that street." And we're like, " Yesterday, you said 70%," and they were like, " Are you calling me a liar?" You know that kind of crazy person.
 
 [00:18:48] Will: That sounds great.
 
@@ -696,7 +696,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:23:07] Norm: Last chance.
 
-[00:23:08] Will: Last chance. If you have not watched this, turn it off. We're not going to do anything else after this. We're just going to turn it off. I, when she said that, I was like, oh. And she started talking about true cases of amnesia, one hundred percent amnesia, and I was like, oh shit,
+[00:23:08] Will: Last chance. If you have not watched this, turn it off. We're not going to do anything else after this. We're just going to turn it off. I, when she said that, I was like, oh. And she started talking about true cases of amnesia, 100% amnesia, and I was like, oh shit,
 
 [00:23:21] Adam: right?
 

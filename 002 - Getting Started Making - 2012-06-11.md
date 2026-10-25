@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=rt76k1awa6I
 
 [00:11:10] Adam: Yeah.
 
-[00:11:10] Will: And it's, it's going to be more expensive than papier-mâché, but it's not - for under eight hundred dollars, you can build an amazing robot now.
+[00:11:10] Will: And it's, it's going to be more expensive than papier-mâché, but it's not - for under 800 dollars, you can build an amazing robot now.
 
 [00:11:17] Adam: All right. So now I'm going to circle back to the other way I want to break apart the problem of how you get started making, and it is, to me, you have to come up with something you want.
 
@@ -284,11 +284,11 @@ Episode URL: https://www.youtube.com/watch?v=rt76k1awa6I
 
 [00:20:26] Will: Awesome.
 
-[00:20:26] Adam: I mean, I bought him a nice one, but that's just because I wanted - I want him to have a nice one. Look, a soldering iron that costs eight bucks is ninety-five percent as functional -
+[00:20:26] Adam: I mean, I bought him a nice one, but that's just because I wanted - I want him to have a nice one. Look, a soldering iron that costs eight bucks is 95% as functional -
 
 [00:20:26] Will: Oh, yeah.
 
-[00:20:26] Adam: As one that costs two hundred bucks.
+[00:20:26] Adam: As one that costs 200 bucks.
 
 [00:20:37] Will: Yeah, especially if you're just doing rough, like if you're doing rough solders, there's the, the, the cheap one is better because it heats up faster a lot of times.
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=rt76k1awa6I
 
 [00:22:05] Will: Or, you know, ends up in a flea market someplace one day.
 
-[00:22:06] Adam: And it's no different than a musical instrument, you know. It's my saxophone teacher - I used to play the saxophone - told me, "Whenever you find a mouthpiece that's better than the one you're using, buy it immediately." There's no - it's all about the mouthpiece. And the moment you find one that feels more comfortable than yours, buy it. Borrow, whatever you have to do to get that mouthpiece, it's worth it. And I mean, some mouthpieces can cost three hundred bucks.
+[00:22:06] Adam: And it's no different than a musical instrument, you know. It's my saxophone teacher - I used to play the saxophone - told me, "Whenever you find a mouthpiece that's better than the one you're using, buy it immediately." There's no - it's all about the mouthpiece. And the moment you find one that feels more comfortable than yours, buy it. Borrow, whatever you have to do to get that mouthpiece, it's worth it. And I mean, some mouthpieces can cost 300 bucks.
 
 [00:22:30] Will: Wow.
 

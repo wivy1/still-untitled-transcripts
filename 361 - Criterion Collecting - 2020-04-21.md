@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:17:27] Will: look, everyone involved, I like. Yeah,
 
-[00:17:29] Adam: Cassavetes is really, really important in American filmmaking, and not not outside of film school doesn't get a lot of play, doesn't make a lot of top ten lists. But like he's one of the sort of architects of the independent film business. He was doing independent film before it was called that, and the the actors that he worked with early in his career, who then because of their incredible acting skills became big stars. I mean, there's this joke about how in the seventies they learned that ugly people could be movie stars.
+[00:17:29] Adam: Cassavetes is really, really important in American filmmaking, and not not outside of film school doesn't get a lot of play, doesn't make a lot of top ten lists. But like he's one of the sort of architects of the independent film business. He was doing independent film before it was called that, and the the actors that he worked with early in his career, who then because of their incredible acting skills became big stars. I mean, there's this joke about how in the '70s they learned that ugly people could be movie stars.
 
 [00:18:02] Will: But it's true.
 
@@ -300,13 +300,13 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:25:41] Norm: But it was the idea. It was like a whole '60s style, you know, '50s '40s style. There was right. They would composite, you know, the interior on the exterior, and those exterior shots. Those are some of the best archival footage of what a city looked like. Anywhere, anytime, you know, you would have a second unit go around in the '40s and have to film those long shots. You know, studios have that that B-roll, and that's like that's the pure like looking into what a city would look like.
 
-[00:26:11] Adam: That's really cool. That's really neat. There are some. It turns out that. If again, I keep I've mentioned it a million times. Rebecca Solnit's book " River of Shadows" about Muybridge and the invention of cinema. Muybridge was an early adopter of photography and of really interesting photography techniques. So he has several panoramas of San Francisco from eighteen eighteen forties, if I'm not incorrect, eighteen fifties, like really, really early. And you can still see you can see these. They're downloadable high res versions of these panoramas stitched together from the top of different hills in San Francisco.
+[00:26:11] Adam: That's really cool. That's really neat. There are some. It turns out that. If again, I keep I've mentioned it a million times. Rebecca Solnit's book " River of Shadows" about Muybridge and the invention of cinema. Muybridge was an early adopter of photography and of really interesting photography techniques. So he has several panoramas of San Francisco from eighteen 1840s, if I'm not incorrect, 1850s, like really, really early. And you can still see you can see these. They're downloadable high res versions of these panoramas stitched together from the top of different hills in San Francisco.
 
 [00:26:51] Will: That's bonkers.
 
 [00:26:53] Adam: Yeah,
 
-[00:26:54] Will: I I really love the depiction of San Francisco. The first movie that was shot in San Francisco, there was a San Francisco movie after we moved here in two thousand that I saw was the Wedding Planner, which is not a great film. It's it's good J Lo and bad everyone else.
+[00:26:54] Will: I I really love the depiction of San Francisco. The first movie that was shot in San Francisco, there was a San Francisco movie after we moved here in 2000 that I saw was the Wedding Planner, which is not a great film. It's it's good J Lo and bad everyone else.
 
 [00:27:08] Adam: You guys love J-Lo.
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:28:19] Adam: There was a during the whole. I mean, maybe you didn't watch Beverly Hills 90210 with the with the fervor that I did, but there during the whole Emily Valentine section of BH9er, they Brandon went to her apartment in San Francisco, and they perfectly chose a San Francisco type apartment for her apartment. What is that ridiculous yet weirdly enjoyable Mark Ruffalo ghost film with Reese Witherspoon? That's another one in which she lives in a nice quintessential San Francisco apartment.
 
-[00:28:54] Will: Oh God, this is like this is like a late 90s, early 2000s thing, right?
+[00:28:54] Will: Oh God, this is like this is like a late '90s, early 2000s thing, right?
 
 [00:29:02] Adam: I think it's even later than that.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:29:15] Adam: It's not a terrible rom-com. It's it's it's enjoyable,
 
-[00:29:18] Will: Norm. You you won't get this, but there was a brief moment in the mid nineties when the real world was a real cultural zeitgeist. And oh yeah, when when we have visitors of a certain age come to town, we'll often get the after we've done like the driving tour, the walking tour, something they'll be like, hey, um, this is weird to ask, but do you know where the real world house is?
+[00:29:18] Will: Norm. You you won't get this, but there was a brief moment in the mid '90s when the real world was a real cultural zeitgeist. And oh yeah, when when we have visitors of a certain age come to town, we'll often get the after we've done like the driving tour, the walking tour, something they'll be like, hey, um, this is weird to ask, but do you know where the real world house is?
 
 [00:29:41] Adam: Was it on Lombard Street?
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:29:44] Adam: yeah.
 
-[00:29:45] Will: It's it's on like the the the obviously the famous stretch of Lombard Street. That's the windiest street in the world, and it's you know a twenty five million dollar house now, probably.
+[00:29:45] Will: It's it's on like the the the obviously the famous stretch of Lombard Street. That's the windiest street in the world, and it's you know a 25,000,000 dollar house now, probably.
 
 [00:29:53] Adam: Right. Of course.
 

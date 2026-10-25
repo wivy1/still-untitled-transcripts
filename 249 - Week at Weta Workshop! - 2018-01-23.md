@@ -68,7 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=MlXcV8ZQbR4
 
 [00:10:48] Richard: It may be expensive, or but often the cost can't be met by going and buying it pre-packaged. So we build it. The great fortune of our company is that we have incredibly innovative people, and you see this every day that you walk around here. And should we need a specific piece of equipment and we can't buy it, we'll build it, because in the building of it, we enable new technology in the workshop and we advance ourselves that little bit more, that little bit more.
 
-[00:12:11] Adam: Well, you seem so fearless about the. You know, there are some shops I know in Los Angeles where everyone builds everything by hand and it's hand sculpted, and you guys are doing that. But you're also using the latest scanning equipment, the latest photogrammetry, the latest three D printing, rapid prototyping techniques. I saw the titanium sintered fingers on the armor of a robot yesterday that I had never. You know, a level of precision and tightness to an actor that was impossible five years ago.
+[00:12:11] Adam: Well, you seem so fearless about the. You know, there are some shops I know in Los Angeles where everyone builds everything by hand and it's hand sculpted, and you guys are doing that. But you're also using the latest scanning equipment, the latest photogrammetry, the latest 3D printing, rapid prototyping techniques. I saw the titanium sintered fingers on the armor of a robot yesterday that I had never. You know, a level of precision and tightness to an actor that was impossible five years ago.
 
 [00:12:11] Richard: Correct.
 
@@ -78,11 +78,11 @@ Episode URL: https://www.youtube.com/watch?v=MlXcV8ZQbR4
 
 [00:12:45] Adam: Yeah.
 
-[00:12:45] Richard: and that requires technology. A very quick and good example: when we started the Gallipoli exhibition, we couldn't find a three D printer that would print clear material. There may have been in the world, but flies have a very specific clear wing.
+[00:12:45] Richard: and that requires technology. A very quick and good example: when we started the Gallipoli exhibition, we couldn't find a 3D printer that would print clear material. There may have been in the world, but flies have a very specific clear wing.
 
 [00:12:45] Adam: Yeah.
 
-[00:12:45] Richard: So, eight months out from the deadline, we started designing and building a three D printer to print the wings. Seven months out from the deadline, it worked, and in the last month, we'd already printed non translucent wings in case we didn't pull it off. But the technology was designed and built to achieve the results we really, really wanted.
+[00:12:45] Richard: So, eight months out from the deadline, we started designing and building a 3D printer to print the wings. Seven months out from the deadline, it worked, and in the last month, we'd already printed non translucent wings in case we didn't pull it off. But the technology was designed and built to achieve the results we really, really wanted.
 
 [00:12:45] Unknown speaker (Adam or Norm): Wow.
 

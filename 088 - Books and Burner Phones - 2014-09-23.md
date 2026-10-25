@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:00:26] Will: Oh, it's my turn.
 
-[00:00:27] Adam: It's twenty-eight pounds.
+[00:00:27] Adam: It's 28 pounds.
 
 [00:00:27] Unknown speaker: 28 pounds.
 
@@ -106,13 +106,13 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:02:42] Adam: absolutely
 
-[00:02:43] Norm: in the sixties.
+[00:02:43] Norm: in the '60s.
 
 [00:02:44] Adam: But then, and I actually did read one study that said it almost doesn't matter what the restriction is as long as you have some,
 
 [00:02:51] Will: like, like, like, just in a disciplinary sense.
 
-[00:02:53] Adam: As a disciplinary sense, like when I was a kid, we couldn't watch Saturday morning cartoons past nine thirty in the morning.
+[00:02:53] Adam: As a disciplinary sense, like when I was a kid, we couldn't watch Saturday morning cartoons past 9:30 in the morning.
 
 [00:02:59] Will: Oh, so you had to get up early.
 
@@ -138,7 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:03:37] Adam: Yeah.
 
-[00:03:37] Will: It's since since TiVo was a thing, I, my wife was like, " Hey, you got to get one of those." It's the first time she ever said that about TV electronics. So I went straight down to Best Buy and dropped the dropped three hundred bucks.
+[00:03:37] Will: It's since since TiVo was a thing, I, my wife was like, " Hey, you got to get one of those." It's the first time she ever said that about TV electronics. So I went straight down to Best Buy and dropped the dropped 300 bucks.
 
 [00:03:37] Adam: Right.
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:04:46] Adam: We do in the living room, um, behind a cabinet. There, there is a there is a television. It's a big one, and I mean, big one. It's like fifty inches.
 
-[00:04:53] Will: It's it's a it's a big one for the two thousands. It's not a big one for the twenty tens.
+[00:04:53] Will: It's it's a it's a big one for the 2000s. It's not a big one for the 2010s.
 
 [00:04:56] Adam: Um and We'll sit. I mean, actually, now we finally got our couch back from the from the
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:06:23] Adam: Yeah.
 
-[00:06:23] Will: that's insane. You could you could do telegrams in nineteen ten for less than that.
+[00:06:23] Will: that's insane. You could you could do telegrams in 1910 for less than that.
 
 [00:06:23] Adam: Yep.
 
@@ -236,7 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:06:54] Will: It's a lot of red velvet, red velvet—
 
-[00:06:55] Adam: and we love how kind of not cool it is, right? It means that it's quiet, and I like that. Hmm. So we're actually by the pool at the Hilton, total cliche, and my phone stops working. So I dial six one one, and she says, " Oh yes, your phone doesn't work because of your inordinately large bill." And I'm like, " I'm paid up, a hundred percent." She's like, " Yeah, but you racked up a lot of costs. Were you in Canada yesterday?" Yeah.
+[00:06:55] Adam: and we love how kind of not cool it is, right? It means that it's quiet, and I like that. Hmm. So we're actually by the pool at the Hilton, total cliche, and my phone stops working. So I dial six one one, and she says, " Oh yes, your phone doesn't work because of your inordinately large bill." And I'm like, " I'm paid up, 100%." She's like, " Yeah, but you racked up a lot of costs. Were you in Canada yesterday?" Yeah.
 
 [00:07:20] Will: Oh, that was your first mistake. No, I lost my phone yesterday.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:08:00] Will: What do you think to get you to pay?
 
-[00:08:02] Adam: Right. So, I mean, I've had something like a six hundred dollar bill reduced to a hundred and fifty dollar bill.
+[00:08:02] Adam: Right. So, I mean, I've had something like a 600 dollar bill reduced to a 150 dollar bill.
 
 [00:08:07] Will: That's a little more reasonable, but still a lot.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:08:54] Will: I, I have, I have, I'm in that neighborhood. So, like, powerful number of Twitter followers.
 
-[00:08:58] Adam: So I, I tweeted. I tweeted, uh, something along the lines of " The hell with AT&T." I just got a twelve thousand dollar bill for surfing in Canada. hashtag Something like " Screw AT&T."
+[00:08:58] Adam: So I, I tweeted. I tweeted, uh, something along the lines of " The hell with AT&T." I just got a 12,000 dollar bill for surfing in Canada. hashtag Something like " Screw AT&T."
 
 [00:08:58] Will: Screw AT&T.
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:14:34] Adam: Means that my midnight's your nine a.m.
 
-[00:14:36] Will: Oh, that's terrible. So, it means that nine a.m. it's like four thirty or something. Yeah, that's that's that's that shouldn't be.
+[00:14:36] Will: Oh, that's terrible. So, it means that nine a.m. it's like 4:30 or something. Yeah, that's that's that's that shouldn't be.
 
 [00:14:42] Adam: No, so it's basically by the time I wake up, you're on your way home. By the time I go to sleep, you're arriving at work.
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:16:23] Adam: Well—
 
-[00:16:23] Will: That and it's such an opportunity to ream them to the tune of twelve thousand five hundred dollars.
+[00:16:23] Will: That and it's such an opportunity to ream them to the tune of 12,500 dollars.
 
 [00:16:32] Adam: The thing that really gets me is how complicated it is to turn off all the proper stuff on your phone internationally, right? Like there's like five different slider buttons of voice and data, data, cellular data, and it's like I I'm pretty savvy, and I don't know where the crossover is for some of that, and how it’ll directly affect. And it's like, come on. This is a screen that displays text. Can't you show me what each of these things does and why I'd want to click them?
 
@@ -566,9 +566,9 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:18:19] Norm: I think there is a correlation between the nicer the hotel, the bigger the hotel, the more expensive was to redo their IT.
 
-[00:18:25] Adam: Oh, yeah, no, no, no. I look, I know these big nice hotels that were built in the twenties are all brick and really hard to put Wi Fi signals through. And the companies, the third party companies, they contract to put the repeaters and routers everywhere. It's a nightmare. Hell with them. Thirty five bucks a day is a stupid price to pay for internet.
+[00:18:25] Adam: Oh, yeah, no, no, no. I look, I know these big nice hotels that were built in the '20s are all brick and really hard to put Wi Fi signals through. And the companies, the third party companies, they contract to put the repeaters and routers everywhere. It's a nightmare. Hell with them. 35 bucks a day is a stupid price to pay for internet.
 
-[00:18:42] Will: Yes, even even anything a day is stupid. When you are paying two hundred and fifty plus a night. If I could go to the to the Holiday Inn Express and pay seventy nine dollars a night and get free Wi Fi,
+[00:18:42] Will: Yes, even even anything a day is stupid. When you are paying two hundred and fifty plus a night. If I could go to the to the Holiday Inn Express and pay 79 dollars a night and get free Wi Fi,
 
 [00:18:52] Adam: fastest Wi Fi I've ever gotten in a hotel was in the one in Mojave Desert. Was the Motel in Mojave Desert?
 
@@ -656,11 +656,11 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:22:49] Norm: When was the walk?
 
-[00:22:50] Adam: Uh, it was in the nineties that she did it.
+[00:22:50] Adam: Uh, it was in the '90s that she did it.
 
 [00:22:50] Norm: Okay.
 
-[00:22:50] Adam: She was, I guess, around twenty-six. 27, and so it was the I think the mid, the middle late 90s.
+[00:22:50] Adam: She was, I guess, around twenty-six. 27, and so it was the I think the mid, the middle late '90s.
 
 [00:23:00] Norm: Is that something that anyone, either any of these people, any of you guys on this table, ever want to do? A long walk across country. It's a very cliche thing to do, but it's very like there's something very enamoring about. it.
 
@@ -750,7 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:27:39] Norm: You can, you can change day to day.
 
-[00:27:40] Adam: Absolutely, absolutely. And you know, walking through the Mojave Desert as opposed to walking on exposed ridges of Oregon mountain range. You know, where there's snow, but it's still ninety-five degrees, and you're blistering at the same time as you know the moment there's shade, it's freezing. It's it's a terrific read, and I I really can't recommend it enough. Definitely check that. Given that the movie's coming out, like go get it.
+[00:27:40] Adam: Absolutely, absolutely. And you know, walking through the Mojave Desert as opposed to walking on exposed ridges of Oregon mountain range. You know, where there's snow, but it's still 95 degrees, and you're blistering at the same time as you know the moment there's shade, it's freezing. It's it's a terrific read, and I I really can't recommend it enough. Definitely check that. Given that the movie's coming out, like go get it.
 
 [00:28:05] Will: Get out in front of that. You don't want to. Terrific. The movie comes out bad. You know, you don't want to be. Plus,
 

@@ -68,11 +68,11 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:02:37] Norm: Whoa.
 
-[00:02:37] Adam: which which cost a total of eighteen hundred dollars.
+[00:02:37] Adam: which which cost a total of 1,800 dollars.
 
 [00:03:13] Rebecca: That's awesome.
 
-[00:03:14] Adam: And the helicopter pilot came to our college appearance with us, and then drove back to the airport. We were home and in bed by ten thirty at night.
+[00:03:14] Adam: And the helicopter pilot came to our college appearance with us, and then drove back to the airport. We were home and in bed by 10:30 at night.
 
 [00:03:21] Rebecca: That's amazing.
 
@@ -682,11 +682,11 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:26:06] Adam: It’s like a Jenny Holzer add-on.
 
-[00:26:07] Norm: Yeah. Okay. And the guy who built that one, building it for twenty years, Sean Bishop, he had talked about like twenty years ago, which again, that's in the nineties, I guess, right?
+[00:26:07] Norm: Yeah. Okay. And the guy who built that one, building it for twenty years, Sean Bishop, he had talked about like twenty years ago, which again, that's in the '90s, I guess, right?
 
-[00:26:20] Adam: No. Jesus, nineties was twenty years ago.
+[00:26:20] Adam: No. Jesus, '90s was twenty years ago.
 
-[00:26:22] Rebecca: Yeah. Yeah. Mid mid to late nineties were twenty years ago. You guys.
+[00:26:22] Rebecca: Yeah. Yeah. Mid mid to late '90s were twenty years ago. You guys.
 
 [00:26:27] Norm: The Rock. The Rock was twenty years ago.
 
@@ -760,7 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:28:17] Adam: But it's also there’s a there’s a deep pleasure to finding information in other like when we were doing research on. I mean, I remember on one of my props was only on a German DVD. A German release of the DVD had extra materials that showed the prop behind the scenes being fitted by an effects guy. So I bought the German DVD.
 
-[00:28:35] Rebecca: Right. Well, yeah. In a way, it is about it's as much about paying an homage to this character you like or think you are going to like when the movie comes out as it is. That hunt, and I think that what people do is kind of recreating what you went through. You know, in the nineties, like when you would need to get this VHS or like a studio tour or something before the movie comes out. Like that's the world you're in, where you're hunting for every detail.
+[00:28:35] Rebecca: Right. Well, yeah. In a way, it is about it's as much about paying an homage to this character you like or think you are going to like when the movie comes out as it is. That hunt, and I think that what people do is kind of recreating what you went through. You know, in the '90s, like when you would need to get this VHS or like a studio tour or something before the movie comes out. Like that's the world you're in, where you're hunting for every detail.
 
 [00:29:01] Adam: Well, and specifically that idea of of putting yourself into this character you like, I'm going to give a plug. My TED talk goes public on Friday.
 

@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:00:58] Adam: Oh, you will, Fraulein. Yeah, he's absolutely terrifying.
 
-[00:01:02] Will: But he's he was clearly channeling, um, like great character actors from the fifties and sixties with that with that role.
+[00:01:02] Will: But he's he was clearly channeling, um, like great character actors from the '50s and '60s with that with that role.
 
 [00:01:08] Adam: Absolutely.
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:16:05] Adam: Silly sex jokes. It appears Mr. Bond's attempting re-entry, sir.
 
-[00:16:10] Will: Yeah, okay, you win. Clear victory to Raiders. I mean, you could argue that stuff like Lawrence of Arabia and Doctor Zhivago, the kind of big screen CinemaScope, late fifties, early I guess they were fifties and sixties. I don't even know. Yeah, yeah. Um, those, but those are almost like they're paced, almost like travelogues today. So like Raiders was the Raiders and like like you did with Jaws, it was the beginning of a whole new pace for that kind of—
+[00:16:10] Will: Yeah, okay, you win. Clear victory to Raiders. I mean, you could argue that stuff like Lawrence of Arabia and Doctor Zhivago, the kind of big screen CinemaScope, late '50s, early I guess they were '50s and '60s. I don't even know. Yeah, yeah. Um, those, but those are almost like they're paced, almost like travelogues today. So like Raiders was the Raiders and like like you did with Jaws, it was the beginning of a whole new pace for that kind of—
 
 [00:16:33] Adam: Well, so I mean, and maybe there's a—maybe there's a whole film class to be worked out in here because what what Spielberg and Lucas were doing was they were mining their childhoods for a sense of excitement and adventure, and it's perfectly translated to the screen. They installed that sense of adventurous film into my childhood, and—
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:17:05] Will: Well, just pushing it's it's just modernizing. I mean, and you kind of look at that now. I mean, it's not just just modernizing is diminutive, but I mean they're taking they're taking the tropes from the existing things that they love.
 
-[00:17:17] Adam: So, but I find myself wondering, you know, if you look at the history of film, like you look at the war movie and you look at it from the 30s and the 40s and the 50s and the 60s, and you see how it changes according to the American con—I’m talking about American films, American consciousness about war. So they get darker around the Vietnam War, but they're very gung ho during the Second World War. They're slightly detached in between the two wars, and it's not really a subject that people want to go see about, right? So. For the that part of the 20th century, film is responding to the culture, and things are altering. But round about the time Raiders comes out, the 70s is when filmmakers start making films that are commenting not only on the culture but on film as a part of the culture.
+[00:17:17] Adam: So, but I find myself wondering, you know, if you look at the history of film, like you look at the war movie and you look at it from the '30s and the '40s and the '50s and the '60s, and you see how it changes according to the American con—I’m talking about American films, American consciousness about war. So they get darker around the Vietnam War, but they're very gung ho during the Second World War. They're slightly detached in between the two wars, and it's not really a subject that people want to go see about, right? So. For the that part of the 20th century, film is responding to the culture, and things are altering. But round about the time Raiders comes out, the '70s is when filmmakers start making films that are commenting not only on the culture but on film as a part of the culture.
 
 [00:17:59] Will: Right?
 

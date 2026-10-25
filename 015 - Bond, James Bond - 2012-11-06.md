@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:01:19] Adam: Yeah.
 
-[00:01:20] Norm: More so in that it's the same character. But you see the sixties and the seventies and eighties and nineties.
+[00:01:20] Norm: More so in that it's the same character. But you see the '60s and the '70s and '80s and '90s.
 
 [00:01:26] Adam: My favorite Roger Moore movie is Live and Let Die. I mean, I think it's the most—
 
@@ -108,15 +108,15 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:02:25] Norm: Okay.
 
-[00:02:25] Will: Thunderball. See, Thunderball is my favorite of the Connery movies. Maybe the one, maybe, uh, From Russia with Love, but Thunderball is awesome because it has—it's like, it's like the sixties Playboy Bond, right?
+[00:02:25] Will: Thunderball. See, Thunderball is my favorite of the Connery movies. Maybe the one, maybe, uh, From Russia with Love, but Thunderball is awesome because it has—it's like, it's like the '60s Playboy Bond, right?
 
-[00:02:35] Adam: It is. It's so the sixties Playboy Bond, and it's the sixties Playboy Bond as like youthful, youthful boys in the seventies pictured the sixties Playboy. Well—
+[00:02:35] Adam: It is. It's so the '60s Playboy Bond, and it's the '60s Playboy Bond as like youthful, youthful boys in the '70s pictured the '60s Playboy. Well—
 
-[00:02:45] Will: That's how I, I grew up, and I was like, "This is what the sixties is about." Those movies.
+[00:02:45] Will: That's how I, I grew up, and I was like, "This is what the '60s is about." Those movies.
 
 [00:02:48] Norm: Yeah, man.
 
-[00:02:49] Will: And I found out about the whole other sixties.
+[00:02:49] Will: And I found out about the whole other '60s.
 
 [00:02:50] Norm: Rewatching them now, and they're, they're just been restored.
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:05:31] Will: And they were going to—Pierce Brosnan was supposed to be that Bond.
 
-[00:05:34] Adam: I know, I know, but the problem is, is that once Pierce Brosnan became Bond, like seven years later, he was doing Bond in the old Roger Moore mold, and we were in the nineties by that point.
+[00:05:34] Adam: I know, I know, but the problem is, is that once Pierce Brosnan became Bond, like seven years later, he was doing Bond in the old Roger Moore mold, and we were in the '90s by that point.
 
 [00:05:44] Will: Yeah, Guns N' Roses was—people weren't listening to Guns N' Roses anymore.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:08:25] Will: The rapist.
 
-[00:08:27] Adam: Ah, the seventies.
+[00:08:27] Adam: Ah, the '70s.
 
 [00:08:28] Will: For four hundred, please, Alex.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:11:23] Adam: I would totally want. I love the underwater Lotus.
 
-[00:11:26] Norm: But back then, in the sixties, they didn't have things like, you know, like underwater cameras. And in Thunderball, yeah, Q goes, "Here's a camera. They get pictures, you know, four pictures underwater." And I was, "Oh, that's brilliant!" I'd never had that before. Or, you know, a breathing apparatus, or, or, or a radioactive pill. Right, location tracking.
+[00:11:26] Norm: But back then, in the '60s, they didn't have things like, you know, like underwater cameras. And in Thunderball, yeah, Q goes, "Here's a camera. They get pictures, you know, four pictures underwater." And I was, "Oh, that's brilliant!" I'd never had that before. Or, you know, a breathing apparatus, or, or, or a radioactive pill. Right, location tracking.
 
 [00:11:40] Adam: All of that stuff was like, yeah—
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:12:42] Adam: Just as a way to help us steer cars. We were actually talking about it just this morning, and it's so difficult to transmit video over a radio signal over a smartphone, over a significant distance under any kind of duress, like an—with a car engine running nearby, and then to steer without being able to see what direction you're going in.
 
-[00:13:00] Will: Well, and, and you're, you're used to having a hundred and sixty-degree field of vision, and you're cut down to about thirty-five on a—even on a wide angle—
+[00:13:00] Will: Well, and, and you're, you're used to having a 160-degree field of vision, and you're cut down to about thirty-five on a—even on a wide angle—
 
 [00:13:06] Adam: Yeah.
 
@@ -594,7 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:15:35] Will: Yeah. Um.
 
-[00:15:37] Adam: Well, we should, we should revisit this right after, right after Skyfall comes out. Also, hey, wait, I want to talk about the, the, the, the best thing about Skyfall so far is the song. They've gone right back to the seventies.
+[00:15:37] Adam: Well, we should, we should revisit this right after, right after Skyfall comes out. Also, hey, wait, I want to talk about the, the, the, the best thing about Skyfall so far is the song. They've gone right back to the '70s.
 
 [00:15:49] Will: It's the Adele, Adele song. Yeah.
 

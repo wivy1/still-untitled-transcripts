@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:05:10] Norm: And and therefore you have to put the dramatic music in, all the special effects in.
 
-[00:05:14] Adam: I wonder if I'll feel like that when I watch that because that that tends to. We've gotten crap before. We have a piece that was in our show for a long time called the warning science content, and we'd say warning science content, and we'd sit down and do what we'd called a fireside chat where Jamie and I were sitting. Oh, did you know that actually there was a molasses flood in Boston in the late nineteenth century, something like that? And we got crap for it. It was like, why are you saying warning science content? That makes people afraid of science. And we were like, no, that's the whole joke. The whole joke.
+[00:05:14] Adam: I wonder if I'll feel like that when I watch that because that that tends to. We've gotten crap before. We have a piece that was in our show for a long time called the warning science content, and we'd say warning science content, and we'd sit down and do what we'd called a fireside chat where Jamie and I were sitting. Oh, did you know that actually there was a molasses flood in Boston in the late 19th century, something like that? And we got crap for it. It was like, why are you saying warning science content? That makes people afraid of science. And we were like, no, that's the whole joke. The whole joke.
 
 [00:05:42] Will: Yeah, but people don't get those jokes.
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:12:22] Will: Yeah.
 
-[00:12:22] Adam: It even has a label from the U.S. government, nineteen forty-two serial number, combat shield vibranium, which I know is controversial that it's not vibranium and adamantium. Um, I'm gonna have to get that later. And then it's manufactured Stark Industries.
+[00:12:22] Adam: It even has a label from the U.S. government, 1942 serial number, combat shield vibranium, which I know is controversial that it's not vibranium and adamantium. Um, I'm gonna have to get that later. And then it's manufactured Stark Industries.
 
 [00:12:22] Will: Mm-hmm.
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:14:24] Adam: Right.
 
-[00:14:24] Will: I think it would be cool to have a lightsaber, but not enough to go out and spend the you know hundred bucks, two hundred bucks, whatever it is to to buy one or take the time to machine one.
+[00:14:24] Will: I think it would be cool to have a lightsaber, but not enough to go out and spend the you know hundred bucks, 200 bucks, whatever it is to to buy one or take the time to machine one.
 
 [00:14:24] Adam: Mm-hmm.
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:15:44] Adam: And if I do, I'll just give you the other one
 
-[00:15:51] Norm: because Playmates did sell them. Yeah, twenty five bucks. Yes, I'll buy one.
+[00:15:51] Norm: because Playmates did sell them. Yeah, 25 bucks. Yes, I'll buy one.
 
 [00:15:55] Adam: They're functionally they look great and they make great sounds, but the lights are shit.
 
@@ -782,7 +782,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:25:46] Will: I mean, I assume
 
-[00:25:46] Adam: there are there are enough about where, but ten years ago you could have picked up an Enigma for about twenty thousand dollars.
+[00:25:46] Adam: there are there are enough about where, but ten years ago you could have picked up an Enigma for about 20,000 dollars.
 
 [00:25:46] Will: That that actually seems like a it’s expensive
 

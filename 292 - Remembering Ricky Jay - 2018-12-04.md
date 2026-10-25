@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:08:55] Norm: Reacher?
 
-[00:08:55] Adam: [unclear: So / That’s a / The] Way of the Gun has one of my favorite movie quotes in the world, in which James Caan says, " Fifteen million dollars—that's not money. Money's what you get out of the ATM machine. Fifteen million dollars is a motive with a universal adapter on it."
+[00:08:55] Adam: [unclear: So / That’s a / The] Way of the Gun has one of my favorite movie quotes in the world, in which James Caan says, " 15,000,000 dollars—that's not money. Money's what you get out of the ATM machine. 15,000,000 dollars is a motive with a universal adapter on it."
 
 [00:09:09] Norm: [unclear: Nice / Uh]. Jack Reacher, as a character in the books, is absurd, though. Right? If to cast someone who would fit the physical description, it would have to be like The Rock.
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:12:29] Norm: I think he’s like a computer hacker?
 
-[00:12:31] Adam: Um, I will tell you, I saw Ricky Jay perform the first time in nineteen eighty two at the International Jugglers Convention in SUNY Purchase, New York. Um, Ricky came there and was throwing playing cards out into the audience, like he could throw playing cards like two hundred feet
+[00:12:31] Adam: Um, I will tell you, I saw Ricky Jay perform the first time in 1982 at the International Jugglers Convention in SUNY Purchase, New York. Um, Ricky came there and was throwing playing cards out into the audience, like he could throw playing cards like 200 feet
 
 [00:12:52] Norm: Cut watermelons.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:13:14] Jeremy: Wow,
 
-[00:13:14] Adam: that's he was doing all that. And so then, when we started filming MythBusters and we did playing card of death, I brought up the question: Was could you, like bullseye in the comic books, use a playing card to kill someone? And Ricky Jay famously wrote a book called Cards as Weapons, which was released in the seventies. It's very rare. If you can find a copy, it's going to cost you hundreds of dollars. It is completely a surrealist masterpiece because it includes all this genuine practical instruction for how to throw playing cards, and yet all the photos demonstrating how to hold playing cards are topless women. It is, it's completely bizarre.
+[00:13:14] Adam: that's he was doing all that. And so then, when we started filming MythBusters and we did playing card of death, I brought up the question: Was could you, like bullseye in the comic books, use a playing card to kill someone? And Ricky Jay famously wrote a book called Cards as Weapons, which was released in the '70s. It's very rare. If you can find a copy, it's going to cost you hundreds of dollars. It is completely a surrealist masterpiece because it includes all this genuine practical instruction for how to throw playing cards, and yet all the photos demonstrating how to hold playing cards are topless women. It is, it's completely bizarre.
 
 [00:13:55] Jeremy: There's the boogie nights tie-in.
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:16:37] Norm: story.
 
-[00:16:38] Adam: and then there's a there's an early 80s there's sorry there's a 90s HBO documentary of a stage show he did called Ricky Jay and His 52 Assistants, which is absolutely worth watching. I mean, the thing that he would do with his card magic, he really appreci-. You know. Ricky Jay, one of his mentors was Dai Vernon, this really important 20th century magician who really advocated a naturalistic style, not a David Copperfield kind of whoa things are happening, but much more of a you know learned from [unclear: card cheats]. So you know these are the magicians that are like you don't move a coin from one hand to the other. Nobody nobody does that. You do the natural things, the things that don't draw your attention, and so that people like Derek DelGaudio, who's also are adepts of that that style. When you watch them do stuff, it's twice as mysterious because it just feels you don't see any flourishes of cards like you know doing incredible things. You're just watching the impossible happen by what seems like someone just naturally shuffling cards,
+[00:16:38] Adam: and then there's a there's an early '80s there's sorry there's a '90s HBO documentary of a stage show he did called Ricky Jay and His 52 Assistants, which is absolutely worth watching. I mean, the thing that he would do with his card magic, he really appreci-. You know. Ricky Jay, one of his mentors was Dai Vernon, this really important 20th century magician who really advocated a naturalistic style, not a David Copperfield kind of whoa things are happening, but much more of a you know learned from [unclear: card cheats]. So you know these are the magicians that are like you don't move a coin from one hand to the other. Nobody nobody does that. You do the natural things, the things that don't draw your attention, and so that people like Derek DelGaudio, who's also are adepts of that that style. When you watch them do stuff, it's twice as mysterious because it just feels you don't see any flourishes of cards like you know doing incredible things. You're just watching the impossible happen by what seems like someone just naturally shuffling cards,
 
 [00:17:40] Jeremy: right? Which took 10,000 hours of practice,
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:24:38] Unknown speaker (Norm or Jeremy): right
 
-[00:24:38] Norm: at you know five million dollars.
+[00:24:38] Norm: at you know 5,000,000 dollars.
 
 [00:24:48] Unknown speaker: The market will bear,
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:25:01] Adam: spending three, five, ten million dollars, Yes.
 
-[00:25:03] Norm: and the people hawking and the artists who think their work is worth that much, I mean, there's this one plot point I'll talk about in which one of the auctioneers talks, or one of the the Sotheby's people says that you know, around Central Park there's high rises, and in these apartment buildings they know for sure that on certain floors there are multiple floors with exact same piece of artwork, like a limited run on the exact same wall, you know, five, ten million dollars each on each floor, because that's what these people barter in. Like, it's what my what my neighbor has three stories below me because I am in a fifty million dollar apartment building. Well, I got to have that same vase or the same painting.
+[00:25:03] Norm: and the people hawking and the artists who think their work is worth that much, I mean, there's this one plot point I'll talk about in which one of the auctioneers talks, or one of the the Sotheby's people says that you know, around Central Park there's high rises, and in these apartment buildings they know for sure that on certain floors there are multiple floors with exact same piece of artwork, like a limited run on the exact same wall, you know, five, ten million dollars each on each floor, because that's what these people barter in. Like, it's what my what my neighbor has three stories below me because I am in a 50,000,000 dollar apartment building. Well, I got to have that same vase or the same painting.
 
 [00:25:41] Adam: Seriously,
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:26:50] Norm: Yeah,
 
-[00:26:50] Norm: I think that's enough information. People can suss that out based on that, but it’s it’s worth the wait. Definitely worth the wait. One other recommendation, and it's for you guys in the room too. I was doing. We're watching a lot of Netflix now because baby, and I actually found [unclear: some / someone] on Netflix just randomly selecting something that ended up being amazing. It's and kind of passed by. Came out last year. It's called Five Came Back, and it's a Steven Spielberg produced three episode documentary series about the five film directors in Hollywood who went to film World War II. Oh, wow. So it’s about John Ford, John Huston, George Stevens, Frank Capra, and William Wyler, who in the twenties and thirties were pioneers in Hollywood. [unclear: ∅ / Yeah]. Some of them had already made you know Maltese Falcon [unclear: and and and / Yeah, yeah, and] won Academy Awards, and their decision to pause their careers and support the war effort by filming World War II. So it builds up and culminates, and this is all history. So the footage you see on D Day and the Battle of Midway are filmed by these. These directors and how they brought their directorial sensibilities to telling the story of war,
+[00:26:50] Norm: I think that's enough information. People can suss that out based on that, but it’s it’s worth the wait. Definitely worth the wait. One other recommendation, and it's for you guys in the room too. I was doing. We're watching a lot of Netflix now because baby, and I actually found [unclear: some / someone] on Netflix just randomly selecting something that ended up being amazing. It's and kind of passed by. Came out last year. It's called Five Came Back, and it's a Steven Spielberg produced three episode documentary series about the five film directors in Hollywood who went to film World War II. Oh, wow. So it’s about John Ford, John Huston, George Stevens, Frank Capra, and William Wyler, who in the '20s and '30s were pioneers in Hollywood. [unclear: ∅ / Yeah]. Some of them had already made you know Maltese Falcon [unclear: and and and / Yeah, yeah, and] won Academy Awards, and their decision to pause their careers and support the war effort by filming World War II. So it builds up and culminates, and this is all history. So the footage you see on D Day and the Battle of Midway are filmed by these. These directors and how they brought their directorial sensibilities to telling the story of war,
 
 [00:28:08] Unknown speaker (Adam or Jeremy): incredible,
 
@@ -606,7 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:28:12] Jeremy: Did it talk about how it changed public opinion?
 
-[00:28:14] Norm: Yes, well, one hundred percent.
+[00:28:14] Norm: Yes, well, 100%.
 
 [00:28:15] Adam: That
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:28:51] Adam: Your memory Norm is really something to marvel at.
 
-[00:28:54] Jeremy: He's He's lost ten percent.
+[00:28:54] Jeremy: He's He's lost 10%.
 
 [00:28:55] Norm: Yeah, ten feet.
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:28:58] Jeremy: but still,
 
-[00:28:58] Jeremy: that's like a hundred percent, but more than I have.
+[00:28:58] Jeremy: that's like 100%, but more than I have.
 
 [00:29:00] Adam: Um, I did. I just a shameless plug. I want to point out that we have some brand new products, for sale for the holidays on AdamSavage.com, where we've released some wide mouth pouches that you can buy in a set, a large and a small. I don't go anywhere without these in my bag. Been developing this with Marcos for several months, and the pouches. Yeah, I'm really psyched about this. And we have a EDC one, EDC twos now. The smaller EDC bag in black, and black on black, and black with a gray interior. So if you're interested in some of those things, go check it out at AdamSavage.com. And shameless plug.
 

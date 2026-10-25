@@ -366,7 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:15:38] Will: You got anything?
 
-[00:15:39] Adam: You know what? We talked about 80s movies, and we mentioned Beverly Hills Cop that had Jonathan Banks in it as a henchman, and then I mentioned 48 Hours. I forgot to mention Jonathan Banks actually plays a cop in 48 Hours.
+[00:15:39] Adam: You know what? We talked about '80s movies, and we mentioned Beverly Hills Cop that had Jonathan Banks in it as a henchman, and then I mentioned 48 Hours. I forgot to mention Jonathan Banks actually plays a cop in 48 Hours.
 
 [00:15:53] Will: It all loops back around.
 
@@ -382,11 +382,11 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:16:14] Will: Yeah, I dialed that one in.
 
-[00:16:17] Adam: He also has a bit role, not a bit role. He also has a medium-sized role in Boys on the Side, movie from the not late nineties.
+[00:16:17] Adam: He also has a bit role, not a bit role. He also has a medium-sized role in Boys on the Side, movie from the not late '90s.
 
-[00:16:28] Will: When did Boys early nineties?
+[00:16:28] Will: When did Boys early '90s?
 
-[00:16:30] Adam: Early nineties.
+[00:16:30] Adam: Early '90s.
 
 [00:16:31] Will: Wasn't it? Wasn't it like the dawn of indie?
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:17:54] Will: I thought it was super good.
 
-[00:17:56] Norm: Yeah, not as good as Days of Future Past, but he unabashedly Bryan Singer with unabashedly goes full. Nineties X Men writing, like the way the comics were written back then.
+[00:17:56] Norm: Yeah, not as good as Days of Future Past, but he unabashedly Bryan Singer with unabashedly goes full. '90s X Men writing, like the way the comics were written back then.
 
 [00:17:56] Adam: Oh,
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:18:45] Will: Cool.
 
-[00:18:45] Adam: Forty-eight bucks a piece. Um, yeah, so they have a Y-wing fighter that is actually almost precisely the scale of the one I scratch built for Galoob Toys way back in the day.
+[00:18:45] Adam: 48 bucks a piece. Um, yeah, so they have a Y-wing fighter that is actually almost precisely the scale of the one I scratch built for Galoob Toys way back in the day.
 
 [00:18:45] Will: Wow.
 

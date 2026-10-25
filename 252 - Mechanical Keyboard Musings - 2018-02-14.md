@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:09:46] Adam: Oh, okay.
 
-[00:09:46] Norm: So seventy five percent of keys.
+[00:09:46] Norm: So 75% of keys.
 
 [00:09:48] Will: If you if yeah if you go
 
@@ -774,7 +774,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:26:49] Adam: How much are these things?
 
-[00:26:51] Norm: Twenty five hundred dollars, and it will fly and follow you or be in front of you and avoid trees and branches. And we could not get crash.
+[00:26:51] Norm: 2,500 dollars, and it will fly and follow you or be in front of you and avoid trees and branches. And we could not get crash.
 
 [00:26:59] Norm: Like playing hide and seek with the drone.
 

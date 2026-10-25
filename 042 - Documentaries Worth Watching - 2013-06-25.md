@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:12:00] Will: Leon Gast.
 
-[00:12:01] Adam: The, the fight in Zaire, the Rumble in the Jungle in nineteen seventy-four, if I remember correctly.
+[00:12:01] Adam: The, the fight in Zaire, the Rumble in the Jungle in 1974, if I remember correctly.
 
 [00:12:06] Will: Which was one of the most— yeah, it was, it was the, the heavyweight championship bout, and it was, uh— yes.
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:18:36] Will: Just to, just to mess with it.
 
-[00:18:36] Adam: Just to mess with them, just to totally screw with them. It's a beautiful movie, an incredible document, and, yeah, like I said, Ali is, you know, for all his talk of the greatest and being the will of his creator, um, he's a hundred percent committed to that and, and is there, and that's an amazing and powerful thing to be.
+[00:18:36] Adam: Just to mess with them, just to totally screw with them. It's a beautiful movie, an incredible document, and, yeah, like I said, Ali is, you know, for all his talk of the greatest and being the will of his creator, um, he's 100% committed to that and, and is there, and that's an amazing and powerful thing to be.
 
 [00:18:57] Will: Well, the thing the thing that marks a great documentary for me is showing me a world that not only I didn't I didn't know anything about, but that I didn't know existed.
 
@@ -952,7 +952,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:30:12] Will: Okay, I gotta imagine.
 
-[00:30:12] Adam: the early 60s.
+[00:30:12] Adam: the early '60s.
 
 [00:30:12] Will: Like when you meet in the last year, we've met many more interesting people in parties than we have in the previous 10 years.
 

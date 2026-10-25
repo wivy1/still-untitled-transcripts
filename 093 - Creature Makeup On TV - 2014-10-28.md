@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:11:27] Frank: and everybody shares all of their different ways of doing things because there's never one way to do everything.
 
-[00:11:41] Norm: So, what's what's the market like now in terms of TV shows using and hiring makeup artists and to do creature effects? Is are there still jobs like they were? Back in the late nineties,
+[00:11:41] Norm: So, what's what's the market like now in terms of TV shows using and hiring makeup artists and to do creature effects? Is are there still jobs like they were? Back in the late '90s,
 
 [00:11:53] Frank: and I don't know that there is any like real big creature shows going on now. I know that there is like American Horror Story. There is a lot of stuff, and Falling Skies is doing a great job. A guy named Todd Masters has a shop down here in LA and up in Vancouver, and they are actually doing a lot of the CG stuff along with it, like the blinking eyes and stuff like that, to augment their makeups. And I think that that's kind of a a forward thinking approach to well, a lot of our makeups get CG augmented anyway, so why don't we provide that service so that way we at least have control over the final look of it?
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:14:51] Will: Spitball.
 
-[00:14:51] Frank: And then you go. And then it's going to cost another four thousand dollars for hair, and they go, " What? What? But custom wig, like a good custom wig, costs three, four thousand dollars, depending on length and color and all this.
+[00:14:51] Frank: And then you go. And then it's going to cost another 4,000 dollars for hair, and they go, " What? What? But custom wig, like a good custom wig, costs three, four thousand dollars, depending on length and color and all this.
 
 [00:15:04] Will: It's not a thing you can do quickly. You just have to put the plug, the hair in, and plugs, right?
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:16:23] Frank: It is and it isn’t. I mean, you got to every job has to progress. I mean, you can say the same thing about model makers. Like, have model makers been affected by CG? Hell yeah. So is makeup, but there's still models being
 
-[00:16:34] Adam: built. There are still models being built, but maybe ten percent of the amount that was being built ten years ago, and maybe three percent of what was being built twenty years ago.
+[00:16:34] Adam: built. There are still models being built, but maybe 10% of the amount that was being built ten years ago, and maybe 3% of what was being built twenty years ago.
 
 [00:16:42] Frank: Yeah,
 

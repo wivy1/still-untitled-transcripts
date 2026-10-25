@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:01:13] Will: Good morning.
 
-[00:01:14] Adam: We had a little bit of a late start this morning. Usually, we're recording this at like eight thirty or nine, but but it's ten thirty.
+[00:01:14] Adam: We had a little bit of a late start this morning. Usually, we're recording this at like 8:30 or nine, but but it's 10:30.
 
 [00:01:19] Norm: We're actually recording this episode a week before people hear it.
 
@@ -786,7 +786,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:28:20] Will: At the same time, or one after the other.
 
-[00:28:21] Adam: I think actually a good question. I believe Midnight Movies. So Rocky Horror Picture Show began at the Waverly Theater on Sixth Avenue and then moved to the Eighth Street Playhouse after a couple of years. And the Midnight Movies were also in several different theaters down there at the Waverly, at the Eighth Street, at the Thalia. And so I worked there in the mid '80s. And my manager, one of my managers, Chris Johnson, who I saw recently in Florida on tour, amazingly, used to work at this haunted house in Jersey. And he said that like all of those performers back then in the '70s and '80s. Were like tripping balls on acid the whole time they were performing in the haunted house.
+[00:28:21] Adam: I think actually a good question. I believe Midnight Movies. So Rocky Horror Picture Show began at the Waverly Theater on 6th Avenue and then moved to the Eighth Street Playhouse after a couple of years. And the Midnight Movies were also in several different theaters down there at the Waverly, at the Eighth Street, at the Thalia. And so I worked there in the mid '80s. And my manager, one of my managers, Chris Johnson, who I saw recently in Florida on tour, amazingly, used to work at this haunted house in Jersey. And he said that like all of those performers back then in the '70s and '80s. Were like tripping balls on acid the whole time they were performing in the haunted house.
 
 [00:29:00] Norm: I don't want. I I wouldn't want to know that going through it.
 

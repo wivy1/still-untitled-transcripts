@@ -14,7 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:00:13] Will: This one will take less than five minutes. It's short. It helps Still Untitled a ton, and you can do it by going to podsurvey. dot com slash Untitled.
 
-[00:00:23] Norm: It'll take less than five minutes, and you'll also be entered to enter a raffle to win a one hundred dollar gift card from Amazon.
+[00:00:23] Norm: It'll take less than five minutes, and you'll also be entered to enter a raffle to win a 100 dollar gift card from Amazon.
 
 [00:00:30] Will: It's an ongoing raffle. They'll need to collect your email address. They're only going to use it if you win the raffle, so you don't have to worry about it being sold to Russian spammers or Chinese militants or anything bad. Nothing bad's going to happen to your email address. It'll be perfectly safe, and you'll only see it used if you know you win the win the raffle. So the address again is podsurvey. dot com slash Untitled. I think that's it.
 
@@ -34,7 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:01:13] Will: Kevin was one of the founding editors of Wired. Worked on. I'm completely losing my mind here.
 
-[00:01:23] Kevin: Well, I was actually involved in starting the WELL, which was the first public access to the internet. I did the Hackers First Hackers Conference, which brought together three generations of hackers. I did the Virtual Reality Jamboree. We call it Cyberthon, which was the first public access to VR in 89.
+[00:01:23] Kevin: Well, I was actually involved in starting the WELL, which was the first public access to the internet. I did the Hackers First Hackers Conference, which brought together three generations of hackers. I did the Virtual Reality Jamboree. We call it Cyberthon, which was the first public access to VR in '89.
 
 [00:01:39] Adam: So wait, the WELL—you you helped birth the first trolls.
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:03:50] Kevin: Yeah. That so so one of the things I I did and talked about at XO XO was this self published entity. It was a physical book. It weighs five pounds. It has a lot of atoms in it. It's very big and oversized. It's a book that lists the coolest recommendable tools that that I and the readers of the website for the past twelve years know about, and the experience of self-publishing it is a pretty cool thing because I was just two people, and I made a book that was very similar to something that was made a long time ago called the Whole Earth Catalog, which I did work on eventually and publish, which is a same thing. It's kind of like an encyclopedia of user recommended cool stuff, and it was made with the state of the art technology at that time, which is newsprint, really cheap, Polaroids, IBM Selectric, typewriting for the text, but it took thirty people a year to make one of them, and I and my assistant basically made the same book in color. With two people, that is the power of technology. That's what is now possible. That's what all the stuff that we're excited by is allowing individuals to accomplish a lot more with fewer barriers.
 
-[00:05:17] Will: We do that right here, right? If you look at this, twenty years ago, this would have been a room in a special building, a special room in a special building with at least one and probably two people on the other side. More if we were actually doing real video, right? And yeah, everything. And and this is a thousand, maybe twelve hundred dollars worth of gear. Exactly, and it's a little bit overkill for what we do.
+[00:05:17] Will: We do that right here, right? If you look at this, twenty years ago, this would have been a room in a special building, a special room in a special building with at least one and probably two people on the other side. More if we were actually doing real video, right? And yeah, everything. And and this is a thousand, maybe 1,200 dollars worth of gear. Exactly, and it's a little bit overkill for what we do.
 
 [00:05:35] Kevin: So that so that amplification, which is what the this digital technology brings, is is really very powerful, particularly for individuals or small groups. And that's what the allowed me to self publish this book, which was about has about fifteen hundred different tools, and each one of them is a positive review. So these are recommendations. There are fifteen hundred recommendations of something that would allow you to leverage. And accomplish something. So these are things that allow you to make things and to make things happen. That's how my my definition is.
 
@@ -132,9 +132,9 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:08:32] Kevin: It's it's like it's liberating because you realize that you can make an alternative to having a big house and a mortgage if if you needed to, and that that kind of confidence allows you to do all kinds of things that you would never attempt before.
 
-[00:09:03] Will: Well, and and so, like the whole Earth Catalog, the whole Earth Catalog was a fixture at one of my grandmother's houses. It was there with Campmor and Foxfire books and all that stuff. She was kind of a you know a fifty year old hippie in the late sixties, and she like it was it was it was one of the books on the back of the toilet in the downstairs bathroom, and you would just take it out and kind of flip through, and you'd learn about all sorts of novel things that you probably didn't know existed. I think that's what I think you you captured that really well with this. It reminds me a lot of that.
+[00:09:03] Will: Well, and and so, like the whole Earth Catalog, the whole Earth Catalog was a fixture at one of my grandmother's houses. It was there with Campmor and Foxfire books and all that stuff. She was kind of a you know a fifty year old hippie in the late '60s, and she like it was it was it was one of the books on the back of the toilet in the downstairs bathroom, and you would just take it out and kind of flip through, and you'd learn about all sorts of novel things that you probably didn't know existed. I think that's what I think you you captured that really well with this. It reminds me a lot of that.
 
-[00:09:33] Kevin: So, for my own history, when I was in high school and graduating from high school, I discovered the Whole Earth Catalog for the first time. That was when it was coming out in sixty eight, sixty nine, nineteen sixty eight, nineteen sixty nine, and I got the message from the Whole Earth Catalog that I I didn't need to go to college and I could invent my own life.
+[00:09:33] Kevin: So, for my own history, when I was in high school and graduating from high school, I discovered the Whole Earth Catalog for the first time. That was when it was coming out in '68, '69, 1968, 1969, and I got the message from the Whole Earth Catalog that I I didn't need to go to college and I could invent my own life.
 
 [00:09:33] Will: Wow.
 
@@ -296,13 +296,13 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:17:21] Kevin: It gets very heavy, and so I decided the the book came about. It's like okay, I'm going to put in just a few of the tools, and then I put the book in, and the book will point to all the rest. So so so this this set may not is not going to fit into a crate, but this is a list of the kinds of things that again are maybe not as obvious as you know a hammer. Like another one is digital calipers.
 
-[00:17:49] Will: Yep. Digital calipers when buying a pair of a pair of twenty five dollar digital calipers are a life changing purchase.
+[00:17:49] Will: Yep. Digital calipers when buying a pair of a pair of 25 dollar digital calipers are a life changing purchase.
 
 [00:17:54] Adam: You can now get a pair for seven or eight bucks.
 
 [00:17:56] Kevin: Yeah, it's it's amazing,
 
-[00:17:57] Adam: and they're ninety nine point nine nine percent as good. I don't get me wrong. I love my Mitutoyo and my Starrett calipers, and over the years, as a machinist, I have learned the value of really good ones. But as an entry level thing that allows you to measure the thickness of a human hair for seven bucks, you can get a great digital caliper.
+[00:17:57] Adam: and they're 99.99% as good. I don't get me wrong. I love my Mitutoyo and my Starrett calipers, and over the years, as a machinist, I have learned the value of really good ones. But as an entry level thing that allows you to measure the thickness of a human hair for seven bucks, you can get a great digital caliper.
 
 [00:18:15] Kevin: Yeah, and the way for for the listeners, this is kind of like a sliding a ruler, like a slide rule. There's two two parts to it that slide along, and then there's a there's a there's a little readout that gives you the measurement of the width that you're trying to measure. So you squeeze the little what do you call it the prongs, the two prongs, and it will it will read the length that inside or outside of what you're trying to measure. And so
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:28:52] Kevin: Another one is screwdrivers. If you are gonna have a screwdriver, have a ratcheting screwdriver. It's like you know.
 
-[00:29:00] Will: Now I have to talk about this. Okay, my favorite screwdriver in the world, like my my ninety nine percent of the time screwdriver is the cheap four head, big bigs Phillips, small Phillips, big flat, small flat from Ace. Okay, you know you you flip the handle around, pop it out. it goes back in.
+[00:29:00] Will: Now I have to talk about this. Okay, my favorite screwdriver in the world, like my my 99% of the time screwdriver is the cheap four head, big bigs Phillips, small Phillips, big flat, small flat from Ace. Okay, you know you you flip the handle around, pop it out. it goes back in.
 
 [00:29:16] Adam: When you pull the bits out, it's perfect for hose clamps.
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:31:46] Norm: Oh, yeah.
 
-[00:31:46] Adam: A twenty five foot tape measure is pointless.
+[00:31:46] Adam: A 25 foot tape measure is pointless.
 
 [00:31:48] Norm: Yeah, well, you know the size of your head for helmets.
 
@@ -916,7 +916,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:44:26] Will: Yeah.
 
-[00:44:26] Kevin: Yeah. No, this try the magnetic stud finder because it actually is pretty good. Another one I like is another old tool. It's been around as a hand tool. It's very simple. It's just an offset screwdriver. So it's a screwdriver that instead of just having a vertical shaft, actually has a two ninety degree bends. It's like a little
+[00:44:26] Kevin: Yeah. No, this try the magnetic stud finder because it actually is pretty good. Another one I like is another old tool. It's been around as a hand tool. It's very simple. It's just an offset screwdriver. So it's a screwdriver that instead of just having a vertical shaft, actually has a two 90 degree bends. It's like a little
 
 [00:44:26] Adam: Really?
 
@@ -984,7 +984,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:46:36] Will: how concentrated is the hydrogen peroxide? Is it like rocket fuel hydrogen peroxide?
 
-[00:46:39] Kevin: Okay, thirty eight percent or something.
+[00:46:39] Kevin: Okay, 38% or something.
 
 [00:46:40] Adam: The standard stuff you buy is like seven or eight.
 
@@ -1246,7 +1246,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:56:49] Will: Right. Somebody in China gets the factory.
 
-[00:56:51] Adam: And what’s really funny is that I went over to that Ace Hardware on Fourth and Mission. I was a Fox Hardware. I went over there to get one of these. I figured I didn't realize it was a super rare thing. I knew it was a tamper-proof Torx bit, but I didn't realize it was five lobes. So I'm looking through their drawers, and it was a T8, where I needed a T10. Amazingly, in the drawer of Torx bits, I found a five-lobe T8, and I didn't. I was like, " Well, I don't need that one. I need the T."
+[00:56:51] Adam: And what’s really funny is that I went over to that Ace Hardware on 4th and Mission. I was a Fox Hardware. I went over there to get one of these. I figured I didn't realize it was a super rare thing. I knew it was a tamper-proof Torx bit, but I didn't realize it was five lobes. So I'm looking through their drawers, and it was a T8, where I needed a T10. Amazingly, in the drawer of Torx bits, I found a five-lobe T8, and I didn't. I was like, " Well, I don't need that one. I need the T."
 
 [00:57:24] Will: Was it just a defect?
 

@@ -274,11 +274,11 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:25:01] Norm: thirteen.
 
-[00:25:01] Joey: Apollo thirteen. Uh, Bryce Dallas Howard, Ron Howard homage.
+[00:25:01] Joey: Apollo 13. Uh, Bryce Dallas Howard, Ron Howard homage.
 
 [00:25:05] Adam: No.
 
-[00:25:06] Joey: So so when he when it's because the ship's so messed up when he comes into the planet, um, it's almost like a shot by shot remake of how the landing capsule for an Apollo thirteen kind of comes in just by like all the visuals and
+[00:25:06] Joey: So so when he when it's because the ship's so messed up when he comes into the planet, um, it's almost like a shot by shot remake of how the landing capsule for an Apollo 13 kind of comes in just by like all the visuals and
 
 [00:25:19] Adam: oh my gosh I totally
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:33:47] Joey: Yeah,
 
-[00:33:48] Norm: and that force that that burnt world was one hundred percent inspired by you know the the California fires and
+[00:33:48] Norm: and that force that that burnt world was 100% inspired by you know the the California fires and
 
 [00:33:57] Adam: oh wow
 

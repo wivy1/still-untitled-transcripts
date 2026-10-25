@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:05:20] Adam: The problem again, the problem is, is I own all this great music. I own some really weird B sides of Peter Gabriel songs that you can't get anywhere else, and iTunes Match doesn't give them to me because you can't, they're not on their catalog. I've got some Bob Seger CDs that aren't and aren't digital because I digitized them. You know, there's there's all sorts of ways in which streaming services don't work for a user like me. And I'm sorry, but I hate the cloud. I don't want all my information up there. I certainly don't feel like it's safe, so I keep it all on my local devices.
 
-[00:05:52] Norm: Not just the information, but you're listening. Like they know what you're listening to, and they have to track that to pay the royalties. But like I don't need someone to know that I. I'm listening to this album this many times, and if you look at your like paying history, I did this once exercise. Like I've been subscribing to Spotify since it basically started. I spent like five hundred dollars now on Spotify subscriptions, and that's a lot of money. I don't think I would have bought that many albums. I haven't definitely listened to five hundred dollars worth of albums.
+[00:05:52] Norm: Not just the information, but you're listening. Like they know what you're listening to, and they have to track that to pay the royalties. But like I don't need someone to know that I. I'm listening to this album this many times, and if you look at your like paying history, I did this once exercise. Like I've been subscribing to Spotify since it basically started. I spent like 500 dollars now on Spotify subscriptions, and that's a lot of money. I don't think I would have bought that many albums. I haven't definitely listened to 500 dollars worth of albums.
 
 [00:06:22] Simone: But I feel that considering or like I feel that the music I’m listening to is probably one of the data points that I'm most okay with people having access to.
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:15:27] Simone: by gravity pretty much all the time. Oh yeah. What about you? Adam?
 
-[00:15:32] Adam: I found it to be tremendously enjoyable. I did it wearing a spacesuit that was weighted correctly to the weight of NASA's spacesuit, so I had three hundred pounds of gear on me.
+[00:15:32] Adam: I found it to be tremendously enjoyable. I did it wearing a spacesuit that was weighted correctly to the weight of NASA's spacesuit, so I had 300 pounds of gear on me.
 
 [00:15:42] Simone: Oh my god.
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:20:01] Simone: Yeah.
 
-[00:20:02] Adam: So people don't know this about me, but I'm totally obsessed with Leonardo da Vinci's notebooks, and I found a seller. An Italian maker of replicas of Leonardo's notebooks, and picked up a unbelievable copy of of the Lycaster, the Codex Leicester, the the the folios that Bill Gates bought for thirty million dollars.
+[00:20:02] Adam: So people don't know this about me, but I'm totally obsessed with Leonardo da Vinci's notebooks, and I found a seller. An Italian maker of replicas of Leonardo's notebooks, and picked up a unbelievable copy of of the Lycaster, the Codex Leicester, the the the folios that Bill Gates bought for 30,000,000 dollars.
 
 [00:20:02] Norm: Wow!
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:22:16] Norm: Yes. Yeah. Yep.
 
-[00:22:18] Adam: Did you see the? Did you see the? I tweeted this, I think, yesterday or this morning. The Logan and X One X Twenty Three cosplay.
+[00:22:18] Adam: Did you see the? Did you see the? I tweeted this, I think, yesterday or this morning. The Logan and X One X-23 cosplay.
 
 [00:22:26] Norm: Yes. Yeah.
 

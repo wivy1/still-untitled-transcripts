@@ -190,11 +190,11 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:07:11] Will: Oh, great!
 
-[00:07:11] Adam: It's coming out on Tuesday the sixth of November. Um, it's fantastic.
+[00:07:11] Adam: It's coming out on Tuesday the 6th of November. Um, it's fantastic.
 
 [00:07:11] Will: Oh, cool!
 
-[00:07:11] Adam: Um, if you like old political pot boilers like The Candidate, this is right up your alley. It is. First of all, the degree to which they nailed the eighties wriggling to the wall is phenomenal.
+[00:07:11] Adam: Um, if you like old political pot boilers like The Candidate, this is right up your alley. It is. First of all, the degree to which they nailed the '80s wriggling to the wall is phenomenal.
 
 [00:07:33] Norm: Minus the Apple Watch that was in the one promo photo.
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:16:59] Will: and the silent, the silent.
 
-[00:17:01] Adam: Dude, that movie holds up a hundred percent.
+[00:17:01] Adam: Dude, that movie holds up 100%.
 
 [00:17:04] Will: That that that this when the shuttle leaves the Enterprise and it goes silent and the score stops.
 
@@ -622,7 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:20:59] Adam: an amazing, amazing supporting cast.
 
-[00:21:02] Norm: Yeah, I mean, as we've seen with a lot of. Space films, and there there aren't a lot of films. There are a lot of films, but aren't a lot of them stand out. Apollo thirteen, of course, is probably the high bar still. I would say
+[00:21:02] Norm: Yeah, I mean, as we've seen with a lot of. Space films, and there there aren't a lot of films. There are a lot of films, but aren't a lot of them stand out. Apollo 13, of course, is probably the high bar still. I would say
 
 [00:21:13] Adam: I totally agree. Yeah,
 
@@ -636,7 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:21:19] Will: I think I'd probably put right stuff up there.
 
-[00:21:21] Norm: Well, and I think that's that the other ones to mention. Right, there are two flavors. Apollo thirteen, I think, is more. It's
+[00:21:21] Norm: Well, and I think that's that the other ones to mention. Right, there are two flavors. Apollo 13, I think, is more. It's
 
 [00:21:27] Will: kind of maybe
 
@@ -666,11 +666,11 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:22:20] Norm: Really?
 
-[00:22:28] Norm: Now, the framing of those two films, with Apollo thirteen and the Right Stuff, are very different. Also, right? Right Stuff is about Mercury, and Apollo thirteen is about one mission, and you can fill two hours, two and a half hours, with either of those. First Man is interesting in that it is not one mission or one program; it is one person's journey.
+[00:22:28] Norm: Now, the framing of those two films, with Apollo 13 and the Right Stuff, are very different. Also, right? Right Stuff is about Mercury, and Apollo 13 is about one mission, and you can fill two hours, two and a half hours, with either of those. First Man is interesting in that it is not one mission or one program; it is one person's journey.
 
-[00:22:47] Adam: Well, that's exactly the process. It's an incredibly personal, incredibly personal film in which that leaps forward in time, sometimes abruptly five years, but each of those leaps is not done by oh, see how far they've gone in the Apollo program. Each of those leaps involves Armstrong's family. And in that, it is a very quiet. If you are going expecting either right stuff or Apollo thirteen, this isn't either of those. It's a very quiet and personal film.
+[00:22:47] Adam: Well, that's exactly the process. It's an incredibly personal, incredibly personal film in which that leaps forward in time, sometimes abruptly five years, but each of those leaps is not done by oh, see how far they've gone in the Apollo program. Each of those leaps involves Armstrong's family. And in that, it is a very quiet. If you are going expecting either right stuff or Apollo 13, this isn't either of those. It's a very quiet and personal film.
 
-[00:23:20] Will: It's more reminiscent of From Earth to the Moon, the HBO docu series from like twenty years ago now, probably, where they each each episode told the story of like one small part of the program. And and I thought it was like it wasn't at all what I was expecting going into the theater. You know, I went in expecting Apollo thirteen and the big, you know, the the trailers sold a. Here is the story of Apollo eleven, and here is the tense moment right before the you know, as Buzz and Neil are approaching the landing.
+[00:23:20] Will: It's more reminiscent of From Earth to the Moon, the HBO docu series from like twenty years ago now, probably, where they each each episode told the story of like one small part of the program. And and I thought it was like it wasn't at all what I was expecting going into the theater. You know, I went in expecting Apollo 13 and the big, you know, the the trailers sold a. Here is the story of Apollo 11, and here is the tense moment right before the you know, as Buzz and Neil are approaching the landing.
 
 [00:23:47] Norm: Which they have.
 
@@ -718,7 +718,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:25:49] Adam: Look, he's one of those actors. He's like a. I swear, he's a little like a Gene Hackman. Like you put him in your movie, your movie's going to be better. He's always going to come in and just kill at the part you've given.
 
-[00:26:00] Will: Well, and the guy who played God, one of the Apollo One astronauts,
+[00:26:00] Will: Well, and the guy who played God, one of the Apollo 1 astronauts,
 
 [00:26:00] Norm: You’re talking about Ed White?
 
@@ -758,11 +758,11 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:26:42] Will: funny because one of the things that I realized is that they cast people who looked like the people who played these people in the right stuff. I think maybe more than the people who were the actors, the actual people.
 
-[00:26:51] Adam: I the Apollo One fire was so upsetting. By the way,
+[00:26:51] Adam: I the Apollo 1 fire was so upsetting. By the way,
 
-[00:26:56] Will: so there were three kind of key moments: the death of his daughter in the beginning, and the X fifteen X fifteen flight.
+[00:26:56] Will: so there were three kind of key moments: the death of his daughter in the beginning, and the X-15 X-15 flight.
 
-[00:27:02] Adam: Tensely dealt with X fifteen flight.
+[00:27:02] Adam: Tensely dealt with X-15 flight.
 
 [00:27:04] Norm: Jason Edgerton.
 
@@ -824,7 +824,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:28:00] Norm: Yes.
 
-[00:28:01] Will: In in that. You know, there's there's these kind of three key moments in Neil Armstrong's life that are focused on. Then they they slot in the Apollo One fire because it's also it's also an important moment because of the death of Ed White and the the impact on the program. But it starts with the X fifteen flight, the death of his of his child when he was a test pilot in Northern California. It goes. The next one is the Gemini Eight mission, which is the first docking mission, and there's a there's a failure on the capsule.
+[00:28:01] Will: In in that. You know, there's there's these kind of three key moments in Neil Armstrong's life that are focused on. Then they they slot in the Apollo 1 fire because it's also it's also an important moment because of the death of Ed White and the the impact on the program. But it starts with the X-15 flight, the death of his of his child when he was a test pilot in Northern California. It goes. The next one is the Gemini Eight mission, which is the first docking mission, and there's a there's a failure on the capsule.
 
 [00:28:25] Adam: Totally intense. Yeah. Super. I like that was a sequence I found physically exhausting.
 
@@ -850,7 +850,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:30:05] Adam: Yes, like that's the thing. The film constantly shows you just how tenuous the barriers between them and total destruction.
 
-[00:30:12] Will: Even, even, like the especially on the on the Gemini stuff and X fifteen stuff, it it's a little bit softened on the shift to Apollo because it feels like third generation. We kind of finally started figuring out how to build that stuff a little bit more reliably or a little bit more polished. But but yeah, it was it especially like and it it was really sold by the cinematography in the film where when he's in a high G high G situation in the X fifteen, the the close up the shot that you're seeing is from the astronaut's perspective always. So you see his face. You feel it's a really tight lens. You feel how small that space is and how cramped he is in the
+[00:30:12] Will: Even, even, like the especially on the on the Gemini stuff and X-15 stuff, it it's a little bit softened on the shift to Apollo because it feels like third generation. We kind of finally started figuring out how to build that stuff a little bit more reliably or a little bit more polished. But but yeah, it was it especially like and it it was really sold by the cinematography in the film where when he's in a high G high G situation in the X-15, the the close up the shot that you're seeing is from the astronaut's perspective always. So you see his face. You feel it's a really tight lens. You feel how small that space is and how cramped he is in the
 
 [00:30:48] Norm: rickety. It sounds rickety. Yeah, looks rickety.
 
@@ -870,11 +870,11 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:31:35] Will: There was no shaking or anything like that?
 
-[00:31:36] Adam: no, no, no, no, no. These that is that's the apex of our of our. It's not the apex, but but like that is a machine built to do that. This is the sequence in the X fifteen. It's like that's the first plane to go this crazy fast, and when he's bouncing off the atmosphere, that was so intense.
+[00:31:36] Adam: no, no, no, no, no. These that is that's the apex of our of our. It's not the apex, but but like that is a machine built to do that. This is the sequence in the X-15. It's like that's the first plane to go this crazy fast, and when he's bouncing off the atmosphere, that was so intense.
 
 [00:31:52] Will: Yeah.
 
-[00:31:52] Norm: And and you talk about the shaky camera. It's not just in the cockpit, but even everything is handheld. Ninety five, ninety eight percent of the films looks handheld when they're on Earth. So the moments with Claire Foy, who is amazing in this, because of their relationship. Even the parts where they're not in conflict, it looks like home movies from the sixties, and intentionally so.
+[00:31:52] Norm: And and you talk about the shaky camera. It's not just in the cockpit, but even everything is handheld. 95, 98% of the films looks handheld when they're on Earth. So the moments with Claire Foy, who is amazing in this, because of their relationship. Even the parts where they're not in conflict, it looks like home movies from the '60s, and intentionally so.
 
 [00:31:52] Adam: Yeah,
 

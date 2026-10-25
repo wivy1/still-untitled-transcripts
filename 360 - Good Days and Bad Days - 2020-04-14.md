@@ -152,11 +152,11 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:14:36] Will: he went from that onto Men in Black right
 
-[00:14:38] Norm: he did he did and the the reason I want to bring that up there was an interesting Twitter thread that I was reading over the weekend of filmmakers in the eighties and nineties had unbelievable streaks in in their run you know when you think of John Carpenter right Ridley Scott and
+[00:14:38] Norm: he did he did and the the reason I want to bring that up there was an interesting Twitter thread that I was reading over the weekend of filmmakers in the '80s and '90s had unbelievable streaks in in their run you know when you think of John Carpenter right Ridley Scott and
 
 [00:14:54] Will: Tony Scott
 
-[00:14:54] Norm: Tony Scott absolutely and and not like you know Terrence you know because every one of his movies but if they're very far apart like there are some filmmakers In the late eighties, early nineties, mid nineties, who just every year, amazing pieces of [— / our]
+[00:14:54] Norm: Tony Scott absolutely and and not like you know Terrence you know because every one of his movies but if they're very far apart like there are some filmmakers In the late '80s, early '90s, mid '90s, who just every year, amazing pieces of [— / our]
 
 [00:15:08] Adam: turning out something incredible.
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:16:11] Adam: too many films.
 
-[00:16:13] Will: There was a there was a moment somewhere after the Twenty One Jump Street movies were gone when Lord and Miller were theoretically making a Twenty One Jump Street slash Men in Black crossover that was long rumored, and I like look Lord and Miller they they did okay for themselves in the in the time after that. I'm fine with what they've done. I think you know Spider Verse pretty good. I'd watch that again. Um, but uh, I would love to see that Men in Black Twenty One Jump Street crossover with uh Channing Tatum and and and
+[00:16:13] Will: There was a there was a moment somewhere after the 21 Jump Street movies were gone when Lord and Miller were theoretically making a 21 Jump Street slash Men in Black crossover that was long rumored, and I like look Lord and Miller they they did okay for themselves in the in the time after that. I'm fine with what they've done. I think you know Spider Verse pretty good. I'd watch that again. Um, but uh, I would love to see that Men in Black 21 Jump Street crossover with uh Channing Tatum and and and
 
 [00:16:46] Norm: Jonah Hill,
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:25:28] Adam: right
 
-[00:25:28] Norm: pure comedy, uh, pure farce satire about the death of Stalin, loosely based on what actually happened with the power grabs that happened in nineteen fifty three, uh, and it's hilarious.
+[00:25:28] Norm: pure comedy, uh, pure farce satire about the death of Stalin, loosely based on what actually happened with the power grabs that happened in 1953, uh, and it's hilarious.
 
 [00:25:40] Will: This does not sound like light light fare, um.
 

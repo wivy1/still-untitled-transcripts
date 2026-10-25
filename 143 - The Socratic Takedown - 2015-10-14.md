@@ -14,21 +14,21 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:01:12] Will: Good morning. Our voices are all different volumes.
 
-[00:01:14] Adam: We are we are recording this early in the morning. It's you know I get sad when the days get so short and I wake up at six thirty in the morning and it's freaking dark.
+[00:01:14] Adam: We are we are recording this early in the morning. It's you know I get sad when the days get so short and I wake up at 6:30 in the morning and it's freaking dark.
 
-[00:01:23] Will: I just get sad when I wake up and it's six thirty in the morning.
+[00:01:23] Will: I just get sad when I wake up and it's 6:30 in the morning.
 
-[00:01:26] Adam: I you know I've been waking up at six thirty in the morning for so long it no longer fazes me.
+[00:01:26] Adam: I you know I've been waking up at 6:30 in the morning for so long it no longer fazes me.
 
 [00:01:31] Will: We successfully trained a toddler to not wake up early in the morning. It's a real real work there.
 
-[00:01:35] Adam: No, that's great, and it that'll work until they're like in until they're well until they're in school, and then it's going to be like you're getting up at you know the boys went to Miraloma up here in San Francisco, and Miraloma had something like a seven fifty a.m. start.
+[00:01:35] Adam: No, that's great, and it that'll work until they're like in until they're well until they're in school, and then it's going to be like you're getting up at you know the boys went to Miraloma up here in San Francisco, and Miraloma had something like a 7:50 a.m. start.
 
 [00:01:50] Will: What?
 
 [00:01:51] Will: Why would you do that?
 
-[00:01:53] Norm: I had seven fifteen
+[00:01:53] Norm: I had 7:15
 
 [00:01:54] Adam: because
 
@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:02:22] Will: Yeah, like that's all she needs to know.
 
-[00:02:24] Adam: So I want to talk about pulling the trigger and doing it. I went and I bought the brand new iPhone six plus.
+[00:02:24] Adam: So I want to talk about pulling the trigger and doing it. I went and I bought the brand new iPhone 6 plus.
 
 [00:02:31] Will: You got the Duke?
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:03:42] Adam: yeah,
 
-[00:03:42] Will: across to Oakland and back. So I was doing a ton of GPS work, and I didn't bring my charger with me. With the six plus, the last gen phone, I didn't really have to plug it in. Like I've driven to L.A. with it on GPS the entire time, and and it was fine. Twenty percent left when I got there. With this one, it it chews through battery when it's on GPS, and there's been some stuff that's come out
+[00:03:42] Will: across to Oakland and back. So I was doing a ton of GPS work, and I didn't bring my charger with me. With the six plus, the last gen phone, I didn't really have to plug it in. Like I've driven to L.A. with it on GPS the entire time, and and it was fine. 20% left when I got there. With this one, it it chews through battery when it's on GPS, and there's been some stuff that's come out
 
 [00:04:01] Adam: about the processor.
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:05:09] Norm: Oh, wow.
 
-[00:05:09] Adam: So Wi-Fi assist. Tell me correctly. Is it? Only Wi-Fi does Wi-Fi Assist part of the new iOS or is it only work on the S phones? Okay, so I made my whole I went through my whole family and turned off all our Wi-Fi Assist, but we basically use fifty percent of our data plan in the six days following the launch of the new iOS.
+[00:05:09] Adam: So Wi-Fi assist. Tell me correctly. Is it? Only Wi-Fi does Wi-Fi Assist part of the new iOS or is it only work on the S phones? Okay, so I made my whole I went through my whole family and turned off all our Wi-Fi Assist, but we basically use 50% of our data plan in the six days following the launch of the new iOS.
 
 [00:05:28] Will: Yep, I used sixteen gigabytes in four days.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:15:31] Adam: Right.
 
-[00:15:31] Will: in a universe populated with normal humans, but also some animal humans like birds and dogs and cats and all sorts of other things. And he is a washed up eighties sitcom star. I can't remember that the show's name was I think Horsing Around.
+[00:15:31] Will: in a universe populated with normal humans, but also some animal humans like birds and dogs and cats and all sorts of other things. And he is a washed up '80s sitcom star. I can't remember that the show's name was I think Horsing Around.
 
 [00:15:47] Adam: Sounds good. Yeah.
 
@@ -556,7 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:22:05] Norm: and that's fairly recent.
 
-[00:22:06] Adam: Yeah, yeah, yeah. This is like yeah, the late nineties.
+[00:22:06] Adam: Yeah, yeah, yeah. This is like yeah, the late '90s.
 
 [00:22:09] Will: And the book is " Beyond Words: What Animals Think and Feel" by Carl Safina.
 
@@ -758,15 +758,15 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:27:32] Adam: Friday week, as they would say in the UK.
 
-[00:27:35] Will: If it's Friday the twenty-sixth, seventh, third,
+[00:27:35] Will: If it's Friday the 26th, seventh, third,
 
 [00:27:37] Adam: third,
 
 [00:27:37] Will: whatever the Friday that's in the twenties. Okay,
 
-[00:27:41] Adam: Friday the twenty-third,
+[00:27:41] Adam: Friday the 23rd,
 
-[00:27:43] Norm: October twenty-third.
+[00:27:43] Norm: October 23.
 
 [00:27:44] Will: Tested the show. Dot eventbrite. Dot com.
 

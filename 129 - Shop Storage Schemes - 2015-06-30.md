@@ -252,17 +252,17 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:14:33] Norm: not only the tools but how you use them.
 
-[00:14:35] Adam: Well, and I also labeled the the shelves, the shelves as it were. The shelves are pieces of hardwood that I had lying around from another project that are about two inches wide and about a third of an inch thick. I know that's not an official measurement, but point three inch, point three three inches.
+[00:14:35] Adam: Well, and I also labeled the the shelves, the shelves as it were. The shelves are pieces of hardwood that I had lying around from another project that are about two inches wide and about a third of an inch thick. I know that's not an official measurement, but 0.3 inch, 0.33 inches.
 
-[00:14:50] Will: Yeah, it's one point two millimeters, centimeters.
+[00:14:50] Will: Yeah, it's 1.2 millimeters, centimeters.
 
-[00:14:53] Adam: There you go. No, one point two is half an inch.
+[00:14:53] Adam: There you go. No, 1.2 is half an inch.
 
 [00:14:57] Will: Oh, sorry.
 
 [00:14:58] Adam: Yeah,
 
-[00:14:58] Will: Point seven.
+[00:14:58] Will: 0.7.
 
 [00:14:59] Adam: See, you see what I'm saying?
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:16:03] Will: That's amazing.
 
-[00:16:04] Adam: That's three bucks a piece for what are one hundred fifty pound per casters. These are great. They came off another piece of equipment. They've allowed me to put at least five, four, four or five things on wheels so far, and I've still got four or eight left.
+[00:16:04] Adam: That's three bucks a piece for what are 150 pound per casters. These are great. They came off another piece of equipment. They've allowed me to put at least five, four, four or five things on wheels so far, and I've still got four or eight left.
 
 [00:16:17] Will: Okay, so along with the,
 
@@ -336,11 +336,11 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:19:01] Will: But the the airline the the carts for foods in airlines that are the narrow width that fit down the aisle you can get them on eBay. Prior to this episode, they were not terribly expensive
 
-[00:19:11] Adam: They’re about two hundred and fifty bucks a piece,
+[00:19:11] Adam: They’re about 250 bucks a piece,
 
 [00:19:12] Will: right? But they have a ton of little drawers in them, and you've built a couple of those that are specialized for specific things. For example, we've used the soldering.
 
-[00:19:20] Adam: Yes, I have one for electronics. I took all my electronics and was able to put them in one of those. Now, these airplane food containers. Here's the thing: they're on great casters. They lock as they need to on the airplane. They're awesome, and two hundred fifty bucks is a total deal. But here's what you need to know: the drawers suck
+[00:19:20] Adam: Yes, I have one for electronics. I took all my electronics and was able to put them in one of those. Now, these airplane food containers. Here's the thing: they're on great casters. They lock as they need to on the airplane. They're awesome, and 250 bucks is a total deal. But here's what you need to know: the drawers suck
 
 [00:19:37] Will: because they're just aluminum, so they don't have slides.
 

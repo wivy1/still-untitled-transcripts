@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:01:56] Adam: Okay.
 
-[00:01:56] Andy Weir: This is just me sitting around daydreaming. Going like how would a manned Mars mission work, and I came up with what's basically the Ares missions as described in there. And to be fair, I should point out that's about ninety-five percent Mars Direct by Robert Zubrin. Right. I made some changes.
+[00:01:56] Andy Weir: This is just me sitting around daydreaming. Going like how would a manned Mars mission work, and I came up with what's basically the Ares missions as described in there. And to be fair, I should point out that's about 95% Mars Direct by Robert Zubrin. Right. I made some changes.
 
 [00:02:09] Adam: And can you explain what Mars Direct is for people who don't know?
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:03:53] Adam: Okay,
 
-[00:03:53] Andy Weir: you need a delta v of about five kilometers a second to put yourself on a Mars intercept. Or actually, you need a delta v of two and a half kilometers a second, which is twenty five hundred meters per second, which is about five thousand miles an hour.
+[00:03:53] Andy Weir: you need a delta v of about five kilometers a second to put yourself on a Mars intercept. Or actually, you need a delta v of two and a half kilometers a second, which is 2,500 meters per second, which is about 5,000 miles an hour.
 
 [00:04:06] Adam: Okay, wait, what's a delta v?
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:10:08] Andy Weir: They're going to go off and do sample missions. Something could happen. We need one guy to be able to suit up by himself.
 
-[00:10:13] Adam: It makes all sorts of sense to have that be be a thing. I just I built a glove box last year at negative three point five psi with a glove inside it, and I that thing is near. And I had three bolts of different sizes with three nuts in the box, and all you have to do is put a thread the nut onto the bolt, and it's exhausting.
+[00:10:13] Adam: It makes all sorts of sense to have that be be a thing. I just I built a glove box last year at negative 3.5 psi with a glove inside it, and I that thing is near. And I had three bolts of different sizes with three nuts in the box, and all you have to do is put a thread the nut onto the bolt, and it's exhausting.
 
 [00:10:33] Andy Weir: It's very hard.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:16:07] Adam: for free.
 
-[00:16:07] Andy Weir: Yep. So I tried for a long time to give this thing away. So just going back in time a little bit further, when I was in my, so I've always wanted to be a writer. That's always been my dream since I was a kid. Everything. My dad had well, see this collection of books you have. My dad had a probably about like two of these shelves high bookshelf, two two wide. Sorry, bookshelf packed with 1950s sci fi paperbacks. Well, fifty s, sixty s, seventy s, and eighty s. It was the eighty s, so nothing beyond that. And I would just you know pull one out. I'd read it. When I was done with it, I'd pull another one out. And so I grew up loving classic like sci fi. My favorite authors are Clarke, Asimov, Heinlein, and then I don't know why I keep looking back at your books. I’m expecting to find Dad’s collection here.
+[00:16:07] Andy Weir: Yep. So I tried for a long time to give this thing away. So just going back in time a little bit further, when I was in my, so I've always wanted to be a writer. That's always been my dream since I was a kid. Everything. My dad had well, see this collection of books you have. My dad had a probably about like two of these shelves high bookshelf, two two wide. Sorry, bookshelf packed with 1950s sci fi paperbacks. Well, '50s, '60s, '70s, and '80s. It was the '80s, so nothing beyond that. And I would just you know pull one out. I'd read it. When I was done with it, I'd pull another one out. And so I grew up loving classic like sci fi. My favorite authors are Clarke, Asimov, Heinlein, and then I don't know why I keep looking back at your books. I’m expecting to find Dad’s collection here.
 
 [00:16:57] Adam: poetry on the left and plays and movie screenplays on the right.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:21:21] Adam: Right.
 
-[00:21:21] Andy Weir: So they make their money off their content. So you must charge at least 99 cents. Well, basically, it works out to be the lowest you can set your share to is thirty percent, and the lowest price you can set is ninety nine cents. So I'm like, okay, ninety nine cents. My royalty is thirty thirty big pennies per copy. There you go. So I say, all right, everybody, now you can read it my website, or you can download it for free for your e reader here, or you can pay a buck to have Amazon put it on your e reader for you. Basically, think of it that way. And within a month or two, more people had bought it from Amazon than had downloaded it for free. Because
+[00:21:21] Andy Weir: So they make their money off their content. So you must charge at least 99 cents. Well, basically, it works out to be the lowest you can set your share to is 30%, and the lowest price you can set is 99 cents. So I'm like, okay, 99 cents. My royalty is thirty thirty big pennies per copy. There you go. So I say, all right, everybody, now you can read it my website, or you can download it for free for your e reader here, or you can pay a buck to have Amazon put it on your e reader for you. Basically, think of it that way. And within a month or two, more people had bought it from Amazon than had downloaded it for free. Because
 
 [00:22:00] Adam: That's hilarious.
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:28:09] Adam: right? Right.
 
-[00:28:11] Adam: They do. You take the top one tenth of one percent and then shave off ninety nine percent of those and you get astronauts,
+[00:28:11] Adam: They do. You take the top one tenth of 1% and then shave off 99% of those and you get astronauts,
 
 [00:28:18] Andy Weir: right? Right. Exactly. And then just so the things I wanted to do for the crew, as shown in the book, are first off, obviously, everybody's extremely good at their technical skills, right? Everybody knows exactly what they're doing.
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:37:32] Adam: Um, have have any of those interactions? Caused you to want to go back and change things that you had originally put in?
 
-[00:37:41] Andy Weir: No, no, really not. So, so ninety nine point nine nine nine percent of the interactions I have with them is just positive feedback.
+[00:37:41] Andy Weir: No, no, really not. So, so 99.999% of the interactions I have with them is just positive feedback.
 
 [00:37:50] Adam: Yeah,
 
@@ -642,11 +642,11 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:38:25] Adam: tell me about tell me about the first interaction with an astronaut. That must have been exciting.
 
-[00:38:30] Andy Weir: So, I guess actually the first interaction I had with an astronaut, I wish I could remember his name. He was a a space shuttle astronaut. I was really excited at the time, and now I've forgotten his name. But he was like, " Oh, hey, I was space shuttle." And he he said like, " Oh, I really liked your book and stuff." But just so you know, you can actually bake the CO two out of lithium hydroxide canisters just by heating it up.
+[00:38:30] Andy Weir: So, I guess actually the first interaction I had with an astronaut, I wish I could remember his name. He was a a space shuttle astronaut. I was really excited at the time, and now I've forgotten his name. But he was like, " Oh, hey, I was space shuttle." And he he said like, " Oh, I really liked your book and stuff." But just so you know, you can actually bake the CO2 out of lithium hydroxide canisters just by heating it up.
 
 [00:38:52] Adam: Oh, nice!
 
-[00:38:52] Andy Weir: I'm like, I didn't know that. So Mark was so Mark like theoretically, there's this whole part where he has to bring the oxygenator with him on this long trip and stuff like that. And I'm like, if I'd known he could just bake the CO two out, that would have been much simpler.
+[00:38:52] Andy Weir: I'm like, I didn't know that. So Mark was so Mark like theoretically, there's this whole part where he has to bring the oxygenator with him on this long trip and stuff like that. And I'm like, if I'd known he could just bake the CO2 out, that would have been much simpler.
 
 [00:39:05] Adam: Wow! Yeah.
 
@@ -786,11 +786,11 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:45:26] Adam: yes, yeah." And he has to backtrack for days in order to figure out which whether or not he's making the right forward progress. That's, I mean, are there is there a history of a certain mission from NASA that helped really inspire or guide your thinking?
 
-[00:45:43] Andy Weir: Obviously, Apollo Thirteen.
+[00:45:43] Andy Weir: Obviously, Apollo 13.
 
 [00:45:44] Adam: Right,
 
-[00:45:44] Andy Weir: right. So, Apollo Thirteen is like my favorite scene in Apollo Thirteen is when they're making the the CO two scrubber adapter kit,
+[00:45:44] Andy Weir: right. So, Apollo 13 is like my favorite scene in Apollo 13 is when they're making the the CO2 scrubber adapter kit,
 
 [00:45:52] Adam: yes,
 
@@ -832,9 +832,9 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:47:52] Andy Weir: was the other module, so that they detached from it. And it's just like a lesser astronaut, you know, than Neil Armstrong, they would have died. Like they would have just been dead. And that was just like one of a. I think that's probably the closest that we came to losing someone in space until until
 
-[00:48:11] Adam: Apollo thirteen
+[00:48:11] Adam: Apollo 13
 
-[00:48:12] Andy Weir: or well yeah until Apollo thirteen yeah would have been closer yeah.
+[00:48:12] Andy Weir: or well yeah until Apollo 13 yeah would have been closer yeah.
 
 [00:48:16] Adam: Are you to learn that story? Is there is there an account? Are you reading the actual transcripts of the?
 
@@ -846,15 +846,15 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:48:33] Adam: Yeah.
 
-[00:48:33] Andy Weir: He was a Gemini astronaut and an Apollo astronaut. He was the commander of Apollo sixteen and he was the first space shuttle commander. Like this guy's
+[00:48:33] Andy Weir: He was a Gemini astronaut and an Apollo astronaut. He was the commander of Apollo 16 and he was the first space shuttle commander. Like this guy's
 
 [00:48:40] Adam: Bridging whole eras
 
-[00:48:41] Andy Weir: astronaut, right? Okay. Um. He he's got a lot of interesting stories to him, but my favorite is Apollo sixteen when they're launching. You know they have bio monitors on and they monitor you know everybody's heart rate and everything, breathing rate, heart rate, blood pressure, everything. Of course, during the launches, everybody's heart rate spikes, right? Right. So you go like Apollo eleven when it was launching Armstrong, Aldrin, Connors, their their Collins, sorry, um, their their heart rates like spiked up to one forty, one fifty.
+[00:48:41] Andy Weir: astronaut, right? Okay. Um. He he's got a lot of interesting stories to him, but my favorite is Apollo 16 when they're launching. You know they have bio monitors on and they monitor you know everybody's heart rate and everything, breathing rate, heart rate, blood pressure, everything. Of course, during the launches, everybody's heart rate spikes, right? Right. So you go like Apollo 11 when it was launching Armstrong, Aldrin, Connors, their their Collins, sorry, um, their their heart rates like spiked up to one forty, one fifty.
 
 [00:49:11] Adam: Yeah.
 
-[00:49:11] Andy Weir: You know, normal resting heart rate is like sixty, seventy, right? Uh, John Young's on the Apollo sixteen launch never got above seventy. So it's like what your heart rate is right now.
+[00:49:11] Andy Weir: You know, normal resting heart rate is like sixty, seventy, right? Uh, John Young's on the Apollo 16 launch never got above seventy. So it's like what your heart rate is right now.
 
 [00:49:22] Adam: That's what he was pulling. What six Gs?
 

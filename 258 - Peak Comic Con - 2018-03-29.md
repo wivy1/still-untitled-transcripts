@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:02:20] Will: Yeah.
 
-[00:02:20] Will: Like there was a couple of days, maybe two weeks ago, where we just started having alarms that we didn't set off going off at two two o'clock in the morning, two twenty in the morning, two forty five in the morning. Then I unplugged it, so I don't know how much longer it would have gone. And then last night I was laying in bed getting ready to go to sleep, and it was just like the time is twelve twenty two. I was like, " Well, I didn't ask you what the time was. Why are you talking to me?" So I'm I went from I've done the other I yeah I rebooted it. It seems to it seems to help temporarily. I don't know what's going on with it. It's weird.
+[00:02:20] Will: Like there was a couple of days, maybe two weeks ago, where we just started having alarms that we didn't set off going off at two two o'clock in the morning, 2:20 in the morning, 2:45 in the morning. Then I unplugged it, so I don't know how much longer it would have gone. And then last night I was laying in bed getting ready to go to sleep, and it was just like the time is 12:22. I was like, " Well, I didn't ask you what the time was. Why are you talking to me?" So I'm I went from I've done the other I yeah I rebooted it. It seems to it seems to help temporarily. I don't know what's going on with it. It's weird.
 
 [00:02:48] Adam: Here's the thing: I had a lovely dinner with the CTO of a large Fortune five hundred company, and he has like five of these in his house. And it's controlling over a hundred smart devices in his life, and as far as he was concerned, like it was all a net awesome. Oh, right. Like, and I so that made me like, yeah, okay, let's give this a shot.
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:12:46] Norm: That feeling of belong somewhere is less scarce these days because of internet communities and because there are these cons almost every other weekend.
 
-[00:12:56] Will: And Marvel has released twenty billion dollar movies about superheroes.
+[00:12:56] Will: And Marvel has released 20 billion dollar movies about superheroes.
 
 [00:13:00] Norm: Eighteen movies over ten years exactly. So, what is what is the next evolution of a comic book convention? Is it moving toward like a Pax or a Dragon Con where it's less about booths and it's more about small panels that people can go in and meeting spaces?
 

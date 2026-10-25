@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:11:52] Will: was when I was in college or high school, probably
 
-[00:11:54] Adam: Maybe a little later. At any rate, I remember sitting watching Joy Luck Club and being quite moved by it. Um, my father was ill. He is, uh, my dad Passed away in ninety nine of Alzheimer's after a really long and terrible bout with it. And anyone who has gone through that; it's just unforgiving and terrible thing to go through. Uh, and Joy Luck Club, which is about family heritage and about lineage and about mothers and daughters, but you know, easily transferable in my mind to fathers and sons, really affected me emotionally. But I remember specifically being in the theater and being mad that I was being manipulated, right? Like, oh, movies, they just manipulate your emotions; it's not real. And now I am like, manipulate my emotions, please.
+[00:11:54] Adam: Maybe a little later. At any rate, I remember sitting watching Joy Luck Club and being quite moved by it. Um, my father was ill. He is, uh, my dad Passed away in '99 of Alzheimer's after a really long and terrible bout with it. And anyone who has gone through that; it's just unforgiving and terrible thing to go through. Uh, and Joy Luck Club, which is about family heritage and about lineage and about mothers and daughters, but you know, easily transferable in my mind to fathers and sons, really affected me emotionally. But I remember specifically being in the theater and being mad that I was being manipulated, right? Like, oh, movies, they just manipulate your emotions; it's not real. And now I am like, manipulate my emotions, please.
 
 [00:12:39] Adam: I need some of that.
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:16:01] Adam: the the the. Brazil came out very close to the same, if not the same year, that the first Batman movie came out. Tim Burton's Batman
 
-[00:16:10] Norm: Eighty-nine.
+[00:16:10] Norm: '89.
 
 [00:16:10] Will: I love the first Batman movie.
 

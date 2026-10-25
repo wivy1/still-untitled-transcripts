@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:03:51] Will: You're talking about Madison, Washington, and Madison, Washington, Jefferson, and Franklin to a lesser extent.
 
-[00:03:55] Adam: Yeah. Um, but then the mental giants that they were. I mean, seriously, I remember this one of the first things I remember my dad telling me about American history is the thing you have to understand is the founding fathers were were all of them geniuses. Like we're not even qualifying that. Like it's astounding, and this really sort of shows that. And Miranda read the book Hamilton Chernoff's biography of Hamilton in two thousand nine, and he said his first thought was, " I can't believe no one's written a musical about this before." But then it turns out that Hamilton grew up grew up in in Saint Croix in the in the Caribbean, and and when he was seventeen, a hurricane destroyed his island, and he wrote a poem about it. And the poem got him a trip to America. People people on the island were like, " Oh, this kid is such an amazing writer. He's he should go to New York." And this is what Miranda says: is there is nothing more rap than a kid from the streets moving up because of his because of the power of the word?
+[00:03:55] Adam: Yeah. Um, but then the mental giants that they were. I mean, seriously, I remember this one of the first things I remember my dad telling me about American history is the thing you have to understand is the founding fathers were were all of them geniuses. Like we're not even qualifying that. Like it's astounding, and this really sort of shows that. And Miranda read the book Hamilton Chernoff's biography of Hamilton in 2009, and he said his first thought was, " I can't believe no one's written a musical about this before." But then it turns out that Hamilton grew up grew up in in Saint Croix in the in the Caribbean, and and when he was seventeen, a hurricane destroyed his island, and he wrote a poem about it. And the poem got him a trip to America. People people on the island were like, " Oh, this kid is such an amazing writer. He's he should go to New York." And this is what Miranda says: is there is nothing more rap than a kid from the streets moving up because of his because of the power of the word?
 
 [00:04:57] Will: Yeah.
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:07:42] Adam: And it's pretty dense,
 
-[00:07:43] Will: epic, but it's it's dense, and it jumps back and forth in in places and times. The framework story is takes place on Earth over the last sixty years or so, starting in the Chinese Cultural Revolution, which happened in the late fifties, started in the late fifties, early sixties. We've talked about it a little bit. It's interesting to me. Because it it parallels our kind of modern American rejection of science and scientific scientific study,
+[00:07:43] Will: epic, but it's it's dense, and it jumps back and forth in in places and times. The framework story is takes place on Earth over the last sixty years or so, starting in the Chinese Cultural Revolution, which happened in the late '50s, started in the late '50s, early '60s. We've talked about it a little bit. It's interesting to me. Because it it parallels our kind of modern American rejection of science and scientific scientific study,
 
 [00:08:09] Adam: such as the cultural revolution.
 
@@ -170,9 +170,9 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:10:41] Adam: Just to flip over, but I love the book. Sets up some things in the beginning that you are like, I have no idea why that's how that would be possible,
 
-[00:10:48] Will: and and you know what, the framework story I got it wrong. The framework story is in the eighties or modern current day.
+[00:10:48] Will: and and you know what, the framework story I got it wrong. The framework story is in the '80s or modern current day.
 
-[00:10:53] Norm: The framework story is in for a little past. Modern day, so it's jumps between nineteen, late, late seventies and twenty twenty say forty more than forty years later.
+[00:10:53] Norm: The framework story is in for a little past. Modern day, so it's jumps between nineteen, late, late '70s and 2020 say forty more than forty years later.
 
 [00:11:02] Adam: It sets up some things where you're like, I have no idea how they're going to explain that that happened, and then they explain how it happened, and you're like, Oh, that is so cool! Like, there's a but. There's several times reading it, I was kind of blown away and actually a little destabilized. And here's where I think we should get to spoilers here.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:27:48] Norm: Yeah, and that. Is an analog to the machine of the Cultural Revolution of all these independent, a less organized computer. But it is a, you know, in mass over history, when you have millions of people uniting to do one thing, they get a result. And he says that in the beginning, like it's like a CPU, what the soldiers were doing.
 
-[00:28:07] Will: It's the thing that was neat about this was it was it was very similar to, and I can't remember the movie. There's a movie where a guy has to go back in time. Oh, it's the eleven twenty two sixty three.
+[00:28:07] Will: It's the thing that was neat about this was it was it was very similar to, and I can't remember the movie. There's a movie where a guy has to go back in time. Oh, it's the 11.22.63.
 
 [00:28:16] Adam: Oh,
 

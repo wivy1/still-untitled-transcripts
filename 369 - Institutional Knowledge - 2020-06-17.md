@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:08:08] Norm: The side shields.
 
-[00:08:10] Will: You can also get clip-on side shields too. I I they're they're not particularly comfortable, but also getting a piece of metal in your eye probably isn't very comfortable too. I guess it's what the shop teacher in me would say. Um, I I my Adam, if it helps, I had a friend who used to tell a story about his high school shop teacher who didn't wear glasses. This was in the 80s, before lawyers were a thing, apparently. And he said that the shop teacher said, " Look, if everybody wore safety glasses all the time, you wouldn't have contact lenses in your eyes right now because we would have never known that you can have plastic in your eyes with no irritation had it not been for the you know the Pilots who got canopy shards embedded in their eyeballs in World War II. So, you know, you're doing science over there.
+[00:08:10] Will: You can also get clip-on side shields too. I I they're they're not particularly comfortable, but also getting a piece of metal in your eye probably isn't very comfortable too. I guess it's what the shop teacher in me would say. Um, I I my Adam, if it helps, I had a friend who used to tell a story about his high school shop teacher who didn't wear glasses. This was in the '80s, before lawyers were a thing, apparently. And he said that the shop teacher said, " Look, if everybody wore safety glasses all the time, you wouldn't have contact lenses in your eyes right now because we would have never known that you can have plastic in your eyes with no irritation had it not been for the you know the Pilots who got canopy shards embedded in their eyeballs in World War II. So, you know, you're doing science over there.
 
 [00:08:50] Adam: Neal Stephenson told me this mind-blowing story when I was doing work on the MythBusters whip episode, capturing the speed of a whip at its tip. And Neal had done a huge amount of, of course, Neal-level deep research on whips as part of uh, Seveneves.
 
@@ -302,11 +302,11 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:24:14] Adam: The Vast of Night.
 
-[00:24:15] Norm: The vast of night. It's a great name. It's a hugely inspired by Twilight Zone. A story about a small town in New Mexico in, I believe, the 50s, and something weirds happening.
+[00:24:15] Norm: The vast of night. It's a great name. It's a hugely inspired by Twilight Zone. A story about a small town in New Mexico in, I believe, the '50s, and something weirds happening.
 
 [00:24:27] Adam: Oh, right. Area 51. Somebody discovers something.
 
-[00:24:30] Norm: Kind of. Yeah. I don't want to give too many spoilers, but it's a small small town feel. Two central characters. One is a aspiring DJ on the radio. You know, it's in the 50s, in that era where
+[00:24:30] Norm: Kind of. Yeah. I don't want to give too many spoilers, but it's a small small town feel. Two central characters. One is a aspiring DJ on the radio. You know, it's in the '50s, in that era where
 
 [00:24:41] Will: yeah,
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:29:06] Will: Oh, wow!
 
-[00:29:06] Adam: And I ended up, I ended up. This is pre-streaming, so this is early aughts. And I went and bought the DVD, and I watched it. I really liked it, and then I saw that Roger Ebert did the commentary, and I thought that sounds really worth watching. So I watched it twice in a row. The second time with Roger Ebert's commentary, and what a what an amazing education in film it is to watch that movie and then immediately watch it again. Because first of all, it's completely watchable twice in a row without any.
+[00:29:06] Adam: And I ended up, I ended up. This is pre-streaming, so this is early 2000s. And I went and bought the DVD, and I watched it. I really liked it, and then I saw that Roger Ebert did the commentary, and I thought that sounds really worth watching. So I watched it twice in a row. The second time with Roger Ebert's commentary, and what a what an amazing education in film it is to watch that movie and then immediately watch it again. Because first of all, it's completely watchable twice in a row without any.
 
 [00:29:41] Will: Oh, yeah.
 

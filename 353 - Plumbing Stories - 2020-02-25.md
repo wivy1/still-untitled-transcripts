@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:07:36] Adam: Was it almost an hour? It felt like twenty five minutes.
 
-[00:07:38] Norm: You had some, and that was the thing. Like we went with the plan because you've watched our people out there have watched our video series. Every time we've been to Weta, it's different. The first time we went twenty sixteen, it was very specifically we're covering these film projects they were working on. It was Ghost in the Shell. We had you embedded with Peter Lyon to make a sword essentially a two day one day build there, and then the last time we went in twenty eighteen, it was a full week for a project that we initiated, which was the short film
+[00:07:38] Norm: You had some, and that was the thing. Like we went with the plan because you've watched our people out there have watched our video series. Every time we've been to Weta, it's different. The first time we went 2016, it was very specifically we're covering these film projects they were working on. It was Ghost in the Shell. We had you embedded with Peter Lyon to make a sword essentially a two day one day build there, and then the last time we went in 2018, it was a full week for a project that we initiated, which was the short film
 
 [00:08:05] Adam: Farewell to Arms.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:12:55] Will: Oh, that sounds great.
 
-[00:12:56] Adam: Between the IRA and the Mafia in the nineteen seventies.
+[00:12:56] Adam: Between the IRA and the Mafia in the 1970s.
 
 [00:12:59] Will: That sounds perfect.
 
@@ -902,11 +902,11 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:32:03] Unknown speaker (Adam or Will): Yep.
 
-[00:32:03] Norm: This is Weta putting together these six large-scale 2.4x humans and diorama pieces about the the soldiers and the people who participated in Gallipoli. But they also have this exhibit running through March 8th. That's about Alice in Wonderland. It was created by the Australian Center for Moving Image, basically the Aussie version of the New York Museum of Moving Image, which any Institution that celebrates, you know, cinema and television and computer games, and this is about Alice in Wonderland. It's called Wonderland. It's there through March eighth. Highly recommended.
+[00:32:03] Norm: This is Weta putting together these six large-scale 2.4x humans and diorama pieces about the the soldiers and the people who participated in Gallipoli. But they also have this exhibit running through March 8th. That's about Alice in Wonderland. It was created by the Australian Center for Moving Image, basically the Aussie version of the New York Museum of Moving Image, which any Institution that celebrates, you know, cinema and television and computer games, and this is about Alice in Wonderland. It's called Wonderland. It's there through March 8. Highly recommended.
 
 [00:32:38] Will: Is it Any particular version or all versions?
 
-[00:32:39] Norm: It's forty different portrayals of Alice through the history of cinema, because the story of Alice predates cinema, and it's surreal. It's interactive. They have projection mapping, and it's at the Te Papa till March eighth.
+[00:32:39] Norm: It's forty different portrayals of Alice through the history of cinema, because the story of Alice predates cinema, and it's surreal. It's interactive. They have projection mapping, and it's at the Te Papa till March 8.
 
 [00:32:54] Adam: How amazing!
 
@@ -938,7 +938,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:33:45] Norm: Well, what's going on new in your world?
 
-[00:33:47] Will: Uh, new episode of Tech Pod is out this week. It's a Q and A episode. We've done we we made a ranking of Windowses over the last two weeks. Windowses. We started with Windows three point oh, maybe three point one, and went all and and like talked through like it's it was interesting to go through and talk through twenty five thirty years of of of you know what was the dominant operating system for a really long time, still is,
+[00:33:47] Will: Uh, new episode of Tech Pod is out this week. It's a Q and A episode. We've done we we made a ranking of Windowses over the last two weeks. Windowses. We started with Windows 3.0, maybe 3.1, and went all and and like talked through like it's it was interesting to go through and talk through twenty five thirty years of of of you know what was the dominant operating system for a really long time, still is,
 
 [00:34:09] Norm: yeah,
 
@@ -948,4 +948,4 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:34:30] Will: Thanks, everybody.
 
-[00:34:32] Norm: Hey, everybody. Norm here. Thanks for listening to the podcast. And before I let you go, I need your help. Tested and Still Untitled needs your help in order to keep this show going. We need the help of great advertisers, and we want to make sure those advertisers are the ones you actually want to hear about. So please go to podsurvey dot com slash untitled and take a quick anonymous survey that will help us get to know you better. That way, we can make sure that we're bringing on advertisers who are relevant to you. And once you've completed this quick survey, you can enter for a chance to win a one hundred dollar Amazon gift card. Terms and conditions apply. Once again, that's podsurvey dot com slash untitled. Thank you so much for listening to the show. Thank you for your continued support. Really appreciate you filling out this survey, and we'll see you next time.
+[00:34:32] Norm: Hey, everybody. Norm here. Thanks for listening to the podcast. And before I let you go, I need your help. Tested and Still Untitled needs your help in order to keep this show going. We need the help of great advertisers, and we want to make sure those advertisers are the ones you actually want to hear about. So please go to podsurvey dot com slash untitled and take a quick anonymous survey that will help us get to know you better. That way, we can make sure that we're bringing on advertisers who are relevant to you. And once you've completed this quick survey, you can enter for a chance to win a 100 dollar Amazon gift card. Terms and conditions apply. Once again, that's podsurvey dot com slash untitled. Thank you so much for listening to the show. Thank you for your continued support. Really appreciate you filling out this survey, and we'll see you next time.

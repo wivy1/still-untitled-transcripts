@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:06:04] Will: So did a lot of other kids.
 
-[00:06:05] Adam: Yeah. Wow. But also imagine. That if he was still there in two thousand six, and he was teaching me in nineteen eighty five, it
+[00:06:05] Adam: Yeah. Wow. But also imagine. That if he was still there in 2006, and he was teaching me in 1985, it
 
 [00:06:13] Will: was a completely different science back then.
 
@@ -576,7 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:20:52] Unknown speaker: Oh, that's awesome.
 
-[00:20:52] Adam: I had brought my Canon five D, so I took some beautiful, clear pictures of it, and I am going to dive back in.
+[00:20:52] Adam: I had brought my Canon 5D, so I took some beautiful, clear pictures of it, and I am going to dive back in.
 
 [00:20:58] Frank Ippolito: You make a new dodo?
 

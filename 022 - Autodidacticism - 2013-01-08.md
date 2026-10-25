@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:01:43] Will: Um, and I wanted I was just curious about you know what your— like if you have a usual approach or if it kind of changes on a on a product on a project-by-project basis.
 
-[00:01:50] Adam: Well, of course there are particulars that change on a project-by-project basis, but the way you phrase that there is is kind of telling. I think from a cultural standpoint. Because you listed out the things that anybody would, anybody reasonable would put on a list of ways to learn something. You read, you ask people, you ask for advice, you seek out videos, et cetera. And then at the end, you said, "And I made some mistakes, and I learned something." But the the that last part that makes some mistakes that's that's that's ninety percent of it. I mean, that's so. To me, I can't learn. I can learn about things in the abstract, but to learn things themselves, I need a project and I need to apply myself to getting something done that I want in order to learn that thing.
+[00:01:50] Adam: Well, of course there are particulars that change on a project-by-project basis, but the way you phrase that there is is kind of telling. I think from a cultural standpoint. Because you listed out the things that anybody would, anybody reasonable would put on a list of ways to learn something. You read, you ask people, you ask for advice, you seek out videos, et cetera. And then at the end, you said, "And I made some mistakes, and I learned something." But the the that last part that makes some mistakes that's that's that's 90% of it. I mean, that's so. To me, I can't learn. I can learn about things in the abstract, but to learn things themselves, I need a project and I need to apply myself to getting something done that I want in order to learn that thing.
 
 [00:02:39] Will: And this for me, I reached a point where I had read, you know, because I was looking at buying a fair amount of materials and kind of spending kind of a lot of money on this, and I reached a point where I just I I had to start doing something.
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:06:23] Adam: And it's like that's what's going to happen. You're going to lose things while you go. You're going to break things. You're going to strip things.
 
-[00:06:29] Will: Well, it definitely adds stress if you know you have you know maybe maybe thirty percent more material than you need, and you have one day to do whatever cutting or whatever work. You know, you rent a tool, you borrow something from someone, you have a limited amount of time to do stuff, and then you reach the end of that, and you're like, "Oh shit, I cut this one a quarter inch short. I'm going to have to do it over." Yeah, and then you have to play some sort of mental jigsaw puzzle to figure out where you can get the extra the extra piece from without messing up your whole project. Or having to spend more time and more money, and—
+[00:06:29] Will: Well, it definitely adds stress if you know you have you know maybe maybe 30% more material than you need, and you have one day to do whatever cutting or whatever work. You know, you rent a tool, you borrow something from someone, you have a limited amount of time to do stuff, and then you reach the end of that, and you're like, "Oh shit, I cut this one a quarter inch short. I'm going to have to do it over." Yeah, and then you have to play some sort of mental jigsaw puzzle to figure out where you can get the extra the extra piece from without messing up your whole project. Or having to spend more time and more money, and—
 
 [00:06:56] Adam: Yeah, or you've made a wrong cut. You have to figure out how to scab two pieces together to be the one piece you need, which I've done countless.
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:21:09] Unknown speaker: Mm-hmm.
 
-[00:21:10] Adam: And School of Rock does have lessons in music theory and technique, but I don't think that that's where they're learning. I think they're learning about ten percent of what they know from that. The rest is learning to play songs.
+[00:21:10] Adam: And School of Rock does have lessons in music theory and technique, but I don't think that that's where they're learning. I think they're learning about 10% of what they know from that. The rest is learning to play songs.
 
 [00:21:22] Will: So they're downloading tablature, getting sheet music, or whatever, and just plucking away at it until it sounds right.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:24:40] Unknown speaker: Yeah. Yeah.
 
-[00:24:42] Adam: With a standard issue, you know, seven-hundred-dollar MIG welder is genuinely easy.
+[00:24:42] Adam: With a standard issue, you know, 700-dollar MIG welder is genuinely easy.
 
 [00:24:46] Will: Well, and if you're worried about safety on stuff like that, then you can go to pretty much any. If there is a shared workspace, like a TechShop or something like that, you can go there and they'll teach you a safety class.
 

@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:21:04] Will: Or life, yeah.
 
-[00:21:04] Adam: and and and sometimes it's a it's a it's a fence post. Should I go get stitches? Shouldn't I? And I've had like I cut myself on a bandsaw about eight years ago, ten years ago, and the second I did it, I'm like hospital. I knew without even looking at it that this was a hospital visit. This one, this one, hundred percent. This is a hospital visit. This is totally stitch worthy. Um, but again, at this moment in time, I don't want to get around doctors. Well, I don't want to waste their time. I don't want to expose myself.
+[00:21:04] Adam: and and and sometimes it's a it's a it's a fence post. Should I go get stitches? Shouldn't I? And I've had like I cut myself on a bandsaw about eight years ago, ten years ago, and the second I did it, I'm like hospital. I knew without even looking at it that this was a hospital visit. This one, this one, 100%. This is a hospital visit. This is totally stitch worthy. Um, but again, at this moment in time, I don't want to get around doctors. Well, I don't want to waste their time. I don't want to expose myself.
 
 [00:21:35] Will: I I was gonna say this is the threshold for. Do I take a picture of this before I have to sit down? Right.
 

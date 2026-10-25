@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:05:12] Adam: Not only that, but the process is just so much more complicated and so much more winding. When we talk about failure with kids, we need to teach kids to fail safely. We mean exactly that. We mean you're not going to end up where you think you are, and that's actually the point. And I know from all my friends that have worked with J. J. on the Star Wars films, he is always up for a better solution. He's always interested in a different way of doing something. He is when he knows how to do it. He is he moves forward with all of his confidence, and if he's not sure, he's taking opinions and he's making the best call that he can. And he's, as he said on stage. Every day he shows up on set and he's like, " This one's going to be easy." He totally whack.
 
-[00:05:55] Norm: Right, and and like we're in the business of documenting process. That's what we do with one day builds. And as we've learned, unless it's being documented, even when it's being documented, there's so much. There's still fifty percent you don't see on camera. And so, also, I mean, part of what you do is process archaeology.
+[00:05:55] Norm: Right, and and like we're in the business of documenting process. That's what we do with one day builds. And as we've learned, unless it's being documented, even when it's being documented, there's so much. There's still 50% you don't see on camera. And so, also, I mean, part of what you do is process archaeology.
 
 [00:05:55] Adam: Yeah,
 
@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:06:55] Adam: Nice segue. Well done.
 
-[00:06:56] Norm: We have a show in San Francisco, October twenty eighth. It's called Tested, Deconstructed, and it's going to be Adam, Simone, Tested Team, some of our friends in the maker community, talking about their processes. So it's going to be unearthing and peeling back the layers of their work. So.
+[00:06:56] Norm: We have a show in San Francisco, October 28. It's called Tested, Deconstructed, and it's going to be Adam, Simone, Tested Team, some of our friends in the maker community, talking about their processes. So it's going to be unearthing and peeling back the layers of their work. So.
 
 [00:07:13] Unknown speaker (Norm or Adam): I can't wait.
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:09:15] Norm: right. You know, I think George Lucas had to learn the hard way when he came back and did the original trilogy or the the the prequels. You know that maybe to let it go, and he did let it go eventually. Uh, but yeah, the audience audience member did bring up the question. I thought very very gracefully too in in asking about lessons learned. What lessons would you take from seven to nine?
 
-[00:09:38] Adam: So so so don't get me wrong. There's Part of me that actually, I absolutely would love to know the inner machinations. I just read about the fact that Luke, that Lucasfilm and Disney had to pay Paramount a large sum to get JJ out of his ten million dollar year contract with Paramount
+[00:09:38] Adam: So so so don't get me wrong. There's Part of me that actually, I absolutely would love to know the inner machinations. I just read about the fact that Luke, that Lucasfilm and Disney had to pay Paramount a large sum to get JJ out of his 10,000,000 dollar year contract with Paramount
 
 [00:09:38] Norm: Right.
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:10:29] Adam: we got some insulting tweets about that.
 
-[00:10:30] Norm: I don't know why was that the case. So we we we were hooked up with a fan of the site, Tommy Williamson, who runs website BrickNerd dot com, and. The Lego community—they're—they're ravenous. They're like—they're obsessed. They're in the best way possible. And this guy Tommy came up to our office, to our shop, and we—he had one of the, I think, the dozen only Millennium Falcon UCS. This is the Lego set with seventy-five hundred pieces, eight hundred dollars. People can buy it in the states at the end of the month. He got a review unit, and we helped him build it, and it was like a two-day,
+[00:10:30] Norm: I don't know why was that the case. So we we we were hooked up with a fan of the site, Tommy Williamson, who runs website BrickNerd dot com, and. The Lego community—they're—they're ravenous. They're like—they're obsessed. They're in the best way possible. And this guy Tommy came up to our office, to our shop, and we—he had one of the, I think, the dozen only Millennium Falcon UCS. This is the Lego set with seventy-five hundred pieces, 800 dollars. People can buy it in the states at the end of the month. He got a review unit, and we helped him build it, and it was like a two-day,
 
 [00:11:08] Unknown speaker (Adam or Norm): twelve solid hours, twelve solid hours.
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:12:28] Norm: I'm more than happy to watch, and other people who have since bought the set because I think you can buy it overseas now. I enjoy watching their videos too of them building. There's some really really great ones out there. People are like just meticulous in how they they made like they've done stop motion videos really. Beautiful, like it's relaxing to watch people assemble Lego.
 
-[00:12:50] Adam: Um, and and and finishing that beautiful, it was about thirty-three inches long. It's a large, yeah, it's a large model. Got me to pull down my DeAgostini Falcon. I've been a subscriber to the net to the DeAgostini Millennium Falcon. It's a hundred separate, uh, steps, a separate issues. You get four per month for two years, and it's fifty bucks a month. So I, I guess I paid just under a grand for this thing, which is honestly for a thirty-two inch model kit of the Millennium Falcon, which is the size of the studio scale one for Empire Strikes Back. It's pretty damn good deal.
+[00:12:50] Adam: Um, and and and finishing that beautiful, it was about 33 inches long. It's a large, yeah, it's a large model. Got me to pull down my DeAgostini Falcon. I've been a subscriber to the net to the DeAgostini Millennium Falcon. It's a hundred separate, uh, steps, a separate issues. You get four per month for two years, and it's fifty bucks a month. So I, I guess I paid just under a grand for this thing, which is honestly for a thirty-two inch model kit of the Millennium Falcon, which is the size of the studio scale one for Empire Strikes Back. It's pretty damn good deal.
 
 [00:13:27] Jeremy Williams: I didn't know it was the same size.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:19:12] Norm: One, then you get a big, big package with all the all the issues again. Do you get a break on that?
 
-[00:19:16] Adam: Is it like six hundred fifty dollars instead of a thousand?
+[00:19:16] Adam: Is it like 650 dollars instead of a thousand?
 
 [00:19:18] Norm: I don't think so. Yeah, you have to check. But like, they their website has pretty good models. I I did some research because I'm also on a Enterprise Star Trek Enterprise model kick, and I have some Bandai ones and Jim and you and I built some Bandai ones. But DeAgostini had one that they prototype and they had to ad for video ad for, and then it failed, like because it they did not enough not enough orders. They went through like eight issues, and this is an Enterprise D with a cutaway, so you can see all the decks and all the levels.
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:22:06] Adam: I didn't give you a natural segue, sorry.
 
-[00:22:07] Norm: No, no, it's okay. And talk about crunchiness and and lived in worlds. The thing that the thing, another thing that came on the past week that I think we missed not to talk about is we revealed you revealed that you had a a cameo in the short film promoting Blade Runner twenty forty nine.
+[00:22:07] Norm: No, no, it's okay. And talk about crunchiness and and lived in worlds. The thing that the thing, another thing that came on the past week that I think we missed not to talk about is we revealed you revealed that you had a a cameo in the short film promoting Blade Runner 2049.
 
 [00:22:23] Adam: I did. Yes i we I spent some I spent a week on set in Budapest.
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:24:59] Adam: Ridley Scott's son.
 
-[00:25:00] Norm: Yeah, it kind of establishes the world. This this one's called, um, like twenty forty eight, I think.
+[00:25:00] Norm: Yeah, it kind of establishes the world. This this one's called, um, like 2048, I think.
 
 [00:25:07] Jeremy Williams: Is it, is this a new one?
 

@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:01:29] Will: Is that the one where you went down the hill on the waterslide?
 
-[00:01:30] Adam: the two hundred and twenty foot slide and flew through the air?
+[00:01:30] Adam: the 220 foot slide and flew through the air?
 
 [00:01:32] Will: That would look really dangerous.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:09:15] Adam: yes,
 
-[00:09:15] Norm: dropped on July fourth, July third, maybe. I've binged it all.
+[00:09:15] Norm: dropped on July 4, July 3, maybe. I've binged it all.
 
 [00:09:19] Norm: Did you see any of it? I
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:10:07] Unknown speaker (Adam or Will): Oh, good!
 
-[00:10:07] Norm: It is so much better. I don't want to go to any spoilers, but where season two has a lot of, you know, pop culture references, not only with the music but the movies at times, Ghostbusters being the thing that they really latch onto. Season three, they double down. There are like some meta level, some characters who are clear homages to eighties film characters. A new villain in the mayor, played by played by Cary Elwes.
+[00:10:07] Norm: It is so much better. I don't want to go to any spoilers, but where season two has a lot of, you know, pop culture references, not only with the music but the movies at times, Ghostbusters being the thing that they really latch onto. Season three, they double down. There are like some meta level, some characters who are clear homages to '80s film characters. A new villain in the mayor, played by played by Cary Elwes.
 
 [00:10:33] Adam: Oh, yeah, yeah,
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:10:46] Adam: Oh,
 
-[00:10:46] Norm: yeah, yeah. But he is the perfectly eighties actor to bring into a show to pay tribute to the eighties,
+[00:10:46] Norm: yeah, yeah. But he is the perfectly '80s actor to bring into a show to pay tribute to the '80s,
 
 [00:10:52] Unknown speaker (Adam or Norm): Cause you’d be like, hey, it’s that guy,
 
@@ -500,9 +500,9 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:16:53] Adam: Yeah, this is this is my Excalibur. I have yet to make a scabbard for it or to finish the grip, but these are future plans.
 
-[00:17:03] Norm: I mean, this is also it's Excalibur, so two interesting things. One, the design of it, right? Mm-hmm. Mm-hmm. So you went through this. Book to pick out a tenth century designed.
+[00:17:03] Norm: I mean, this is also it's Excalibur, so two interesting things. One, the design of it, right? Mm-hmm. Mm-hmm. So you went through this. Book to pick out a 10th century designed.
 
-[00:17:12] Adam: Well, so the the the classic book is Oakeshott's Book of Swords, and I don't know how you pronounce it, whether it's Oak-a-shot or Oakshot. But Oakeshott, I knew I know about this book because I was told about it by Peter Lyon, swordmaster at Weta, and basically Oakeshott developed the typology of swords, types ten through sixteen, I believe, with all these subsets, Mm-hmm. Um, and it’s everything from the Roman gladius to you know the last swords that were being made in the like sixteenth century, seventeenth.
+[00:17:12] Adam: Well, so the the the classic book is Oakeshott's Book of Swords, and I don't know how you pronounce it, whether it's Oak-a-shot or Oakshot. But Oakeshott, I knew I know about this book because I was told about it by Peter Lyon, swordmaster at Weta, and basically Oakeshott developed the typology of swords, types ten through sixteen, I believe, with all these subsets, Mm-hmm. Um, and it’s everything from the Roman gladius to you know the last swords that were being made in the like 16th century, 17th.
 
 [00:17:43] Will: Cutlasses and
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:17:43] Will: Yeah, the whole thing.
 
-[00:17:44] Adam: And so yes, believing that the Arthurian legend comes about around the twelfth century, but supposedly happened way back when. I chose a tenth eleventh century sword design because I figured that's what the twelfth century people would have pictured in their heads as a ye olde sword.
+[00:17:44] Adam: And so yes, believing that the Arthurian legend comes about around the 12th century, but supposedly happened way back when. I chose a 10th 11th century sword design because I figured that's what the 12th century people would have pictured in their heads as a ye olde sword.
 
 [00:18:04] Will: Yeah.
 
@@ -694,9 +694,9 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:25:05] Adam: I'm going to DC to to be participating in a couple of different live stage events. The fiftieth anniversary of Apollo. There's one on the Mall on the nineteenth.
 
-[00:25:16] Will: Of Apollo Eleven, specifically.
+[00:25:16] Will: Of Apollo 11, specifically.
 
-[00:25:17] Adam: excuse me, Apollo Eleven. Yeah, and then there's one on the twentieth at the Kennedy Center. There's also a dinner. There's also Jen Schachter and I are going to be assembling Project Egress. Forty four makerspaces contributed parts to this Microsoft product division. Jimmy DiResta, Kate Nevelin, and Bill Doran, all sorts of friends of ours from all across the world, have been building parts for the last month for Project Egress, which is a multiple makerspace calico, exquisite corpse assemblage of the escape hatch from the Apollo command capsule.
+[00:25:17] Adam: excuse me, Apollo 11. Yeah, and then there's one on the twentieth at the Kennedy Center. There's also a dinner. There's also Jen Schachter and I are going to be assembling Project Egress. Forty four makerspaces contributed parts to this Microsoft product division. Jimmy DiResta, Kate Nevelin, and Bill Doran, all sorts of friends of ours from all across the world, have been building parts for the last month for Project Egress, which is a multiple makerspace calico, exquisite corpse assemblage of the escape hatch from the Apollo command capsule.
 
 [00:25:17] Unknown speaker (Adam or Will): Uh,
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:25:58] Adam: all individual parts, forty four separate parts, hinges, linkages, gearboxes, everything, each made by different makerspace. And while they had to get the size exactly right because we have hole patterns to match, they could make it out of any material and they could paint in any way that they wanted.
 
-[00:26:12] Will: First off, it's amazing because I know a lot of people are doing three D printing stuff. I think Jimmy. He posted stuff on Instagram stories about his process for his, and he 3D printed and then recreated the 3D print in materials that he's more that he likes better. And like it, yeah, it's it's it's it's astounding that we've come so far in such a in the last ten years. Because if you tried to do this and people were doing 3D printed stuff ten years ago,
+[00:26:12] Will: First off, it's amazing because I know a lot of people are doing 3D printing stuff. I think Jimmy. He posted stuff on Instagram stories about his process for his, and he 3D printed and then recreated the 3D print in materials that he's more that he likes better. And like it, yeah, it's it's it's it's astounding that we've come so far in such a in the last ten years. Because if you tried to do this and people were doing 3D printed stuff ten years ago,
 
 [00:26:38] Adam: oh, it
 
@@ -738,7 +738,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:28:33] Will: Well, and like I want to, I think it's great that people are making their own sets, but I want to hear about like people that work in maker spaces or work in shared shops that everybody takes a component and does their own work and and does the same thing on a different different scale. Yeah, this is it's this is a fascinating kind of project. It
 
-[00:28:49] Adam: is, and and the more you read into the creation of this hatch, the creation of this hatch is unfortunately came about because of the tragedy of Apollo One. The three astronauts burned inside the capsule on the ground, and it was an incredible engineering achievement done in a very accelerated amount of time for NASA, which you know was very change tracking happy and difficult bureaucracy to implement a fast moving project like this, and yet they totally did. So the whole story of Project Egress. Grids onto this collaborative process and what this door opens up and what it what it represents in a way that I find really resonant and lovely.
+[00:28:49] Adam: is, and and the more you read into the creation of this hatch, the creation of this hatch is unfortunately came about because of the tragedy of Apollo 1. The three astronauts burned inside the capsule on the ground, and it was an incredible engineering achievement done in a very accelerated amount of time for NASA, which you know was very change tracking happy and difficult bureaucracy to implement a fast moving project like this, and yet they totally did. So the whole story of Project Egress. Grids onto this collaborative process and what this door opens up and what it what it represents in a way that I find really resonant and lovely.
 
 [00:29:29] Will: The story of hatches and NASA. There's probably been multiple books written about that between Gus Grissom's prematurely firing, you know, explosive bolts.
 
@@ -832,7 +832,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:33:30] Will: Like there were no hobby shops that had that here. And it was something that would have been super common, maybe ten years before even.
 
-[00:33:39] Adam: Totally, totally. We don't have Radio Shack anymore. What I'd love to see, I don't know if this is possible, but could there end up being a retail supply store for makerspace needs specifically that would sell things like vinyl sheet and filament and other support material? And the problem is, there's so many hundreds of three D printers. How do you support? Who do you choose? How do you choose?
+[00:33:39] Adam: Totally, totally. We don't have Radio Shack anymore. What I'd love to see, I don't know if this is possible, but could there end up being a retail supply store for makerspace needs specifically that would sell things like vinyl sheet and filament and other support material? And the problem is, there's so many hundreds of 3D printers. How do you support? Who do you choose? How do you choose?
 
 [00:34:02] Norm: There are local places down in LA like Matter Hackers does that, and they do. You know, those places survive by being both a location based and also being an online distributor.
 
@@ -886,7 +886,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:35:53] Norm: Like tons of Bruce Lee figures.
 
-[00:35:55] Adam: It's always been a little disappointing to me. It's a very niche. It's very niche, and it's not necessarily my niche. So sometimes, but you know, I did buy I did buy some of the first reference material for my Blade Runner blaster there back in the early 90s.
+[00:35:55] Adam: It's always been a little disappointing to me. It's a very niche. It's very niche, and it's not necessarily my niche. So sometimes, but you know, I did buy I did buy some of the first reference material for my Blade Runner blaster there back in the early '90s.
 
 [00:36:10] Norm: Yeah,
 

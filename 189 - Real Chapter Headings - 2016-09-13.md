@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:08:14] Adam: The second big drive was hightailing it from Mount Rushmore all the way to Minneapolis. That was another long.
 
-[00:08:20] Will: I know, that's one of those ones that looks like, looks like it's like three inches on the map, but I assume it's about a thousand miles, eight hundred miles, something.
+[00:08:20] Will: I know, that's one of those ones that looks like, looks like it's like three inches on the map, but I assume it's about a thousand miles, 800 miles, something.
 
 [00:08:27] Adam: Yeah, it was. It was almost as long as San Francisco to Boise, if not slightly longer.
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:11:25] Will: There’s nobody there. There’s yeah.
 
-[00:11:26] Norm: Well, without cell phones back in middle school, the nineties, it's the time slows down when you're on the chairlift.
+[00:11:26] Norm: Well, without cell phones back in middle school, the '90s, it's the time slows down when you're on the chairlift.
 
 [00:11:26] Adam: Yeah,
 
@@ -632,7 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:21:02] Will: a great experience it freezes for like five minutes
 
-[00:21:22] Norm: and the reason I ask if you documented it is because that trip across country that ten day trip or however long it usually takes that is the right amount of time you see enough different things that when people used to do it in the twentieth century and they shot it with film you get this amazing story
+[00:21:22] Norm: and the reason I ask if you documented it is because that trip across country that ten day trip or however long it usually takes that is the right amount of time you see enough different things that when people used to do it in the 20th century and they shot it with film you get this amazing story
 
 [00:21:36] Adam: right right
 
@@ -652,7 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:22:49] Adam: He said the movie um is a wonderful movie starring Robert Duvall and Tess Harper called Tender Mercies, which is one of my family's favorite movies. And he said that movie communicates how beautiful that that giant sky really is.
 
-[00:23:14] Will: The first time I drove across the country was with a friend of mine from college, and we were bringing his car back from Arizona to Tennessee. We had we had. We're having fun in Phoenix, so we dilly dallied and dilly dallied, leaving, put it off and put it off, put it off. Had a crippling hangover, you know the normal stuff, and ended up with thirty six hours to get back, which for a twenty four hundred mile drive or whatever it's eighteen nineteen hundred mile drive is was aggressive even for twenty three year olds.
+[00:23:14] Will: The first time I drove across the country was with a friend of mine from college, and we were bringing his car back from Arizona to Tennessee. We had we had. We're having fun in Phoenix, so we dilly dallied and dilly dallied, leaving, put it off and put it off, put it off. Had a crippling hangover, you know the normal stuff, and ended up with thirty six hours to get back, which for a 2,400 mile drive or whatever it's eighteen nineteen hundred mile drive is was aggressive even for twenty three year olds.
 
 [00:23:39] Adam: Yeah, that's yeah. So
 
@@ -690,7 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:25:12] Will: Did you do Empire Builder from Seattle to Minnesota?
 
-[00:25:15] Adam: No, no, no, no. We did the California Zephyr from San Francisco to Chicago, through Colorado. Yeah. Is it the view out the window of a train? Is most of the time hasn't changed since they laid those tracks in the mid nineteenth century.
+[00:25:15] Adam: No, no, no, no. We did the California Zephyr from San Francisco to Chicago, through Colorado. Yeah. Is it the view out the window of a train? Is most of the time hasn't changed since they laid those tracks in the mid 19th century.
 
 [00:25:29] Will: Well, and it's usually you're often going through such desolate parts of the country. It's not like you're paralleling the freeway the entire way.
 

@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:06:41] Will: When you went to his office, did he have the drinks cart in the corner?
 
-[00:06:44] Adam: No, no, no, no, no. He had gotten out of any of the agency work long before I was born. Okay, he was. He actually formed his own agency with a partner. And they were doing their own work with amazing giants of the time, like Milton Glaser and Ivan Chermayeff and Seymour Chwast. All the guys that sort of created what you think of as the pushpin style of sixties advertising.
+[00:06:44] Adam: No, no, no, no, no. He had gotten out of any of the agency work long before I was born. Okay, he was. He actually formed his own agency with a partner. And they were doing their own work with amazing giants of the time, like Milton Glaser and Ivan Chermayeff and Seymour Chwast. All the guys that sort of created what you think of as the pushpin style of '60s advertising.
 
 [00:07:05] Will: So he was in the creative side of the agency,
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:07:43] Will: Garbage day.
 
-[00:07:43] Adam: Oh right, and that that those animations were done by an illustrator, a wonderful illustrator named Bob Blechman, and he had an animation company in Midtown, actually in the Diamond District on Forty Seventh Street, called the Ink Tank. Still one of the great names for an animation company ever. Yeah, and his office was on the top floor of this fourteen-story building in the Diamond District, and he had when he rented it, it was drop ceiling and and like drywall, and he knocked out the drywall to find all of this like wood wainscoting from the turn of the century and restored the office to its turn of the century glory.
+[00:07:43] Adam: Oh right, and that that those animations were done by an illustrator, a wonderful illustrator named Bob Blechman, and he had an animation company in Midtown, actually in the Diamond District on 47th Street, called the Ink Tank. Still one of the great names for an animation company ever. Yeah, and his office was on the top floor of this fourteen-story building in the Diamond District, and he had when he rented it, it was drop ceiling and and like drywall, and he knocked out the drywall to find all of this like wood wainscoting from the turn of the century and restored the office to its turn of the century glory.
 
 [00:08:45] Unknown speaker: Wow.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:18:16] Will: This is pre MythBusters.
 
-[00:18:18] Adam: Pre MythBusters, two thousand three. Jamie hires me out of the theater industry to work in commercial special effects, and he had just been hearing about me and said, " Hey, I heard about you. Can you come in?" And I actually was working for Berkeley Repertory Theater for Woman Warrior. Maxine Hong Kingston
+[00:18:18] Adam: Pre MythBusters, 2003. Jamie hires me out of the theater industry to work in commercial special effects, and he had just been hearing about me and said, " Hey, I heard about you. Can you come in?" And I actually was working for Berkeley Repertory Theater for Woman Warrior. Maxine Hong Kingston
 
 [00:18:32] Will: doing stage stage design.
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:24:39] Adam: Yeah.
 
-[00:24:39] Will: Um. As long as you can, I know that's that's with people coming out of school with two hundred thousand dollars worth of debt.
+[00:24:39] Will: Um. As long as you can, I know that's that's with people coming out of school with 200,000 dollars worth of debt.
 
 [00:24:39] Adam: Yeah.
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:27:40] Norm: applied to other jobs, and they all feed each other.
 
-[00:27:55] Adam: Absolutely for for a while in the early nineties, actually for a long time, for two and a half years, I worked as a backstage tech for Beach Blanket Babylon in North Beach. Now I was an understudy tech, which is an exhausting job because. Every position in Beach Blanket Babylon, which is this San Francisco institution that's been going for like thirty-five years or more, forty years maybe,
+[00:27:55] Adam: Absolutely for for a while in the early '90s, actually for a long time, for two and a half years, I worked as a backstage tech for Beach Blanket Babylon in North Beach. Now I was an understudy tech, which is an exhausting job because. Every position in Beach Blanket Babylon, which is this San Francisco institution that's been going for like thirty-five years or more, forty years maybe,
 
 [00:28:16] Norm: Had such a big anniversary?
 

@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=h0y_2ow4LKw
 
 [00:15:26] Adam: Nebraska, sorry, it is Nebraska, right? So they're pumping millions in there right now because they enjoy a very lucrative monopoly on repair.
 
-[00:15:36] Norm: Right. When you think about the Apple Store, which is the the perfect example of this, right? The Apple Store it exists not just to sell you things because they can sell you online, not as a showroom, but really the Genius Bar is where they make all the money. Where people have to come in and you're paying two hundred dollars for a cracked screen. When companies like iFixit, they can't even get access to those screens.
+[00:15:36] Norm: Right. When you think about the Apple Store, which is the the perfect example of this, right? The Apple Store it exists not just to sell you things because they can sell you online, not as a showroom, but really the Genius Bar is where they make all the money. Where people have to come in and you're paying 200 dollars for a cracked screen. When companies like iFixit, they can't even get access to those screens.
 
 [00:15:58] Will: Right.
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=h0y_2ow4LKw
 
 [00:20:29] Adam: No, no, no, no. I, I, I was just about to agree vigorously with Norm. Uh, to me, um, I purchase a piece of hardware. I have spent my whole life, um, making my toys better by taking them apart and adding features. Uh, and it's not like I am. There are things I'm itching to add to the iPhone, but by every means necessary, if this screen cracks, I should be able to purchase a replacement kit on, uh, on, online and repair it myself.
 
-[00:20:58] Will: Well, I mean, that's just it. It's, I mean, so Apple is a weird example for this because we live in San Francisco, where there's like 16 Apple stores. And it, you know, probably all have AppleCare, so when we smash our screen, we just go in and pay them fifty bucks, and they give us a new, new screen. But swapping a screen on an iPhone is a relatively easy thing that pretty much anybody who has decent fine motor controls and the right screwdriver can do. It's not hard. Like you pop the old one off, you take the touch ID sensor off, you unhook all the cables, and then you put the new the cables back where they were. And and like the odds of if you're relatively careful and you can say, you know, screw a screwdriver, screw the screws on your eyeglasses back in if they fall out Um, without scratching up the lenses or the frames, you're probably okay fixing an iPhone. Um, same thing for stuff like like dishwashers. I my the motor in my dishwasher just broke, and I'm looking at five hundred dollars to have somebody come do it, or two hundred and fifty to get the part and do it myself. And I'd rather have the two hundred and fifty dollars and not and blow the afternoon. Yeah. Wrestling with the dishwasher, I think I I haven't entirely decided on that. If you guys want to prove that right to repair is important, you should come over to the house. Fix my dishwasher. We'll we'll yeah we'll we'll make a video and let everybody know.
+[00:20:58] Will: Well, I mean, that's just it. It's, I mean, so Apple is a weird example for this because we live in San Francisco, where there's like 16 Apple stores. And it, you know, probably all have AppleCare, so when we smash our screen, we just go in and pay them fifty bucks, and they give us a new, new screen. But swapping a screen on an iPhone is a relatively easy thing that pretty much anybody who has decent fine motor controls and the right screwdriver can do. It's not hard. Like you pop the old one off, you take the touch ID sensor off, you unhook all the cables, and then you put the new the cables back where they were. And and like the odds of if you're relatively careful and you can say, you know, screw a screwdriver, screw the screws on your eyeglasses back in if they fall out Um, without scratching up the lenses or the frames, you're probably okay fixing an iPhone. Um, same thing for stuff like like dishwashers. I my the motor in my dishwasher just broke, and I'm looking at 500 dollars to have somebody come do it, or two hundred and fifty to get the part and do it myself. And I'd rather have the 250 dollars and not and blow the afternoon. Yeah. Wrestling with the dishwasher, I think I I haven't entirely decided on that. If you guys want to prove that right to repair is important, you should come over to the house. Fix my dishwasher. We'll we'll yeah we'll we'll make a video and let everybody know.
 
 [00:22:12] Adam: That is, will that's great. I will cancel the tour right now and I'll be at your house tomorrow.
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=h0y_2ow4LKw
 
 [00:32:17] Adam: you know where else can you buy an eraser in the shape of a tiny little hamburger?
 
-[00:32:21] Will: Well, and they have the they have the super ultra mega fine, uh, pens like the point zero eight micron or a millimeter whatever pens there,
+[00:32:21] Will: Well, and they have the they have the super ultra mega fine, uh, pens like the 0.08 micron or a millimeter whatever pens there,
 
 [00:32:21] Adam: Yes.
 

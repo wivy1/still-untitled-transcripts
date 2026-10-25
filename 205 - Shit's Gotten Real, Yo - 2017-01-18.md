@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:22:46] Will: Did you did you have the swatch internet time watch though? Did you know how many beats it was? Do you not do you not know about? Have we talked about this?
 
-[00:22:52] Janet Varney: Listen, I was very young in eighty five.
+[00:22:52] Janet Varney: Listen, I was very young in '85.
 
 [00:22:54] Will: Oh, well.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:26:49] Janet Varney: Also, why can't I have some of that energy here at home after I just got eight hours of sleep? Like, why can't I have some of that manic energy that I had over there?
 
-[00:26:56] Adam: Well, and then there's those things you know that you're going into that, like, oh, well, pure adrenaline will carry me through eighty percent of what's coming.
+[00:26:56] Adam: Well, and then there's those things you know that you're going into that, like, oh, well, pure adrenaline will carry me through 80% of what's coming.
 
 [00:27:02] Janet Varney: Yes, absolutely.
 
@@ -458,9 +458,9 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:29:21] Janet Varney: What are smells like, Adam? That’s what that person was.
 
-[00:29:24] Adam: In one of those hotels, I checked in, and you've had this, I'm sure. I checked in at like one thirty in the morning, and I get my card, and I stagger to the room, and I stick it in, and it does not turn green.
+[00:29:24] Adam: In one of those hotels, I checked in, and you've had this, I'm sure. I checked in at like 1:30 in the morning, and I get my card, and I stagger to the room, and I stick it in, and it does not turn green.
 
-[00:29:34] Janet Varney: I feel thirty five percent of the time.
+[00:29:34] Janet Varney: I feel 35% of the time.
 
 [00:29:37] Adam: Yeah, and I'm just like, so I I go through some magical thinking. And I just keep on putting the card in. Oh yeah. I'm going to do this thirty times before I give up.
 

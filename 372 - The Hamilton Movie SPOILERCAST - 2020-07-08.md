@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:21:00] Norm: Yeah.
 
-[00:21:01] Adam: When I saw the original cast, Leslie Odom Jr.'s precision, his the sharpness of his performance. I mean, he feels like a knife on stage. Every every attack on a line is so precise and so thin and so perfectly done. That precision rings like a bell in the theater, and this filmed version communicates that. And the room where it happened, his dancing and the dancing of the ensemble in room where it happened is so thrilling. It's like watching Donald O'Connor, and I mean, it's like watching you know an old forties a real a real musical a real musical. I mean, it it feels like you're seeing something. Well, you are. You're seeing something truly special, truly.
+[00:21:01] Adam: When I saw the original cast, Leslie Odom Jr.'s precision, his the sharpness of his performance. I mean, he feels like a knife on stage. Every every attack on a line is so precise and so thin and so perfectly done. That precision rings like a bell in the theater, and this filmed version communicates that. And the room where it happened, his dancing and the dancing of the ensemble in room where it happened is so thrilling. It's like watching Donald O'Connor, and I mean, it's like watching you know an old '40s a real a real musical a real musical. I mean, it it feels like you're seeing something. Well, you are. You're seeing something truly special, truly.
 
 [00:21:54] Norm: And I think so many people don't realize how much of the main character he is.
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:26:53] Adam: all of the dancers' movements incorporate. It's it's not just, uh, it's not just a, a sort of an emotional through, but there's actually like physical actions that are speaking to the lines that they're singing.
 
-[00:27:05] Norm: Yes. Yeah, i—it's meticulous. I think that's one of those things that because the whole musical. Is sung. I mean, ninety nine percent of it is sung, and there is no traditional time for your, you know, the lights go down and set changes to happen.
+[00:27:05] Norm: Yes. Yeah, i—it's meticulous. I think that's one of those things that because the whole musical. Is sung. I mean, 99% of it is sung, and there is no traditional time for your, you know, the lights go down and set changes to happen.
 
 [00:27:22] Adam: Yeah.
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:27:45] Adam: When they're all moving furniture, and the ones up front are moving it low, and I mean, basically, it's this: you, they're they're they're dancing a tornado, a hurricane around him. There's a point in which I didn't realize that you get to see Hamilton meet, get introduced to Elizabeth Schuyler three separate times. I always thought it was twice, but it's three times, and the third time you get to see the dancers in soldier uniforms all being parts of Hamilton's brain as he's meeting. Elizabeth, that they're like they're making his shoulders back and making him stand up straight and putting his hand out. That that choreography, that the dancers are always playing parts of Hamilton's mind where he's conflicted.
 
-[00:28:30] Norm: This is one of those things, and what's interesting about this, the film, which I think of as a document almost, as an artifact and a document, because it's a time capsule. It is something that was shot four years ago. Now, the actors themselves have all gone to other things, many other things that people might know them more for, yeah. Right then, for this show, that's almost like you know, one, it's them returning home, but it's almost like like like they are different than the people who they were in twenty fourteen twenty fifteen when they were when they were constructing this. But I want to. I wish there was a commentary. I want the Thomas Kail commentary.
+[00:28:30] Norm: This is one of those things, and what's interesting about this, the film, which I think of as a document almost, as an artifact and a document, because it's a time capsule. It is something that was shot four years ago. Now, the actors themselves have all gone to other things, many other things that people might know them more for, yeah. Right then, for this show, that's almost like you know, one, it's them returning home, but it's almost like like like they are different than the people who they were in 2014 2015 when they were when they were constructing this. But I want to. I wish there was a commentary. I want the Thomas Kail commentary.
 
 [00:29:06] Adam: I can't wait. I'm sure they're they got to do it. I they they. There's one other thing I want to say, and I know that in the description for this, it's called a spoiler cast, and it certainly is. But there's one thing that I won't spoil, and that's the very ending, which you. There's no way to get how the show ends from listening to the soundtrack, and that if you've been listening to the soundtrack, there's a key aspect to the ending, yeah, right, that is so powerful and so subtle that it—that's the one thing I won't that we won't spoil in this podcast because it's really worth sitting through all two and a half hours to get to that point.
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:30:47] Adam: I agree.
 
-[00:30:47] Norm: Oh, it has always been better every time, even in memory. Um, and then two, watch early, right? It is two hours. You know, think of it as going to theater. Go start it. I think eight p.m. is like the latest you probably want to start it eight eight thirty because it go it's a long time. Pee beforehand.
+[00:30:47] Norm: Oh, it has always been better every time, even in memory. Um, and then two, watch early, right? It is two hours. You know, think of it as going to theater. Go start it. I think eight p.m. is like the latest you probably want to start it eight 8:30 because it go it's a long time. Pee beforehand.
 
 [00:31:05] Adam: You guys are so rigorous. No pee breaks. That's I'm really impressed. That that's incredible. I appreciate the dedication.
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:31:21] Adam: That's I, I appreciate your rigor, Norm. That's awesome.
 
-[00:31:24] Norm: We'd love to hear what people think. You know, if it was the first time they saw, we know that it is also a time capsule of its time in twenty sixteen. The world is very different in twenty twenty in terms of you know our relationship with American history and of Black Lives Matter, and and so it is it that also kind of creates a distance between this as a piece of art versus and as a as a as a cultural touchstone, right? In this in today's world.
+[00:31:24] Norm: We'd love to hear what people think. You know, if it was the first time they saw, we know that it is also a time capsule of its time in 2016. The world is very different in 2020 in terms of you know our relationship with American history and of Black Lives Matter, and and so it is it that also kind of creates a distance between this as a piece of art versus and as a as a as a cultural touchstone, right? In this in today's world.
 
 [00:31:55] Adam: Um. One other thing I want to say about seeing the show live: this is the first time you see it live. There is no amount of filming that can equate to how transformative it is. How transformative it is to see all those different colors and different hairs and different human beings and different body types. The ensemble cast hasn't been cast for its homogeneity; it seems to have been cast for the complete diversity of body types, hair types, peoples. I mean it. It's. It feels. It felt super remarkable to be in the theater and see that cast come out on stage. I remember. I remember getting choked up in the first few seconds of the show because of that.
 

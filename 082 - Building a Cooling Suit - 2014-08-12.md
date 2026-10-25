@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:08:44] Adam: I thought you might.
 
-[00:08:46] Will: Well, it's a cool. It's similar to the problem of cooling a PC. Like even the amount of heat generated is like a big gaming PC takes fourteen hundred watts of power in, sends a lot of that out as waste heat, and and the neat thing about The stuff that's come out of gaming PCs is it's very compact because it has to fit inside in a lot of cases, like a little shoebox-sized computer case.
+[00:08:46] Will: Well, it's a cool. It's similar to the problem of cooling a PC. Like even the amount of heat generated is like a big gaming PC takes 1,400 watts of power in, sends a lot of that out as waste heat, and and the neat thing about The stuff that's come out of gaming PCs is it's very compact because it has to fit inside in a lot of cases, like a little shoebox-sized computer case.
 
 [00:09:05] Adam: Well, so let me just state that there were a bunch of suggestions that were excellent suggestions. I mean, pretty much almost every single suggestion in the in the comments were things that I've thought about or tried or thrown out. Now, one of the things people said was, " Well, you had a backpack; you could have fit a nice cooling unit in there." That is a nice idea until you've already wired all the lights and you've got other stuff coming in, and the space inside the backpack isn't as big as you think. So it's not like you could take a store bought unit and shove it in there. Further, when you think about a coolant recirculating system, which is what I am talking about, using the cool shirt design and actually circulating cool liquid through and using a heat dump to cool that liquid as it's circulating. Now, that is a watertight system, which means that you need to put on the cool shirt, feed the tubing out through the outside of the costume, and then connect it up to the backpack. Which, frankly, when you are talking about doing Comic Con, it's That amount of systemic things working through other things and having to be put on in order—it's just a layer of complication that I tend to avoid because it's a failure point.
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:20:03] Norm: Whether they’re wearing costumes or not.
 
-[00:20:05] Adam: Yes. Oh, hundred percent. Oh, yeah. No,
+[00:20:05] Adam: Yes. Oh, 100%. Oh, yeah. No,
 
 [00:20:07] Will: I was going to say.
 
@@ -418,11 +418,11 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:23:12] Will: And then then go walk see if it sticks. And maybe you get out there, you don't like it at all.
 
-[00:23:12] Adam: And out there on on eBay and on Etsy and a lot of other places, there are great costumes you can get made. You can take stuff that that's cheaply made, buy some slightly better fabric, and pay your pay a seamstress to make it. It's not that expensive. My V shirt, my V for Vendetta costume, right? Everyone has a very difficult time with that costume finding the fabric. I found a fabric that was very close. It was expensive. The fabric was expensive, like something like seventy five bucks a yard.
+[00:23:12] Adam: And out there on on eBay and on Etsy and a lot of other places, there are great costumes you can get made. You can take stuff that that's cheaply made, buy some slightly better fabric, and pay your pay a seamstress to make it. It's not that expensive. My V shirt, my V for Vendetta costume, right? Everyone has a very difficult time with that costume finding the fabric. I found a fabric that was very close. It was expensive. The fabric was expensive, like something like 75 bucks a yard.
 
 [00:23:12] Will: Wow.
 
-[00:23:12] Adam: But I bought a doublet for a V costume online for like thirty bucks that fit me really nicely, especially when I pinned it to fit me exactly. I took that to the person that does my my alterations, and they rebuilt the doublet I had with the fabric I had for like one hundred dollars.
+[00:23:12] Adam: But I bought a doublet for a V costume online for like thirty bucks that fit me really nicely, especially when I pinned it to fit me exactly. I took that to the person that does my my alterations, and they rebuilt the doublet I had with the fabric I had for like 100 dollars.
 
 [00:24:18] Will: Right. I mean, that's amazing.
 

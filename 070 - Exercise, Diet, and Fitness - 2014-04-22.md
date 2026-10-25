@@ -134,13 +134,13 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:02:53] Will: also the voice of Tweety
 
-[00:02:54] Norm: as envisioned in the seventies.
+[00:02:54] Norm: as envisioned in the '70s.
 
 [00:02:55] Will: Yeah, it was basically like Battlestar Galactica. Um, but it was. It was very serialized. As I,
 
 [00:03:01] Adam: I specifically remember the first. I remember seeing the pilot when it aired, and I can't even remember how old I was. I can't. I don't know the actual.
 
-[00:03:07] Will: You must have been young because it was. Yeah, I was early seventies. But I
+[00:03:07] Will: You must have been young because it was. Yeah, I was early '70s. But I
 
 [00:03:09] Adam: remember him kind of confusedly going to his bedroom and being like, " I'd like to go to bed," and the bed went shh and inflated in front of him. And I was like, " That's cool,
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:06:03] Will: What's the Leftovers?
 
-[00:06:04] Adam: Leftovers is Damon's new series that he's written and producing. Uh, and he's writing all the episodes for. Uh, it's directed by Peter Berg, and it basically takes place effectively now, uh, except that two years ago, this is where the show opens. Two years ago, two percent of the world's population disappeared.
+[00:06:04] Adam: Leftovers is Damon's new series that he's written and producing. Uh, and he's writing all the episodes for. Uh, it's directed by Peter Berg, and it basically takes place effectively now, uh, except that two years ago, this is where the show opens. Two years ago, 2% of the world's population disappeared.
 
 [00:06:25] Will: Got ruptured.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:07:09] Adam: It's very exciting about, um.
 
-[00:07:11] Norm: or two percent
+[00:07:11] Norm: or 2%
 
 [00:07:11] Adam: Peter Berg. I mean, really, the the the the the incredible powerhouse of Damon writing and Peter Berg directing is
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:08:07] Will: Yes. Uh,
 
-[00:08:07] Adam: right. Max is so Max wrote the secret. He said the secret, untold history of MythBusters is that Adam keeps losing weight and looking younger and getting more hair as the seasons progress. And I was like, " I love you," and he says, " I'm only if—" He's. I won't tell that joke. Anyway. Um, the fact is, yeah, I've, uh, I've managed to lose, uh, about thirty pounds over the last two. Uh, uh, is it two thousand fourteen? Yeah. Two and a half years. What's
+[00:08:07] Adam: right. Max is so Max wrote the secret. He said the secret, untold history of MythBusters is that Adam keeps losing weight and looking younger and getting more hair as the seasons progress. And I was like, " I love you," and he says, " I'm only if—" He's. I won't tell that joke. Anyway. Um, the fact is, yeah, I've, uh, I've managed to lose, uh, about thirty pounds over the last two. Uh, uh, is it 2014? Yeah. Two and a half years. What's
 
 [00:08:38] Norm: your one secret
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:11:17] Will: Right.
 
-[00:11:17] Adam: Like I I sort of self hacked. Yeah. Yeah. Um, and it really really it's really worked. to To make that last ten pounds, so I got from two hundred pounds down to one eighty.
+[00:11:17] Adam: Like I I sort of self hacked. Yeah. Yeah. Um, and it really really it's really worked. to To make that last ten pounds, so I got from 200 pounds down to one eighty.
 
 [00:11:59] Will: That's that that that's a tough ten pounds. Considerable. That's the ten pounds. That's the twenty pounds that I've that I've always like. I'll get down to two hundred, two ten, and then brick wall.
 
@@ -556,21 +556,21 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:22:03] Will: Oh.
 
-[00:22:03] Adam: Um. My my doctor had told me um that something like fifty percent of people with sleep apnea can get rid of it by losing ten percent of their body weight.
+[00:22:03] Adam: Um. My my doctor had told me um that something like 50% of people with sleep apnea can get rid of it by losing 10% of their body weight.
 
 [00:22:03] Will: Yeah.
 
 [00:22:03] Adam: And I've now lost. Let's see, from two hundred to
 
-[00:22:31] Norm: fifteen percent. One—
+[00:22:31] Norm: 15%. One—
 
-[00:22:31] Adam: seven one sixty eight. That's fifteen percent of my body weight. You were right. I heard it. You got it fast.
+[00:22:31] Adam: seven one sixty eight. That's 15% of my body weight. You were right. I heard it. You got it fast.
 
 [00:22:39] Will: He
 
 [00:22:39] Will: explained the joke before too.
 
-[00:22:40] Adam: Um, and that that so that means my sleep is better as well. Um, and since I'd done a sleep study, I learned that my sleep apnea is the worst when I lie on my back. So in addition to losing the fifteen percent of my body weight, I also taught myself never to sleep on my back and. That has also been a key part of stress management. Eight hours of sleep a night—that's good quality sleep. It's done a tremendous amount for my ability to maintain my mood.
+[00:22:40] Adam: Um, and that that so that means my sleep is better as well. Um, and since I'd done a sleep study, I learned that my sleep apnea is the worst when I lie on my back. So in addition to losing the 15% of my body weight, I also taught myself never to sleep on my back and. That has also been a key part of stress management. Eight hours of sleep a night—that's good quality sleep. It's done a tremendous amount for my ability to maintain my mood.
 
 [00:23:06] Will: It just makes you sharper.
 

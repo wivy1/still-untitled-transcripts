@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:02:21] Will: Yeah, I think he was Han Solo.
 
-[00:02:23] Adam: He is, he is awesome. I I actually have met him a couple of years ago. We had dinner together, and he is an amazing and lovely, incredibly smart man. And more than that, he's the new Prime Minister of Canada, and he is kicking ass over there. They, He he appoints a completely gender balanced cabinet, equally men and women. And when asked why, he says it's twenty fifteen. That's why, and then gives this look.
+[00:02:23] Adam: He is, he is awesome. I I actually have met him a couple of years ago. We had dinner together, and he is an amazing and lovely, incredibly smart man. And more than that, he's the new Prime Minister of Canada, and he is kicking ass over there. They, He he appoints a completely gender balanced cabinet, equally men and women. And when asked why, he says it's 2015. That's why, and then gives this look.
 
 [00:02:53] Will: That was that was the emoticon shrug. In case you missed it,
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:07:33] Will: The room, and the amount. The appropriate amount of because the problem everybody has they buy a pool table and they're like oh man this is a lot bigger than I thought it was
 
-[00:07:38] Adam: for the pool table. That room needs to be like six feet all the way around minimum. Plus, you have, plus you want to be able to have people sit in chairs without interrupting the space. So a genuine pool room can be like twenty by twenty five feet.
+[00:07:38] Adam: for the pool table. That room needs to be like six feet all the way around minimum. Plus, you have, plus you want to be able to have people sit in chairs without interrupting the space. So a genuine pool room can be like twenty by 25 feet.
 
 [00:07:52] Will: It gets it gets really big really quickly.
 
@@ -240,11 +240,11 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:08:24] Will: And he would go to pool halls when he was a kid.
 
-[00:08:27] Adam: Well, I know that I know that he went to some of the legendary pool halls like Toots Shor’s. Then, if he grew up in New York in the fifties,
+[00:08:27] Adam: Well, I know that I know that he went to some of the legendary pool halls like Toots Shor’s. Then, if he grew up in New York in the '50s,
 
-[00:08:33] Will: no, he would have been. He was in World War II, so he would have grown up in the thirties
+[00:08:33] Will: no, he would have been. He was in World War II, so he would have grown up in the '30s
 
-[00:08:38] Adam: thirties and forties. Yeah. So the the maybe the most famous pool hall back then was Toots Shor’s, and Jackie Gleason was an absolute regular. Jackie Gleason, who famously played Minnesota Fats in the the original Hustler film, and from which the famous pool player Minnesota Fats took his name, because Minnesota Fats, the pool player's original name was New York Fats. But when he saw the movie, he was like, " They based that movie on me," and he changed his name to Minnesota Fats.
+[00:08:38] Adam: '30s and '40s. Yeah. So the the maybe the most famous pool hall back then was Toots Shor’s, and Jackie Gleason was an absolute regular. Jackie Gleason, who famously played Minnesota Fats in the the original Hustler film, and from which the famous pool player Minnesota Fats took his name, because Minnesota Fats, the pool player's original name was New York Fats. But when he saw the movie, he was like, " They based that movie on me," and he changed his name to Minnesota Fats.
 
 [00:09:07] Will: That's amazing! I had no idea.
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:12:35] Will: And you actually started practicing shots, not just hitting the balls around.
 
-[00:12:37] Adam: I started running through practice drills, and in fact, until I so I then played. I think I was seventeen when that happened, so that would have been nineteen eighty four. I played. I started playing and then played probably between one and two hours a day through nineteen ninety when I moved out here to San Francisco. And by the by, the end, I was a I was in really, really good shape. I was going, I was going to New York. I was living in New York, so I was going between Society Billiards and Chelsea Billiards every single day. I had friends at both. I would sit and hang out with the hustlers and watch them play one pocket and one arm pool and crazy nine ball variants
+[00:12:37] Adam: I started running through practice drills, and in fact, until I so I then played. I think I was seventeen when that happened, so that would have been 1984. I played. I started playing and then played probably between one and two hours a day through 1990 when I moved out here to San Francisco. And by the by, the end, I was a I was in really, really good shape. I was going, I was going to New York. I was living in New York, so I was going between Society Billiards and Chelsea Billiards every single day. I had friends at both. I would sit and hang out with the hustlers and watch them play one pocket and one arm pool and crazy nine ball variants
 
 [00:13:16] Unknown speaker: and [unclear: fifteen ball / trick shots],
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:13:29] Adam: Oh, that seems so. This one pocket is too. Each of you chooses one pocket, and you have to sink all your balls in that pocket. So it's banking nightmare.
 
-[00:13:35] Will: This is this is my picture of my grandfather is changing a little bit based on the the the pool hall stories we're getting now because I never really thought about it, but like growing up playing billiards when you were in the thirties, a little bit of a rough thing.
+[00:13:35] Will: This is this is my picture of my grandfather is changing a little bit based on the the the pool hall stories we're getting now because I never really thought about it, but like growing up playing billiards when you were in the '30s, a little bit of a rough thing.
 
 [00:13:48] Adam: Oh no, no, no, always. Yeah, like if you go hang out in pool halls, you are going to meet some interesting characters, and you’re going to learn some really cool stuff. There’s there’s. Pool played an incredibly important role in my life. It is one of those skills that helped me learn how to learn other skills. And the best, I have a huge library of billiard books going back to the 1800s. I think my favorite book I ever read on pool is Tim Gallwey's " The Inner Game of Tennis." It is a fantastic diatribe on getting yourself into the headspace of playing the sport that you're concentrating on and physicalizing it rather than mentalizing it. And I'm teaching thing one and thing two how to be darn good pool players.
 
@@ -392,11 +392,11 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:17:34] Norm: Yeah, I think that's what it is.
 
-[00:17:35] Adam: You know, that it is that that handshake. You're right. That it's deeply satisfying that they can see a long tail of knowledge. Back then, in my early twenties, as most people do, I moved back into my parents' house one in 1988 for about a year. And my dad had a good friend, Robert Kipniss, a wonderful artist, wonderful visual artist, whose daughter Ruby I had gone to high school with. And what I didn't know about Bob Kipniss is, in addition to being a wonderful artist, he was a pool hustler in his early twenties in New York City. And this was in the late fifties and early sixties. He said he stopped pool hustling when he watched a guy get knifed in the gut and die at the table next to him at Julian's Billiards, which is the oldest pool hall still in New York, if it's still there.
+[00:17:35] Adam: You know, that it is that that handshake. You're right. That it's deeply satisfying that they can see a long tail of knowledge. Back then, in my early twenties, as most people do, I moved back into my parents' house one in 1988 for about a year. And my dad had a good friend, Robert Kipniss, a wonderful artist, wonderful visual artist, whose daughter Ruby I had gone to high school with. And what I didn't know about Bob Kipniss is, in addition to being a wonderful artist, he was a pool hustler in his early twenties in New York City. And this was in the late '50s and early '60s. He said he stopped pool hustling when he watched a guy get knifed in the gut and die at the table next to him at Julian's Billiards, which is the oldest pool hall still in New York, if it's still there.
 
 [00:18:25] Will: Yeah.
 
-[00:18:25] Adam: Sitting on Fourteenth Street above the Palladium. Ah, again, some of the most of these things are probably no longer there. But Bob agreed to teach me pool, and I'd already been playing very seriously for for a few years. And Bob gave me some tremendous education in the simplicity of pool. Like, if you can crouch over the shot, knowing what you're going to do, how you're going to do it, where the cue ball will end up, and where each other ball you might come... contact will also end up, if you can do that. Every single time, with confidence, you're going to play a great game.
+[00:18:25] Adam: Sitting on 14th Street above the Palladium. Ah, again, some of the most of these things are probably no longer there. But Bob agreed to teach me pool, and I'd already been playing very seriously for for a few years. And Bob gave me some tremendous education in the simplicity of pool. Like, if you can crouch over the shot, knowing what you're going to do, how you're going to do it, where the cue ball will end up, and where each other ball you might come... contact will also end up, if you can do that. Every single time, with confidence, you're going to play a great game.
 
 [00:19:01] Will: It's just mechanics at that point.
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:19:09] Will: Yeah, I mean, honestly, if you want to improve your pool game faster than anything else, figure learn where the cool cue ball is going to go. That that that. Once I figured that out, my game improved dramatically.
 
-[00:19:19] Adam: And there are there are hundreds of books on pool. I will tell you, there are only a couple that are really, really, really important because I've read all of them. Robert Byrne, who is local, I frankly don't know if Robert Byrne is still alive. If he is, I want to look him up next year because he lived up in Marin, as far as I know, and grew up in pool halls in San Francisco in the 50s. Byrne's standard book of pool and billiards is the textbook. It is the textbook, and no matter what skill level you are, you can crack that book open, read it from start to finish, and get better at pool because of it. He has a bunch of other books on trick shots and the history of pool. He wrote a great book about a pool. A pool hustler he knew called named McGoorty in San Francisco in the fifties, and some terrible and wonderful tales about pool hustling in the fifties. It is an incredibly rich sport. With I got so obsessed with it before I left New York. One of my hobbies was to go to the New York Public Library, and I eventually and I have it around here somewhere, printed out on microfiche every mention of billiards and pool in the New York Times back to its inception in like eighteen eighty one.
+[00:19:19] Adam: And there are there are hundreds of books on pool. I will tell you, there are only a couple that are really, really, really important because I've read all of them. Robert Byrne, who is local, I frankly don't know if Robert Byrne is still alive. If he is, I want to look him up next year because he lived up in Marin, as far as I know, and grew up in pool halls in San Francisco in the '50s. Byrne's standard book of pool and billiards is the textbook. It is the textbook, and no matter what skill level you are, you can crack that book open, read it from start to finish, and get better at pool because of it. He has a bunch of other books on trick shots and the history of pool. He wrote a great book about a pool. A pool hustler he knew called named McGoorty in San Francisco in the '50s, and some terrible and wonderful tales about pool hustling in the '50s. It is an incredibly rich sport. With I got so obsessed with it before I left New York. One of my hobbies was to go to the New York Public Library, and I eventually and I have it around here somewhere, printed out on microfiche every mention of billiards and pool in the New York Times back to its inception in like 1881.
 
 [00:20:28] Will: What's your favorite game, Adam?
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:25:15] Unknown speaker: That’s incredible. Yeah. That’s incredible.
 
-[00:25:24] Adam: Because there are this a hustler said this to me early on in my playing. He said, " You are just." He says, " You're just as good a shooter as I am," and I was like, " No way! You beat me all the time." And he's like, " Yeah, shooting is ten percent of the game. Making the shots is ten percent of the game. Strategizing how you're going to make those shots is the other ninety." And it took me. Two more years of playing every day to actually understand what he meant, but he is totally right. The actual sinking of shots is nothing compared to the strategizing of shots.
+[00:25:24] Adam: Because there are this a hustler said this to me early on in my playing. He said, " You are just." He says, " You're just as good a shooter as I am," and I was like, " No way! You beat me all the time." And he's like, " Yeah, shooting is 10% of the game. Making the shots is 10% of the game. Strategizing how you're going to make those shots is the other ninety." And it took me. Two more years of playing every day to actually understand what he meant, but he is totally right. The actual sinking of shots is nothing compared to the strategizing of shots.
 
 [00:25:56] Will: Right, right. A shot that leaves you in bad position for your next shot, and your opponent in great position, you might as well have not made the shot.
 
@@ -548,7 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:29:55] Will: People can find you at behindthemythstour dot com.
 
-[00:29:59] Adam: Mythbusters tour dot com. We are out on the road till December nineteenth. When we finish for the last time in San Francisco, Jamie won't be touring anymore. I will be touring some more, and you'll find out about that next year. But yeah, this is your last chance to see the two of us together on stage. So come on out.
+[00:29:59] Adam: Mythbusters tour dot com. We are out on the road till December 19. When we finish for the last time in San Francisco, Jamie won't be touring anymore. I will be touring some more, and you'll find out about that next year. But yeah, this is your last chance to see the two of us together on stage. So come on out.
 
 [00:30:13] Will: Norm and I’ll be there.
 

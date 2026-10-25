@@ -50,11 +50,11 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:00:55] Adam: Got the whole middle of the back row. The theater was practically empty. I saw it yesterday morning at eight. Thirty in the morning,
 
-[00:01:00] Will: so it wasn't three D. So I was a little bit off to the side, but I was okay with it.
+[00:01:00] Will: so it wasn't 3D. So I was a little bit off to the side, but I was okay with it.
 
 [00:01:00] Adam: Yeah.
 
-[00:01:00] Will: you know, three D you don't want to be off to the side.
+[00:01:00] Will: you know, 3D you don't want to be off to the side.
 
 [00:01:05] Adam: By the way, well, you know because you clicked on the link. Yeah,
 
@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:03:43] Will: It was in Fez.
 
-[00:03:44] Norm: two Ds, you can fold. Uh, you make a cross in two D shape that folds into a cube. So when you fold the three D version into a four D, that's how you get into four dimensions. That's a tesseract.
+[00:03:44] Norm: two Ds, you can fold. Uh, you make a cross in 2D shape that folds into a cube. So when you fold the 3D version into a 4D, that's how you get into four dimensions. That's a tesseract.
 
 [00:03:54] Will: Yeah.
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:07:31] Will: best robot ever,
 
-[00:07:32] Adam: is really unbelievably cool, and it's one of those. How come no one's ever thought about this? I'm sure there's probably some NASA designs exactly like that. It's the robot is effectively monolithic. It's a high degree of artificial intelligence. There's a lot to. There's a lot that is played around within the film with its humor settings and its trust settings and its honesty settings, and they talk about this. The first humor setting is what's the humor setting you've got? This can you set it at ninety percent? Sure, I'll tell you a joke while I blow you out of the airlock. The robot says yes. I mean, and instantly I fell in love with the robot as a character.
+[00:07:32] Adam: is really unbelievably cool, and it's one of those. How come no one's ever thought about this? I'm sure there's probably some NASA designs exactly like that. It's the robot is effectively monolithic. It's a high degree of artificial intelligence. There's a lot to. There's a lot that is played around within the film with its humor settings and its trust settings and its honesty settings, and they talk about this. The first humor setting is what's the humor setting you've got? This can you set it at 90%? Sure, I'll tell you a joke while I blow you out of the airlock. The robot says yes. I mean, and instantly I fell in love with the robot as a character.
 
 [00:08:11] Will: But at the same time, the robot, the the monolithic design of the robot, and the the joke about blowing him out of the airlock gives you a deep sense of dread. If you've ever watched a movie about robots going awry.
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:15:02] Adam: This is so ludicrous, right? Or do we direct large, no million dollar movies? where this is idiotic as an exercise. I agree with that, right? I can imagine these filmmakers watching this and being like, " You fucking same."
 
-[00:15:14] Norm: He got it. I think he got eighty percent there, and I think a lot of it being the studio system being more palatable and the forces at work that we have no idea about
+[00:15:14] Norm: He got it. I think he got 80% there, and I think a lot of it being the studio system being more palatable and the forces at work that we have no idea about
 
 [00:15:14] Unknown speaker: Of course.
 

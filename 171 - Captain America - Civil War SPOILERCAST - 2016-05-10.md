@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:07:28] Adam: Ah, okay. Catastrophe is about an American man on a business trip in London who has a five night stand with a wonderful Irish woman, gets her pregnant, moves to Ireland, moves to London, marries her.
 
-[00:07:41] Will: So as as twenty first century, yeah. What's what you do?
+[00:07:41] Will: So as as 21st century, yeah. What's what you do?
 
 [00:07:45] Adam: It's called catastrophe, and um. It is so. Rob Delaney,
 
@@ -814,7 +814,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:28:54] Adam: Yeah,
 
-[00:28:54] Will: like like that could have been John McClane jumping the motorcycle into the F thirty five at the end of Die Hard four.
+[00:28:54] Will: like like that could have been John McClane jumping the motorcycle into the F-35 at the end of Die Hard four.
 
 [00:29:02] Will: Yeah, Die Hard four.
 

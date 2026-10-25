@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:04:30] Will: Was it the Jennifer Aniston one?
 
-[00:04:31] Norm: It's the jetpack one. They pulled this stunt, and it bears. You have to watch it. I mean, it has like a million views on YouTube already. But they had two guys with these the wing jetpacks fly. I got maybe within two hundred feet of the airplane with the city in the background.
+[00:04:31] Norm: It's the jetpack one. They pulled this stunt, and it bears. You have to watch it. I mean, it has like a million views on YouTube already. But they had two guys with these the wing jetpacks fly. I got maybe within 200 feet of the airplane with the city in the background.
 
 [00:04:50] Will: That's terrifying.
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:05:15] Adam: even if it's a plane, it has well over one hundred fifty, two hundred miles an hour. Right
 
-[00:05:18] Will: around two hundred miles an hour. Especially if it's a triple seven or a seven forty seven or 787,
+[00:05:18] Will: around 200 miles an hour. Especially if it's a triple seven or a seven forty seven or 787,
 
 [00:05:21] Adam: and it's coming in for a landing.
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:06:55] Norm: I didn't like. I didn't like the premise of the movie either.
 
-[00:06:58] Will: I like the idea that all the smarts went away, and that's why the, everything went to hell in the sixties.
+[00:06:58] Will: I like the idea that all the smarts went away, and that's why the, everything went to hell in the '60s.
 
 [00:07:02] Adam: From from what I understand, from behind the scenes, Disney put out a different film than they bought.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:17:32] Will: So this is a San Francisco. Like you have two two kinds of location shoots too, right? You have some that are local that you can drive to. You sleep in your house.
 
-[00:17:38] Adam: Most that are like that. Ninety five percent are local and drivable.
+[00:17:38] Adam: Most that are like that. 95% are local and drivable.
 
 [00:17:41] Will: And then sometimes you are in Mojave.
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:30:20] Will: Is there any stuff that you do every day? Like, is there a safety briefing at the beginning of the day or anything like that?
 
-[00:30:23] Adam: Or there is a safety beginning. There is a safety briefing at the beginning of every single location day, and this was, uh, this was we we. We always did safety briefings for dangerous stuff, but the cannonball episode is one that initiated the safety briefing for everything. And it is it covers right down to keep your sunscreen on, put it on in the morning, put it on again at lunch, put it on again at three o'clock. Look, we're out at the, uh, we're out in Ione, California. Watch out for potholes created by cows walking. Watch out for the mud. There are rattlesnakes, and it's hot out here. So if you get too hot, go ahead and spend some time in the RV. We'll often rent an RV if it's a like a ninety five degree day to give people a place to decompress. So that safety meeting will cover. It not only covers what's going to be dangerous, but it gets everyone on the crew on the same page about what's happening. First, we're going to do this. Then we're going to set up this. Then we're going to bring out the bicycles and do the third thing. Then we're going to do. Hopefully, by right after lunch, we'll set off the explosion.
+[00:30:23] Adam: Or there is a safety beginning. There is a safety briefing at the beginning of every single location day, and this was, uh, this was we we. We always did safety briefings for dangerous stuff, but the cannonball episode is one that initiated the safety briefing for everything. And it is it covers right down to keep your sunscreen on, put it on in the morning, put it on again at lunch, put it on again at three o'clock. Look, we're out at the, uh, we're out in Ione, California. Watch out for potholes created by cows walking. Watch out for the mud. There are rattlesnakes, and it's hot out here. So if you get too hot, go ahead and spend some time in the RV. We'll often rent an RV if it's a like a 95 degree day to give people a place to decompress. So that safety meeting will cover. It not only covers what's going to be dangerous, but it gets everyone on the crew on the same page about what's happening. First, we're going to do this. Then we're going to set up this. Then we're going to bring out the bicycles and do the third thing. Then we're going to do. Hopefully, by right after lunch, we'll set off the explosion.
 
 [00:31:26] Will: Well, and it means that everybody, nobody feels bad if they start to feel a little a little off. I need to go get in the shade and drink some water for five minutes. It doesn't mess anybody up.
 

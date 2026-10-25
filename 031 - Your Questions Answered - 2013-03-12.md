@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:13:12] Norm: Why am I doing? What am I doing right now? That's the exact thing.
 
-[00:13:14] Adam: Yeah, and I mean, I'll even go so far as if I have a really tedious thing to do, like I'm gluing forty wheels together, I'm like timing myself. Okay, it's two thirty, and I've glued twenty four.
+[00:13:14] Adam: Yeah, and I mean, I'll even go so far as if I have a really tedious thing to do, like I'm gluing forty wheels together, I'm like timing myself. Okay, it's 2:30, and I've glued twenty four.
 
 [00:13:22] Will: Oh, you mapped that out.
 
@@ -296,9 +296,9 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:14:14] Adam: If I say, " Cut me a piece of wood that's two feet long with a hole in either end," don't pull out a tape measure. That just means a piece of wood about this long with a hole in either end.
 
-[00:14:24] Will: Blueprints matter; otherwise, just eyeball. Okay, there you go. Uh, Christoph wants to know. Uh, he was visiting our about page on the site. I didn't even know we had an about page on the site, but I guess we must have written it at some point. Um, and it says that you were restoring a car, so he wants to know if the car was possibly that beautiful Volvo two forty five and how far into the project you are in a little background.
+[00:14:24] Will: Blueprints matter; otherwise, just eyeball. Okay, there you go. Uh, Christoph wants to know. Uh, he was visiting our about page on the site. I didn't even know we had an about page on the site, but I guess we must have written it at some point. Um, and it says that you were restoring a car, so he wants to know if the car was possibly that beautiful Volvo 245 and how far into the project you are in a little background.
 
-[00:14:46] Adam: Well, no, I, uh, the Volvo two forty five that I wrote about in Wired last year with clouds all over that was my first car bought in nineteen ninety nineteen ninety, um, it was a seventy eight two forty five DL. I loved that car. We destroyed a couple of Volvo station wagons yesterday on MythBusters. I can't. Can't say why, but what was great about them is that sitting in that Volvo, it smelled like my early twenties. 
+[00:14:46] Adam: Well, no, I, uh, the Volvo 245 that I wrote about in Wired last year with clouds all over that was my first car bought in 1990 1990, um, it was a '78 245 DL. I loved that car. We destroyed a couple of Volvo station wagons yesterday on MythBusters. I can't. Can't say why, but what was great about them is that sitting in that Volvo, it smelled like my early twenties. 
 
 [00:15:14] Will: Really?
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:15:35] Norm: This is a cologne you need to get.
 
-[00:15:36] Adam: And I I learned to work on cars on that car. That that was the car that taught me. That was what the Wired article was about. I have a car which has has been fully restored. It's a, um, uh, nineteen eighty two BJ forty two short wheelbase Land Cruiser.
+[00:15:36] Adam: And I I learned to work on cars on that car. That that was the car that taught me. That was what the Wired article was about. I have a car which has has been fully restored. It's a, um, uh, 1982 BJ forty two short wheelbase Land Cruiser.
 
 [00:15:52] Will: Oh, cool!
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:17:33] Adam: It's got the full snorkel. You drive it up to its hood ornament in water.
 
-[00:17:36] Will: Nice. Yeah, I talked to a friend of mine years ago about doing electrical conversions for old, like late '70s Land Sharks, basically like the big square convertibles. We looked at it, and like the math on that is so bad because those cars weighed six thousand pounds.
+[00:17:36] Will: Nice. Yeah, I talked to a friend of mine years ago about doing electrical conversions for old, like late '70s Land Sharks, basically like the big square convertibles. We looked at it, and like the math on that is so bad because those cars weighed 6,000 pounds.
 
 [00:17:50] Adam: Yeah.
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:25:58] Will: and that's a good way to learn that stuff.
 
-[00:25:59] Adam: In fact, I all when I was freelancing, when I was in the mid '90s, early '90s through the late '90s through the early two thousands was my freelancing days, about twelve years. Fourteen years, I would have a price structure where I'd often say to people, " They would say, 'We got, we don't have enough money to do this.'" And I'd say, " Great, I will build it for you for your budget if you cover materials, but I get to keep it when we're done."
+[00:25:59] Adam: In fact, I all when I was freelancing, when I was in the mid '90s, early '90s through the late '90s through the early 2000s was my freelancing days, about twelve years. Fourteen years, I would have a price structure where I'd often say to people, " They would say, 'We got, we don't have enough money to do this.'" And I'd say, " Great, I will build it for you for your budget if you cover materials, but I get to keep it when we're done."
 
 [00:26:24] Will: Yeah.
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:26:43] Will: If you can find somebody who'll supply tools and materials, go nuts.
 
-[00:26:46] Adam: And that's theater, and that's film. I mean, I built an entire padded cell for a friend's senior thesis film at NYU for something like twenty-five dollars, because that's all that we had, and that refined my brain. You know, that limitation, and that's just finding that finding those ways to just get access to materials and get your hands dirty is great.
+[00:26:46] Adam: And that's theater, and that's film. I mean, I built an entire padded cell for a friend's senior thesis film at NYU for something like 25 dollars, because that's all that we had, and that refined my brain. You know, that limitation, and that's just finding that finding those ways to just get access to materials and get your hands dirty is great.
 
 [00:27:08] Will: We're almost there.
 

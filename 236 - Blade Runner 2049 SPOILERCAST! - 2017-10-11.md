@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:00:17] Adam: are going to do. This is going to be a longer one.
 
-[00:00:22] Norm: Yeah, yeah, I think it's been a long anticipated one too, because we promised that we would be talking about Blade Runner twenty forty nine.
+[00:00:22] Norm: Yeah, yeah, I think it's been a long anticipated one too, because we promised that we would be talking about Blade Runner 2049.
 
 [00:00:29] Adam: This is a spoiler cast, but first, but first, let's let's just briefly cover some of the highlights of New York City Comic Con.
 
@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:04:40] Adam: Actually, 20 years ago. Yeah, sorry.
 
-[00:04:41] Will: And then that 70s show,
+[00:04:41] Will: And then that '70s show,
 
 [00:04:41] Adam: Mm-hmm.
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:05:48] Will: that's cool.
 
-[00:05:48] Adam: Yeah, no, it was totally cool. Um, I went out on the on Saturday, my last day at the con, and put on an incredible mask that was built by my friend Steve Neill down in Los Angeles, who's a Old school effects tech cut his teeth with Rick Baker on animatronics and mask and gorilla stuff for you know thirty forty years, and Steve made a Moonwatcher mask. From Moonwatcher is the lead ape from two thousand and one, a space Odyssey, and it's incredible with animatronics. So when you open the mouth, the lips curl back. It's totally mind blowing.
+[00:05:48] Adam: Yeah, no, it was totally cool. Um, I went out on the on Saturday, my last day at the con, and put on an incredible mask that was built by my friend Steve Neill down in Los Angeles, who's a Old school effects tech cut his teeth with Rick Baker on animatronics and mask and gorilla stuff for you know thirty forty years, and Steve made a Moonwatcher mask. From Moonwatcher is the lead ape from 2001, a space Odyssey, and it's incredible with animatronics. So when you open the mouth, the lips curl back. It's totally mind blowing.
 
 [00:06:22] Will: How does it? Does it?
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:19:43] Will: No, no, I, I, I know, I know. I am just saying, like that's the kind of thing that, like, the theater by theater could be different.
 
-[00:19:48] Norm: If you are watching in New York and you are going to AMC Twenty Five. Dolby Vision, one hundred percent, and the audio.
+[00:19:48] Norm: If you are watching in New York and you are going to AMC Twenty Five. Dolby Vision, 100%, and the audio.
 
 [00:19:54] Adam: The audio is.
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:20:45] Norm: So you're talking about that same idea applies to the cityscapes. I'm
 
-[00:20:48] Will: talking about the cityscapes. There are these incredible establishing shots of the different locations that they go, whether it's you know the the a desert or a you know Los Angeles or whatever, and there is so much detail in every single frame of what you can see in the city that I was just sitting there and I was like I I would pause this if I were able to and watch and just go up and and look at each quadrant of the screen and and kind of like take this whole thing in because because they layered like this is the other thing that I loved is it felt like they didn't do anything at least in those landscape shots with effects that they couldn't have done in the eighties with the same kind of techniques that Ridley and and and his team used on the first movie like the the compositing of the the dynamic billboards and all that stuff it seemed like it was it moved forward in time the appropriate number of years the twenty or thirty years that's between the first movie and the second movie but it didn't feel like they were they went CG crazy. I mean, I know it was all CG, but it felt like they, it was all stuff that could have been done practically.
+[00:20:48] Will: talking about the cityscapes. There are these incredible establishing shots of the different locations that they go, whether it's you know the the a desert or a you know Los Angeles or whatever, and there is so much detail in every single frame of what you can see in the city that I was just sitting there and I was like I I would pause this if I were able to and watch and just go up and and look at each quadrant of the screen and and kind of like take this whole thing in because because they layered like this is the other thing that I loved is it felt like they didn't do anything at least in those landscape shots with effects that they couldn't have done in the '80s with the same kind of techniques that Ridley and and and his team used on the first movie like the the compositing of the the dynamic billboards and all that stuff it seemed like it was it moved forward in time the appropriate number of years the twenty or thirty years that's between the first movie and the second movie but it didn't feel like they were they went CG crazy. I mean, I know it was all CG, but it felt like they, it was all stuff that could have been done practically.
 
 [00:21:50] Norm: Miniatures for the
 
@@ -690,7 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:30:25] Will: Does he die at the end?
 
-[00:30:26] Norm: One hundred percent.
+[00:30:26] Norm: 100%.
 
 [00:30:26] Will: Yeah,
 
@@ -1008,7 +1008,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:41:16] Norm: Then K punches him in the throat.
 
-[00:41:19] Will: I, that, that was, On the list of things that I loved about. What they did with this movie to to retcon the first movie without retconning the first movie the hey replicants are going to fight and they're going to fight like eighties action stars was awesome
+[00:41:19] Will: I, that, that was, On the list of things that I loved about. What they did with this movie to to retcon the first movie without retconning the first movie the hey replicants are going to fight and they're going to fight like '80s action stars was awesome
 
 [00:41:33] Adam: and by the way that scene with Sapper Morton was written for the first film
 
@@ -1176,7 +1176,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:50:50] Adam: I thought
 
-[00:50:50] Will: I was you know one hundred percent positive she was the kid [unclear: or I saw her / When you saw her? / [unclear speaker: Adam] Or, or a kid].
+[00:50:50] Will: I was you know 100% positive she was the kid [unclear: or I saw her / When you saw her? / [unclear speaker: Adam] Or, or a kid].
 
 [00:50:50] Adam: oh really
 
@@ -1560,15 +1560,15 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [01:08:13] Will: Well, or you know, anytime you have to tell a lie or murder someone.
 
-[01:08:18] Norm: One minor thing, and I don't know if this is actually up for debate because it is the date, June tenth, twenty one.
+[01:08:18] Norm: One minor thing, and I don't know if this is actually up for debate because it is the date, June 10, '21.
 
 [01:08:18] Adam: Yeah,
 
-[01:08:18] Norm: or is it October sixth?
+[01:08:18] Norm: or is it October 6?
 
 [01:08:31] Adam: Oh, are they doing a European date or an American?
 
-[01:08:34] Norm: Because the movie also came out on October sixth.
+[01:08:34] Norm: Because the movie also came out on October 6.
 
 [01:08:36] Adam: Oh, fascinating.
 
@@ -1728,7 +1728,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [01:12:09] Will: Ooh.
 
-[01:12:09] Adam: which I submit are among it's one of the great film openings in history. Um, it begins with the desert discovery in the, uh, in the Sonoran Desert of the of the flight, the famous flight lost in 1940s of of airplanes, and they all seem brand new, uh, and, uh, it then continues to air traffic controllers in a control room hearing a plane have an encounter with a UFO. Just. Spielberg, young Spielberg, showing this incendiary talent, Um, and I just I love the idea of great film openings. You talk about the first fifteen minutes of Sicario. Agreed. Nilo Rodis-Jamero exhorted me to watch Laputa or Castle in the Sky in the early nineties. He sent me to Japan to buy a Japanese VHS so I could watch it. He goes, " You won't be able to. It's not subtitled, but it doesn't matter." He said, " In the opening of Castle in the Sky is maybe one of the greatest openings in film history."
+[01:12:09] Adam: which I submit are among it's one of the great film openings in history. Um, it begins with the desert discovery in the, uh, in the Sonoran Desert of the of the flight, the famous flight lost in 1940s of of airplanes, and they all seem brand new, uh, and, uh, it then continues to air traffic controllers in a control room hearing a plane have an encounter with a UFO. Just. Spielberg, young Spielberg, showing this incendiary talent, Um, and I just I love the idea of great film openings. You talk about the first fifteen minutes of Sicario. Agreed. Nilo Rodis-Jamero exhorted me to watch Laputa or Castle in the Sky in the early '90s. He sent me to Japan to buy a Japanese VHS so I could watch it. He goes, " You won't be able to. It's not subtitled, but it doesn't matter." He said, " In the opening of Castle in the Sky is maybe one of the greatest openings in film history."
 
 [01:13:20] Adam: Oh, you’re thinking about
 

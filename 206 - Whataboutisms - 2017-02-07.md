@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:23:03] Simone: and it was it's a pretty big. Like they built the bed like a fucking house. Like it's heavy. I bet it it's like leaning on like two two three hundred pounds. And I'm like, no, I'm just gonna lower it. I could call over my friend, but no, I'm just gonna do it myself. And I just, I don't know. It's just a lot of folly.
 
-[00:23:42] Adam: I, I do the same thing. Um, I I had I used to have a benchtop Enco Mill here. It weighs six hundred pounds, and I got it onto its stand myself alone here. And I I did it carefully. Don't worry. But I love doing stuff like that. I'm like you. I I'm not gonna call people on a Sunday. I'm just gonna be like, let's just work through this problem.
+[00:23:42] Adam: I, I do the same thing. Um, I I had I used to have a benchtop Enco Mill here. It weighs 600 pounds, and I got it onto its stand myself alone here. And I I did it carefully. Don't worry. But I love doing stuff like that. I'm like you. I I'm not gonna call people on a Sunday. I'm just gonna be like, let's just work through this problem.
 
 [00:23:42] Simone: Yeah,
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:32:23] Norm: Oh no, no, no!
 
-[00:32:24] Adam: Right, so I have we have some smoke machines that we're using for the for brain candy, and I found these smoke machines. I've got to show you one; they're amazing. They're all made out of bakelite, and they were made by Mole. They were Mole Richardson foggers for movies, and I grew up in the film industry using these, and we're using them on stage. And I managed to find a couple of backups, so now I have three of these, and they're rare as hen's teeth. One hundred and ten volt Mole Richardson bakelite foggers are really hard to buy now because Mole no longer sells them. So to have three, I am very excited about that. I've got three working models.
+[00:32:24] Adam: Right, so I have we have some smoke machines that we're using for the for brain candy, and I found these smoke machines. I've got to show you one; they're amazing. They're all made out of bakelite, and they were made by Mole. They were Mole Richardson foggers for movies, and I grew up in the film industry using these, and we're using them on stage. And I managed to find a couple of backups, so now I have three of these, and they're rare as hen's teeth. 110 volt Mole Richardson bakelite foggers are really hard to buy now because Mole no longer sells them. So to have three, I am very excited about that. I've got three working models.
 
 [00:32:59] Simone: That's a good piece of. Does it smell a lot?
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:36:46] Norm: There you go.
 
-[00:36:47] Adam: Still tickets available for most shows. We're sold out of a few of them. So if you're thinking about coming, um, come. Uh, the thing that I've been saying to people is, brain candy is that feeling of understanding in your head, right? So the I came across this one fact I love while reading a paper about combustion because that's the kind of thing I do in my spare time, and this paper said combustion is an exothermic reaction that uses hydrocarbons and oxygen to create heat and light. That's pretty unassailable, and they asked rhetorically, " What is the opposite of combustion? " And they pointed out that photosynthesis. Is an endothermic reaction that uses CO two and light and heat to create oxygen and hydrocarbons. So the opposite of a fire is a plant.
+[00:36:47] Adam: Still tickets available for most shows. We're sold out of a few of them. So if you're thinking about coming, um, come. Uh, the thing that I've been saying to people is, brain candy is that feeling of understanding in your head, right? So the I came across this one fact I love while reading a paper about combustion because that's the kind of thing I do in my spare time, and this paper said combustion is an exothermic reaction that uses hydrocarbons and oxygen to create heat and light. That's pretty unassailable, and they asked rhetorically, " What is the opposite of combustion? " And they pointed out that photosynthesis. Is an endothermic reaction that uses CO2 and light and heat to create oxygen and hydrocarbons. So the opposite of a fire is a plant.
 
 [00:37:38] Unknown speaker: Wow!
 

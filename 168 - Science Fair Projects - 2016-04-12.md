@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=rhaNoBx39Jc
 
 [00:10:00] Adam: Oh my god!
 
-[00:10:01] Will: And they just park there. Just go, walk away, go to Costco, go get a forty-five-pound bag of chips or something. And I probably had a dozen people towed a year at that place because people would come in and try to park there after, like, normal people would go to work. And I worked at a magazine, so I was going to work at like ten,
+[00:10:01] Will: And they just park there. Just go, walk away, go to Costco, go get a 45-pound bag of chips or something. And I probably had a dozen people towed a year at that place because people would come in and try to park there after, like, normal people would go to work. And I worked at a magazine, so I was going to work at like ten,
 
 [00:10:01] Adam: right?
 

@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:04:23] Adam: Yeah, I appreciated it. in terms of. Yeah, she seemed like she was together.
 
-[00:04:27] Will: Mid nineties internet celebrity.
+[00:04:27] Will: Mid '90s internet celebrity.
 
 [00:04:27] Adam: Yeah, yeah.
 

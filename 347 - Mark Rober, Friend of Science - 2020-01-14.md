@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:01:05] Mark Rober: which, which by the way, this can I take a timeout to say? If if I do say something and it's like I want to rephrase it, I can go back. and edit it.
 
-[00:01:11] Norm: One hundred percent.
+[00:01:11] Norm: 100%.
 
 [00:01:12] Mark Rober: Okay.
 
@@ -56,9 +56,9 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:01:20] Adam: Well, welcome to the cave. It seems like that's crazy that this is your first visit. Yeah. Because clearly we swim in the same waters.
 
-[00:01:27] Mark Rober: That's right. And and I will say, I think you said everyone says this, but coming in and seeing it in three dimensions, it's just next level. I've seen it on so many of your videos in two D, but three D is that's where it's at.
+[00:01:27] Mark Rober: That's right. And and I will say, I think you said everyone says this, but coming in and seeing it in three dimensions, it's just next level. I've seen it on so many of your videos in 2D, but 3D is that's where it's at.
 
-[00:01:39] Adam: It's um, it's way more hoardery in three D, isn't it?
+[00:01:39] Adam: It's um, it's way more hoardery in 3D, isn't it?
 
 [00:01:43] Mark Rober: Yes.
 

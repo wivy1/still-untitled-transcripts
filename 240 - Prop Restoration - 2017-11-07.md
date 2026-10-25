@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:08:56] Adam: Yeah,
 
-[00:08:57] Tom Spina: not so great twenty thirty years later. But we've seen stuff going way back to two thousand and one. We restored one of Stuart's apes head to toe. In fact, it was missing a foot, so head to toe on one side, head to an ankle on the other, and then we made the foot. But yeah, in some cases like that, Stuart's foam on the face for that was ninety percent of it felt fresh.
+[00:08:57] Tom Spina: not so great twenty thirty years later. But we've seen stuff going way back to 2001. We restored one of Stuart's apes head to toe. In fact, it was missing a foot, so head to toe on one side, head to an ankle on the other, and then we made the foot. But yeah, in some cases like that, Stuart's foam on the face for that was 90% of it felt fresh.
 
 [00:08:57] Adam: Wow.
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:22:52] Tom Spina: Right.
 
-[00:22:52] Norm: Yeah. Nineteen eighty-four. It opens weird. It opens. It opens in the city. It takes it out of. It's weird to see scenes.
+[00:22:52] Norm: Yeah. 1984. It opens weird. It opens. It opens in the city. It takes it out of. It's weird to see scenes.
 
 [00:23:01] Tom Spina: That's true. Yeah. And do we do we come back to that? Because I'm
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:23:24] Tom Spina: Well, you had the movie The Black Hole.
 
-[00:23:46] Adam: been using black hole as a in that way since the 60s.
+[00:23:46] Adam: been using black hole as a in that way since the '60s.
 
 [00:23:49] Tom Spina: Wow. Okay.
 
@@ -758,7 +758,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:29:36] Tom Spina: right?
 
-[00:29:36] Norm: Do you feel like there was a hook like that? I think that they encapsulated perfectly from the eighties.
+[00:29:36] Norm: Do you feel like there was a hook like that? I think that they encapsulated perfectly from the '80s.
 
 [00:29:47] Adam: I love that you asked that because I thought that the that D and D scene, which I recently read, they wrote in like as long as it took to to to for it to be performed. They wrote that scene almost like bang, like that, and I thought it was a great challenge.
 
@@ -792,13 +792,13 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:30:44] Tom Spina: Well, wait.
 
-[00:30:45] Adam: It'll be a year. Is this nineteen eighty two?
+[00:30:45] Adam: It'll be a year. Is this 1982?
 
-[00:30:47] Norm: Eighty four. Oh,
+[00:30:47] Norm: '84. Oh,
 
-[00:30:48] Adam: eighty four. So Jedi's already come out. Shoot. So what was eighty five?
+[00:30:48] Adam: '84. So Jedi's already come out. Shoot. So what was '85?
 
-[00:30:50] Tom Spina: Alien. Oh no, wait, eighty five.
+[00:30:50] Tom Spina: Alien. Oh no, wait, '85.
 
 [00:30:53] Norm: We’ll make them Ghostbusters.
 
@@ -890,7 +890,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:32:55] Norm: Yeah. So,
 
-[00:32:56] Adam: Brain Candy Live starts a week from Wednesday, uh, in Rhode Island, uh, and then we do twenty-four cities around the country between next Wednesday and December tenth, I believe, finishing up in Charlotte, North Carolina.
+[00:32:56] Adam: Brain Candy Live starts a week from Wednesday, uh, in Rhode Island, uh, and then we do twenty-four cities around the country between next Wednesday and December 10, I believe, finishing up in Charlotte, North Carolina.
 
 [00:33:10] Tom Spina: When you'll be very tired.
 

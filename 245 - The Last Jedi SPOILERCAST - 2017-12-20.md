@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:11:08] Adam: I felt Mark Hamill's.
 
-[00:11:09] Norm: I one hundred percent agree. I felt Mark Hamill’s.
+[00:11:09] Norm: I 100% agree. I felt Mark Hamill’s.
 
 [00:11:11] Will: Carrie Fisher was
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:23:16] Adam: Right, right.
 
-[00:23:16] Norm: Uh, so John Scalzi wrote a piece on his blog, his impressions of the film, and he says like he doesn't care about plot holes and nitpicking, and there was plenty of nitpicking for fans to be have. Some people thrive on it. It's entire. I mean, if you treat Star Wars like a religion, you're going to do that. Like Star Wars is a myth, right? And you can view this film as this is a story from a long time ago, far far away, as told by. Now it's stories passed down, and and even if you watch it through the lens of this is all told by C three PO or R two, you know, at the end of it all,
+[00:23:16] Norm: Uh, so John Scalzi wrote a piece on his blog, his impressions of the film, and he says like he doesn't care about plot holes and nitpicking, and there was plenty of nitpicking for fans to be have. Some people thrive on it. It's entire. I mean, if you treat Star Wars like a religion, you're going to do that. Like Star Wars is a myth, right? And you can view this film as this is a story from a long time ago, far far away, as told by. Now it's stories passed down, and and even if you watch it through the lens of this is all told by C-3PO or R2, you know, at the end of it all,
 
 [00:23:50] Adam: right,
 
@@ -892,7 +892,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:40:49] Adam: That didn't occur to me at all.
 
-[00:40:50] Norm: And then and then he winks at. C three PO. I am like, okay, he's oh, they're not doing that, and I guess, and then they do it, and it's one big Jedi mind trick.
+[00:40:50] Norm: And then and then he winks at. C-3PO. I am like, okay, he's oh, they're not doing that, and I guess, and then they do it, and it's one big Jedi mind trick.
 
 [00:40:59] Adam: Yep,
 

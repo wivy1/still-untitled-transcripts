@@ -34,7 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:01:10] Kishore: Like you, like when you’re just caught in a flow.
 
-[00:01:26] Adam: [unclear: Well / Oh, well], and when I stepped into, so we were just prior to boarding when I stepped up next to you guys, and we all know what a shit fight it is to fly in the U.S. and that if you're anywhere remotely close to starting to board, everyone just crowds the gate, right? So I tend to try and stay back until the very last second, and so there I was, kind of. Oh, it looks like they're just about to start processing, and I step up, and I notice pink hair to my right, and my scanners, peripheral scanners, go. The peripheral scanners. Are achieving a seventy percent likelihood that that is Charlie Jane Anders, and then I heard you going, " I think he's in disguise." And you and Annalee were kind of making fun of me, and you tapped me on the shoulder, and I turned around, and it was the three of you.
+[00:01:26] Adam: [unclear: Well / Oh, well], and when I stepped into, so we were just prior to boarding when I stepped up next to you guys, and we all know what a shit fight it is to fly in the U.S. and that if you're anywhere remotely close to starting to board, everyone just crowds the gate, right? So I tend to try and stay back until the very last second, and so there I was, kind of. Oh, it looks like they're just about to start processing, and I step up, and I notice pink hair to my right, and my scanners, peripheral scanners, go. The peripheral scanners. Are achieving a 70% likelihood that that is Charlie Jane Anders, and then I heard you going, " I think he's in disguise." And you and Annalee were kind of making fun of me, and you tapped me on the shoulder, and I turned around, and it was the three of you.
 
 [00:02:13] Kishore: That is not the internal monologue voice I expected for your internal monologue. More robotic than I expected.
 
@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:02:26] Unknown, possibly Adam: Yeah, yeah.
 
-[00:02:26] Norm: And I went through the neurotic, even though I was ninety-nine percent sure it was you. I didn't want the one percent that it wouldn't be until I saw the helmet bag, and I was like, " Wait, one hundred percent! I can tap you on the shoulder now."
+[00:02:26] Norm: And I went through the neurotic, even though I was 99% sure it was you. I didn't want the 1% that it wouldn't be until I saw the helmet bag, and I was like, " Wait, 100%! I can tap you on the shoulder now."
 
 [00:02:39] Adam: So yeah, I made a custom helmet bag out of an old airbag and some quilted broadcloth, which I didn't even know was a thing. Quilted broadcloth is something Ryan Nagata just introduced me to as a way to fill out spacesuits or other costume-type stuff. I didn't know you could buy it pre-quilted. So I bought a few yards and I finished the ACES helmet behind us here. Both of these last Wednesday, and then Wednesday afternoon I had an extra three hours. So I made a helmet bag with an aluminum bottom that was a 14-inch baking pan, and that's how I hand carried the helmet all the way to New York and back.
 

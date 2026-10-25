@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:02:57] Adam: I have
 
-[00:02:57] Adam: reed switches, and that is a terrible, terrible way to go. Reed switches are super, super finicky. They're touchy. They fail. We had a failure mode of like fifty percent of the reed switches. And there is solid state electronics that do this that can switch a switch a current because of magnetism.
+[00:02:57] Adam: reed switches, and that is a terrible, terrible way to go. Reed switches are super, super finicky. They're touchy. They fail. We had a failure mode of like 50% of the reed switches. And there is solid state electronics that do this that can switch a switch a current because of magnetism.
 
 [00:03:18] Jeremy: Right. Yeah. Well, and there is pinball machines are filled with them nowadays.
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:11:15] Adam: So I and I remember reading about the Bernstein Bears as a thing and being like, " Wow, no, I really do remember saying as a kid, Bernstein Bears, Bernstein Bears, and just like it should have been spelled E-I-N like any other Bernstein, but it's not. There's an A there.
 
-[00:11:30] Norm: And you can Google all of these, like this list of things. Most famously, recently, of course, was the Sinbad, the the comedian, and people believing that there were there was a movie he starred in ninety called Kazam.
+[00:11:30] Norm: And you can Google all of these, like this list of things. Most famously, recently, of course, was the Sinbad, the the comedian, and people believing that there were there was a movie he starred in '90 called Kazam.
 
 [00:11:45] Adam: But they're mistaking that for the Shaq movie. where Shaq played a genie called
 
@@ -344,9 +344,9 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:13:13] Adam: Well, so we first tried this this this wrench that I thought was meant for removing filters, but it's actually meant for re-rounding the the threads for it. And when that didn't work, because this entire thing had happened before a few months ago when you got your this the Mark IV, am I right?
 
-[00:13:31] Norm: Yes, the Canon Five D.
+[00:13:31] Norm: Yes, the Canon 5D.
 
-[00:13:32] Adam: You got the Five D Mark IV. The first day you had it, there was a little slip, and you dropped it and shattered the filter. You couldn't get the filter off an expensive lens, and I I took it by myself. I didn't want to film this because I didn't want the pressure, but I took it by myself and on the bandsaw.
+[00:13:32] Adam: You got the 5D Mark IV. The first day you had it, there was a little slip, and you dropped it and shattered the filter. You couldn't get the filter off an expensive lens, and I I took it by myself. I didn't want to film this because I didn't want the pressure, but I took it by myself and on the bandsaw.
 
 [00:13:50] Norm: We tried. I think we tried. We talked about this in a previous podcast where we tried unscrewing it. You tried all these ways. I
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:16:47] Jeremy: I mean, but you don't want to hit the lens, so you go through enough metal. Is there some left over that you just have to rip apart?
 
-[00:16:54] Adam: No, no, no, no. All I need to do, all I need mechanically, is a notch. Two notches on the lens, a hundred and eighty degrees opposite each other, thick enough for a piece of aluminum that's like
+[00:16:54] Adam: No, no, no, no. All I need to do, all I need mechanically, is a notch. Two notches on the lens, 180 degrees opposite each other, thick enough for a piece of aluminum that's like
 
 [00:16:54] Jeremy: right
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:23:41] Jeremy: This movie was made for the Chinese audience. Do you think
 
-[00:23:43] Norm: it was made for both? So I think it was it was done within the Chinese film industry. It had almost ninety nine percent Asian actors, Chinese actors, but they spoke a mixture of Mandarin and English, not dubbed. So it was.
+[00:23:43] Norm: it was made for both? So I think it was it was done within the Chinese film industry. It had almost 99% Asian actors, Chinese actors, but they spoke a mixture of Mandarin and English, not dubbed. So it was.
 
 [00:23:59] Adam: It's a peculiar movie,
 
@@ -862,7 +862,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:36:00] Adam: I don't know if they have to be older than ten to enjoy Russia with Love. I mean, there's all the wonderful gadgets. Doctor No, Goldfinger, and From Russia with Love are all really good for gadgets and toys and good chases and like fine, semi-cheesy fights. But Connery is really great.
 
-[00:36:18] Norm: Don't show many of the eighties ones.
+[00:36:18] Norm: Don't show many of the '80s ones.
 
 [00:36:19] Adam: Don't show them any Roger Moore until they're a little older and they can appreciate the cheesy, the cheeseballness of Roger Moore
 

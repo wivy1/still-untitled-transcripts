@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:03:45] Will: Oh, oh, you're going to be in New York this week. Oh, let's. Well, you know, I asked. I asked.
 
-[00:03:49] Norm: Also, let's be clear because there were a bunch of articles that just came out over the weekend about the people who are doing like the Uber for the skies, doing helicopters from, from Midtown to JFK in six minutes, but it's two hundred dollars each way, and also it goes like eighty. Like gallons per you know per hour,
+[00:03:49] Norm: Also, let's be clear because there were a bunch of articles that just came out over the weekend about the people who are doing like the Uber for the skies, doing helicopters from, from Midtown to JFK in six minutes, but it's 200 dollars each way, and also it goes like eighty. Like gallons per you know per hour,
 
 [00:04:07] Adam: right? Yeah.
 
@@ -504,13 +504,13 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:20:24] Will: Re-releasing a PG thirteen version of Alien.
 
-[00:20:27] Adam: But I do find it funny when I I've been recently watching some movies from the 80s, like I watched Roadhouse.
+[00:20:27] Adam: But I do find it funny when I I've been recently watching some movies from the '80s, like I watched Roadhouse.
 
 [00:20:31] Will: Yeah,
 
-[00:20:31] Adam: and I think it's hilarious when you watch a hard R from the 80s. It announces that it's a hard R within the first three lines of dialogue. Someone drops f bombs like buying a cup of coffee.
+[00:20:31] Adam: and I think it's hilarious when you watch a hard R from the '80s. It announces that it's a hard R within the first three lines of dialogue. Someone drops f bombs like buying a cup of coffee.
 
-[00:20:41] Will: Well, that and even like PG thirteen movies from the early 80s before PG thirteen came on are really, really a lot. Like you have to be careful with a with like a 1982 PG.
+[00:20:41] Will: Well, that and even like PG thirteen movies from the early '80s before PG thirteen came on are really, really a lot. Like you have to be careful with a with like a 1982 PG.
 
 [00:20:51] Adam: Oh, really?
 
@@ -984,7 +984,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:39:16] Will: We had one of those every summer. We we had one when my daughter was young too.
 
-[00:39:18] Adam: And and I remember very specifically, I was probably like six years old, and we had this big. The house I grew up in was built on an was on an unbroken acre lot. Because the neighborhood I grew up in was broken into acre lots in nineteen hundred when it was built, and we had one of the few unbroken lots, so we had this long yard. It was really amazing to grow up there. Anyway, we set this pool up, and we're all like, " It's a hot New York summer." We're all enjoying the pool, and my dad is like, " Everybody look out!" We see him running from the other end of the yard, and he's going to take a running jump into this pool, and it's like in slow motion. He leaves the ground and flies through the air and puts his feet together, and in a seated position, he smacks, lands in the bottom of the pool, and promptly his feet travel right through the other side of the pool, and the pool is effectively a hunk of plastic garbage at that point, and all the water's gone, and we've gone from the highest joy we can imagine seeing this incredible thing unfolding to all of us crying.
+[00:39:18] Adam: And and I remember very specifically, I was probably like six years old, and we had this big. The house I grew up in was built on an was on an unbroken acre lot. Because the neighborhood I grew up in was broken into acre lots in 1900 when it was built, and we had one of the few unbroken lots, so we had this long yard. It was really amazing to grow up there. Anyway, we set this pool up, and we're all like, " It's a hot New York summer." We're all enjoying the pool, and my dad is like, " Everybody look out!" We see him running from the other end of the yard, and he's going to take a running jump into this pool, and it's like in slow motion. He leaves the ground and flies through the air and puts his feet together, and in a seated position, he smacks, lands in the bottom of the pool, and promptly his feet travel right through the other side of the pool, and the pool is effectively a hunk of plastic garbage at that point, and all the water's gone, and we've gone from the highest joy we can imagine seeing this incredible thing unfolding to all of us crying.
 
 [00:40:17] Will: Oh, we so those things were good for usually one year because they get crunchy after that.
 

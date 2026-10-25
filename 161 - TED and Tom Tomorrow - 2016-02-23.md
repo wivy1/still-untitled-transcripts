@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:14:14] Will: Yeah.
 
-[00:14:14] Adam: Uh, almost ten thousand dollars to go. Eight, eighty-five hundred dollars, I think, is the price of a ticket.
+[00:14:14] Adam: Uh, almost 10,000 dollars to go. Eight, eighty-five hundred dollars, I think, is the price of a ticket.
 
 [00:14:18] Will: I mean, they do.
 

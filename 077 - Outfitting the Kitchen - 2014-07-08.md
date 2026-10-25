@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:00:41] Norm: Not that much. What do you mean when not that much?
 
-[00:00:54] Adam: I believe it's somewhere in the two thousand dollar range.
+[00:00:54] Adam: I believe it's somewhere in the 2,000 dollar range.
 
 [00:00:58] Norm: The actual, like, how many heads they make? Not
 
@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:01:39] Adam: You know, one of the things, one of the nice things about knowing Neil Gaiman, who's a good friend of mine, is the things he gets. I get to hear him tell me about other people I admire, like he was good friends with Adams and just talks about him being the sweetest guy alive.
 
-[00:01:54] Will: He wrote a biography of Adams that was the first thing I read by Neil Gaiman when I was probably fourteen. So that would have been in like nineteen eighty-eight or eighty-nine.
+[00:01:54] Will: He wrote a biography of Adams that was the first thing I read by Neil Gaiman when I was probably fourteen. So that would have been in like 1988 or '89.
 
 [00:01:54] Adam: Yeah,
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:05:14] Norm: Yeah, the good one.
 
-[00:05:49] Adam: And I would add to that that if you if you think you need a tool, go buy the cheapest possible version of it and see if it's at all useful to you. And there are great resources for that. Um. Going to Amazon and sorting by price, eBay sorting by price, or if you just want a seventy percent guarantee that your tool arrives working, go for Harbor Freight.
+[00:05:49] Adam: And I would add to that that if you if you think you need a tool, go buy the cheapest possible version of it and see if it's at all useful to you. And there are great resources for that. Um. Going to Amazon and sorting by price, eBay sorting by price, or if you just want a 70% guarantee that your tool arrives working, go for Harbor Freight.
 
 [00:06:10] Will: There you go. That's the ringing endorsement.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:10:19] Will: like and like a skillet and a frying pan. and a pot. Yeah, you can do
 
-[00:10:22] Adam: ninety five percent of what you'd need to do with that. Um, and to be clear and to be sure, as you'd expect, my wife and I have bought a lot of kitchen gadgets over the years.
+[00:10:22] Adam: 95% of what you'd need to do with that. Um, and to be clear and to be sure, as you'd expect, my wife and I have bought a lot of kitchen gadgets over the years.
 
 [00:10:22] Will: You have a well equipped kitchen.
 
@@ -304,11 +304,11 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:15:01] Will: awesome inside. Yeah,
 
-[00:15:03] Adam: then you take them, you heat up a sauté pan with vegetable oil to just under four hundred degrees. Like three ninety,
+[00:15:03] Adam: then you take them, you heat up a sauté pan with vegetable oil to just under 400 degrees. Like three ninety,
 
 [00:15:15] Will: smoking or shimmering?
 
-[00:15:16] Adam: Uh, no, not smoking, but definitely shimmering. It's hot. Okay, like my candy thermometer doesn't go higher than four hundred, right? So it starts beeping. When it beeps, I know it's ready. So just around four hundred degrees, and I throw in a handful at a time, um, but and then cook them for exactly five minutes.
+[00:15:16] Adam: Uh, no, not smoking, but definitely shimmering. It's hot. Okay, like my candy thermometer doesn't go higher than four hundred, right? So it starts beeping. When it beeps, I know it's ready. So just around 400 degrees, and I throw in a handful at a time, um, but and then cook them for exactly five minutes.
 
 [00:15:16] Will: Okay,
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:16:34] Adam: Yeah.
 
-[00:16:34] Will: You don’t need to go out and spend four hundred dollars on All-Clad or Revere.
+[00:16:34] Will: You don’t need to go out and spend 400 dollars on All-Clad or Revere.
 
 [00:16:34] Adam: You really don’t. You won’t notice the difference. Most people.
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:22:46] Adam: totally phenomenal.
 
-[00:22:48] Will: Especially if you are going to do any kind of baking, is super vital because measuring baked the same amount of flour by volume can be like at twenty percent either side,
+[00:22:48] Will: Especially if you are going to do any kind of baking, is super vital because measuring baked the same amount of flour by volume can be like at 20% either side,
 
 [00:22:48] Adam: absolutely
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:25:34] Norm: That's like okay.
 
-[00:25:34] Will: They're like three hundred bucks. If you if you—
+[00:25:34] Will: They're like 300 bucks. If you if you—
 
 [00:25:34] Adam: Costco has a cheaper one,
 

@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:11:57] Adam: He has he has he
 
-[00:11:58] Adam: has slept in here. He has he has lived himself in here for you know here and there. Um, this this lem uh is again giant. It's over twenty five feet tall. Um, it is. Unique, except for the original lems, in that it is actually supported by its four landing pads. It has no cheater post in the middle, like most display lems around the world.
+[00:11:58] Adam: has slept in here. He has he has lived himself in here for you know here and there. Um, this this lem uh is again giant. It's over 25 feet tall. Um, it is. Unique, except for the original lems, in that it is actually supported by its four landing pads. It has no cheater post in the middle, like most display lems around the world.
 
 [00:12:23] Norm: You're saying it could fall over at any minute?
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:22:13] Norm: You were in LA over the weekend or yesterday.
 
-[00:22:18] Adam: Yeah. It's eleven. It's ten a.m. right now. I I got up at five thirty this morning and just actually a tad late, and just made it to LAX in time to catch my flight to get here. I was I had some meetings in LA yesterday, which was the primary reason I was there, and those were awesome. I saw all my friends at Whalerock, but I also went last night to see Michael Giacchino conduct the orchestra to play the music from Lost
+[00:22:18] Adam: Yeah. It's eleven. It's ten a.m. right now. I I got up at 5:30 this morning and just actually a tad late, and just made it to LAX in time to catch my flight to get here. I was I had some meetings in LA yesterday, which was the primary reason I was there, and those were awesome. I saw all my friends at Whalerock, but I also went last night to see Michael Giacchino conduct the orchestra to play the music from Lost
 
 [00:22:18] Unknown speaker: Wow.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:27:42] Will: yeah, yeah. He he has a real connection to the show that I don't think we're supposed to talk about, but I don't remember.
 
-[00:27:48] Adam: No, no, no. Lloyd Lloyd was on a retreat with executives at ABC when he conceived of the idea of Lost. Hired Damon Lindelof and hired J. J. Abrams and and Damon to come up with a treatment and ended up shooting the most expensive pilot in television history at that point, I think over ten million bucks.
+[00:27:48] Adam: No, no, no. Lloyd Lloyd was on a retreat with executives at ABC when he conceived of the idea of Lost. Hired Damon Lindelof and hired J. J. Abrams and and Damon to come up with a treatment and ended up shooting the most expensive pilot in television history at that point, I think over 10,000,000 bucks.
 
 [00:27:48] Will: Yeah.
 
@@ -572,7 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:32:34] Norm: Yes.
 
-[00:32:34] Adam: Friday the seventh.
+[00:32:34] Adam: Friday the 7th.
 
 [00:32:35] Norm: Cool. Yeah. Stay tuned for that. Wow.
 

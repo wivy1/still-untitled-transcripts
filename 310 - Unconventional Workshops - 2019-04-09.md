@@ -450,7 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:32:39] Adam: I think I always knew that that was a painting.
 
-[00:32:41] Norm: I think I just wanted to appreciate like in the eighties those kind of that key art.
+[00:32:41] Norm: I think I just wanted to appreciate like in the '80s those kind of that key art.
 
 [00:32:46] Kayte: Whereas you told me the reverse. On the cover of NBA Jam for Sega Genesis.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:37:55] Norm: Adam, you got a book tour coming up.
 
-[00:37:56] Adam: I do. My book, Every Tool's a Hammer: Life is What You Make It, comes out on May seventh, but you can pre-order your copy now, and I encourage you to. You can. We also have a sweepstakes that you can enter. AdamSavageBook dot com. Also, the new Savage Industries T-shirts are available on CottonBureau dot com.
+[00:37:56] Adam: I do. My book, Every Tool's a Hammer: Life is What You Make It, comes out on May 7, but you can pre-order your copy now, and I encourage you to. You can. We also have a sweepstakes that you can enter. AdamSavageBook dot com. Also, the new Savage Industries T-shirts are available on CottonBureau dot com.
 
 [00:38:16] Kayte: I gotta get one of those.
 

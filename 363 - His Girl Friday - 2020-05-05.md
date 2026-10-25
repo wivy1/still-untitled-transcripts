@@ -96,19 +96,19 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:06:32] Norm: Let's do that.
 
-[00:06:33] Adam: Yeah. This is a Howard Hawks film, a classic and important Hollywood director, the inventor of that quick style of rapid fire speech with all sorts of like characters talking over each other. It's very funny. The the the Coen brothers famously. Paid great homage to it in the Hudsucker Proxy. Jennifer Jason Leigh saying it took sometimes twenty or thirty takes to talk as fast as she was talking in that movie. His Girl Friday is Rosalind Russell and Cary Grant at at their absolute best. It's a when is It's a Wonderful Life? Is that thirty eight?
+[00:06:33] Adam: Yeah. This is a Howard Hawks film, a classic and important Hollywood director, the inventor of that quick style of rapid fire speech with all sorts of like characters talking over each other. It's very funny. The the the Coen brothers famously. Paid great homage to it in the Hudsucker Proxy. Jennifer Jason Leigh saying it took sometimes twenty or thirty takes to talk as fast as she was talking in that movie. His Girl Friday is Rosalind Russell and Cary Grant at at their absolute best. It's a when is It's a Wonderful Life? Is that '38?
 
-[00:07:13] Norm: Yeah, and this is forty.
+[00:07:13] Norm: Yeah, and this is '40.
 
-[00:07:14] Adam: Yeah, this is forty. Yeah,
+[00:07:14] Adam: Yeah, this is '40. Yeah,
 
-[00:07:16] Adam: this is nineteen forty. Do you know how old Cary Grant was when he made this?
+[00:07:16] Adam: this is 1940. Do you know how old Cary Grant was when he made this?
 
 [00:07:19] Will: Looks like he was like twenty seven,
 
 [00:07:20] Adam: thirty six. He's thirty six.
 
-[00:07:22] Will: Good God, he's almost forty years old in nineteen forty, and he looks like that.
+[00:07:22] Will: Good God, he's almost forty years old in 1940, and he looks like that.
 
 [00:07:27] Adam: Wow,
 
@@ -136,11 +136,11 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:08:17] Norm: Oh my god,
 
-[00:08:17] Will: It's twenty twenty.
+[00:08:17] Will: It's 2020.
 
-[00:08:19] Norm: Forever. It's two thousand in my head. That's that's that's how old we are when we think it's it's always
+[00:08:19] Norm: Forever. It's 2000 in my head. That's that's that's how old we are when we think it's it's always
 
-[00:08:25] Adam: forever. It's two thousand in my head is the lead single of Norm's boy band.
+[00:08:25] Adam: forever. It's 2000 in my head is the lead single of Norm's boy band.
 
 [00:08:30] Will: That's that's that's a Stephen King thing. He says that we always picture ourselves. Our mental picture of ourselves is locked when we turn nineteen, and you always imagine yourself at nineteen from that point forward.
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:11:34] Karen (Adam's mother): Hey,
 
-[00:11:36] Norm: well, it it was one hundred percent intentional. So,
+[00:11:36] Norm: well, it it was 100% intentional. So,
 
 [00:11:39] Will: okay,
 
@@ -266,9 +266,9 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:14:56] Will: Right.
 
-[00:14:56] Adam: Yeah, in the 30s and the 40s, absolutely. Philadelphia Story became High Society. And I know some people who think high society is better. If you're out there, I don't want to know about it. Like showing me some war wound, I don't want to see.
+[00:14:56] Adam: Yeah, in the '30s and the '40s, absolutely. Philadelphia Story became High Society. And I know some people who think high society is better. If you're out there, I don't want to know about it. Like showing me some war wound, I don't want to see.
 
-[00:15:11] Norm: But the movie, I think, has enduring appeal because of the the charisma, because of the charm, and even you know, accepting the lens of the the forties, watch it through. It's there are very few films like it. It's why the Coen Brothers you know riffed on it is because they those two characters are unique in the movie themselves. Everyone else is talking in a much slower pace. They have they're above them, and then they bring you into their little club of you know their brand of intellectualism.
+[00:15:11] Norm: But the movie, I think, has enduring appeal because of the the charisma, because of the charm, and even you know, accepting the lens of the the '40s, watch it through. It's there are very few films like it. It's why the Coen Brothers you know riffed on it is because they those two characters are unique in the movie themselves. Everyone else is talking in a much slower pace. They have they're above them, and then they bring you into their little club of you know their brand of intellectualism.
 
 [00:15:43] Adam: Well, and when you watch them do their their business, and perhaps my favorite scene in the movie is when Cary Grant meets Rosalind Russell's fiance.
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:19:14] Adam: They totally were writing clickbait, and the film does not think much of journalists. In fact, it's opening salvo is that text that says, " Oh, this shouldn't." It literally is like wink, wink, wacka, wacka, telling you this has no resemblance to modern day reporters. Wink, wink.
 
-[00:19:32] Will: Well, but I mean, when when but did was the movie supposed to take place in the 20s or 30s? Like that's the thing I don't get.
+[00:19:32] Will: Well, but I mean, when when but did was the movie supposed to take place in the '20s or '30s? Like that's the thing I don't get.
 
 [00:19:39] Adam: I I I think it was contemporary
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:21:09] Adam: Oh, right, because he's he's being tried for murder because he shot a black policeman.
 
-[00:21:14] Will: Right, and and the mayor doesn't want to lose the black community's vote in the next election on Tuesday, so they have to hang the guy. And and the guy, the guy who I don't know who plays the the murderer, but he's he's he plays such a 40s sad sack in in like
+[00:21:14] Will: Right, and and the mayor doesn't want to lose the black community's vote in the next election on Tuesday, so they have to hang the guy. And and the guy, the guy who I don't know who plays the the murderer, but he's he's he plays such a '40s sad sack in in like
 
 [00:21:32] Adam: he's literally like I didn't do it.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:23:26] Adam: it fits his mold of of exploration. I think really well. His sort of central thesis about his films is that human beings are essentially perverted, and like that's a kind of central feature of us. Like we're all perverts to a certain extent, and there's a way in which that grids beautifully right into this film. Right, it feels a little like. Plus the fact that, by the way, we haven't even gotten to the cinematography is super beautiful, really, really gorgeous. When she, when, when Rosalind Russell goes in to meet the murderer in his Cage in the Hall of Justice. It's like a cage in a room with a stark shadow on it. It's all very gorgeously lit.
 
-[00:24:08] Will: It's it's it the the Hannibal Lecter intro in Silence of the Lambs, where Jodie Foster goes in to see him in the glass cage, is is one hundred percent has to be had to be in in in the mind.
+[00:24:08] Will: It's it's it the the Hannibal Lecter intro in Silence of the Lambs, where Jodie Foster goes in to see him in the glass cage, is is 100% has to be had to be in in in the mind.
 
 [00:24:21] Adam: I feel like you're right. I feel like you're I feel like you're absolutely right.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:30:45] Unknown speaker (Adam or Karen): she's pretty.
 
-[00:30:46] Adam: There's, I think this all serves to talk about something that's kind of interesting, which is like we often think of black and white movies, movies from the thirties, twenties, thirties, forties, fifties, as Quaint portions of our culture, right? With with easy plots and and simplistic and nothing could be further from the truth. There are some surpassing, obviously, there are some surpassingly beautiful films, dark films, crazy stuff. I remember being shocked at how moved I was watching Gilda. Right, right. Like I didn't know a black and white movie could make me feel that way when I first watched it. I was probably twenty or something like that. And there's just this within film history, this rich mine of real bizarre strangeness, and I had no idea what I was in for in watching this film.
+[00:30:46] Adam: There's, I think this all serves to talk about something that's kind of interesting, which is like we often think of black and white movies, movies from the '30s, '20s, '30s, '40s, '50s, as Quaint portions of our culture, right? With with easy plots and and simplistic and nothing could be further from the truth. There are some surpassing, obviously, there are some surpassingly beautiful films, dark films, crazy stuff. I remember being shocked at how moved I was watching Gilda. Right, right. Like I didn't know a black and white movie could make me feel that way when I first watched it. I was probably twenty or something like that. And there's just this within film history, this rich mine of real bizarre strangeness, and I had no idea what I was in for in watching this film.
 
 [00:31:43] Norm: And most of those are character studies. I mean, not a lot happens because the effects weren't there, and you can only have so many sets, and so it all had to be on the characterizations and the dialogue.
 

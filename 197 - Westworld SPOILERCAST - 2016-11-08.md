@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:10:10] Will: major genres.
 
-[00:10:11] Norm: That's right. Hundred million dollars put in this series.
+[00:10:11] Norm: That's right. 100,000,000 dollars put in this series.
 
 [00:10:11] Unknown speaker: Wow, really?
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:12:10] Adam: and in the order of like you know mid five figures per day to enjoy this park.
 
-[00:12:14] Norm: It's forty thousand dollars a day base, but if you do the website and you want all the amenities, meaning like lodging and money and clothes, it gets up to about two hundred fifty thousand dollars a day in future currency, which they've said is in mid twenty first century.
+[00:12:14] Norm: It's 40,000 dollars a day base, but if you do the website and you want all the amenities, meaning like lodging and money and clothes, it gets up to about 250,000 dollars a day in future currency, which they've said is in mid 21st century.
 
 [00:12:26] Adam: Oh, is that what they've said? So
 
@@ -712,7 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:30:51] Adam: They’re. They’re. They’re. Do you think they all work out together?
 
-[00:30:52] Will: They’re the twenty teens’ Baldwins. Which one's gonna turn out to be a neocon? We'll find out.
+[00:30:52] Will: They’re the 2010s’ Baldwins. Which one's gonna turn out to be a neocon? We'll find out.
 
 [00:30:52] Adam: That's great.
 

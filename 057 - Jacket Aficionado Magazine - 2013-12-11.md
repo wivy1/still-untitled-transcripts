@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:14:02] Adam: yeah,
 
-[00:14:02] Norm: just for people who find the jackets that stars wear in movies, and the best, the closest substitute that might not be, you know, a thousand dollars or two thousand dollars. And I go buy those.
+[00:14:02] Norm: just for people who find the jackets that stars wear in movies, and the best, the closest substitute that might not be, you know, a thousand dollars or 2,000 dollars. And I go buy those.
 
 [00:14:15] Adam: Interesting. I need to know that forum. That's a great idea. I mean, I know the replica prop forum does that a lot, but, um.
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:20:23] Adam: You know, I have this thing that my jeans wear out pretty quickly in the knees, um, and as soon as they do, I really don't want to wear them anymore. I don't, I can't stand wearing jeans with big holes in the knees anymore.
 
-[00:20:37] Will: Well, the, we age out of that. It's no longer the nineties.
+[00:20:37] Will: Well, the, we age out of that. It's no longer the '90s.
 
 [00:20:40] Will: Yeah, you're probably right.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:24:23] Adam: No, I have not.
 
-[00:24:24] Will: Oh, the Henry Ford Museum in Dearborn, Michigan, is another one of the great museums of the world. It is basically a museum of industrial of the industrial revolution and everything that came after. So it's from steam engines and water powered stuff and and all that on, and they go through like you know all the way through the automobile in the fifty s, sixties, and seventies. But but more than just cars, which is what you'd expect from the Ford Museum, there are giant steam locomotives, diesel locomotives, coal. I guess coal-powered steam, but electric trains, and then like washing machines, and all the kind of early machinery, household machinery, and refrigerators, and and ice boxes, and stuff like that, that marked the turn of the last century, and the kind of the what I would consider the dawn of what has become modern American consumerist society, and also Thomas Edison's last breath is there. So yeah, there is a jar. It's an unassuming jar on a shelf. And I know I've talked about this on the other podcast, but probably not here. There's an unassuming jar in the middle of an aisle, and it's it's the museum is arranged almost like a supermarket. There are these eight or ten foot wide wide aisles, and it's just like it's not even shelves. It's just like a dense. There's a there's a velvet rope or a bar, and then there's like ten feet of stuff in front to back arranged in kind of a. You can see everything, but it's definitely maximally full.
+[00:24:24] Will: Oh, the Henry Ford Museum in Dearborn, Michigan, is another one of the great museums of the world. It is basically a museum of industrial of the industrial revolution and everything that came after. So it's from steam engines and water powered stuff and and all that on, and they go through like you know all the way through the automobile in the '50s, '60s, and '70s. But but more than just cars, which is what you'd expect from the Ford Museum, there are giant steam locomotives, diesel locomotives, coal. I guess coal-powered steam, but electric trains, and then like washing machines, and all the kind of early machinery, household machinery, and refrigerators, and and ice boxes, and stuff like that, that marked the turn of the last century, and the kind of the what I would consider the dawn of what has become modern American consumerist society, and also Thomas Edison's last breath is there. So yeah, there is a jar. It's an unassuming jar on a shelf. And I know I've talked about this on the other podcast, but probably not here. There's an unassuming jar in the middle of an aisle, and it's it's the museum is arranged almost like a supermarket. There are these eight or ten foot wide wide aisles, and it's just like it's not even shelves. It's just like a dense. There's a there's a velvet rope or a bar, and then there's like ten feet of stuff in front to back arranged in kind of a. You can see everything, but it's definitely maximally full.
 
 [00:25:53] Adam: That's amazing.
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:26:33] Will: Um, it's a great museum. Everybody, everybody, if you are ever in the Detroit area, should go to Henry Ford Museum. It is it is an absolutely singular experience.
 
-[00:26:41] Adam: I did have a little bit of a bittersweet experience yesterday. I walked, uh, the entire distance from Tom's studio back to my hotel on the west side, Uh, and I walked down Eighth Street. Now, uh, my first adult job was working as a projectionist at a famous theater called the Eighth Street Playhouse on Eighth Street and Sixth Avenue in the Village, Uh, and it is, uh, famous for it is where the Rocky Horror Picture Show fad began.
+[00:26:41] Adam: I did have a little bit of a bittersweet experience yesterday. I walked, uh, the entire distance from Tom's studio back to my hotel on the west side, Uh, and I walked down 8th Street. Now, uh, my first adult job was working as a projectionist at a famous theater called the Eighth Street Playhouse on 8th Street and 6th Avenue in the Village, Uh, and it is, uh, famous for it is where the Rocky Horror Picture Show fad began.
 
 [00:27:06] Will: Oh wow!
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:28:14] Will: Wow. Well, it's a it's a constantly changing city. Do you ever stomp through old stomping grounds when you go to New York? Do you do you go see, um, like the, your childhood home and and well,
 
-[00:28:24] Adam: yeah. So, um, uh, the first two years in my life, I spent on Eighth and MacDougal, just a about a block from the Eighth Street Playhouse. My parents had a duplex there above what used to be Hamburger Mary's, what is now Stumptown Coffee.
+[00:28:24] Adam: yeah. So, um, uh, the first two years in my life, I spent on 8th and MacDougal, just a about a block from the Eighth Street Playhouse. My parents had a duplex there above what used to be Hamburger Mary's, what is now Stumptown Coffee.
 
 [00:28:36] Will: Ooh.
 

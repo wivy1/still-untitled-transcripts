@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:05:46] Norm: Ah.
 
-[00:05:43] Adam: That was actually a happenstance that Cuarón really loved and utilized to a great effect in Gravity. And this is all of a long way of saying that Cuarón feels he's not doing long shots just for a long shot's sake. It's not just I'm going to do my Touch of Evil or the beginning of The Player type of shot. He is was very specific about Gravity being worth watching in 3D and using 3D in a way that other people haven't. And one of the things that he feels. Is that rapid cutting in three D pulls you out of the three D experience because we don't see the world in edited cuts. So he wants those protracted takes because it makes it more of an immersive experience for us, the viewer.
+[00:05:43] Adam: That was actually a happenstance that Cuarón really loved and utilized to a great effect in Gravity. And this is all of a long way of saying that Cuarón feels he's not doing long shots just for a long shot's sake. It's not just I'm going to do my Touch of Evil or the beginning of The Player type of shot. He is was very specific about Gravity being worth watching in 3D and using 3D in a way that other people haven't. And one of the things that he feels. Is that rapid cutting in 3D pulls you out of the 3D experience because we don't see the world in edited cuts. So he wants those protracted takes because it makes it more of an immersive experience for us, the viewer.
 
 [00:06:26] Norm: And the movie is near. I mean, from a plot perspective, it's near real time. Little some segments are condensed, but the idea is that it
 
@@ -202,9 +202,9 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:06:39] Will: which is wonderful.
 
-[00:06:40] Adam: Yeah, no, and it is. It is. I don't remember the three D. That's the thing about it. I don't remember going, " Oh, that's really cool three D." I just remember being completely exhausted by how much, how incredibly tense the film. was.
+[00:06:40] Adam: Yeah, no, and it is. It is. I don't remember the 3D. That's the thing about it. I don't remember going, " Oh, that's really cool 3D." I just remember being completely exhausted by how much, how incredibly tense the film. was.
 
-[00:06:54] Will: It's a pretty subtle three D. Like, there is not. I think there were a couple of times where something kind of flew out at you a little bit. Maybe an elbow came out of the screen a little bit.
+[00:06:54] Will: It's a pretty subtle 3D. Like, there is not. I think there were a couple of times where something kind of flew out at you a little bit. Maybe an elbow came out of the screen a little bit.
 
 [00:07:03] Adam: I kind of, I am having trouble just revealing what goes on because I don't want to spoil it. But of course, it's a spoiler.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:08:44] Will: It's fine.
 
-[00:08:44] Adam: He would hold up a two and a half foot diameter aluminum sphere, and he'd say, " The Earth looks like it's got a lot of water. I mean, seventy percent of its surface is water, and the oceans are pretty deep, right? I mean, two, three, seven miles deep at the deepest part. There's a lot of water." He says, " What if the Earth was the size of this sphere, two and a half feet? How deep is the deepest ocean on Earth?" He says the condensation of my breath on the surface of this sphere is as deep as the Marianas Trench. Yeah, it makes it seem a lot more delicate when you think of it that way.
+[00:08:44] Adam: He would hold up a two and a half foot diameter aluminum sphere, and he'd say, " The Earth looks like it's got a lot of water. I mean, 70% of its surface is water, and the oceans are pretty deep, right? I mean, two, three, seven miles deep at the deepest part. There's a lot of water." He says, " What if the Earth was the size of this sphere, two and a half feet? How deep is the deepest ocean on Earth?" He says the condensation of my breath on the surface of this sphere is as deep as the Marianas Trench. Yeah, it makes it seem a lot more delicate when you think of it that way.
 
 [00:09:19] Will: A little bit of a different perspective.
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:16:20] Adam: and it also makes it the the the the degree to which the film is in real time aids the action so much because you know you're going to suffer through the whole trip. You know, you it almost increases the claustrophobia while you're looking at her O2.
 
-[00:16:37] Norm: You're holding your breath every time she calls out from eight percent to five percent. You're oh, maybe I should be conserving my breath.
+[00:16:37] Norm: You're holding your breath every time she calls out from 8% to 5%. You're oh, maybe I should be conserving my breath.
 
 [00:16:43] Will: You're just thinking,
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:17:36] Will: Earth CG too?
 
-[00:17:37] Norm: Ninety percent of that movie CG.
+[00:17:37] Norm: 90% of that movie CG.
 
 [00:17:39] Adam: Wow.
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:17:55] Norm: And the type of motion controllers they need to build to shoot the actors' faces.
 
-[00:17:59] Adam: Yeah, well, so that is actually to me one of the most interesting technical things that they did. You know, they they knew they knew given the subject matter of the film, it was very hard to get it made. It took a long time. A lot of studios turned it down. I believe that the casting of Clooney and Bullock really helped, but still, they had eighty million dollars to make a movie with, you know, easily a hundred and over a hundred fifty million dollars worth of production value that they had to get out of it. So, Cuarón and his and his team, they actually pre-visualized the entire movie from start to finish.
+[00:17:59] Adam: Yeah, well, so that is actually to me one of the most interesting technical things that they did. You know, they they knew they knew given the subject matter of the film, it was very hard to get it made. It took a long time. A lot of studios turned it down. I believe that the casting of Clooney and Bullock really helped, but still, they had 80,000,000 dollars to make a movie with, you know, easily a hundred and over 150,000,000 dollars worth of production value that they had to get out of it. So, Cuarón and his and his team, they actually pre-visualized the entire movie from start to finish.
 
 [00:18:32] Will: Well, I mean, they'd have to.
 
@@ -576,7 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:24:16] Will: it's it's it's um
 
-[00:24:19] Norm: it's cheaper. I mean, for an eighty million dollar movie, to get her as a great actress to do that than to do effect shots over and over again.
+[00:24:19] Norm: it's cheaper. I mean, for an 80,000,000 dollar movie, to get her as a great actress to do that than to do effect shots over and over again.
 
 [00:24:26] Adam: Yeah yeah it, it, it's totally astonishing. I’ll also say something else I really liked about her casting was um you know there are some other nitpicks that some people had
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:26:01] Adam: yeah,
 
-[00:26:01] Will: and you're like, oh Jesus, really? Um, I just felt like at some point somebody had to have a conversation. And yeah, we'll we'll yeah we'll do a Sigourney Weaver taking her out of the spacesuit scene. It'll be good. It'll be real sexy. And the Hollywood producer guy was like, " Oh, okay. Well, in that case, here's another twenty million dollars."
+[00:26:01] Will: and you're like, oh Jesus, really? Um, I just felt like at some point somebody had to have a conversation. And yeah, we'll we'll yeah we'll do a Sigourney Weaver taking her out of the spacesuit scene. It'll be good. It'll be real sexy. And the Hollywood producer guy was like, " Oh, okay. Well, in that case, here's another 20,000,000 dollars."
 
 [00:26:15] Adam: Right, and I will actually. That's a great example of the difference. I mean, the whole thing of Sigourney Weaver in her underpants at the end of Alien is—that's absolutely titillating and terrifying, and exemplifies her vulnerability.
 
@@ -876,7 +876,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:35:52] Norm: Space exploration.
 
-[00:35:53] Adam: I guess the thing that that sold the danger of space to me was the. We talked about the Indian astronaut, who you only hear his voice, you never actually see him alive on screen. When you do see him, he has been killed. And it's a Jaws reveal. It's just like the reveal of what's his name from the movie Jaws when they—Dreyfuss is down in the boat and the head appears. In this case, the astronaut, a piece of space debris flying at twenty thousand miles an hour, has gone right through his face, and you can see the Earth through the hole in his head,
+[00:35:53] Adam: I guess the thing that that sold the danger of space to me was the. We talked about the Indian astronaut, who you only hear his voice, you never actually see him alive on screen. When you do see him, he has been killed. And it's a Jaws reveal. It's just like the reveal of what's his name from the movie Jaws when they—Dreyfuss is down in the boat and the head appears. In this case, the astronaut, a piece of space debris flying at 20,000 miles an hour, has gone right through his face, and you can see the Earth through the hole in his head,
 
 [00:36:25] Will: You can see the shape of the thing that went through.  his face.
 
@@ -1166,11 +1166,11 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:46:36] Adam: But if you are texting during a film, screw you.
 
-[00:46:38] Norm: Also, the pro tip is always if you are going to watch a three D movie, bring lens wipes.
+[00:46:38] Norm: Also, the pro tip is always if you are going to watch a 3D movie, bring lens wipes.
 
 [00:46:42] Adam: Ooh!
 
-[00:46:43] Will: Oh, nice. Always well done. You have you you have you taught me the secret of IMAX three D movies.
+[00:46:43] Will: Oh, nice. Always well done. You have you you have you taught me the secret of IMAX 3D movies.
 
 [00:46:48] Adam: Sitting in the back,
 
@@ -1204,7 +1204,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:47:46] Will: Eleven o'clock at night. Fresh, fresh first impressions with absolutely no.
 
-[00:47:51] Adam: I was thinking of the Sunday morning ten thirty.  show.
+[00:47:51] Adam: I was thinking of the Sunday morning 10:30.  show.
 
 [00:47:53] Will: Okay,
 

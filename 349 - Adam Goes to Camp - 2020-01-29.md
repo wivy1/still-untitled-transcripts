@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:08:50] Will: So. But then somebody said, " Hey, it's this is probably like what knights felt like armor was." And a guy who does combat archaeology, I can't remember,
 
-[00:09:01] Adam: but he's actually like a foremost historical European martial arts fighter. Brought a replica, but fighting suit of fifteenth century armor that was his.
+[00:09:01] Adam: but he's actually like a foremost historical European martial arts fighter. Brought a replica, but fighting suit of 15th century armor that was his.
 
 [00:09:12] Will: I got to help him put it on,
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:12:13] Adam: Yeah.
 
-[00:12:13] Will: Harper and Mark and Taylor and you were throwing all clubs. So I have a goal for twenty twenty one.
+[00:12:13] Will: Harper and Mark and Taylor and you were throwing all clubs. So I have a goal for 2021.
 
 [00:12:18] Adam: Yeah,
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:12:45] Adam: totally fine.
 
-[00:12:45] Will: Um. That my goal for twenty twenty one is learn to do clubs so I can learn to pass.
+[00:12:45] Will: Um. That my goal for 2021 is learn to do clubs so I can learn to pass.
 
 [00:12:49] Adam: I want to do five balls. I keep. I've saved that every few years. I can do four.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:24:11] Norm: Really?
 
-[00:24:11] Will: Yeah. So you start with a category, and the category is like two kind of diapoles. Dipoles. So, like for example, soft or hard, large or small, sexy Pokémon, unsexy Pokémon, Star Wars, Star Trek. Yeah. And then you have this circle. A semicircle is exposed, and it has a big white disc. And you spin the big white disc, and that exposes a range that's maybe five percent of the semicircle.
+[00:24:11] Will: Yeah. So you start with a category, and the category is like two kind of diapoles. Dipoles. So, like for example, soft or hard, large or small, sexy Pokémon, unsexy Pokémon, Star Wars, Star Trek. Yeah. And then you have this circle. A semicircle is exposed, and it has a big white disc. And you spin the big white disc, and that exposes a range that's maybe 5% of the semicircle.
 
 [00:24:37] Adam: Right.
 
@@ -578,11 +578,11 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:25:20] Adam: that's way in the Star Wars category.
 
-[00:25:22] Will: But is it all the way in the Star Wars? Is like ten percent out of the Star Wars? Is it twenty percent of the range?
+[00:25:22] Will: But is it all the way in the Star Wars? Is like 10% out of the Star Wars? Is it 20% of the range?
 
-[00:25:26] Norm: And the range is about five about a five percent sliver.
+[00:25:26] Norm: And the range is about five about a 5% sliver.
 
-[00:25:28] Will: The range you're aiming for is like a five percent chunk of the overall semicircle. Oh
+[00:25:28] Will: The range you're aiming for is like a 5% chunk of the overall semicircle. Oh
 
 [00:25:32] Adam: wow, that's awesome.
 
@@ -606,7 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:26:37] Adam: Cartilage?
 
-[00:26:37] Will: like like no, like aerogel versus the surface of a neutron star. And I was like, well, on that one, it's like definitely on the soft side, and we were off by ninety five percent or something. But anyway, I posted it on Twitter. If you want to find a link, there's like two or three different games called Wavelength on Amazon, so be careful if you buy it. Um, but I'll I'll
+[00:26:37] Will: like like no, like aerogel versus the surface of a neutron star. And I was like, well, on that one, it's like definitely on the soft side, and we were off by 95% or something. But anyway, I posted it on Twitter. If you want to find a link, there's like two or three different games called Wavelength on Amazon, so be careful if you buy it. Um, but I'll I'll
 
 [00:26:56] Adam: We'll post the correct link.
 

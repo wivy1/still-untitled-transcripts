@@ -1090,11 +1090,11 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:37:18] Adam: Yeah.
 
-[00:37:18] Will: authors circle. And at the risk of being doing the reductive, awful thing, " The Fated Skies" and " Calculating Stars" start start with " Calculating Stars." It's kind of post apocalyptic historical fiction. So imagine imagine Seveneves and Hidden Figures, and like like fifties Earth, something goes really bad, and people realize that hey, we've got to we've got to really accelerate the space program.
+[00:37:18] Will: authors circle. And at the risk of being doing the reductive, awful thing, " The Fated Skies" and " Calculating Stars" start start with " Calculating Stars." It's kind of post apocalyptic historical fiction. So imagine imagine Seveneves and Hidden Figures, and like like '50s Earth, something goes really bad, and people realize that hey, we've got to we've got to really accelerate the space program.
 
 [00:37:18] Adam: Oh, okay.
 
-[00:37:18] Will: With fifties era technology, and it is I think it's very much your jam.
+[00:37:18] Will: With '50s era technology, and it is I think it's very much your jam.
 
 [00:38:04] Adam: Yeah, no, sounds like my jam.
 

@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:01:57] Michael Green: It’s a podcast. They knew that they would be...
 
-[00:01:58] Adam: no no. When you pull that ejection seat, it shoots you out of the plane so fast you won't have a sensation of rising. You will literally. Pull the ejection handle. It'll feel like you got hit by a car, and the next time you open your eyes, you'll be three hundred feet from the plane.
+[00:01:58] Adam: no no. When you pull that ejection seat, it shoots you out of the plane so fast you won't have a sensation of rising. You will literally. Pull the ejection handle. It'll feel like you got hit by a car, and the next time you open your eyes, you'll be 300 feet from the plane.
 
 [00:02:13] Michael Green: So you'd be unconscious, or
 

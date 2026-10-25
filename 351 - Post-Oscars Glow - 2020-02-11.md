@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:26:35] Adam: Thank you.
 
-[00:26:35] Will: I we recorded a new TechPod last week, and we plan to sit down and rank Windowses like the like talk about the history of Windows from Windows three point one yeah to the we and only got halfway there in the time that we had allotted. But the first episode of that up now of that is up now at techpod.content.town, and you can hear what we feel about the like nineties and early two thousands Windowses. Nice. And the other part comes next week.
+[00:26:35] Will: I we recorded a new TechPod last week, and we plan to sit down and rank Windowses like the like talk about the history of Windows from Windows 3.1 yeah to the we and only got halfway there in the time that we had allotted. But the first episode of that up now of that is up now at techpod.content.town, and you can hear what we feel about the like '90s and early 2000s Windowses. Nice. And the other part comes next week.
 
 [00:27:01] Adam: I finished a book yesterday, Walter Isaacson's biography of the Wright brothers.
 

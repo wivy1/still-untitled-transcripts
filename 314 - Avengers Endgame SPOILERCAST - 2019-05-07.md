@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:01:52] Adam: Yeah.
 
-[00:01:52] Norm: An opening weekend, which is astounding. Infinity War made just about the same. This movie made three hundred fifty million. There were a hundred million dollars. On the table still,
+[00:01:52] Norm: An opening weekend, which is astounding. Infinity War made just about the same. This movie made three hundred fifty million. There were 100,000,000 dollars. On the table still,
 
 [00:02:03] Will: yeah,
 
@@ -304,9 +304,9 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:12:08] Adam: true, really, truly.
 
-[00:12:10] Norm: Three D, no three D,
+[00:12:10] Norm: 3D, no 3D,
 
-[00:12:11] Will: no three D.
+[00:12:11] Will: no 3D.
 
 [00:12:12] Norm: No 3D.
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:16:37] Adam: Yeah,
 
-[00:16:38] Adam: Dukes. We used to. So I grew up. That's what we called it in Westchester County in the seventies. We called it Duke's football. You folded up a triangle and you shot it.
+[00:16:38] Adam: Dukes. We used to. So I grew up. That's what we called it in Westchester County in the '70s. We called it Duke's football. You folded up a triangle and you shot it.
 
 [00:16:46] Will: We did a ground game too. So you slide it on the table across, and you try to get it over the edge.
 
@@ -1210,7 +1210,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:41:07] Will: from a five-year five-year absence.
 
-[00:41:12] Norm: You have some great closure. They go back to nineteen seventies. You have your Stan Lee cameo,
+[00:41:12] Norm: You have some great closure. They go back to 1970s. You have your Stan Lee cameo,
 
 [00:41:16] Will: such a good bit,
 
@@ -1222,7 +1222,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:41:22] Adam: Lovely scene, a lovely scene, and the young of I mean, the the the digital aging and de aging has gotten so refined. I mean, Sam Jackson, literally in twenty years, when our kids' kids will start watching these films, they're going to be confused about when Captain Marvel came out.
 
-[00:41:42] Will: It was made in nineteen ninety six,
+[00:41:42] Will: It was made in 1996,
 
 [00:41:43] Adam: right? Because of Sam Jackson's face, and this film, the de aging has been so amazing.
 

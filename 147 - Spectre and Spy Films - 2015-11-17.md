@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:07:56] Will: The ring thing, right?
 
-[00:07:56] Norm: the ring. They had the the villain from the end of the first Casino Royale, Mister White, which. Opened a great chase scene in Quantum, and they had the great opera scene where you have these cabal of the elite, the one percent, with their earbuds, and their and Bond gets to listen in. Like that sequence was great. And how do you kind of redo that and make the organization even more pervasive and powerful?
+[00:07:56] Norm: the ring. They had the the villain from the end of the first Casino Royale, Mister White, which. Opened a great chase scene in Quantum, and they had the great opera scene where you have these cabal of the elite, the 1%, with their earbuds, and their and Bond gets to listen in. Like that sequence was great. And how do you kind of redo that and make the organization even more pervasive and powerful?
 
 [00:08:20] Adam: You hire Christoph Waltz,
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:10:04] Norm: in Spectre, in Spectre.
 
-[00:10:07] Adam: That's like this is called the iPhone six, the iPhone success,
+[00:10:07] Adam: That's like this is called the iPhone 6, the iPhone success,
 
 [00:10:11] Norm: or no, the iPhone sucks ass.
 

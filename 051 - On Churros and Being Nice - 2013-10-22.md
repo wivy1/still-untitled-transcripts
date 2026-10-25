@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:29:08] Will: even even if you're rude with it. I'm okay if the—because we are not we we make mistakes all the time.
 
-[00:29:14] Adam: A hundred percent,
+[00:29:14] Adam: 100%,
 
 [00:29:15] Will: but
 

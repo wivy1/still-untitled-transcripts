@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:10:36] Will: Okay.
 
-[00:10:36] Adam: and we want to go see it." I said, " I've looked it up. It's playing a block from here at this theater called blah at eight o'clock. So, book us tickets for the eight o'clock show." He comes back ten minutes later and he says, " I bought some tickets. There were no theaters nearby, but there was a nine thirty showing, so I bought four tickets to that." And I said, " Okay, this is a problem because I am old and I want to go to sleep, and nine thirty is too late. So, let's get the money back for the tickets." Can't we've already bought them?
+[00:10:36] Adam: and we want to go see it." I said, " I've looked it up. It's playing a block from here at this theater called blah at eight o'clock. So, book us tickets for the eight o'clock show." He comes back ten minutes later and he says, " I bought some tickets. There were no theaters nearby, but there was a 9:30 showing, so I bought four tickets to that." And I said, " Okay, this is a problem because I am old and I want to go to sleep, and 9:30 is too late. So, let's get the money back for the tickets." Can't we've already bought them?
 
 [00:11:05] Will: Yeah,
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:11:12] Will: well it's because you took his phone away so he didn't have Fandango
 
-[00:11:15] Adam: no he had his phone he had a laptop I said look it's called this this is the theater go I sent him the link here's the theater it's got an eight o'clock showing there's seats available book it so he comes back and he says I booked it for the eight o'clock show we're good so seven thirty no the theater's like two blocks away seven thirty rolls around I'm like um so do we need to print those tickets out or we can just go to will call he goes let me check oh um dad I've messed up I didn't buy the tickets to that theater I bought it to a theater that's forty five minutes away
+[00:11:15] Adam: no he had his phone he had a laptop I said look it's called this this is the theater go I sent him the link here's the theater it's got an eight o'clock showing there's seats available book it so he comes back and he says I booked it for the eight o'clock show we're good so 7:30 no the theater's like two blocks away 7:30 rolls around I'm like um so do we need to print those tickets out or we can just go to will call he goes let me check oh um dad I've messed up I didn't buy the tickets to that theater I bought it to a theater that's forty five minutes away
 
 [00:11:46] Will: Oh no. So hold on so now we're two sets of tickets in and those I'm sure you are refundable as well
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:12:10] Will: Still cheaper than here.
 
-[00:12:12] Adam: Well, We ended up paying for for the four of us to go see this this movie. I was going to say stupid movie, but it wasn't a stupid movie. But that's like I want to see the stupid movie. Was we ended up spending like one hundred and ninety dollars.
+[00:12:12] Adam: Well, We ended up paying for for the four of us to go see this this movie. I was going to say stupid movie, but it wasn't a stupid movie. But that's like I want to see the stupid movie. Was we ended up spending like 190 dollars.
 
 [00:12:22] Will: Oh no! Oh no!
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:19:54] Will: Right.
 
-[00:19:54] Norm: That was 2000 Two thousand one,
+[00:19:54] Norm: That was 2000 2001,
 
 [00:19:54] Will: One or two, yeah.
 
@@ -856,7 +856,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:31:44] Adam: smashing Loki around.
 
-[00:31:44] Will: I can imagine because if you do it the wrong way, it looks like a goofy rag doll in bad two thousands animation.
+[00:31:44] Will: I can imagine because if you do it the wrong way, it looks like a goofy rag doll in bad 2000s animation.
 
 [00:31:48] Adam: Really hard. The two hardest shots apparently were that one and Hulk smashing.
 

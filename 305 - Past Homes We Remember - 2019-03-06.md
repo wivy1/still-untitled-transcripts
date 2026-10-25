@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:08:02] Unknown speaker (Norm or Will): right?
 
-[00:08:02] Norm: Everything is one hundred million dollars. Everything is the world at stake.
+[00:08:02] Norm: Everything is 100,000,000 dollars. Everything is the world at stake.
 
 [00:08:06] Will then Adam then Will: Bridesmaids, bridesmaids, bridesmaids is a hard R comedy.
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:10:09] Adam: and so when I tweet about you know Mythbusters Junior airing in the U.S. and I can't get numbers from Discovery about when it's airing in Canada, in South America, Central America, Asia, Europe, those are the those people follow us in all of those places and want to know that kind of stuff. And Netflix makes that trivial.
 
-[00:10:44] Will: Well, so there's. There's the the thing that they did is you know half of a but of if a movie costs a hundred million dollars to make often the studio will spend another seventy five or a hundred million dollars marketing it.
+[00:10:44] Will: Well, so there's. There's the the thing that they did is you know half of a but of if a movie costs 100,000,000 dollars to make often the studio will spend another seventy five or a hundred million dollars marketing it.
 
 [00:10:44] Adam: Jesus Christ!
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:11:47] Norm: And the Academy is about celebrating that form.
 
-[00:11:51] Adam: So there is a really interesting article I came across that talked about that. The very last time the studios, did I already talk about this on the podcast?, that the studios had a hostless Oscars was 1968, 69. At the very moment, the studio system was dying, and young, brash filmmakers like John Cassavetes and were bringing up films that were super cheap with amazing performances and amazing writing in them, and that engendered this whole radical shift in film into the early 70s. So that they pointed out that that happened at this pivot point in in film.
+[00:11:51] Adam: So there is a really interesting article I came across that talked about that. The very last time the studios, did I already talk about this on the podcast?, that the studios had a hostless Oscars was 1968, 69. At the very moment, the studio system was dying, and young, brash filmmakers like John Cassavetes and were bringing up films that were super cheap with amazing performances and amazing writing in them, and that engendered this whole radical shift in film into the early '70s. So that they pointed out that that happened at this pivot point in in film.
 
 [00:12:23] Will: So I was going to say the thing that hasn't happened as much with film as it has happened with online video and even TV to a lesser extent is that the democratization of the process hasn't gone down. And part of it is that is that you know with a podcast, the stuff that we have sitting on our desk would have cost fifteen or twenty thousand dollars
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:13:53] Adam: think that's only good. I think that's only good when the distribution can get wider for smaller projects.
 
-[00:13:58] Will: Well, that's why it feels gross when Spielberg complains about Roma being in the Academy Awards because it feels like he's trying to pull up the ladder after him when he's one of those people that directly benefited from the people that that that broke the studio system in the sixties.
+[00:13:58] Will: Well, that's why it feels gross when Spielberg complains about Roma being in the Academy Awards because it feels like he's trying to pull up the ladder after him when he's one of those people that directly benefited from the people that that that broke the studio system in the '60s.
 
 [00:14:11] Adam: Interesting, I'm because I I think of Spielberg as a solidly. You're right. His career comes about at this perfect.
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:19:07] Adam: I think you’re probably right.
 
-[00:19:07] Norm: me feeling unfulfilled in certain ways. I think that was one hundred percent their intention. It's just that I I would have wanted more, and that's you know being a fan of the show. I think I I can say I want more.
+[00:19:07] Norm: me feeling unfulfilled in certain ways. I think that was 100% their intention. It's just that I I would have wanted more, and that's you know being a fan of the show. I think I I can say I want more.
 
 [00:19:34] Will: It's one of those situations where I would give a lot of money to have like recordings of the writers' room. For honestly, the entire run of Breaking Bad, I know that putting recording putting recording devices in the writers' room is probably going to mess up the writers' room.
 
@@ -644,13 +644,13 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:26:59] Unknown (Will or Norm): Okay.
 
-[00:26:59] Adam: Somebody else was like, " I love this puppy," and she's like, " Go get it." And somebody else was like, " I want this ridiculous five million dollar house in Garrison, New York," and they posted this Zillow ad for this ludicrous five million dollar house in Garrison, New York. And I went and looked at it because I love real estate porn.
+[00:26:59] Adam: Somebody else was like, " I love this puppy," and she's like, " Go get it." And somebody else was like, " I want this ridiculous 5,000,000 dollar house in Garrison, New York," and they posted this Zillow ad for this ludicrous 5,000,000 dollar house in Garrison, New York. And I went and looked at it because I love real estate porn.
 
 [00:26:59] Unknown speaker (Adam or Norm): Oh yeah!
 
 [00:26:59] Adam: [unclear: And I’m flipping / Flipping].
 
-[00:27:40] Will: And here, like just to be clear, here a five million dollar house is like four bedrooms, three baths.
+[00:27:40] Will: And here, like just to be clear, here a 5,000,000 dollar house is like four bedrooms, three baths.
 
 [00:27:47] Adam: No, like on a it's a two thousand square foot house here.
 
@@ -660,7 +660,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:27:50] Unknown speaker: Oh my!
 
-[00:27:50] Adam: And I text my mom, and I'm like, " Hey, is this Doug and Sarah's old house? Because they had some very good friends. He worked on Wall Street. They were friends since I was in New York, so since the since like sixty eight, sixty nine, something like that. And they had this house that I remember going to, and I was right. This was a house that I grew up going to from ages like seven to twelve.
+[00:27:50] Adam: And I text my mom, and I'm like, " Hey, is this Doug and Sarah's old house? Because they had some very good friends. He worked on Wall Street. They were friends since I was in New York, so since the since like '68, '69, something like that. And they had this house that I remember going to, and I was right. This was a house that I grew up going to from ages like seven to twelve.
 
 [00:27:50] Norm: Oh my, how did you feel?
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:27:50] Norm: Wow!
 
-[00:27:50] Adam: So they could spend the winter in the first subbasement because everything below ground is sixty-five degrees, and you could have no heating bills over the winter. The house also had all these different levels. Like some closets had little tiny hobbit doors that opened into other closets and other rooms. Oh, it was it was amazing until you played hide and seek with their son, and then it was an unending nightmare because he could just like whoop whoop whoop skip between the heat register from one room into the bathroom of another, and you'd never find him.
+[00:27:50] Adam: So they could spend the winter in the first subbasement because everything below ground is 65 degrees, and you could have no heating bills over the winter. The house also had all these different levels. Like some closets had little tiny hobbit doors that opened into other closets and other rooms. Oh, it was it was amazing until you played hide and seek with their son, and then it was an unending nightmare because he could just like whoop whoop whoop skip between the heat register from one room into the bathroom of another, and you'd never find him.
 
 [00:29:03] Norm: Fantastic, Mister Fox.
 
@@ -680,7 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:29:11] Norm: can be yours for the bargain price,
 
-[00:29:12] Adam: five million bucks. Um, yeah, that was a weird trip down memory lane. I didn't expect.
+[00:29:12] Adam: 5,000,000 bucks. Um, yeah, that was a weird trip down memory lane. I didn't expect.
 
 [00:29:16] Will: Did I tell you about the time I was on r/architecture, and they're like, " What the hell were they thinking?" Thread of that day featured my old apartment.
 
@@ -694,11 +694,11 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:29:30] Norm: Yeah, it has. What was the distinguishing feature?
 
-[00:29:33] Will: So I lived there from two thousand one to two thousand four. It was a remodeled warehouse that was a one of those quick up lofts in South Market. It was okay. It's across from Costco. At division,
+[00:29:33] Will: So I lived there from 2001 to 2004. It was a remodeled warehouse that was a one of those quick up lofts in South Market. It was okay. It's across from Costco. At division,
 
 [00:29:33] Adam: got it,
 
-[00:29:33] Will: and it was relatively inexpensive. We were paying twenty four hundred dollars a month for three, two bedrooms and two baths.
+[00:29:33] Will: and it was relatively inexpensive. We were paying 2,400 dollars a month for three, two bedrooms and two baths.
 
 [00:29:33] Adam: Yeah,
 
@@ -754,7 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:31:06] Adam: Yeah,
 
-[00:31:06] Will: that's like a thousand acres for only thirteen million dollars right now. So if anybody wants to, you know, get a farm up on Westeroma,
+[00:31:06] Will: that's like a thousand acres for only 13,000,000 dollars right now. So if anybody wants to, you know, get a farm up on Westeroma,
 
 [00:31:31] Adam: oh well, you know, I'm sure some billionaire would like to buy it and limit beach access like a douchebag.
 
@@ -804,7 +804,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:32:40] Will: infinite.
 
-[00:32:41] Norm: There, there are many, and these are folks who spent upwards of like ten million dollars on, and the range is like the one million dollar, the five million dollar, and a ten million dollar house lakeside in one episode. I'm like, how is this even believable that these people are choosing between these three?
+[00:32:41] Norm: There, there are many, and these are folks who spent upwards of like 10,000,000 dollars on, and the range is like the 1,000,000 dollar, the 5,000,000 dollar, and a 10,000,000 dollar house lakeside in one episode. I'm like, how is this even believable that these people are choosing between these three?
 
 [00:32:57] Unknown speaker (Adam or Will): I know,
 

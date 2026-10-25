@@ -98,11 +98,11 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:03:36] Adam: But yeah, so
 
-[00:03:37] Will: so okay for East Coast people, they're thinking, oh, Los Angeles is how far away? Three hundred sixty-eight miles. It's about a five-hour drive. It's
+[00:03:37] Will: so okay for East Coast people, they're thinking, oh, Los Angeles is how far away? 368 miles. It's about a five-hour drive. It's
 
 [00:03:45] Adam: a lot. It's it's farther than driving to Cape Cod from New York City.
 
-[00:03:48] Will: Yeah, like I when I first moved, I went to college and I moved three hundred miles, two hundred and fifty miles,
+[00:03:48] Will: Yeah, like I when I first moved, I went to college and I moved 300 miles, 250 miles,
 
 [00:03:55] Adam: right,
 
@@ -732,13 +732,13 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:27:21] Adam: I just love going through that as many times as I can because I find it so deeply satisfying.
 
-[00:27:25] Will: The cockpit light that's R two D two's.
+[00:27:25] Will: The cockpit light that's R2-D2's.
 
 [00:27:25] Will: Yes.
 
 [00:27:25] Will: Yeah, you're doing archaeology.
 
-[00:27:29] Adam: Yes. What you mean to refer to is that R two D two's little moving light is the reading lamp from a Vickers Viscount nineteen seventies airplane.
+[00:27:29] Adam: Yes. What you mean to refer to is that R2-D2's little moving light is the reading lamp from a Vickers Viscount 1970s airplane.
 
 [00:27:36] Will: What's a cockpit light?
 

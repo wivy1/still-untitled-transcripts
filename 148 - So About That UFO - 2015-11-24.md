@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:02:05] Adam: And I tend to go from a wa-. I tend to get my orthographic shots. I tend to pull back a bunch, but you're right. That could. I mean, there's always a problem with translating from a photograph to the real thing. You always end up either too large or too small, or with distances messed up because parallaxing is more radical than you realize.
 
-[00:02:23] Will: Well, you need you need the right lens. Like, there's a reason that that they have that a lot of people use a 50 millimeter Nikon lens Exactly. from the 60s still to do this stuff.
+[00:02:23] Will: Well, you need you need the right lens. Like, there's a reason that that they have that a lot of people use a 50 millimeter Nikon lens Exactly. from the '60s still to do this stuff.
 
 [00:02:31] Adam: And I use my 50 for reference, but yeah, it's a good question.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:06:41] Will: Did you see it?
 
-[00:06:40] Norm: I saw it was at about six twenty. I was driving over the Bay Bridge, going to the Hornet, the USS Hornet, for a birthday party, and we saw it was. It looked like a helicopter. I mean, looked as low as because the way it was moving across the sky. I mean, the thing you deduce is, while it's a really bright light, it looked like a spotlight,
+[00:06:40] Norm: I saw it was at about 6:20. I was driving over the Bay Bridge, going to the Hornet, the USS Hornet, for a birthday party, and we saw it was. It looked like a helicopter. I mean, looked as low as because the way it was moving across the sky. I mean, the thing you deduce is, while it's a really bright light, it looked like a spotlight,
 
 [00:06:59] Will: right?
 
@@ -236,7 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:07:59] Will: That's JJ Abrams must be involved.
 
-[00:07:59] Will: Hold on, that's a sad state of affairs when something amazing and miraculous happens. You are like, well, probably the marketing people at Twentieth Century Fox.
+[00:07:59] Will: Hold on, that's a sad state of affairs when something amazing and miraculous happens. You are like, well, probably the marketing people at 20th Century Fox.
 
 [00:08:08] Norm: It wasn't miraculous.
 
@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:12:01] Adam: the potential Dyson sphere.
 
-[00:12:02] Will: Is there a Dyson sphere? Like you know, this is small scale because millions of people couldn't see it at the same time. Yeah. But for the people who read that news, the idea that Kepler found a star that randomly twenty percent of its light is blocked—
+[00:12:02] Will: Is there a Dyson sphere? Like you know, this is small scale because millions of people couldn't see it at the same time. Yeah. But for the people who read that news, the idea that Kepler found a star that randomly 20% of its light is blocked—
 
 [00:12:14] Adam: yeah—
 
@@ -492,11 +492,11 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:16:02] Will: We would all get in the hallway in the center of center building away from glass windows, and they duck and cover us, and we'd stay there for like forty-five minutes sometimes.
 
-[00:16:10] Adam: And then you hear that siren sound. That was, yeah, I was doing that in second grade, which would be mid seventies.
+[00:16:10] Adam: And then you hear that siren sound. That was, yeah, I was doing that in second grade, which would be mid '70s.
 
 [00:16:17] Norm: And it's just like people in California today. Kids in California have never experienced the big earthquake.
 
-[00:16:21] Adam: early seventies.
+[00:16:21] Adam: early '70s.
 
 [00:16:22] Will: Yeah, [unclear speaker: I have earthquake / I have earthquakes]. The big earthquake.
 

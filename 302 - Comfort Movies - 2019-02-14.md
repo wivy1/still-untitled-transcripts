@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:12:56] Adam: She's wonderful, and again, lots of coincidences to get her out of trouble.
 
-[00:13:00] Norm: Okay, the villain in that one, Sylvia Hoeks, is the is Luv in Blade Runner twenty forty nine.
+[00:13:00] Norm: Okay, the villain in that one, Sylvia Hoeks, is the is Luv in Blade Runner 2049.
 
 [00:13:11] Will: Hold on is is she the robot?
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:14:46] Adam: right? And then she's there's a scene where she's standing there, kind of like the young female rookie, staring at all these cops that are you know sexist and don't care about. And
 
-[00:14:53] Will: this is like what like 1993, supposed to take place in the late 80s, I think.
+[00:14:53] Will: this is like what like 1993, supposed to take place in the late '80s, I think.
 
 [00:14:57] Adam: But I mean, yeah, so it's it's a it's a 25 year old film, right? And after that. They're in the car, and he says to her, " Look, you know I had to do that. I just had to get him out of our hair." And she goes, " Yeah, but they all watch what you do to see how to behave. It matters, just that." And then he hears that, and they move on. This is a deeply woke little movie about female empowerment and being present with your competence and knowing and trusting yourself. It's it's way more that than I remembered. Also, there's a there's a I can't remember whether it's Tony Zhou or somebody else that did a breakdown of Demme’s technique of reverse angle conversations, where instead of over the shoulder angles for conversations, he went to direct characters staring directly into frame.
 
@@ -608,7 +608,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:26:10] Will: That's bad enough. I haven't even seen it.
 
-[00:26:10] Adam: Michael Ironside and Molly Ringwald. It's a it's a mid eighties debacle. Um. This is a movie that famously, when it was released, there's a shot of a spaceship landing on a planet's surface, and in the corner of the frame, you can see cars in the parking lot they were filming in. Like there's like you could see the edge of frame, and you can see like a car bumper.
+[00:26:10] Adam: Michael Ironside and Molly Ringwald. It's a it's a mid '80s debacle. Um. This is a movie that famously, when it was released, there's a shot of a spaceship landing on a planet's surface, and in the corner of the frame, you can see cars in the parking lot they were filming in. Like there's like you could see the edge of frame, and you can see like a car bumper.
 
 [00:26:34] Will: Wow.
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:26:51] Adam: unfulfilled
 
-[00:26:52] Will: premise, like the like the fifties giant ant insect movies, right? Like something like that.
+[00:26:52] Will: premise, like the like the '50s giant ant insect movies, right? Like something like that.
 
 [00:26:52] Adam: Yeah,
 

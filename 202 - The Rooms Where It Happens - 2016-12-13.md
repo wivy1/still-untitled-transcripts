@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:04:03] Norm: sketches ever.
 
-[00:04:04] Adam: Hundred percent.
+[00:04:04] Adam: 100%.
 
 [00:04:04] Norm: Luther is the silent voice, the true voice.
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:08:55] Adam: And even the Oval Office is smaller than you think it is. Like you know the Oval Office and its layout in your head, you can see there's the president's desk at one end of the Oval, and then in the middle there's two couches with a table in between. Okay, that's most of what's in there, and there's not a lot of room.
 
-[00:09:10] Will: It's like twenty-five feet from end to end.
+[00:09:10] Will: It's like 25 feet from end to end.
 
 [00:09:13] Adam: Yeah, it's it's. Pretty, it's relatively small. We also, we also on the on the day of the party, I met Susie Morrison, the White House pastry chef,
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:18:51] Adam: Belle et la Bête, Beauty and the Beast, the Cocteau version. Just so I hadn't seen it, I had no idea how beautiful the Beast is in that film. How how much of a character, how much personality.
 
-[00:19:04] Will, then Adam, then Will: When was that made? Do you know? Thirties. Thirties?
+[00:19:04] Will, then Adam, then Will: When was that made? Do you know? '30s. '30s?
 
 [00:19:07] Adam: Okay.
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:19:07] Will: Yeah.
 
-[00:19:07] Adam: Also, tons of big camera moves in a movie from the late twenties.
+[00:19:07] Adam: Also, tons of big camera moves in a movie from the late '20s.
 
 [00:19:52] Will: That's insane.
 
@@ -754,7 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:32:30] Will: Those are bad gifts. Is that what the white elephant?
 
-[00:32:32] Norm: No, no. Sometimes you can set like you know a dollar limit, like you know at least twenty dollars, at least twenty five dollars, but it's a mystery gift, and you trade up for grabs in the white elephant party. Two tickets to Hamilton in SF.
+[00:32:32] Norm: No, no. Sometimes you can set like you know a dollar limit, like you know at least twenty dollars, at least 25 dollars, but it's a mystery gift, and you trade up for grabs in the white elephant party. Two tickets to Hamilton in SF.
 
 [00:32:45] Will: What
 

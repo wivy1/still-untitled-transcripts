@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:04:26] Will: It was.
 
-[00:04:26] Will: It seemed like the video made it look very fast. I did not spend three hundred dollars on the Christmas lights to find out.
+[00:04:26] Will: It seemed like the video made it look very fast. I did not spend 300 dollars on the Christmas lights to find out.
 
 [00:04:33] Norm: That difficult of a problem.
 
@@ -232,7 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:05:02] Will: Oh, I think absolutely right.
 
-[00:05:04] Norm: One hundred percent. Yeah. Oh, yeah.
+[00:05:04] Norm: 100%. Yeah. Oh, yeah.
 
 [00:05:05] Will: Um, there, there's a guy in the back of the valley where I live in Pacifica that does like you pull up and there's a sign in the front that says Tune your radio to like 690 AM, and then every 15 minutes he does like a 15 minute light show where it's all animated and choreographed, and the whole thing is it is garish and amazing.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:18:38] Adam: Dude, electronic candles. I mean, I know we just did my one day build with the flame bulb, but electronic candles is something we haven't covered, and they're amazing.
 
-[00:18:44] Will: There's there's so much cool work happening in everything from like those tea lights that IKEA sells for like seventy five cents each.
+[00:18:44] Will: There's there's so much cool work happening in everything from like those tea lights that IKEA sells for like 75 cents each.
 
 [00:18:51] Adam: Yeah,
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:20:55] Norm: And the premise is that he works in like New York diamond trade,
 
-[00:20:59] Adam: New York diamond district, Forty Seventh Street.
+[00:20:59] Adam: New York diamond district, 47th Street.
 
 [00:21:00] Will: Yep,
 
@@ -908,7 +908,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:28:28] Adam: What?
 
-[00:28:28] Norm: It is a one hour, fifty-eight minute movie. It tells essentially the two-hour adventure of these two soldiers, British soldiers, who have a mission to do behind the no man's land to start in the trenches, World War One, nineteen seventeen, in no man's land on the British side, and they have to end up on another front line.
+[00:28:28] Norm: It is a one hour, fifty-eight minute movie. It tells essentially the two-hour adventure of these two soldiers, British soldiers, who have a mission to do behind the no man's land to start in the trenches, World War One, 1917, in no man's land on the British side, and they have to end up on another front line.
 
 [00:28:49] Will: Dude, Wonder Woman did that in like two minutes.
 
@@ -1070,7 +1070,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:36:06] Adam: I think we all can agree.
 
-[00:36:08] Will: Just like man, he looks he looks a little bit older, but wow, it's it's like he's Clooneying at a really high level. He's so pretty. So, but I I don't. Like it feels like a really odd story to do the Inglourious Basterds treatment on, and and like alt history, a thing that happened. Like I don't understand why that story had to be. I knew I I love that Tarantino went and made a movie set in the seventies that he shot like a movie made in the seventies.
+[00:36:08] Will: Just like man, he looks he looks a little bit older, but wow, it's it's like he's Clooneying at a really high level. He's so pretty. So, but I I don't. Like it feels like a really odd story to do the Inglourious Basterds treatment on, and and like alt history, a thing that happened. Like I don't understand why that story had to be. I knew I I love that Tarantino went and made a movie set in the '70s that he shot like a movie made in the '70s.
 
 [00:36:38] Adam: I totally agree with that.
 
@@ -1082,13 +1082,13 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:37:08] Adam: certainly.
 
-[00:37:08] Will: But but like it's commentary on Hollywood vapidness in the seventies, not Hollywood vapid vapidity with vapidity, yeah, vapidity in in the twenty first century. I. I I just like it was really offputting to take something that was like to contrast with Inglourious Basterds at the end where you know she murders Hitler and all the leading generals. That's that's kind of a fantasy wish fulfillment thing that I think a lot of people would be like, man, it would be fucking awesome if somebody went through and murdered Hitler in like 1938.
+[00:37:08] Will: But but like it's commentary on Hollywood vapidness in the '70s, not Hollywood vapid vapidity with vapidity, yeah, vapidity in in the 21st century. I. I I just like it was really offputting to take something that was like to contrast with Inglourious Basterds at the end where you know she murders Hitler and all the leading generals. That's that's kind of a fantasy wish fulfillment thing that I think a lot of people would be like, man, it would be fucking awesome if somebody went through and murdered Hitler in like 1938.
 
 [00:37:42] Adam: Yeah, it's not like people were clamoring for that.
 
 [00:37:44] Will: Yeah,
 
-[00:37:45] Adam: For the seventies. Yeah, yeah. I also I have very very I have a weird taste in my mouth about him making Bruce Lee into a fool.
+[00:37:45] Adam: For the '70s. Yeah, yeah. I also I have very very I have a weird taste in my mouth about him making Bruce Lee into a fool.
 
 [00:37:56] Will: I
 
@@ -1116,13 +1116,13 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:39:03] Will: wonderful,
 
-[00:39:03] Adam: totally amazing. And I loved seeing Luke Perry show up in his last movie role. And I don't know if you read this, but Brad Pitt and Leonardo DiCaprio have done interviews where they talked extensively in multiple interviews about. How over the moon they were to meet their icon of cool, Luke Perry, because they were effectively kids when he was coming up. Right, he's older than them, and they were like he was it in the early nineties, man.
+[00:39:03] Adam: totally amazing. And I loved seeing Luke Perry show up in his last movie role. And I don't know if you read this, but Brad Pitt and Leonardo DiCaprio have done interviews where they talked extensively in multiple interviews about. How over the moon they were to meet their icon of cool, Luke Perry, because they were effectively kids when he was coming up. Right, he's older than them, and they were like he was it in the early '90s, man.
 
-[00:39:32] Will: Right, because what Thelma Louise was like nineteen eighty eight or something.
+[00:39:32] Will: Right, because what Thelma Louise was like 1988 or something.
 
 [00:39:35] Adam: Thelma Louise is later than that.
 
-[00:39:36] Will: Ninety. Oh yeah, ninety one to ninety two.
+[00:39:36] Will: '90. Oh yeah, '91 to '92.
 
 [00:39:38] Adam: Yeah,
 
@@ -1176,7 +1176,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:41:23] Norm: Yeah.
 
-[00:41:24] Will: Again, like this to me seemed like a thing that he wanted to make because he wanted to make a movie set in that specific. Like he hasn't made seventies movies before.
+[00:41:24] Will: Again, like this to me seemed like a thing that he wanted to make because he wanted to make a movie set in that specific. Like he hasn't made '70s movies before.
 
 [00:41:33] Adam: Sure. So that's totally his prerogative. I I want him to make all the movies he wants to make.
 
@@ -1186,7 +1186,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:41:39] Will: please keep making movies.
 
-[00:41:40] Norm: I have two recommendations related to Bruce Lee. One is there's a documentary on Netflix made in Australia about martial arts films and influence on American and global culture, starting with the sixties. It's called Iron Fists and Kung Fu Kicks, and it goes into how martial arts films made in Hong Kong specifically were imported in the style filmmaking
+[00:41:40] Norm: I have two recommendations related to Bruce Lee. One is there's a documentary on Netflix made in Australia about martial arts films and influence on American and global culture, starting with the '60s. It's called Iron Fists and Kung Fu Kicks, and it goes into how martial arts films made in Hong Kong specifically were imported in the style filmmaking
 
 [00:42:02] Adam: Yeah.
 

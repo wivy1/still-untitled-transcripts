@@ -76,9 +76,9 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:01:53] Norm: Yes.
 
-[00:01:53] Adam: And Baker was thrilled with this project and did a whole bunch of actually apparently seven hundred thousand dollars worth of Maquettes and animatronics for these completely radical and awesome aliens.
+[00:01:53] Adam: And Baker was thrilled with this project and did a whole bunch of actually apparently 700,000 dollars worth of Maquettes and animatronics for these completely radical and awesome aliens.
 
-[00:02:16] Norm: We're talking about late seventies, before before ET.
+[00:02:16] Norm: We're talking about late '70s, before before ET.
 
 [00:02:19] Adam: This is before ET, and it's pretty clear the design of one of his final cute aliens. If you just chop off the head a little, chop off a little part of the head, it's like almost exactly ET,
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:02:53] Norm: Wow, God!
 
-[00:02:53] Adam: And he just tweets these pictures, and it's just it's great. It's this wonderful sort of archival dive through, you know, it's. Easy to forget with CG that that Rick Baker and Phil Tippett invented a genre. I mean, these guys established, along with like Rob Bottin and and and and Stuart Freeborn and all these amazing guys in the late seventies, mid seventies, late seventies, early eighties, just did such unbelievable work.
+[00:02:53] Adam: And he just tweets these pictures, and it's just it's great. It's this wonderful sort of archival dive through, you know, it's. Easy to forget with CG that that Rick Baker and Phil Tippett invented a genre. I mean, these guys established, along with like Rob Bottin and and and and Stuart Freeborn and all these amazing guys in the late '70s, mid '70s, late '70s, early '80s, just did such unbelievable work.
 
 [00:03:30] Norm: Of character design,
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:07:32] Will: as fast as you can push.
 
-[00:07:53] Adam: As fast as you can push. That's the thing. Every every professional model shop I've worked in has one of these giant sanders. Now, just to make it clear, visualize the disc is 16 inches. It's mount the disc itself is a 16 inch, half inch plate of steel, perfectly balanced mounted to this. Giant two hundred and twenty volt motor, so it spins at a very very high speed. I don't know the exact.
+[00:07:53] Adam: As fast as you can push. That's the thing. Every every professional model shop I've worked in has one of these giant sanders. Now, just to make it clear, visualize the disc is 16 inches. It's mount the disc itself is a 16 inch, half inch plate of steel, perfectly balanced mounted to this. Giant 220 volt motor, so it spins at a very very high speed. I don't know the exact.
 
 [00:08:18] Will: It seemed like it was a few thousand RPMs at least, right,
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:08:28] Will: You're maneuvering the wood around it.
 
-[00:08:30] Adam: Yeah, you're moving wood around. It's on a huge stand. It weighs probably three hundred pounds.
+[00:08:30] Adam: Yeah, you're moving wood around. It's on a huge stand. It weighs probably 300 pounds.
 
 [00:08:35] Will: And and you said the only thing you have to do is make sure you always use it on this side. And I thought about the scene in Tommy Boy where I'm pretty sure he gets on a disc sander and hucks a, a, a oil filter, you know, ping-pongs it through the thing. And fear of God, that could actually you could do that. That is a thing that you could do.
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:11:35] Will: that's why the ZF1 has taken twenty years to put together
 
-[00:11:38] Adam: exactly. Okay. And so I hit a thing where it's like, oh my gosh, you know, it's these side plates which I have at fifty eight millimeters, which I need to re water cut a bunch of panels because they're actually supposed to be fifty two millimeters apart. I finally learned from someone who worked on the actual guns, and it's killing me. But wait, wait, wait! I'm getting away from myself. Understand when I'm thinking through a project and I'm trying to avoid the pitfalls. The only way I'm Successfully avoiding the pitfalls is the fact that I've screwed up in all of the ways that I am now avoiding. So, like, I've built I've built enough things when I have I fucked up in every way possible in all of these things.
+[00:11:38] Adam: exactly. Okay. And so I hit a thing where it's like, oh my gosh, you know, it's these side plates which I have at 58 millimeters, which I need to re water cut a bunch of panels because they're actually supposed to be 52 millimeters apart. I finally learned from someone who worked on the actual guns, and it's killing me. But wait, wait, wait! I'm getting away from myself. Understand when I'm thinking through a project and I'm trying to avoid the pitfalls. The only way I'm Successfully avoiding the pitfalls is the fact that I've screwed up in all of the ways that I am now avoiding. So, like, I've built I've built enough things when I have I fucked up in every way possible in all of these things.
 
 [00:12:18] Will: On different projects.
 

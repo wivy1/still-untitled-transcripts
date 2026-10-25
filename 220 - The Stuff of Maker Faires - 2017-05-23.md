@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:15:07] Ian: Oh, that’s.
 
-[00:15:07] Norm: the with 3D designs. So he brought his completely one third scale working engines. Wow. Not completely working. They are 3D 3D all all 3D printed. Ninety five percent with some minor
+[00:15:07] Norm: the with 3D designs. So he brought his completely one third scale working engines. Wow. Not completely working. They are 3D 3D all all 3D printed. 95% with some minor
 
 [00:15:26] Norm: hardware.
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:15:43] Adam: That had all the yeah. That that stuff just I I want it. I want to eat it. It's just like it's so exciting.
 
-[00:15:54] Norm: It's like growing up, and you see the you get the cutaway models that you can buy and put together. But this is a functional version that you can download a file for free and print at home. And with an FDM printer, you get for four hundred bucks, you have the tolerances to make something work.
+[00:15:54] Norm: It's like growing up, and you see the you get the cutaway models that you can buy and put together. But this is a functional version that you can download a file for free and print at home. And with an FDM printer, you get for 400 bucks, you have the tolerances to make something work.
 
 [00:16:06] Will: That's incredible. Um, I spent some time with the new version of the Open ROV.
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:16:52] Ian: Did you see the, um, the Maslow CNC?
 
-[00:16:54] Norm: Yes. So we actually had them here. They were set up in, um, our studio last week. Uh, these, uh, small company, um, uh, Bar Smith over in Portland designed a CNC which the, he got the idea from going to Maker Faire, just chatting with someone, and someone said, " Why, why can't I do an upright CNC?" And he said, oh, I think I could probably do that. His first project was a desktop one, and so he has a kit you can buy for three hundred and fifty dollars.
+[00:16:54] Norm: Yes. So we actually had them here. They were set up in, um, our studio last week. Uh, these, uh, small company, um, uh, Bar Smith over in Portland designed a CNC which the, he got the idea from going to Maker Faire, just chatting with someone, and someone said, " Why, why can't I do an upright CNC?" And he said, oh, I think I could probably do that. His first project was a desktop one, and so he has a kit you can buy for 350 dollars.
 
 [00:17:18] Will: What is it?
 
@@ -524,9 +524,9 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:29:22] Ian: Uh, and I can tell you that the featured fairs, uh, Maker Media also sends us blue ribbons, and that is one of the highlights of my year. Is going to you know those select makers who really did something fantastic. Either they built something fantastic, or they interacted in a very fantastic way, and and being able to present them that and seeing it hanging there, and and you know seeing them on social media, just being able to give them back that little bit and and that fuel and knowing that they're going to take that and then build something. Even bigger, even more amazing, or collaborate with someone else. It's just it's amazing thing.
 
-[00:29:59] Will: And even if you don't get the blue ribbon, the rest of the people there are enthusiastic. It is the friendliest crowd. I talked to an R two builder yesterday, who he'd gone to like comic conventions and comic cons and stuff like that with his relatively new R two unit. His name is, shout out to Manny. Thanks for taking time to to play R two for my daughter. She really had a blast. But but he said that what he had had seen at comic cons where it's mostly adults who are like, oh cool, I can take a picture with R two D two was completely dwarfed by taking R two D two places where there's you know four five six year olds who are like,
+[00:29:59] Will: And even if you don't get the blue ribbon, the rest of the people there are enthusiastic. It is the friendliest crowd. I talked to an R2 builder yesterday, who he'd gone to like comic conventions and comic cons and stuff like that with his relatively new R2 unit. His name is, shout out to Manny. Thanks for taking time to to play R2 for my daughter. She really had a blast. But but he said that what he had had seen at comic cons where it's mostly adults who are like, oh cool, I can take a picture with R2-D2 was completely dwarfed by taking R2-D2 places where there's you know four five six year olds who are like,
 
-[00:30:31] Will: oh, oh my god, mom, it's R two D two,
+[00:30:31] Will: oh, oh my god, mom, it's R2-D2,
 
 [00:30:36] Will: and you know they're so excited they're literally vibrating. So you know it's a it is a good scene. You don't have to be ashamed of what you do. You can show it off. Somebody there will be excited about it, no matter how weird or esoteric you think the thing that you do is. And you should all go to see it. I think it's
 

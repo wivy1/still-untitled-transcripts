@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:02:30] Adam: Let's let Jen explain Project Egress.
 
-[00:02:33] Jen Schachter: Sure. Yeah. So we're undertaking a sort of I don't know our own honorary hatch replica, an artistic replica. It's a sculpture of the original command module hatch, which has a lot of historical significance, a lot of engineering significance. So. The story basically is that Apollo One was was supposed to be going to the moon, and they were on the the landing platform, the launch platform, doing a routine test, and the there was an electrical fire that erupted inside of the cabin, and the atmosphere inside the cabin was pure oxygen because that's what they did at the time, and so the fire ignited really rapidly, and the the hatch that was on that command module was designed to open in about sixty to ninety seconds in ideal conditions. Long story short, they were not able to exit from the command module in time,
+[00:02:33] Jen Schachter: Sure. Yeah. So we're undertaking a sort of I don't know our own honorary hatch replica, an artistic replica. It's a sculpture of the original command module hatch, which has a lot of historical significance, a lot of engineering significance. So. The story basically is that Apollo 1 was was supposed to be going to the moon, and they were on the the landing platform, the launch platform, doing a routine test, and the there was an electrical fire that erupted inside of the cabin, and the atmosphere inside the cabin was pure oxygen because that's what they did at the time, and so the fire ignited really rapidly, and the the hatch that was on that command module was designed to open in about sixty to ninety seconds in ideal conditions. Long story short, they were not able to exit from the command module in time,
 
 [00:03:25] Unknown speaker: Exactly.
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:11:18] Adam: And also, all of these wonderful collaborators are are we've given them lots of latitude to film, photograph, and cover in every medium that they choose the build. And I've been following it on my Twitter feed, and it's just been so delightful. The enthusiasm of people like Jimmy DiResta and all these other folks, like showing their work and really getting excited about it.
 
-[00:11:40] Jen Schachter: Yeah, yeah, and seeing how different people approach it. I know, like for Jimmy's. Pieces. He three D printed all of the parts so that he could print them. He could understand them mechanically, and then manufactured them in in brass and some like exotic hardwood. And it's absolutely beautiful. But I heard him talking about it on his podcast, and he was saying, " I was terrified when I saw the drawings because it's that mechanically intimidating." And so he he did the three dimensional print first, and then manufactured it.
+[00:11:40] Jen Schachter: Yeah, yeah, and seeing how different people approach it. I know, like for Jimmy's. Pieces. He 3D printed all of the parts so that he could print them. He could understand them mechanically, and then manufactured them in in brass and some like exotic hardwood. And it's absolutely beautiful. But I heard him talking about it on his podcast, and he was saying, " I was terrified when I saw the drawings because it's that mechanically intimidating." And so he he did the three dimensional print first, and then manufactured it.
 
 [00:12:08] Adam: And I just want to do a shout out, Jen. This has been your baby now for the better part of a year.
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:12:14] Adam: And yeah, you came up with the title " Project Egress," which I totally love. I think it's I think it's the perfect title for this. And you really brought in all of these spaces and and curated this group. The way in which this draws this community close to help celebrate this incredible thing, it moves me. And even more, I cannot wait till next Thursday when we get together and. Assemble all forty-six pieces of this thing from all across the from all across the globe. We hope it goes okay. We brought a lot of tools and glue and double stick tape and things to fix things that might not have worked. I mean, something's going to go cattywampus at some point.
 
-[00:12:55] Jen Schachter: Yeah, yeah, and we ran into that with Rosie too. I mean, we're like sawing off edges of three D prints and packing tape around the arm. I mean, like, well, hopefully it'll be a little a little step above that for the Smithsonian, but we'll make it work.
+[00:12:55] Jen Schachter: Yeah, yeah, and we ran into that with Rosie too. I mean, we're like sawing off edges of 3D prints and packing tape around the arm. I mean, like, well, hopefully it'll be a little a little step above that for the Smithsonian, but we'll make it work.
 
 [00:13:07] Norm: What type of hardware are you guys? Is it going to be nuts and bolts and screwed together?
 
@@ -226,11 +226,11 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:18:51] Norm: Yes, the Tuesday. Yep. That’s
 
-[00:18:53] Adam: right. So the 17th is opening night for an exhibit at the San Francisco Museum of Modern Art, curated by Joseph Becker and his team, called " Far Out," about space habitats from the personal to the global, and it's it's an exhibit that seeks to explore the way in which we have posited extraterrestrial living, because a spacesuit is a spaceship. And I have contributed four of my suits: my ACES orange suit, my Mercury suit, my 2001 Clavius suit, and one that we haven't actually shown publicly or talked about that I've been noodling away at for a couple of years: an EMU suit with big EMU gloves made by like Linda. The actual suit itself was made by NASA back in the early 80s as part of their education department. So It actually has a Teflon coated cloth on the outside, and then I've gone to heavy lengths to accuratize it.
+[00:18:53] Adam: right. So the 17th is opening night for an exhibit at the San Francisco Museum of Modern Art, curated by Joseph Becker and his team, called " Far Out," about space habitats from the personal to the global, and it's it's an exhibit that seeks to explore the way in which we have posited extraterrestrial living, because a spacesuit is a spaceship. And I have contributed four of my suits: my ACES orange suit, my Mercury suit, my 2001 Clavius suit, and one that we haven't actually shown publicly or talked about that I've been noodling away at for a couple of years: an EMU suit with big EMU gloves made by like Linda. The actual suit itself was made by NASA back in the early '80s as part of their education department. So It actually has a Teflon coated cloth on the outside, and then I've gone to heavy lengths to accuratize it.
 
 [00:19:50] Jen Schachter: And how long will that be at SF MOMA?
 
-[00:19:51] Norm: Till January twenty twenty.
+[00:19:51] Norm: Till January 2020.
 
 [00:19:53] Jen Schachter: Oh, cool!
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:20:08] Norm: yeah, all the vinyl
 
-[00:20:10] Adam: Put in the shelves, and they sent me a note like one of the hoses on your two thousand and one suit has broken. Our archivists suggest this fix. I mean, I'm so cavalier with my stuff here in the cave that it's funny to think of them like. “Ah!”
+[00:20:10] Adam: Put in the shelves, and they sent me a note like one of the hoses on your 2001 suit has broken. Our archivists suggest this fix. I mean, I'm so cavalier with my stuff here in the cave that it's funny to think of them like. “Ah!”
 
 [00:20:24] Norm: Well, in the most recent one-day build we put out was you making a shadow box for the Radio City Music Hall earrings, right?
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:21:59] Norm: It's hung up above the exhibit, but it's one of those pieces that wherever ends up, it deserves to be a thing you can walk around. Yeah.
 
-[00:22:06] Adam: And it’s lit on the inside. And the the Pan Am plane is flying into the space station like the poster from two thousand one.
+[00:22:06] Adam: And it’s lit on the inside. And the the Pan Am plane is flying into the space station like the poster from 2001.
 
 [00:22:13] Jen Schachter: Well, when we get back from DCA, I know where I'm going to go check out.
 

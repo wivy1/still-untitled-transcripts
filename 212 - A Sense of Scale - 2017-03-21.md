@@ -232,7 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:14:29] Norm: But we did so much. It was a packed two days, so we got to see the robotics facility where they make the robots. So the tunnel, the tube, we couldn’t actually go down there because that's that's a very restricted area.
 
-[00:14:43] Will: The twenty-eight kilometers. The place between, okay,
+[00:14:43] Will: The 28 kilometers. The place between, okay,
 
 [00:14:43] Norm: yeah,
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:20:08] Will: Oh, Jesus.
 
-[00:20:08] Adam: and thing two was able to get it to twenty one point seven something miles per hour. He told me I came into my dressing room and he goes, " Dude, check out where I am on the leaderboard." And then I noticed that he's bandaging his hand because he took a spill.
+[00:20:08] Adam: and thing two was able to get it to 21.7 something miles per hour. He told me I came into my dressing room and he goes, " Dude, check out where I am on the leaderboard." And then I noticed that he's bandaging his hand because he took a spill.
 
 [00:20:31] Will: Yeah, I can see that.
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:24:22] Will: Wow. So, so like I have to imagine, like in scale from fiction, you're talking about a room like as big as the Jaeger room in Pacific Rim, right? It's an enormous, enormous room.
 
-[00:24:33] Adam: It's um, it's very difficult. I took tons of photos, and yet none of them quite communicate what I would refer to. Well, I first experienced this feeling when I went to Hangar Two, one of the large wooden blimp hangars at NASA Ames, and you can see the big steel one up close to the highway, but farther back. Behind it are the two hangars, one and two, made of redwood. They are twelve hundred feet long, and it's two hundred and thirty feet from the middle of the hangar to the trusswork. And if you, we filmed in there on MythBusters several times. And if you are walking down the the the hangar and looking up, you actually get what I call reverse vertigo. Your your body can't quite comprehend the scale of what you are inside, and the VAB is completely the same experience. It is so big; it has structure just because it has. It actually ends up not with weather inside, like you don't get actual clouds, but you do. They said if you open one of these doors, and again, these doors are five hundred feet tall. If they open one of the doors, fog can roll through the building, and clouds clouds have entered at the top of the building.
+[00:24:33] Adam: It's um, it's very difficult. I took tons of photos, and yet none of them quite communicate what I would refer to. Well, I first experienced this feeling when I went to Hangar Two, one of the large wooden blimp hangars at NASA Ames, and you can see the big steel one up close to the highway, but farther back. Behind it are the two hangars, one and two, made of redwood. They are 1,200 feet long, and it's 230 feet from the middle of the hangar to the trusswork. And if you, we filmed in there on MythBusters several times. And if you are walking down the the the hangar and looking up, you actually get what I call reverse vertigo. Your your body can't quite comprehend the scale of what you are inside, and the VAB is completely the same experience. It is so big; it has structure just because it has. It actually ends up not with weather inside, like you don't get actual clouds, but you do. They said if you open one of these doors, and again, these doors are 500 feet tall. If they open one of the doors, fog can roll through the building, and clouds clouds have entered at the top of the building.
 
 [00:25:45] Will: I so I got to go there when I was in college, I guess, and when I when when the Guy, the person who was giving us the tour was like, " Hey, I want you to tilt your head back as far as it goes and look straight up at the ceiling." And then he stood behind us, so when we started to fall over because we you kind of lost your sense of scale, he like he was there to put a hand on your shoulder so you didn't tip. And like it was, I don't get vertigo, but I kind you kind of have this reverse vertigo. At least I did. It was unbelievable.
 

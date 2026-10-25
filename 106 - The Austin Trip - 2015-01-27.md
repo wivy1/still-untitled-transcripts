@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:13:35] Will: yeah
 
-[00:13:35] Adam: and the car moves sideways and you turn into this into the skid drifting is very similar except that [unclear: But] because you are actually spinning the wheels you are getting a different kind of rolling traction and you can utilize that so. I was showing Tom how we do three sixties. Now Tom wasn't drunk or anything, but I showed him how to do some drifting, and then I got back in the back in the driver's seat, and I did some final three sixties. And this is understand the car is doing these three sixties; it's always pointed towards the center.
+[00:13:35] Adam: and the car moves sideways and you turn into this into the skid drifting is very similar except that [unclear: But] because you are actually spinning the wheels you are getting a different kind of rolling traction and you can utilize that so. I was showing Tom how we do 360s. Now Tom wasn't drunk or anything, but I showed him how to do some drifting, and then I got back in the back in the driver's seat, and I did some final 360s. And this is understand the car is doing these 360s; it's always pointed towards the center.
 
 [00:14:07] Will: Oh yeah,
 
@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:18:13] Will: Sorry, guys.
 
-[00:18:14] Adam: But now we're back. Wow. So Tom and I, the cops lets me off with a warning. Again, my hats off to Austin PD. I'm sorry for dragging them out in the middle of the night for something so dumb. They were awesome. They let me off with a warning. We went and parked the car. We went back to the hotel. Now it's like one thirty in the morning.
+[00:18:14] Adam: But now we're back. Wow. So Tom and I, the cops lets me off with a warning. Again, my hats off to Austin PD. I'm sorry for dragging them out in the middle of the night for something so dumb. They were awesome. They let me off with a warning. We went and parked the car. We went back to the hotel. Now it's like 1:30 in the morning.
 
 [00:18:34] Will: Yeah.
 
@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:25:01] Will: I I think we should also take a moment to acknowledge some privilege, in your dealing with John Q. Law.
 
-[00:25:08] Adam: A hundred percent.
+[00:25:08] Adam: 100%.
 
 [00:25:09] Will: Right.
 

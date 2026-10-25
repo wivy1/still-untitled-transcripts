@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:10:25] Adam: And now with the internet, it is that is exactly right. That that's what has happened is those marginalized communities are not so marginalized when you go to Pinterest and find 55 other pre 1920s Zippo collectors.
 
-[00:10:38] Will: Right. Well, eBay started this. Right. Yeah. eBay started this in in the late 90s, mid 90s, when all of a sudden you realize, wait, somebody else collects whatever whatever it is that is the weird thing that you like to collect.
+[00:10:38] Will: Right. Well, eBay started this. Right. Yeah. eBay started this in in the late '90s, mid '90s, when all of a sudden you realize, wait, somebody else collects whatever whatever it is that is the weird thing that you like to collect.
 
 [00:10:38] Adam: Oh man,
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:12:07] Norm: So if you want to make a lot of money now, you should start archiving all the stuff that kids love today. So when they want to reclaim their childhoods, you can sell it as a package.
 
-[00:12:14] Will: I think, but I think so. The thing that happened in the 70s and 80s is that all of the toys and all that stuff were kind of short run. There wasn't a lot of that.
+[00:12:14] Will: I think, but I think so. The thing that happened in the '70s and '80s is that all of the toys and all that stuff were kind of short run. There wasn't a lot of that.
 
 [00:12:14] Norm: Right.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:12:44] Will: That is a lot of Star Wars figures.
 
-[00:12:44] Adam: I mean, he was missing, you know, maybe like one of the early Boba Fett prototypes, which are like fifteen thousand dollars.
+[00:12:44] Adam: I mean, he was missing, you know, maybe like one of the early Boba Fett prototypes, which are like 15,000 dollars.
 
 [00:12:44] Will: The ones that shoot the that actually have the firing missile, the eye blasters, what they call that one.
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:15:41] Will: But they've announced the casting, and of
 
-[00:15:45] Adam: course the casting and the big, the big, the big reveal that we were all, I think, fairly confident of is that Harrison Ford, Carrie Fisher, and Mark Hamill. Are making a return as well as Kenny Baker as R two D two, Anthony Daniels as C three PO, and I'm very pleased about this. Peter Mayhew as Chewbacca.
+[00:15:45] Adam: course the casting and the big, the big, the big reveal that we were all, I think, fairly confident of is that Harrison Ford, Carrie Fisher, and Mark Hamill. Are making a return as well as Kenny Baker as R2-D2, Anthony Daniels as C-3PO, and I'm very pleased about this. Peter Mayhew as Chewbacca.
 
 [00:15:45] Norm: who is at the reading.
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:21:49] Will: But how do kids get around?
 
-[00:21:50] Adam: Right. Right. Frankly, you know, Coppola. says he was just quoting early cinema when he made Godfather. He's just you know doing his. He's he is also picking up just like Tarantino does the conventions that he grew up in. So Abrams is deeply inculcated with the cinematic conventions of Lucas and Spielberg, and I think it's hard to discount Spielberg's influence on Star Wars as Lucas moved through the series and on cinema as the blockbuster movie came to be in the early eighties. Yeah, but sorry, I just didn't finish this. The thought is that he's absolutely going to give Han Solo the charming rogue bit that will carry this. Take this movie and shift the plot to a certain point. I just I know that about Abrams. He's he's been dying to write for Han Solo his whole life for that.
+[00:21:50] Adam: Right. Right. Frankly, you know, Coppola. says he was just quoting early cinema when he made Godfather. He's just you know doing his. He's he is also picking up just like Tarantino does the conventions that he grew up in. So Abrams is deeply inculcated with the cinematic conventions of Lucas and Spielberg, and I think it's hard to discount Spielberg's influence on Star Wars as Lucas moved through the series and on cinema as the blockbuster movie came to be in the early '80s. Yeah, but sorry, I just didn't finish this. The thought is that he's absolutely going to give Han Solo the charming rogue bit that will carry this. Take this movie and shift the plot to a certain point. I just I know that about Abrams. He's he's been dying to write for Han Solo his whole life for that.
 
 [00:22:38] Will: Yeah. Well, who says? And and you know, who Adam Driver could be Han Solo's kid too.
 

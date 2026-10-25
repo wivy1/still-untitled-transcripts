@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:13:06] Norm: All it's a huge collaboration.
 
-[00:13:07] Adam: Seven to seventeen, unbelievable. Like I actually had as much or more fun in Baltimore building that sign than I did at the South by South Lawn event. These kids were incredible. I mean, there was this, ah, it like the number of ways in which it was thrilling are too many to count. But there's one moment where this young girl is like thirteen years old. We're painting the back of this sign and painting it black so it disappears, and you just see the you know sign in the photos. And she's like repainting this footprint black, and she's like, " Yo, is this what your job is like?" And I was like, " Yes, it is, honey. I swear, like ninety percent of everything you'll ever do is drudgery, and if you do that really well, the ten percent you get to do is really cool. And that's how life works. And it was like you know, and we're just talking. We were making that sign for eleven straight hours.
+[00:13:07] Adam: Seven to seventeen, unbelievable. Like I actually had as much or more fun in Baltimore building that sign than I did at the South by South Lawn event. These kids were incredible. I mean, there was this, ah, it like the number of ways in which it was thrilling are too many to count. But there's one moment where this young girl is like thirteen years old. We're painting the back of this sign and painting it black so it disappears, and you just see the you know sign in the photos. And she's like repainting this footprint black, and she's like, " Yo, is this what your job is like?" And I was like, " Yes, it is, honey. I swear, like 90% of everything you'll ever do is drudgery, and if you do that really well, the 10% you get to do is really cool. And that's how life works. And it was like you know, and we're just talking. We were making that sign for eleven straight hours.
 
 [00:14:01] Norm: Yeah,
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:15:40] Adam: And she came up with a simple yet complicated way to build this sign that she managed and totally worked. And there was some, you know, always stuff to fix at the last minute, and we didn't quite have enough materials, and didn't quite have the right tools, and yet we totally made it work. Um, She was completely. Perfect collaborator on this, and that's not the end of our collaboration.
 
-[00:16:04] Norm: Right, and she also has a project called We the Builders, which I want to give a shout out to. It's a three D printing project where she designs and sculpts a model, and then they get people from all over the country to contribute a chunk of it to make it into a statue, three D printed chunk. So this year it's Rosie the Riveter as the beautiful sculpture, and
+[00:16:04] Norm: Right, and she also has a project called We the Builders, which I want to give a shout out to. It's a 3D printing project where she designs and sculpts a model, and then they get people from all over the country to contribute a chunk of it to make it into a statue, 3D printed chunk. So this year it's Rosie the Riveter as the beautiful sculpture, and
 
 [00:16:23] Will: and they're large scale, like her large, large scale, big
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:16:26] Will: thousands of people contribute.
 
-[00:16:27] Norm: Right, right, and then everyone prints different colors, becomes this mosaic of three D printing, and we're going to get Sean and Simone to work together to contribute a piece to it.
+[00:16:27] Norm: Right, right, and then everyone prints different colors, becomes this mosaic of 3D printing, and we're going to get Sean and Simone to work together to contribute a piece to it.
 
 [00:16:35] Will: It's it's it's kind of like a quilting bee, right?
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:29:12] Will: The the the things, the going ons, they have happened.
 
-[00:29:14] Norm: And of course, oh, I got one last shout out: Tested live show next Saturday, October twenty ninth. Please, tickets are on sale now. We'd love to see you there at the Castro Theatre in San Francisco, um, and we'll all be there.
+[00:29:14] Norm: And of course, oh, I got one last shout out: Tested live show next Saturday, October 29. Please, tickets are on sale now. We'd love to see you there at the Castro Theatre in San Francisco, um, and we'll all be there.
 
 [00:29:27] Adam: I was me using my sting for orcs, just in case
 

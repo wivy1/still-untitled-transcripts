@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:03:13] Will: You had to wear the tight pants and the whole nine yards.
 
-[00:03:15] Adam: No, no, no, no, no, no. Get this. So, what Will's referring to is a G suit, right? And pilots who have to undergo huge amount of G forces are in danger of passing out. And the reason you're in danger of passing out is because when I'm under seven and a half G's, that means I'm under seven and a half times the normal force of gravity, which means that at that point I weigh about fifteen hundred pounds,
+[00:03:15] Adam: No, no, no, no, no, no. Get this. So, what Will's referring to is a G suit, right? And pilots who have to undergo huge amount of G forces are in danger of passing out. And the reason you're in danger of passing out is because when I'm under seven and a half G's, that means I'm under seven and a half times the normal force of gravity, which means that at that point I weigh about 1,500 pounds,
 
 [00:03:38] Will: And the blood that's in your body weighs
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:07:35] Norm: Well, the light goes on. Like oh, there we go.
 
-[00:07:36] Adam: You don't notice. Um, and he just has this little gauge that doesn't say—well, it it just says Mach, you know, point eight, point nine, point nine eight, Mach one, Mach one point one. Um, so the breaking of the sound barrier didn't feel like anything specific. It was pulling the rolls that—pulling the the heavy G rolls that was totally intense. Um. Then on the third day, on the second day, I got to fly in the chase plane. Most days I was in the lead plane.
+[00:07:36] Adam: You don't notice. Um, and he just has this little gauge that doesn't say—well, it it just says Mach, you know, 0.8, 0.9, 0.98, Mach 1, Mach 1.1. Um, so the breaking of the sound barrier didn't feel like anything specific. It was pulling the rolls that—pulling the the heavy G rolls that was totally intense. Um. Then on the third day, on the second day, I got to fly in the chase plane. Most days I was in the lead plane.
 
 [00:08:02] Will: Okay.
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:09:15] Adam: As long as I can see that,
 
-[00:09:16] Adam: I'm good. Here's the other thing: I've been in large pieces of equipment, and when they move, when you move around large things, there's always a little bit of settling, right? You move a crane, and it—right. Um the the F/A-18s they weigh thirty five thousand pounds with another ten thousand pounds in fuel or something like that. It's crazy amounts of metal and fuel. So this thing is like the heaviest vehicle I've ever been in, aside from a, a jet. And as he is telling me about aligning parts of the tick marks on the wing with the logo, he's doing it. And when he's doing it, it's he's going boop, boop, boop, and he's just moving. And so the whole plane's orientation to the other plane is moving precisely like twelve inches forward.
+[00:09:16] Adam: I'm good. Here's the other thing: I've been in large pieces of equipment, and when they move, when you move around large things, there's always a little bit of settling, right? You move a crane, and it—right. Um the the F/A-18s they weigh 35,000 pounds with another 10,000 pounds in fuel or something like that. It's crazy amounts of metal and fuel. So this thing is like the heaviest vehicle I've ever been in, aside from a, a jet. And as he is telling me about aligning parts of the tick marks on the wing with the logo, he's doing it. And when he's doing it, it's he's going boop, boop, boop, and he's just moving. And so the whole plane's orientation to the other plane is moving precisely like twelve inches forward.
 
 [00:10:06] Will: He thinks it, and it happens almost.
 
@@ -232,7 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:11:17] Adam: Yeah, and there's a point at which we're pulling a roll, and like now the camera weighs like a hundred pounds.
 
-[00:11:22] Will: Well, and I have to imagine after like even flying in like a, a small prop plane like a Cessna or something like that, the difference in flying with windows versus the difference when flying on a commercial jet with a with a little tiny window versus this where you just have one hundred eighty degrees of vision—and above you has got to be astounding.
+[00:11:22] Will: Well, and I have to imagine after like even flying in like a, a small prop plane like a Cessna or something like that, the difference in flying with windows versus the difference when flying on a commercial jet with a with a little tiny window versus this where you just have 180 degrees of vision—and above you has got to be astounding.
 
 [00:11:40] Adam: It's it's beautiful. I mean, it's really it's it's a gorgeous view and flying over Yuma, Arizona, where it's just you know he's showing me at one point we flew really low because one of the tests happened as close to the ground as we could get. And he's flying really low, and he really is like he's like, "Looks like Beggars Canyon, doesn’t it?" And I am like, it totally does.
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:13:14] Norm: What's the frequency like? What? How long is it in the valley?
 
-[00:13:16] Adam: It's it's not long; it's seconds. Right? So when you think about like a, I remember reading this in a in a book about the the the Drake's Passage circumnavigation race. If you've got like a thirty foot swell, they can be traveling at like twenty five miles per hour. So imagine a hill coming up underneath you at twenty five miles per hour, and so these swells are moving much faster than you'd think is really possible when we're sitting here in a nice, cozy room.
+[00:13:16] Adam: It's it's not long; it's seconds. Right? So when you think about like a, I remember reading this in a in a book about the the the Drake's Passage circumnavigation race. If you've got like a thirty foot swell, they can be traveling at like 25 miles per hour. So imagine a hill coming up underneath you at 25 miles per hour, and so these swells are moving much faster than you'd think is really possible when we're sitting here in a nice, cozy room.
 
 [00:13:47] Norm: So you don't want the aircraft carrier to drop out underneath you as you land,
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:19:25] Will: But it was. I mean, it was probably not like modern safety glass.
 
-[00:19:27] Adam: No, and it certainly wasn't like the glass was breaking when we were, you know, two hundred feet
+[00:19:27] Adam: No, and it certainly wasn't like the glass was breaking when we were, you know, 200 feet
 
 [00:19:27] Unknown speaker: Right.
 

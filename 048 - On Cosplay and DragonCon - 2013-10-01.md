@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:03:07] Norm: and it's like science for adults, is the translation.
 
-[00:03:10] Adam: And they're expensive; they're about one hundred and twenty dollars for one of these. But something happened, and now they're like eleven dollars. I don't quite understand, except that the magazine itself has been torn out, and I wonder if that if this is like kind of like a remaindered book where they tear the cover off. But this is just the Strandbeest kit and the directions. And I got one for you. I got, I got one for Will too when he shows up.
+[00:03:10] Adam: And they're expensive; they're about 120 dollars for one of these. But something happened, and now they're like eleven dollars. I don't quite understand, except that the magazine itself has been torn out, and I wonder if that if this is like kind of like a remaindered book where they tear the cover off. But this is just the Strandbeest kit and the directions. And I got one for you. I got, I got one for Will too when he shows up.
 
 [00:03:36] Norm: So this is exactly. It's not like a bootleg kit.
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:06:40] Norm: Yeah, it's a big convention center,
 
-[00:06:41] Adam: It's a giant convention center. So when I say there's a lot of people in costume, maybe that's like twenty thousand people in costume. It's not; it's it's on a percentage basis. It's like ten percent,
+[00:06:41] Adam: It's a giant convention center. So when I say there's a lot of people in costume, maybe that's like twenty thousand people in costume. It's not; it's it's on a percentage basis. It's like 10%,
 
 [00:06:51] Norm: right? And there are definitely more people just there, just gawkers, yeah, or shoppers, or comic book fans, movie fans.
 
@@ -226,9 +226,9 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:09:12] Adam: It starts on Wednesday, right? So I arrived Wednesday night this year, which is earlier than I've ever gone. And as the nights progress, as the as the week progresses, I I I do believe, and I don't mean any disrespect to the cosplayers because I am one of them, I am one of you, but things start to smell a little funky in the elevator on the third or fourth day because people aren't taking the costumes off and they're like they're walking around all day. It's Atlanta, it's Labor Day, so it's hot, and then everyone's standing up. I mean, the lobby of the hotel is is going twenty four seven, and the hotel lets that go on so that you're not partying in the rooms and keeping people awake.
 
-[00:09:51] Norm: I confess, and then there's a lot of partying goes in. I confess, one night I did stay up till five thirty. And it was still very busy in the atrium.
+[00:09:51] Norm: I confess, and then there's a lot of partying goes in. I confess, one night I did stay up till 5:30. And it was still very busy in the atrium.
 
-[00:10:00] Adam: I remember, I remember hanging out one night until about two thirty in the morning, and I could hear people doing cosplay karaoke downstairs at the top of their lungs. It was awesome.
+[00:10:00] Adam: I remember, I remember hanging out one night until about 2:30 in the morning, and I could hear people doing cosplay karaoke downstairs at the top of their lungs. It was awesome.
 
 [00:10:10] Norm: Oh my goodness!
 
@@ -236,11 +236,11 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:10:14] Norm: You do?
 
-[00:10:14] Adam: I do. I was a I was a diehard for those who remember San Francisco's karaoke scene in the nineties. I was a regular at the Mint.
+[00:10:14] Adam: I do. I was a I was a diehard for those who remember San Francisco's karaoke scene in the '90s. I was a regular at the Mint.
 
 [00:10:22] Norm: I didn't realize San Francisco had a karaoke scene.
 
-[00:10:24] Adam: Totally had a karaoke scene in the nineties. At least at the Mint, it did, and I went there all the time. I I don't
+[00:10:24] Adam: Totally had a karaoke scene in the '90s. At least at the Mint, it did, and I went there all the time. I I don't
 
 [00:10:30] Norm: It's the LaserDisc era.
 
@@ -268,7 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:11:04] Norm: Wow,
 
-[00:11:04] Adam: and I, I could really, I could really do that song. I had a lot of fun with it. I just remember one night, one night at the Mint, and so this would probably be like it was long before my boys were born. So it's ninety five, ninety six. I get up and the music starts and it's the trumpets from the beginning of Try a Little Tenderness. This would be the version from the amazing film The Commitments, and it's ba ba da da na na na na na, and it just pauses and the vocalist says, " Oh, she may get weary," and I, I'm not going to do it here,
+[00:11:04] Adam: and I, I could really, I could really do that song. I had a lot of fun with it. I just remember one night, one night at the Mint, and so this would probably be like it was long before my boys were born. So it's '95, '96. I get up and the music starts and it's the trumpets from the beginning of Try a Little Tenderness. This would be the version from the amazing film The Commitments, and it's ba ba da da na na na na na, and it just pauses and the vocalist says, " Oh, she may get weary," and I, I'm not going to do it here,
 
 [00:11:37] Norm: Okay.
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:22:18] Norm: Yeah, I doubt it.
 
-[00:22:19] Adam: This is the busiest time of year. However, and I have done this. You know how sometimes there are people like you know somebody's crazy grandmother who buys all their wrapping paper on December twenty eighth because it's the cheapest then? I actually do lots of eBay costume searches in the month of November
+[00:22:19] Adam: This is the busiest time of year. However, and I have done this. You know how sometimes there are people like you know somebody's crazy grandmother who buys all their wrapping paper on December 28 because it's the cheapest then? I actually do lots of eBay costume searches in the month of November
 
 [00:22:39] Norm: because thinking ahead
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:22:47] Adam: and then they want to unload it, and you can you you can benefit from their profligacy.
 
-[00:22:52] Norm: Oh, that's a good tip. It's like I'm buying candy on November first. I should be buying costumes.
+[00:22:52] Norm: Oh, that's a good tip. It's like I'm buying candy on November 1. I should be buying costumes.
 
 [00:22:58] Adam: You know, but the main thing I think what you are alluding to is that the community is incredibly supportive, and if you find a costuming community, the Replica Prop Forum is repeated almost ad nauseum is one of the largest, but There are specific ones for most types of costumes. There are entire groups about Spider-Man, entire groups about Wonder Woman, esoteric DC and Marvel characters, anime. There are people that have done done huge builds for for almost nothing at a craft foam and camping mats and yoga mats. There are painting tutorials for that. And again, if you feel like devoting a few dozen hours to this, the community will totally give you tons of advice as long as you're asking questions and you know playing along and seeing what's going on and learning as you go.
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:26:45] Adam: No, and I generally don't do it. I don't do it on the MythBuster forums, but I do do it on the Tested forums because I feel like the community is really, really. It's a great community, and there's nobody. There's there's no trolling going on out there, and I really appreciate it. So I read those. We read those comments on iTunes. It really matters.
 
-[00:27:04] Norm: I also want to give one last shout out. We have the Inventern competition going right now. We're looking for your next assistant to work with you on a special project. The official deadline is October seventh, so it's about a week left. All information
+[00:27:04] Norm: I also want to give one last shout out. We have the Inventern competition going right now. We're looking for your next assistant to work with you on a special project. The official deadline is October 7, so it's about a week left. All information
 
 [00:27:19] Adam: The clock is ticking. We've got a lot of entries, and they're fantastic.
 

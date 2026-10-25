@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:01:04] Steph: There's a reason. It grossed over a billion dollars, right?
 
-[00:01:06] Norm: One point two billion international.
+[00:01:06] Norm: 1.2 billion international.
 
 [00:01:07] Will: They did okay. They had a good week,
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:02:23] Will: But but I mean like I remember there was a period where like look this book thing's getting real. I got to buckle down.
 
-[00:02:28] Adam: Yeah, so it's a long story which is not worth telling. But ultimately, I got down to the hard work of writing this book last in January, last January, and delivered the final manuscript. I think just before the end of twenty eighteen.
+[00:02:28] Adam: Yeah, so it's a long story which is not worth telling. But ultimately, I got down to the hard work of writing this book last in January, last January, and delivered the final manuscript. I think just before the end of 2018.
 
 [00:02:28] Will: Wow.
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:10:31] Will: That's funny. It's really good.
 
-[00:10:32] Adam: So yes, the new show is called Savage Builds. Eight episodes. It starts to air on June twelfth.
+[00:10:32] Adam: So yes, the new show is called Savage Builds. Eight episodes. It starts to air on June 12.
 
 [00:10:40] Will: Oh wow, that's fast.
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:12:23] Will: so June
 
-[00:12:24] Adam: so June June twelfth for that May seventh for the release of Every Tool's a Hammer.
+[00:12:24] Adam: so June June 12 for that May 7 for the release of Every Tool's a Hammer.
 
 [00:12:28] Will: You got a busy couple of months.
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:15:54] Adam: the city investment
 
-[00:15:55] Will: like up to ten gigabit if you want it and it's very inexp very reasonably priced um and then they also offer really good incentives for people bringing startups in and bringing bringing yeah bringing tech and making jobs to to the to the like they give you space and internet and utilities and the whole thing it was amazing it was it was really cool and the people were super super friendly and very nice
+[00:15:55] Will: like up to 10 gigabit if you want it and it's very inexp very reasonably priced um and then they also offer really good incentives for people bringing startups in and bringing bringing yeah bringing tech and making jobs to to the to the like they give you space and internet and utilities and the whole thing it was amazing it was it was really cool and the people were super super friendly and very nice
 
 [00:16:15] Steph: yeah I was talking to there's um something called the enterprise center there which is which is the basically it's um it's it's like a center dedicated to helping um entrepreneurs start up their businesses and it's really focused on bringing um you know bringing entrepreneurs to Chattanooga to set up you know set up their companies and really foster that kind of innovation so
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:30:04] Steph: my boss,
 
-[00:30:04] Adam: whose pickup line is " Have you considered public service?" It's such an inspiring place to be. I was there at the end of twenty sixteen as everyone was wrapping up, and no one was behaving like they were wrapping up. That is a was an incredibly dedicated team of individuals trying to in every way trying to make the world, world better.
+[00:30:04] Adam: whose pickup line is " Have you considered public service?" It's such an inspiring place to be. I was there at the end of 2016 as everyone was wrapping up, and no one was behaving like they were wrapping up. That is a was an incredibly dedicated team of individuals trying to in every way trying to make the world, world better.
 
 [00:30:32] Steph: Yeah, and you know, I think what I am really happy about is that you know, of course, when you're in a In a role like that, you know that you, you know, the calendar is is really driving a sense of urgency, right? Like you are either going to be there for four years or you are going to be there for eight years, but you know you are not going to be there forever, right? So you are really there. There is this, and you probably felt too like a certain sense of electricity and energy because people are just working their butts off because they know that
 
@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:32:28] Adam: It's open. People can come. Yeah, absolutely. Okay. Oh, yeah. This is a conference where yeah, it's going to be. Last year was really great. It it felt like after having worked on on on Nation of Makers for a while, it felt great again. Like you said, to bring a group of people who already knew what we were doing and were aligned with the mission and talk about ways in which we could make that mission better.
 
-[00:32:50] Will: So, computer programmers, roboticists, three D printers, laser cutters, sewers,
+[00:32:50] Will: So, computer programmers, roboticists, 3D printers, laser cutters, sewers,
 
 [00:32:50] Adam: yep,
 
@@ -592,7 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:34:46] Will: And so, I mean, one of the other questions we get a lot is teachers, librarians, school administrators want to know what they can what they can do if there are grants available, how they can like where they should start because it's kind of daunting, right? Like you think about a makerspace and you think, oh, it should have a lathe and a mill and a laser cutter and a Cricut and a sewing machine and all these other different things. And it's it's like you look you add it up and all of a sudden you spend a hundred thousand dollars. And and there's other easier ways to get started, right?
 
-[00:35:14] Adam: Well, and then there, I mean, and there's also there are as many different kinds of makerspaces as there are people who started them because each one is a philosophy, right? That's actually one of the things that I thought was surprising when I visited Think Box in Cleveland was that they don't have a table saw. In a seven-story, fifty-million-dollar endowed makerspace, they don't have a table saw because their philosophy is: this isn't where you come and do the finish work. This is where you come and do the prototype. Oh. However, you can walk into Thinkbox off the street and be laser cutting in five minutes.
+[00:35:14] Adam: Well, and then there, I mean, and there's also there are as many different kinds of makerspaces as there are people who started them because each one is a philosophy, right? That's actually one of the things that I thought was surprising when I visited Think Box in Cleveland was that they don't have a table saw. In a seven-story, 50,000,000-dollar endowed makerspace, they don't have a table saw because their philosophy is: this isn't where you come and do the finish work. This is where you come and do the prototype. Oh. However, you can walk into Thinkbox off the street and be laser cutting in five minutes.
 
 [00:35:14] Will: Wow.
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:37:21] Steph: yeah, or needs, right? So you want to be able to kind of allocate for limited resources, minimal resources, and you know,
 
-[00:37:28] Will: everything from like a tool lending library where everybody chucks in some tools up to your fifty million dollar amazing fab lab.
+[00:37:28] Will: everything from like a tool lending library where everybody chucks in some tools up to your 50,000,000 dollar amazing fab lab.
 
 [00:37:34] Adam: It's all look the. Whatever the future holds, it's going. We'll be better off if we have raised a great generation of digital natives who know how to manipulate the incredible inventions and tools that we've built,
 

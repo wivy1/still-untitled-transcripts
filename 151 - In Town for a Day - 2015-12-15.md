@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:02:21] Will: Where, where, Stockton's like middle central?
 
-[00:02:24] Adam: I don't geographically. I'm I I only know it as like way past the five interchange off of five eighty.
+[00:02:24] Adam: I don't geographically. I'm I I only know it as like way past the 5 interchange off of 580.
 
 [00:02:30] Will: But it's not as far as like Fresno or something.
 
@@ -38,9 +38,9 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:02:38] Adam: Yeah,
 
-[00:02:39] Will: and that one fifty two by the reservoir and all that is my favorite part of the drive now.
+[00:02:39] Will: and that 152 by the reservoir and all that is my favorite part of the drive now.
 
-[00:02:43] Adam: Oh yeah, no, totally. One fifty two is phenomenal. This is totally different.
+[00:02:43] Adam: Oh yeah, no, totally. 152 is phenomenal. This is totally different.
 
 [00:02:46] Norm: it's depressing because you see the reservoir levels get lower and lower. But then you can also stop by. Casa de fruta. Get some get some great dried fruits.
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:23:21] Will: Is it the pimple case? Is that what we're talking about?
 
-[00:23:23] Norm: No, no, no. So earlier this week, uh, Apple announced and released a, a case for the iPhone six that includes a battery built in.
+[00:23:23] Norm: No, no, no. So earlier this week, uh, Apple announced and released a, a case for the iPhone 6 that includes a battery built in.
 
 [00:23:31] Will: not the six plus.
 
@@ -532,11 +532,11 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:25:31] Norm: So this is. It's not like they're not aware of the marketplace. You don't do something different for the sake of doing it different.
 
-[00:25:37] Adam: Also, a fully charged a fully charged battery will not bring your phone from zero to a hundred. It'll bring it to like a shade under eighty percent.
+[00:25:37] Adam: Also, a fully charged a fully charged battery will not bring your phone from zero to a hundred. It'll bring it to like a shade under 80%.
 
 [00:25:45] Will: So okay, here's my my recommendation: is to go get one of those little like lipstick case size things that cost thirteen dollars. Yeah,
 
-[00:25:53] Unknown speaker: [unclear speaker sequence: Adam “that will”; Will “give you fifty percent”; Adam “battery” / Adam “And it’s basically a little lithium ion battery”].
+[00:25:53] Unknown speaker: [unclear speaker sequence: Adam “that will”; Will “give you 50%”; Adam “battery” / Adam “And it’s basically a little lithium ion battery”].
 
 [00:25:55] Will: Yeah, it plugs in with the USB and it charges, and just chuck that in your bag or in your jacket.
 
@@ -680,7 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:30:32] Adam: Oh, is it really just notes?
 
-[00:30:34] Will: It's a ninety-nine dollar.
+[00:30:34] Will: It's a 99 dollar.
 
 [00:30:34] Norm: I Think you could draw? I mean, you can draw on the other ones, and you get some of the functionality.
 
@@ -696,7 +696,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:30:46] Adam: we got to fix that.
 
-[00:30:48] Will: It's they just released nine point two
+[00:30:48] Will: It's they just released 9.2
 
 [00:30:49] Will: this morning.
 
@@ -836,13 +836,13 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:34:33] Will: The Harmy’s Despecialized, of course.
 
-[00:34:35] Norm: Despecialized two point five.
+[00:34:35] Norm: Despecialized 2.5.
 
-[00:34:36] Will: Oh, I don't have two point five. I just have two point oh. Yeah. Two point five, ten eighty p.
+[00:34:36] Will: Oh, I don't have 2.5. I just have 2.0. Yeah. 2.5, 1080p.
 
-[00:34:40] Norm: Uh, no, seven twenty.
+[00:34:40] Norm: Uh, no, 720.
 
-[00:34:41] Will: Seven twenty.
+[00:34:41] Will: 720.
 
 [00:34:42] Norm: Uh, this past weekend, one of our friends who runs Robo Games, he screened Star Wars for his daughter for the first time. Six year old daughter rented out a full theater, invited her entire first grade class, oh, and ran and played the Despecialized version. Wow. There were four adults there who had also not seen Star Wars.
 

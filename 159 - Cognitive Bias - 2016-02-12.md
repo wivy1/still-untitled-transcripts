@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:01:02] Norm: Yes,
 
-[00:01:02] Adam: but among them that I found was one that I thought was particularly hilarious and lovely, which is that point nine nine nine nine nine nine infinity equals one.
+[00:01:02] Adam: but among them that I found was one that I thought was particularly hilarious and lovely, which is that 0.999999 infinity equals one.
 
 [00:01:18] Will: Well, because you always have to round up.
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:01:21] Will: Okay,
 
-[00:01:21] Adam: I'm not sure I can speak from mathematician standpoint about this formula, but apparently that's true. Point nine nine infinite. Series of nines equals one.
+[00:01:21] Adam: I'm not sure I can speak from mathematician standpoint about this formula, but apparently that's true. 0.99 infinite. Series of nines equals one.
 
 [00:01:33] Norm: And I think it says more. Maybe it says more about a way we do math than it does what the definitive, what those numbers mean, or something about infinity. I don't know.
 
@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:04:57] Adam: or been on exactly. So there's China. Like again, completely different experience of the last of the last couple of millennia than we did,
 
-[00:05:08] Will: and even more recently, they went through an entire like they know what the the current right war on science like they they saw the the the much amplified and much much worse version of that in the I guess fifties and sixties
+[00:05:08] Will: and even more recently, they went through an entire like they know what the the current right war on science like they they saw the the the much amplified and much much worse version of that in the I guess '50s and '60s
 
 [00:05:22] Adam: during the cultural
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:08:10] Adam: Wait a second. Hold on. Hold on.
 
-[00:08:12] Norm: That's just taking like a picture of a of a globe, a two D picture, and cutting it out the stencil.
+[00:08:12] Norm: That's just taking like a picture of a of a globe, a 2D picture, and cutting it out the stencil.
 
 [00:08:17] Adam: Wow, that's not. How do they deal with the Bering Strait?
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:09:06] Norm: Yeah. So this happened in late January, and and their arguments range from oh, you know, only NASA has provided photos from the Earth, or you use you use you know lenses.
 
-[00:09:16] Adam: How come I can see this city that's [unclear: thirty three hundred / thirty / thirty-three], you know, thirty five miles away, but it's not interrupted by the curvature of the Earth?
+[00:09:16] Adam: How come I can see this city that's [unclear: thirty three hundred / thirty / thirty-three], you know, 35 miles away, but it's not interrupted by the curvature of the Earth?
 
 [00:09:24] Will: How how come, Adam?
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:10:00] Norm: and he drops the mic.
 
-[00:10:01] Will: It was like a six hundred dollar mic, right? It was a really this is the thing I know about this it was a really expensive microphone. I happened to be on blogs. Talking about recent destruction of invaluable or priceless instruments.
+[00:10:01] Will: It was like a 600 dollar mic, right? It was a really this is the thing I know about this it was a really expensive microphone. I happened to be on blogs. Talking about recent destruction of invaluable or priceless instruments.
 
 [00:10:12] Norm: So the part of the story you know is about how expensive. Oh, this mic.
 

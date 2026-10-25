@@ -34,7 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:01:14] Will: I save them up for road trips because I can listen to like ten in a row, no problem.
 
-[00:01:17] Adam: Ninety nine percent invisible is just it's one of my safe spaces during this time, right?
+[00:01:17] Adam: 99% invisible is just it's one of my safe spaces during this time, right?
 
 [00:01:21] Will: Yeah.
 
@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:01:33] Adam: In the last couple of weeks, he did a a deep dive into the origins of the song " Who Let the Dogs Out," Right. Which turns out you think this is pretty simple. It gets you go so far down the rabbit hole, you lose track of where the rabbit hole is. Like this song goes back four four plus decades, and they have recordings.
 
-[00:01:57] Will: Really? Uh. The Baha Boys? [Possible echo, speaker uncertain: "The Baha Boys,"] who let the dogs out from nineteen ninety eight
+[00:01:57] Will: Really? Uh. The Baha Boys? [Possible echo, speaker uncertain: "The Baha Boys,"] who let the dogs out from 1998
 
 [00:02:01] Adam: It goes so far beyond them.
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:04:57] Will: You know, the Citigroup Center is the is the building in Manhattan that's like built on a it's cantilevered.
 
-[00:05:02] Adam: It's cantilevered down to the single corner. It's over there on Third Avenue or something like that.
+[00:05:02] Adam: It's cantilevered down to the single corner. It's over there on 3rd Avenue or something like that.
 
 [00:05:06] Will: yeah, something like that. And there's like basically there's a cathedral and they sold the airspace above, but they had to leave the cathedral and couldn't be touched by the building. Right, right, right. And then it had a flaw, and some architecture student was like was doing her her dissertation or her senior project. and was like. Hey, I'm sure you know about this. Send a letter to the architect of the building. Hey, I'm sure you know about this. But anyway, you should listen to that episode. It's fantastic.
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:19:37] Adam: Sure.
 
-[00:19:37] Will: So, the thing I heard, and this is, is that ninety percent, like, don't go crazy and get ninety or ninety-nine percent rubbing alcohol because they evaporate too fast. You want the seventy percent. So, if you have the ninety-nine percent, just dilute it a little bit.
+[00:19:37] Will: So, the thing I heard, and this is, is that 90%, like, don't go crazy and get 90 or 99% rubbing alcohol because they evaporate too fast. You want the 70%. So, if you have the 99%, just dilute it a little bit.
 
 [00:19:50] Adam: Yeah, and wash, wash, wash, wash, wash, wash.
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:24:17] Adam: Sure.
 
-[00:24:18] Adam: Yeah. And so 95, 98, two percent of those age 13 will die, and then 100 percent below. Thirteen will survive.
+[00:24:18] Adam: Yeah. And so 95, 98, 2% of those age 13 will die, and then 100 percent below. Thirteen will survive.
 
 [00:24:27] Will: Yeah,
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:25:14] Adam: I was telling my wife, and she's like, " What's the book about?" And I was like, " Well, it's a supernova, and it kills everyone over the age of thirteen, and then civilization has to download to the youth." And she goes. That's a really convenient setup.
 
-[00:25:26] Will: Reading this right now is very akin to like me reading * Handmaid's Tale* in twenty sixteen, right around the election.
+[00:25:26] Will: Reading this right now is very akin to like me reading * Handmaid's Tale* in 2016, right around the election.
 
 [00:25:32] Adam: Yeah,
 
@@ -784,7 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:28:46] Norm: Logan, Logan's fantastic. Right.
 
-[00:28:48] Adam: Hundred percent.
+[00:28:48] Adam: 100%.
 
 [00:28:49] Norm: Yeah,
 
@@ -900,7 +900,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:31:50] Will: Is that Karina Longworth still?
 
-[00:31:51] Adam: It is Karina Longworth. Yeah. So this was I listened to episode 153, Hollywood's first weight loss guru. The first weight loss guru is literally the 30s.
+[00:31:51] Adam: It is Karina Longworth. Yeah. So this was I listened to episode 153, Hollywood's first weight loss guru. The first weight loss guru is literally the '30s.
 
 [00:32:03] Will: Wow, really?
 
@@ -910,7 +910,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:32:15] Adam: It's it's kind of chilling. I I'm a tremendous fan of Karina's podcasts. They're super super educational and densely written, just wonderful.
 
-[00:32:25] Will: So her new season, I don't know if it's out yet, but she was teasing it the other day. Is it going to be about the 90s?
+[00:32:25] Will: So her new season, I don't know if it's out yet, but she was teasing it the other day. Is it going to be about the '90s?
 
 [00:32:29] Adam: What
 

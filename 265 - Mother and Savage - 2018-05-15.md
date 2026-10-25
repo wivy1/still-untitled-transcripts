@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=VihllKaZHnM
 
 [00:04:23] Karen Savage: And that's the one thing you want to hear as a new parent.
 
-[00:04:26] Norm: And that's a book written in the fifties.
+[00:04:26] Norm: And that's a book written in the '50s.
 
 [00:04:28] Karen Savage: Yes, yes. But I raised my children on it, and I absolutely loved it. And I think that he's his advice is also very sane.
 
@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=VihllKaZHnM
 
 [00:06:37] Norm: Yeah, yeah, that information's out there now, right? And and and you you're also informed by many things. You're informed by like the people you grew up with and their names and the associations you have with them, and then also pop culture. There's a lot of things that names become fashionable, and we all share that same pop culture, and it's tough. We're in a position where we know seven people having children this year, and only one of them is one of the same gender, and so. We only have one potential overlap.
 
-[00:07:05] Adam: Ah, yeah. So this, you know, when when the boys were born in ninety nine, it seemed like everyone in the mission had babies at that point. At least at the at that point, we lived over near twenty third and mission, and the Walgreens there never had our diaper size in stock. There was so many times I had to drive all the way to the Safeway on thirtieth Street on Upper Mission in order to get the the size I needed. Now we, I, you, everyone knows that I don't say my kids' names in public. But thing one and thing two, um, my their mom and I, my ex wife, we chose those names very quickly.
+[00:07:05] Adam: Ah, yeah. So this, you know, when when the boys were born in '99, it seemed like everyone in the mission had babies at that point. At least at the at that point, we lived over near 23rd and mission, and the Walgreens there never had our diaper size in stock. There was so many times I had to drive all the way to the Safeway on 30th Street on Upper Mission in order to get the the size I needed. Now we, I, you, everyone knows that I don't say my kids' names in public. But thing one and thing two, um, my their mom and I, my ex wife, we chose those names very quickly.
 
 [00:07:44] Norm: Really,
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=VihllKaZHnM
 
 [00:10:20] Karen Savage: I would say more like 12.
 
-[00:10:21] Adam: Okay, so I'm putting this cardboard thing together. Yeah, it's fairly primitive in some of its aspects. I hadn't yet built all those paper models of architectural buildings, but I remember being about 30% of the way into the build and seeing the parts around me and feeling like this object was forming, and it really was the first moment of genuine transcendence in in every sense of that word in the making of something. And so I specifically remember going. I remember feeling that sense. Jung calls it the. Good God! The oceanic feeling—the feeling that you are part of something, that you are in a something bigger than you—and it is a feeling I have been lucky enough to experience many times since then. But I remember that first moment of feeling like the, and I also then went to you and I said, " Mom, I," and I said, " I just wanted to chron." I went into the kitchen. I was building it in the front foyer, and I went into the kitchen where you were, and I said, " I just want to chronicle right now at this moment on July twelfth, nineteen seventy nine, that I feel truly and completely happy."
+[00:10:21] Adam: Okay, so I'm putting this cardboard thing together. Yeah, it's fairly primitive in some of its aspects. I hadn't yet built all those paper models of architectural buildings, but I remember being about 30% of the way into the build and seeing the parts around me and feeling like this object was forming, and it really was the first moment of genuine transcendence in in every sense of that word in the making of something. And so I specifically remember going. I remember feeling that sense. Jung calls it the. Good God! The oceanic feeling—the feeling that you are part of something, that you are in a something bigger than you—and it is a feeling I have been lucky enough to experience many times since then. But I remember that first moment of feeling like the, and I also then went to you and I said, " Mom, I," and I said, " I just wanted to chron." I went into the kitchen. I was building it in the front foyer, and I went into the kitchen where you were, and I said, " I just want to chronicle right now at this moment on July 12, 1979, that I feel truly and completely happy."
 
 [00:11:40] Norm: Wow.
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=VihllKaZHnM
 
 [00:14:17] Norm: We've never had Adam so flustered on the podcast before. This is amazing.
 
-[00:14:23] Adam: Um, I, uh, you know, one of the things that you know as knowing me that I love to do is to entertain and throw parties, and that was absolutely something that I grew up with. And, uh, my my parents cooked so much. Nowadays, a six burner stove is pretty regular for someone who's serious about cooking. But I grew up with an eight burner stove, and because such a thing was not available in the in the sixties and the seventies, what my what you did was you bought two identical stoves and put them next to each other,
+[00:14:23] Adam: Um, I, uh, you know, one of the things that you know as knowing me that I love to do is to entertain and throw parties, and that was absolutely something that I grew up with. And, uh, my my parents cooked so much. Nowadays, a six burner stove is pretty regular for someone who's serious about cooking. But I grew up with an eight burner stove, and because such a thing was not available in the in the '60s and the '70s, what my what you did was you bought two identical stoves and put them next to each other,
 
 [00:14:54] Karen Savage: two four burners.
 

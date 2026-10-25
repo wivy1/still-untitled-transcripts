@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:07:29] Norm: Oh. They they have a Excuse me. they have what looks like a I guess they call like a um like a photo booth for music.
 
-[00:07:35] Adam: Yes, they have this old forties photo booth that cut a record on acetate for three minutes.
+[00:07:35] Adam: Yes, they have this old '40s photo booth that cut a record on acetate for three minutes.
 
 [00:07:35] Norm: Yeah.
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:12:52] Will: and featured like representations of key props and stuff like that, too.
 
-[00:12:56] Adam: So. I have gotten better at mounting my costumes. I have learned more about what are the deal breakers in terms of the mounting points and how rigid they need to be, and how the costume gets filled out. And I'm really proud with the five pieces I brought. I brought Ryan Nagata's a seven L suit. I brought my Mercury suit built by Elizabeth Galleria. I built. I brought my Mike Scott built two thousand and one spacesuit. I brought the EMU suit, right? I brought the yes. Yes. I brought the NASA EMU suit from the education department that's got real Teflon in it. And then I brought the suit of armor that we built in England with Terry English.
+[00:12:56] Adam: So. I have gotten better at mounting my costumes. I have learned more about what are the deal breakers in terms of the mounting points and how rigid they need to be, and how the costume gets filled out. And I'm really proud with the five pieces I brought. I brought Ryan Nagata's a seven L suit. I brought my Mercury suit built by Elizabeth Galleria. I built. I brought my Mike Scott built 2001 spacesuit. I brought the EMU suit, right? I brought the yes. Yes. I brought the NASA EMU suit from the education department that's got real Teflon in it. And then I brought the suit of armor that we built in England with Terry English.
 
 [00:12:56] Will: Nice.
 
@@ -480,15 +480,15 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:17:33] Will: Yeah.
 
-[00:17:33] Adam: I mean, like a the six inch two six inch bearings that are in my Hellboy mecha glove over there. Are retail for over six hundred dollars a piece. Yeah. So when you think about like twenty five bearings within a suit, it's it's impossible.
+[00:17:33] Adam: I mean, like a the six inch two six inch bearings that are in my Hellboy mecha glove over there. Are retail for over 600 dollars a piece. Yeah. So when you think about like twenty five bearings within a suit, it's it's impossible.
 
 [00:18:04] Will: You can't do that.
 
 [00:18:04] Unknown speaker: No.
 
-[00:18:06] Adam: So they three D printed them and they totally worked.
+[00:18:06] Adam: So they 3D printed them and they totally worked.
 
-[00:18:08] Will: Wow. What? What? What did they use it? What did they three D print on? Like a laser sintering printer?
+[00:18:08] Will: Wow. What? What? What did they use it? What did they 3D print on? Like a laser sintering printer?
 
 [00:18:13] Adam: No, I think this was filament, but I'm not. Yeah.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:19:10] Will: yeah,
 
-[00:19:10] Adam: that's a that was like twenty-five dollars.
+[00:19:10] Adam: that's a that was like 25 dollars.
 
 [00:19:10] Will: Yeah,
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:20:17] Will: delightful nerd.
 
-[00:20:18] Norm: The build video—it's an hour long, but it's like maybe sixty percent of it is about the Kendama and the build. The other forty percent is just watching you guys hang out and ask each other questions and go into deep, random, tangential deep dives into things like the the napkin 
+[00:20:18] Norm: The build video—it's an hour long, but it's like maybe 60% of it is about the Kendama and the build. The other 40% is just watching you guys hang out and ask each other questions and go into deep, random, tangential deep dives into things like the the napkin 
 
 [00:20:34] Adam: ring, napkin ring paradox. Man, we’re totally gonna. Okay, the napkin ring paradox.
 
@@ -740,7 +740,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:23:46] Will: Got that.
 
-[00:23:47] Adam: Okay. Now I take a beach ball, and I want to core it so that the resulting ring from the beach ball is also exactly one point five inches high.
+[00:23:47] Adam: Okay. Now I take a beach ball, and I want to core it so that the resulting ring from the beach ball is also exactly 1.5 inches high.
 
 [00:23:47] Will: Yeah.
 
@@ -878,7 +878,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:27:40] Adam: Awesome.
 
-[00:27:47] Will: How was this compared to the very first MakerBot we built, the cupcake back in twenty ten?
+[00:27:47] Will: How was this compared to the very first MakerBot we built, the cupcake back in 2010?
 
 [00:27:52] Unknown speaker: Oh, yeah.
 

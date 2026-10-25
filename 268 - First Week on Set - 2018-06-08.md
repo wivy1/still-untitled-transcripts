@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:04:37] Adam: We ended up calling up Ritual, and we hired a barista baristo to come over for about three hours one night, and and basically all the blah blah blah blah blah. It was like do this for this long, do this for this long, and it's fine.
 
-[00:04:51] Will: Like ninety percent of it is getting your grind right, and then once you've done once you've done that, then everything else kind of works itself out.
+[00:04:51] Will: Like 90% of it is getting your grind right, and then once you've done once you've done that, then everything else kind of works itself out.
 
 [00:04:58] Adam: And I I actually I bought a grinder that kind of failed. It was a a conical burr grinder, which I that was easy to figure out that that's the best grinder for a consistent grind. And then I bought one, and it wasn't quite great. And I think I brought it and gave it to You or Norm? I can't remember.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:17:42] Adam: Last I checked in, it was like 95% complete. So they felt confident we were going to get all the pieces.
 
-[00:17:47] Will: Good, good. Yeah, and I mean, I don't know how many pieces five percent is, but you can always jam out your own 3D printer or something.
+[00:17:47] Will: Good, good. Yeah, and I mean, I don't know how many pieces 5% is, but you can always jam out your own 3D printer or something.
 
 [00:17:52] Adam: Yeah, so that's that's the main thing. I'm visiting some cool spaces, and of course, just just a lot of a lot of cross pollination. You know, that's the main goal.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:19:01] Adam: Is it still astounding? Except for smartphones.
 
-[00:19:03] Will: I like it. Is it is like much of fiction of science fiction written about the 90s and 2000s. I watched I watched The Running Man the other day too. Going back in my In my '80s and '90s science fiction, oh my god,
+[00:19:03] Will: I like it. Is it is like much of fiction of science fiction written about the '90s and 2000s. I watched I watched The Running Man the other day too. Going back in my In my '80s and '90s science fiction, oh my god,
 
 [00:19:16] Adam: Richard Dawson.
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:20:05] Adam: Exactly. Or occasionally you might. I think I saw a boob.
 
-[00:20:08] Will: Yeah. It's all the same experiences, but yeah, so. It's amazing how much of the plot of that movie came through without any audio whatsoever. But the thing I didn't know about was the score is pretty amazing. It's like it's like eighties synth. It's almost like a John Carpenter score.
+[00:20:08] Will: Yeah. It's all the same experiences, but yeah, so. It's amazing how much of the plot of that movie came through without any audio whatsoever. But the thing I didn't know about was the score is pretty amazing. It's like it's like '80s synth. It's almost like a John Carpenter score.
 
 [00:20:24] Kayte: Hmm.
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:21:05] Adam: and he's totally right.
 
-[00:21:07] Will: He then went on to re-edit two thousand one.
+[00:21:07] Will: He then went on to re-edit 2001.
 
 [00:21:10] Adam: Oh,
 

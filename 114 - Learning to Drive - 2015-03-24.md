@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:03:43] Adam: he will. He will in fact be be driving my Fiat Abarth.
 
-[00:03:48] Will: Okay, that's a pretty peppy car for a kid. Like I learned to drive on a. Brown, nineteen eighty four Ford, no label station wagon. It was a year between names.
+[00:03:48] Will: Okay, that's a pretty peppy car for a kid. Like I learned to drive on a. Brown, 1984 Ford, no label station wagon. It was a year between names.
 
 [00:03:57] Adam: Wow!
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:04:03] Adam: stick shift.
 
-[00:04:05] Will: Well, that's I learned to drive manual transmission in a Land Cruiser, and then my first car that I bought was a Ford Ranger, nineteen eighty five Ford Ranger, and it was a five speed manual, and it was real bouncy.
+[00:04:05] Will: Well, that's I learned to drive manual transmission in a Land Cruiser, and then my first car that I bought was a Ford Ranger, 1985 Ford Ranger, and it was a five speed manual, and it was real bouncy.
 
 [00:04:17] Adam: I I I kind of love the fact that the boys will not have a car while they're living in San Francisco. It's just not feasible.
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:04:52] Will: Yeah. No.
 
-[00:04:53] Adam: And the best motorcycle rider I ever knew. Was t-boned on Nineteenth Avenue and killed a few years back. A good friend of Grant Imahara and Tory Belleci and mine.
+[00:04:53] Adam: And the best motorcycle rider I ever knew. Was t-boned on 19th Avenue and killed a few years back. A good friend of Grant Imahara and Tory Belleci and mine.
 
 [00:05:03] Will: Well, I mean, even our friend Brian, he might have had the accident before you knew him, but he was a he was a devout motorcycle rider for the first two or three years that I knew him, and then he was just driving along and didn't even do anything wrong. Somebody just came over on him and pinned his leg between the car and the motorcycle and broke it in like four places. Right. He was laid up for six months.
 
@@ -250,7 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:09:03] Norm: Where it's always picking someone up, and and the problems solve themselves.
 
-[00:09:08] Will: Think think about the amount of resources tied up in cars that stay parked ninety percent of the time.
+[00:09:08] Will: Think think about the amount of resources tied up in cars that stay parked 90% of the time.
 
 [00:09:12] Norm: Yes, absolutely. I mean, it's partially why systems like Lyft and Uber work, but I think it's it's it's human nature.
 
@@ -262,11 +262,11 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:09:24] Adam: American. I think that's a mutable. I think it's a it's a plastic reality.
 
-[00:09:28] Will: And I mean, if you think about it, like so, I'm looking at buying an electric car. It has a seventy-five mile range.
+[00:09:28] Will: And I mean, if you think about it, like so, I'm looking at buying an electric car. It has a 75 mile range.
 
 [00:09:35] Adam: That would kill me.
 
-[00:09:35] Will: The Vast majority of my days are forty-four miles total round trip. Like I have a thing in the car that tracks that. Occasionally, I go up to sixty miles, and if you get the one with the little gas engine, it'll get you through that.
+[00:09:35] Will: The Vast majority of my days are 44 miles total round trip. Like I have a thing in the car that tracks that. Occasionally, I go up to sixty miles, and if you get the one with the little gas engine, it'll get you through that.
 
 [00:09:46] Adam: Yeah,
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:09:49] Will: I mean, you're all over the place.
 
-[00:09:49] Adam: We were just filming in Altamont this week, so it’s it’s like forty-eight miles or something out there. Fifty-three miles.
+[00:09:49] Adam: We were just filming in Altamont this week, so it’s it’s like 48 miles or something out there. 53 miles.
 
 [00:09:57] Will: You have a different. You have a little bit of an unusual commute situation.
 
@@ -324,7 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:11:49] Will: Well, you were in a rural area, so you you weren’t on the freeway a lot, right?
 
-[00:11:52] Adam: There was a highway. We had Route Nine in Westchester County, which is like two lanes and so crappy. Westchester County has signs all over were saying New York State is responsible for this highway.
+[00:11:52] Adam: There was a highway. We had Route 9 in Westchester County, which is like two lanes and so crappy. Westchester County has signs all over were saying New York State is responsible for this highway.
 
 [00:12:04] Will: Was it limited access? Did you have to merge onto it, or could you turn right at stop sign [unclear: or stop lane]?
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:12:28] Unknown speaker: That's intense too.
 
-[00:12:28] Adam: I know. I was like, you know, that all rules of normal traffic are suspended on roads like Cesar Chavez or Twenty Fourth Street. Just like those are scary streets,
+[00:12:28] Adam: I know. I was like, you know, that all rules of normal traffic are suspended on roads like Cesar Chavez or 24th Street. Just like those are scary streets,
 
 [00:12:38] Will: Mad Max out there.
 
@@ -482,7 +482,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:18:57] Adam: 2004, and I recently mentioned it to Traci, and she's like, " Oh my god, that was you! I totally remember that happening."
 
-[00:19:06] Will: The the the learning the learning from the mistakes I think the thing that my parents did that I felt was important was that they tried my dad had a was a used, was a car dealer when he finished high school and didn't want to go to college for a few years and then ended up going to college but as a result he had loaner cars from the dealership all the time and it was the like late fifties early sixties so they were you know it was basically madmen for car dealers and they were crashing cars left and right all the time and as a result of that he shared a lot of valuable stories and and things that I learned to avoid what was it like for you learning learning to drive in San Francisco Norm
+[00:19:06] Will: The the the learning the learning from the mistakes I think the thing that my parents did that I felt was important was that they tried my dad had a was a used, was a car dealer when he finished high school and didn't want to go to college for a few years and then ended up going to college but as a result he had loaner cars from the dealership all the time and it was the like late '50s early '60s so they were you know it was basically madmen for car dealers and they were crashing cars left and right all the time and as a result of that he shared a lot of valuable stories and and things that I learned to avoid what was it like for you learning learning to drive in San Francisco Norm
 
 [00:19:43] Norm: it was very simple I drove an Oldsmobile. I drove an Oldsmobile automatic all the way
 

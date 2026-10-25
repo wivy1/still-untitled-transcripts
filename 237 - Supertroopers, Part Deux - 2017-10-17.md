@@ -60,9 +60,9 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:01:28] Adam: Yes.
 
-[00:01:28] Norm: Oh, I did not know about this. So this is okay to set up some context. Star Trek the Experience. This is back in the nineties. Star Trek was a big deal. I don't know if people out there, maybe too young millennials, didn't realize Star Trek was
+[00:01:28] Norm: Oh, I did not know about this. So this is okay to set up some context. Star Trek the Experience. This is back in the '90s. Star Trek was a big deal. I don't know if people out there, maybe too young millennials, didn't realize Star Trek was
 
-[00:01:39] Adam: The Next Generation and all the other ancillary properties that grew out of that in the nineties were just a huge, huge cultural phenomenon.
+[00:01:39] Adam: The Next Generation and all the other ancillary properties that grew out of that in the '90s were just a huge, huge cultural phenomenon.
 
 [00:01:45] Norm: cover of Time Magazine multiple times. They broadcast on network television the thirtieth anniversary of. Star Trek as a special on TV, like on CBS or something, in 1998. But it was such a big deal that Hilton hotels in Las Vegas had developed a attraction. So if you went to the Hilton, you're from Las Vegas, Ryan.
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:19:14] Adam: amazing museum,
 
-[00:19:15] Norm: a great museum. If you're any a fan of Anything related to Disney culture or just history of animation in general, and it's kind of secluded. It's in the Presidio, but they also do special exhibitions. So you know the history of like Snow White and Seven Dwarfs or Pinocchio, and most recently one of their what's going ongoing exhibition right now until January is the work of an artist named Eyvind, Eyvind Earle. It's a weird like old timey nineteen twenty name E I W or E Y V I N D. But he was the lead concept artist for Sleeping Beauty. So when you think of Sleeping Beauty and all that gothic pastel like and all the trees looking very square, like that was all him. And it's his entire breadth of work because he worked until he died in in two thousand. And I just went to see the exhibit, and it was really breathtaking.
+[00:19:15] Norm: a great museum. If you're any a fan of Anything related to Disney culture or just history of animation in general, and it's kind of secluded. It's in the Presidio, but they also do special exhibitions. So you know the history of like Snow White and Seven Dwarfs or Pinocchio, and most recently one of their what's going ongoing exhibition right now until January is the work of an artist named Eyvind, Eyvind Earle. It's a weird like old timey 1920 name E I W or E Y V I N D. But he was the lead concept artist for Sleeping Beauty. So when you think of Sleeping Beauty and all that gothic pastel like and all the trees looking very square, like that was all him. And it's his entire breadth of work because he worked until he died in in 2000. And I just went to see the exhibit, and it was really breathtaking.
 
 [00:20:08] Adam: Is it really?
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:24:44] Adam: these are the kind of things we're trying to work out. Oh, how is that going to work out? You are just going to have to come and see how it goes.
 
-[00:24:50] Norm: And if you are in San Francisco, end of next week is tested live show Saturday, October twenty eighth at the Castro Theatre, our fourth annual one.
+[00:24:50] Norm: And if you are in San Francisco, end of next week is tested live show Saturday, October 28 at the Castro Theatre, our fourth annual one.
 
 [00:24:58] Adam: Tested deconstructed.
 

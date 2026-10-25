@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:04:16] Will: There's better stuff to do in this space,
 
-[00:04:17] Adam: so it's it's like years ago. I worked for a machine artist in San Francisco named Chico MacMurtrie of Amorphic Robot Works, and he's now in Red Hook, Brooklyn. But I was in his assistant for about a year and a half in the very early 90s, and Chico lived in a space down in Hunters Point, a building that I eventually lived in for a couple years. But Chico's shop was, if you think this is like a kind of a cave, Chico's was like this, except it was all robots and machine art and greasy hydraulic cylinders and stuff just filling this room,
+[00:04:17] Adam: so it's it's like years ago. I worked for a machine artist in San Francisco named Chico MacMurtrie of Amorphic Robot Works, and he's now in Red Hook, Brooklyn. But I was in his assistant for about a year and a half in the very early '90s, and Chico lived in a space down in Hunters Point, a building that I eventually lived in for a couple years. But Chico's shop was, if you think this is like a kind of a cave, Chico's was like this, except it was all robots and machine art and greasy hydraulic cylinders and stuff just filling this room,
 
 [00:04:17] Adam: this giant room, like three thousand square feet,
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:08:19] Adam: Yeah, this is true. Yeah, it’s self-evolution.
 
-[00:08:40] Will: Like my phone is faster than the computer that I owned in two thousand five that was hardwired into the internet. Has a better connection, has a higher resolution screen.
+[00:08:40] Will: Like my phone is faster than the computer that I owned in 2005 that was hardwired into the internet. Has a better connection, has a higher resolution screen.
 
 [00:08:40] Adam: Yeah, yeah.
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:13:06] Adam: shocking.
 
-[00:13:07] Will: I mean, it doesn't matter. It was like sometime between now and twenty fifteen. But but yeah, like like like. Just you know, think about think about science in the news. You all, I think you also have to tell which story is real and which one's fake.
+[00:13:07] Will: I mean, it doesn't matter. It was like sometime between now and 2015. But but yeah, like like like. Just you know, think about think about science in the news. You all, I think you also have to tell which story is real and which one's fake.
 
 [00:13:07] Adam: Yep.
 
@@ -432,7 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:15:14] Norm: The Onewheel turns out is a fantastic. Like production vehicle, yeah, to getting around on a big on a set on on location,
 
-[00:15:22] Adam: going to check a camera five hundred feet away,
+[00:15:22] Adam: going to check a camera 500 feet away,
 
 [00:15:24] Norm: Yeah.
 
@@ -516,9 +516,9 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:18:43] Unknown speaker (Norm or Adam): Yeah.
 
-[00:18:43] Norm: So when was the first time you saw Two Thousand One?
+[00:18:43] Norm: So when was the first time you saw 2001?
 
-[00:18:47] Adam: I saw Two Thousand One the first time in the very early nineties.
+[00:18:47] Adam: I saw 2001 the first time in the very early '90s.
 
 [00:18:53] Will: Did you see it in theater, or was it on video?
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:19:13] Unknown speaker (Will or Adam): Oh yeah.
 
-[00:19:13] Adam: I later went and saw it probably in ninety three ninety four at the Castro.
+[00:19:13] Adam: I later went and saw it probably in '93 '94 at the Castro.
 
 [00:19:13] Will: Okay,
 
@@ -544,9 +544,9 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:19:26] Adam: amazing.
 
-[00:19:27] Will: Like it, it is the, it is probably the first film that I saw that I was like, oh right, you have to see this. It's like that, and like and like Lawrence of Arabia, and those kind of like sixties huge epic cinema scope, you know.
+[00:19:27] Will: Like it, it is the, it is probably the first film that I saw that I was like, oh right, you have to see this. It's like that, and like and like Lawrence of Arabia, and those kind of like '60s huge epic cinema scope, you know.
 
-[00:19:39] Adam: So what do you? There's been. It is the we're now at the fiftieth anniversary of the release of two thousand and one, and it's a super important movie and really important to remember. A couple of things that I find really shocking: there are no motion control shots in two thousand and one.
+[00:19:39] Adam: So what do you? There's been. It is the we're now at the fiftieth anniversary of the release of 2001, and it's a super important movie and really important to remember. A couple of things that I find really shocking: there are no motion control shots in 2001.
 
 [00:19:54] Will: They hadn't invented motion control yet.
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:20:08] Will: Okay.
 
-[00:20:08] Adam: So all the spaceship shots in two thousand. I could be wrong, and I'm sorry if I am wrong, but all the spaceship shots in two thousand one are someone slowly pushing a dolly towards a stationary ship.
+[00:20:08] Adam: So all the spaceship shots in 2000. I could be wrong, and I'm sorry if I am wrong, but all the spaceship shots in 2001 are someone slowly pushing a dolly towards a stationary ship.
 
 [00:20:20] Will: Yeah.
 
@@ -602,13 +602,13 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:21:14] Adam: by the way, I love the fact that on the moon in the future, they like. Well, we called Tycho base, but we've just got the machine. Like,
 
-[00:21:28] Will: like, look! If you look at, if you look at, it's fascinating to look at like late sixties science fiction, including two thousand one, the Charlton Heston trio with Planet of the Apes and and Omega Man and Soylent Green, and and see which of the tiny bits of these films they got right, right? Like, like, there's they're real close on a lot of stuff, but just you know, the AT and T video phone terminal in the airport,
+[00:21:28] Will: like, look! If you look at, if you look at, it's fascinating to look at like late '60s science fiction, including 2001, the Charlton Heston trio with Planet of the Apes and and Omega Man and Soylent Green, and and see which of the tiny bits of these films they got right, right? Like, like, there's they're real close on a lot of stuff, but just you know, the AT and T video phone terminal in the airport,
 
 [00:21:28] Adam: yeah,
 
-[00:21:28] Will: you're like you're solid eighty percent of the way there, guys.
+[00:21:28] Will: you're like you're solid 80% of the way there, guys.
 
-[00:21:57] Adam: Um, they, I, I, you know, there's also the fact that all the beautiful flat screen computer screens in two thousand one also have these big push buttons next to them.
+[00:21:57] Adam: Um, they, I, I, you know, there's also the fact that all the beautiful flat screen computer screens in 2001 also have these big push buttons next to them.
 
 [00:21:57] Norm: Yeah,
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:23:59] Adam: It really is the makeup, the characters, the fact that that's all shot on a soundstage with front projection, 3M backing material, like the the the techniques they use to get that are still world class special effects that it's really hard to see that it's an effect. It feels like they're on the African veldt.
 
-[00:24:21] Will: I mean, so it's been. I probably don't need to watch two thousand. I'm probably actually now that we talk about, I'm probably going to watch two thousand one tonight. But like the scenes that stick with me are Dawn of Man, the the Pan Am, the the trans, the the circular walk, which is an unbelievable effect sequence that they did in in the 60s. I mean,
+[00:24:21] Will: I mean, so it's been. I probably don't need to watch 2000. I'm probably actually now that we talk about, I'm probably going to watch 2001 tonight. But like the scenes that stick with me are Dawn of Man, the the Pan Am, the the trans, the the circular walk, which is an unbelievable effect sequence that they did in in the '60s. I mean,
 
 [00:24:40] Adam: it's crazy,
 
@@ -706,7 +706,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:27:04] Adam: so if you have not seen it on the big screen all of us exhort you to find a big screen near you where it is likely to be playing and this whole fiftieth anniversary thing is about to get really cool. Because we're only a year away from the 50th anniversary of the Apollo Moon.
 
-[00:27:20] Will: What was I say? Today was actually the 50th anniversary of Apollo Six, which was the last unmanned test flight of the Apollo capsule.
+[00:27:20] Will: What was I say? Today was actually the 50th anniversary of Apollo 6, which was the last unmanned test flight of the Apollo capsule.
 
 [00:27:20] Adam: Very cool.
 
@@ -730,7 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:28:01] Will: it's it's very deliberate and it's like just pay attention to what's going on in the shots. There's a lot of places where there's not a lot of exposition and it's just a really gorgeous sequence. It's like six minutes long in the middle of the film.
 
-[00:28:14] Adam: So I have a I have a whole library of books on two thousand one, as having been obsessed with it for years. And one of them is this old paperback that goes into all these news articles about it, and it it sort of it felt like one of those things they rushed out when the film because I remember like visiting going to New York with my dad in the early seventies, and two thousand one was always playing in some theater. It played for years.
+[00:28:14] Adam: So I have a I have a whole library of books on 2001, as having been obsessed with it for years. And one of them is this old paperback that goes into all these news articles about it, and it it sort of it felt like one of those things they rushed out when the film because I remember like visiting going to New York with my dad in the early '70s, and 2001 was always playing in some theater. It played for years.
 
 [00:28:37] Will: Well, that used to happen more often too for kind of big, yes,
 
@@ -768,7 +768,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:30:26] Adam: with Bob Balaban as Dr. Chandra. You get to find out. Oh, 2010 is wonderful.
 
-[00:30:31] Will: It's a much more conventional 80s science fiction movie.
+[00:30:31] Will: It's a much more conventional '80s science fiction movie.
 
 [00:30:33] Adam: I think it's Bob Balaban playing Dr. Chandra.
 

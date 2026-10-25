@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:03:00] Will: hit a wall.
 
-[00:03:02] Adam: One son is named after a famous 1940s film character, and the other is named after Sam Neill's first major television role in the 80s.
+[00:03:02] Adam: One son is named after a famous 1940s film character, and the other is named after Sam Neill's first major television role in the '80s.
 
 [00:03:11] Norm: That that you just gave it
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:05:24] Will: Move on.
 
-[00:05:39] Adam: So I will say I've said this before that I think there are two kinds of people in the world: Hammett people and Chandler people. Dashiell Hammett, detective fiction writer, who basically reinvented the genre in the 30s, and Raymond Chandler, who took it and made it a mature and genuine literary form. I think that's my opinion. Your results may vary. Hammett has been adapted umpteen times, probably most famously the Maltese Falcon, which is if you've got an afternoon of five or six hours, you can read the entire book, the Maltese Falcon, in about two and a half, three hours,
+[00:05:39] Adam: So I will say I've said this before that I think there are two kinds of people in the world: Hammett people and Chandler people. Dashiell Hammett, detective fiction writer, who basically reinvented the genre in the '30s, and Raymond Chandler, who took it and made it a mature and genuine literary form. I think that's my opinion. Your results may vary. Hammett has been adapted umpteen times, probably most famously the Maltese Falcon, which is if you've got an afternoon of five or six hours, you can read the entire book, the Maltese Falcon, in about two and a half, three hours,
 
 [00:06:16] Will: like one hundred and eighty pages, and
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:09:40] Will: Moore hates everything though that doesn't narrow
 
-[00:09:42] Norm: and that that's from the per that's from the perspective the direction was a fan yeah a fan adaptation a big budget hundred million dollar fan adaptation
+[00:09:42] Norm: and that that's from the per that's from the perspective the direction was a fan yeah a fan adaptation a big budget 100,000,000 dollar fan adaptation
 
 [00:09:53] Will: well in a dramatically different ending
 

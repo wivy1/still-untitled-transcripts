@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:08:02] Will: That because of tariffs, basically. Um, so—
 
-[00:08:06] Norm: And also a thirty-two gigabyte SD card.
+[00:08:06] Norm: And also a 32 gigabyte SD card.
 
 [00:08:09] Will: It turns out, yeah, we learned important lessons.
 

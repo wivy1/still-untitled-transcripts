@@ -474,9 +474,9 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:18:26] Eric Cheng: I did too, and they last year I think was was maybe the year so far for drone footage.
 
-[00:18:26] Will: Twenty thirteen.
+[00:18:26] Will: 2013.
 
-[00:18:26] Eric Cheng: Twenty thirteen. Well, because there there were no rules yet. I mean, there were guidelines. There were guidelines, and this year there was
+[00:18:26] Eric Cheng: 2013. Well, because there there were no rules yet. I mean, there were guidelines. There were guidelines, and this year there was
 
 [00:18:41] Adam: Did anyone get hit last year?
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:20:35] Adam: Right.
 
-[00:20:35] Eric Cheng: That would probably spin the camera off in our case, but that that's all in the research, [unclear: yeah, research] phase now. So currently, you know, what people are doing is they're they're flying X eight design, X four, X eight designs like you know coaxial motors. So you have two motors at every point.
+[00:20:35] Eric Cheng: That would probably spin the camera off in our case, but that that's all in the research, [unclear: yeah, research] phase now. So currently, you know, what people are doing is they're they're flying X8 design, X4, X8 designs like you know coaxial motors. So you have two motors at every point.
 
 [00:20:35] Adam: Right.
 

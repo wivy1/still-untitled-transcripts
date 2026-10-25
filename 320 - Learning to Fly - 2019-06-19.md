@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:07:22] Norm: now you know.
 
-[00:07:23] Will: Um, I think that's. I mean, I I I'd encourage people to watch the behind the scenes thing that you did as well. It's like a six minute video shot in the shop over here, and you talk about the problems with working with three D printed titanium.
+[00:07:23] Will: Um, I think that's. I mean, I I I'd encourage people to watch the behind the scenes thing that you did as well. It's like a six minute video shot in the shop over here, and you talk about the problems with working with 3D printed titanium.
 
 [00:07:23] Unknown (Adam or Will): Oh my god!
 
@@ -232,7 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:08:49] Will: There's a there's something magical happening in those small city. We talked about this before the show, but as a person who came from a small city in the South, there's something really neat happening where. Those downtown urban areas in like these two hundred, hundred and fifty, two hundred and fifty, three hundred thousand person cities are kind of indistinguishable from your Austins and your Portlands and your San Franciscos.
 
-[00:09:09] Adam: Well, and with a Chattanooga lobbied to bring NomCon there, they were very they're super wired, ten gigabit internet for everybody.
+[00:09:09] Adam: Well, and with a Chattanooga lobbied to bring NomCon there, they were very they're super wired, 10 gigabit internet for everybody.
 
 [00:09:09] Norm: Wow.
 
@@ -856,7 +856,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:31:26] Norm: I'm getting hungry just thinking about it.
 
-[00:31:27] Adam: Now, I loved this sequence so much, I bought that electric plancha. It's like a five hundred dollar kitchen implement, but there is no. I'm getting chills. I described. There's no better way to make a grilled cheese sandwich. Really, you're welcome to come over any time, and we can make them together. But there's the sequence where Roy Choi is showing Favreau. He's like, okay, so you do this with the [unclear: bandages / potatoes / babies], you get this on, you get this, and then Roy lifts up the corner of a sandwich. I'm going to curse here, podcast listeners. I know it's a rarity, but it it's important in this. Roy Choi lifts up the corner of the sandwich and says to Favreau, " You see that color of brown? Your whole fucking life is in that color of brown, and it is. I I I once got to spend a week with cellist David Darling learning about how to play music from a philosophical rather than instrument perspective. I think that's the best way to describe what we went through. But at one point, David Darling said, " A musician plays a note with the quality of a human life. Like it has a beginning, a middle, and an end. It has a full living arc, and so does a song, and so does a symphony. And like, I feel like that's what Roy Choi was saying to Favreau about that. And I love, like, I've always loved that movie and those behind the scenes specifically for that.
+[00:31:27] Adam: Now, I loved this sequence so much, I bought that electric plancha. It's like a 500 dollar kitchen implement, but there is no. I'm getting chills. I described. There's no better way to make a grilled cheese sandwich. Really, you're welcome to come over any time, and we can make them together. But there's the sequence where Roy Choi is showing Favreau. He's like, okay, so you do this with the [unclear: bandages / potatoes / babies], you get this on, you get this, and then Roy lifts up the corner of a sandwich. I'm going to curse here, podcast listeners. I know it's a rarity, but it it's important in this. Roy Choi lifts up the corner of the sandwich and says to Favreau, " You see that color of brown? Your whole fucking life is in that color of brown, and it is. I I I once got to spend a week with cellist David Darling learning about how to play music from a philosophical rather than instrument perspective. I think that's the best way to describe what we went through. But at one point, David Darling said, " A musician plays a note with the quality of a human life. Like it has a beginning, a middle, and an end. It has a full living arc, and so does a song, and so does a symphony. And like, I feel like that's what Roy Choi was saying to Favreau about that. And I love, like, I've always loved that movie and those behind the scenes specifically for that.
 
 [00:32:40] Norm: And that behind the scenes is what this Netflix series it's is.
 
@@ -1224,7 +1224,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:46:31] Adam: Dude, Truckla video.
 
-[00:46:32] Will: Uh, she did something. She she made a small modification to her Tesla Model Three.
+[00:46:32] Will: Uh, she did something. She she made a small modification to her Tesla Model 3.
 
 [00:46:32] Unknown (Adam or Will): Unbelievable.
 

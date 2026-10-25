@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:06:09] Norm: It's why you know most of the people who went up last night to receive their awards for the Emmys thank not only their creative partners but mostly their producing partners and the networks that paid and managed them.
 
-[00:06:19] Adam: That pay up ten million dollars per episode.
+[00:06:19] Adam: That pay up 10,000,000 dollars per episode.
 
 [00:06:21] Norm: Sometimes they're the ones who made it possible.
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:14:50] Will: Right now, my favorite movie is Thor: Ragnarok.
 
-[00:14:51] Norm: Right between the ages of right December twenty seventeen and September two thousand eighteen.
+[00:14:51] Norm: Right between the ages of right December 2017 and September 2018.
 
 [00:14:51] Adam: Yeah,
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:19:38] Adam: yeah
 
-[00:19:38] Will: demo mode one hundred percent of the time.
+[00:19:38] Will: demo mode 100% of the time.
 
 [00:19:38] Adam: Yeah,
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:21:56] Adam: showing a Die Hard,
 
-[00:21:57] Will: Die Hard on HBO. It's like it's. I mean, I have the pictures here. It's a. It's a first. You see the Blu-ray, and it's the the two point three nine to one original aspect ratio of the film, and there's bars above and below, and then you scroll over and you see what Netflix looks like or HBO now looks like. And it's a crop.
+[00:21:57] Will: Die Hard on HBO. It's like it's. I mean, I have the pictures here. It's a. It's a first. You see the Blu-ray, and it's the the 2.39 to one original aspect ratio of the film, and there's bars above and below, and then you scroll over and you see what Netflix looks like or HBO now looks like. And it's a crop.
 
 [00:22:13] Adam: It's appalling.
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:23:00] Adam: I appreciate the CEO of IMAX talking about all the streaming services coming to him and talking to him about stuff being projected in IMAX, which is great. I love services like Criterion Collection. has a wonderful service called Filmstruck, where they curate rosters of classic movies that aren't being streamed, that are hard to find in their most faithful aspect ratios. That those are really important things to support, and it comes down to viewers also making their voice heard about what they want to see and how they want to watch it.
 
-[00:23:33] Will: I so I think I think I mean, look, if you, as always, the answer to this is if you care, buy the disc, right? Because the people who do the remasters and put together the discs are tend to be more preservation focused, at least since the since the pan and scan DVD era of the dark times of the mid late nineties.
+[00:23:33] Will: I so I think I think I mean, look, if you, as always, the answer to this is if you care, buy the disc, right? Because the people who do the remasters and put together the discs are tend to be more preservation focused, at least since the since the pan and scan DVD era of the dark times of the mid late '90s.
 
 [00:23:55] Norm: And maybe the discs are because there were some really bad DVDs.
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:24:56] Unknown speaker: But you know that's that's a good example, though. Like that's a real problem.
 
-[00:25:00] Adam: Actually, it is the there is the famous thing of the Kubrick note to projectionists for two thousand and one that which is still in some dispute as to what is the proper aspect ratio to watch some of these movies,
+[00:25:00] Adam: Actually, it is the there is the famous thing of the Kubrick note to projectionists for 2001 that which is still in some dispute as to what is the proper aspect ratio to watch some of these movies,
 
 [00:25:12] Will: right?
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:27:55] Adam: Ownership is dead.
 
-[00:27:56] Will: Yeah, the funny thing is, all of the Blu-rays that I redeem the code for are now four K on iTunes because they upgraded all their [unclear: twenty pieces / PC] to four K without you doing anything.
+[00:27:56] Will: Yeah, the funny thing is, all of the Blu-rays that I redeem the code for are now 4K on iTunes because they upgraded all their [unclear: twenty pieces / PC] to 4K without you doing anything.
 
 [00:27:56] Unknown speaker: It’s a weird world.
 

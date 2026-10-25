@@ -12,7 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:00:51] Adam: Well, good morning.
 
-[00:00:52] Will: We're we're in the in the in the shop. It's like six a.m., seven a.m., seven a.m., four thirty. I don't know where I am.
+[00:00:52] Will: We're we're in the in the in the shop. It's like six a.m., seven a.m., seven a.m., 4:30. I don't know where I am.
 
 [00:00:58] Norm: If you listen to the past couple of episodes of Still Untitled, we're actually recording a lot at once, because Adam's going on tour. You are actually on tour right now.
 
@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:01:46] Norm: Oh, wonderful!
 
-[00:01:47] Adam: But yeah, I have on my. I was. I was telling you guys when we arrived this morning, the paper crossbow, one of I think my all time favorite constructions, is sitting there on my pool table. We built it. I built it back in oh four. During the time we got to visit Vernell Crittenden, who was at that point. Um, uh, the I think press relations officer at San Quentin, and we get to visit the San Quentin Confiscated Weapons Museum, which is a DIY masterpiece. I mean, I mean, these are people who can. These are people. This is the level of ingenuity here. It's like a Styrofoam cup can be turned into a deadly knife.
+[00:01:47] Adam: But yeah, I have on my. I was. I was telling you guys when we arrived this morning, the paper crossbow, one of I think my all time favorite constructions, is sitting there on my pool table. We built it. I built it back in '04. During the time we got to visit Vernell Crittenden, who was at that point. Um, uh, the I think press relations officer at San Quentin, and we get to visit the San Quentin Confiscated Weapons Museum, which is a DIY masterpiece. I mean, I mean, these are people who can. These are people. This is the level of ingenuity here. It's like a Styrofoam cup can be turned into a deadly knife.
 
 [00:02:32] Will: Really?
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:06:59] Will: the first Timothy Dalton movie is way better than the second Timothy Dalton movie.
 
-[00:07:03] Adam: Oh, a hundred percent.
+[00:07:03] Adam: Oh, 100%.
 
 [00:07:04] Will: And that Lazenby movie, great.
 
@@ -532,11 +532,11 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:21:56] Norm: Sorry, back to
 
-[00:21:56] Adam: so I love the Leatherman. I use it dozens of times every single day. It's hard to imagine living without it. But within my shop, the tool that I genuinely get like, oh, I can't wait, I can't wait, is the lathe. I just love lathing stuff. I love lathing different materials. I love the requirements they have. I love setting up the auto feeds for threading. I love the figuring out ways to engineer holding sensitive parts without marking them, making bucks, making holders, just everything around using the lathes. I find very meditative, and I really like working at high precision. And years ago on MythBusters, we were doing a thing where I we needed to use a pump. We needed a pump that pumped two thousand gallons per minute for a section about a firefighting helicopter that sucks up a scuba diver, and we wanted to find out if such suction could work. And I ended up building this pump using a two hundred and fifty horsepower outboard motor, which I extended the shaft of by six feet, put inside a one foot diameter steel tube, welded the entire thing together. And machined down the propeller to fit inside the tube with a sixteenth inch of clearance,
+[00:21:56] Adam: so I love the Leatherman. I use it dozens of times every single day. It's hard to imagine living without it. But within my shop, the tool that I genuinely get like, oh, I can't wait, I can't wait, is the lathe. I just love lathing stuff. I love lathing different materials. I love the requirements they have. I love setting up the auto feeds for threading. I love the figuring out ways to engineer holding sensitive parts without marking them, making bucks, making holders, just everything around using the lathes. I find very meditative, and I really like working at high precision. And years ago on MythBusters, we were doing a thing where I we needed to use a pump. We needed a pump that pumped 2,000 gallons per minute for a section about a firefighting helicopter that sucks up a scuba diver, and we wanted to find out if such suction could work. And I ended up building this pump using a two hundred and fifty horsepower outboard motor, which I extended the shaft of by six feet, put inside a one foot diameter steel tube, welded the entire thing together. And machined down the propeller to fit inside the tube with a sixteenth inch of clearance,
 
 [00:23:14] Will: Wow.
 
-[00:23:14] Adam: and it all worked beautifully. And in the end, pumped three thousand gallons per minute.
+[00:23:14] Adam: and it all worked beautifully. And in the end, pumped 3,000 gallons per minute.
 
 [00:23:19] Will: Wow!
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:24:28] Adam: So I think in planar forms, and as I've said before, laser cutting, sewing, welding, carpentry—they're all the same thing. They're all moving planar forms together under certain rules and restrictions.
 
-[00:24:40] Norm: Two D objects and their three D objects.
+[00:24:40] Norm: 2D objects and their 3D objects.
 
 [00:24:42] Adam: Yeah, and that's I I I also when I first started playing with a laser cutter at ILM in '99, I felt like I was seeing an entirely new vista.
 
@@ -576,7 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:25:23] Adam: Right, right, right, exactly.
 
-[00:25:25] Norm: Repository of three D models or or anything designs, and if you get a laser cutter or access to a mill, then you can do something cool with that.
+[00:25:25] Norm: Repository of 3D models or or anything designs, and if you get a laser cutter or access to a mill, then you can do something cool with that.
 
 [00:25:32] Adam: Have you been? I I have. Which laser cutter have you been playing with?
 
@@ -642,7 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:29:25] Norm: yeah cool so we'll be back next week with another episode of Still in
 
-[00:29:29] Adam: I'm still on tour go to MythBustersTour dot com if you want to see where I'm coming see if I'm coming to your part of the country it's a great show and it's Jamie's last tour so this is the last chance to see us together we finish here in San Francisco on December nineteenth and there are still some tickets available so please get out and come come see us
+[00:29:29] Adam: I'm still on tour go to MythBustersTour dot com if you want to see where I'm coming see if I'm coming to your part of the country it's a great show and it's Jamie's last tour so this is the last chance to see us together we finish here in San Francisco on December 19 and there are still some tickets available so please get out and come come see us
 
 [00:29:49] Norm: awesome
 

@@ -78,15 +78,15 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:02:57] Unknown speaker: No.
 
-[00:02:57] Adam: That was shot on Third Street and Twenty Second
+[00:02:57] Adam: That was shot on 3rd Street and 22nd
 
 [00:03:00] Will: here in San Francisco.
 
-[00:03:00] Adam: Yeah, so Colossal Pictures, which was down off of Quint Street, where I worked with Jamie Hyneman in the early nineties, Colossal Pictures in the in the in the eighties when they made the right stuff, did all the special effects. And when they needed that long hallway shot, there is that long factory building in Dogpatch on the east side of Third Street.
+[00:03:00] Adam: Yeah, so Colossal Pictures, which was down off of Quint Street, where I worked with Jamie Hyneman in the early '90s, Colossal Pictures in the in the in the '80s when they made the right stuff, did all the special effects. And when they needed that long hallway shot, there is that long factory building in Dogpatch on the east side of 3rd Street.
 
 [00:03:21] Will: Oh, the the American Building is where they shot that?
 
-[00:03:23] Adam: Yeah, there's just a twelve hundred foot long hallway, and that's where they shot that.
+[00:03:23] Adam: Yeah, there's just a 1,200 foot long hallway, and that's where they shot that.
 
 [00:03:26] Will: It's where Revision Three used to be.
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:07:47] Will: and it just was like, okay, I got this, and walked over there, and kind of shimmyed over to the left to avoid an obstacle, and then walked around, and then got to where it was supposed to be, and then you did the same thing by backing it up, and I was just like, oh. Okay, this is this this this works better than I expected.
 
-[00:08:01] Adam: You know the the Boston Dynamics folks have been friends of mine for a few years, and we've had a lot of time to to to get to know each other. And I've been seeing, I've been following their progress actually since the early nineties. That's the first time Marc Raibert's early work came across my came across my attention, and it's so exciting to have him here. We turn him on every day. We play around with different things. We have a whole bunch of different plans for him. And just like a good any good TV show, there are some things we want to do that are part of an overall plot, and there are some bottle episodes. I even have an idea for helping him to poop.
+[00:08:01] Adam: You know the the Boston Dynamics folks have been friends of mine for a few years, and we've had a lot of time to to to get to know each other. And I've been seeing, I've been following their progress actually since the early '90s. That's the first time Marc Raibert's early work came across my came across my attention, and it's so exciting to have him here. We turn him on every day. We play around with different things. We have a whole bunch of different plans for him. And just like a good any good TV show, there are some things we want to do that are part of an overall plot, and there are some bottle episodes. I even have an idea for helping him to poop.
 
 [00:08:41] Will: Stars, perhaps
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:24:38] Adam: Chernobyl kind of way.
 
-[00:24:39] Will: Um, I, I was gonna say like a seventies, like a like a seventies,
+[00:24:39] Will: Um, I, I was gonna say like a '70s, like a like a '70s,
 
 [00:24:44] Adam: like an Alan Pakula film, or something like that.
 

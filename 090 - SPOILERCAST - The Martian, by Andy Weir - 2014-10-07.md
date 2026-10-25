@@ -342,11 +342,11 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:12:52] Will: No radio contact. A lot of Three’s Company. It seems like
 
-[00:12:57] Norm: yeah, seventies TV.
+[00:12:57] Norm: yeah, '70s TV.
 
-[00:12:58] Will: Yeah, seventies TV. Disco.
+[00:12:58] Will: Yeah, '70s TV. Disco.
 
-[00:12:59] Norm: He ends a chapter with like his his missives about seventy TV and and disco and stuff like that, which I think is okay.
+[00:12:59] Norm: He ends a chapter with like his his missives about '70s TV and and disco and stuff like that, which I think is okay.
 
 [00:13:06] Adam: Also, there was a convention he did when he when he cuts to the third person, it's to show you what's going on on Earth about the fact that an astronaut turns out to be alive when they thought he was dead, and you know they they cut to the NASA's PR person and she's thinking, I'm going to have to make this announcement, and everyone in the world will see this, so the language has to be good. In fact, every documentary that will ever air about this occurrence. Will include my first statement at this press conference,
 
@@ -388,15 +388,15 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:15:16] Norm: Yeah. Why and and why it was worth the time?
 
-[00:15:19] Adam: And then there's this funny stuff when he's driving. He ends up having to drive three thousand kilometers from one landing site  to another.
+[00:15:19] Adam: And then there's this funny stuff when he's driving. He ends up having to drive 3,000 kilometers from one landing site  to another.
 
 [00:15:25] Will: Which is what like like a thousand miles?
 
-[00:15:27] Adam: No, it's like seventeen hundred miles.
+[00:15:27] Adam: No, it's like 1,700 miles.
 
 [00:15:27] Will: Yeah.
 
-[00:15:27] Adam: Eighteen hundred miles—it's a long journey,
+[00:15:27] Adam: 1,800 miles—it's a long journey,
 
 [00:15:32] Will: right? Well, and it's in ninety-kilometer chunks. Isn’t that amazing, or less in many cases?
 
@@ -498,9 +498,9 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:19:17] Will: Yeah.
 
-[00:19:19] Adam: Yeah. Well, during his two  thousand kilometer trip—
+[00:19:19] Adam: Yeah. Well, during his 2,000 kilometer trip—
 
-[00:19:21] Will: There's a there's a wonderful moment where you don't exactly know what he's doing. You know he's going to go on a test drive to see how the rover does over a long period of time. And it's a long trip; it's like twenty or thirty days or something like that. And midway through, Andy Weir like lets you know, " Oh, he's going for the Pathfinder, which was the like, or what, two thousand maybe? I guess is when it landed around there, two thousand two."
+[00:19:21] Will: There's a there's a wonderful moment where you don't exactly know what he's doing. You know he's going to go on a test drive to see how the rover does over a long period of time. And it's a long trip; it's like twenty or thirty days or something like that. And midway through, Andy Weir like lets you know, " Oh, he's going for the Pathfinder, which was the like, or what, 2000 maybe? I guess is when it landed around there, 2002."
 
 [00:19:45] Adam: So now it's a decades old. He doesn't actually ever give you the year that this book is  happening.
 
@@ -766,7 +766,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:29:13] Will: And
 
-[00:29:13] Adam: less exposition, more showing. It can't be total voiceover. So my guess is that where the book spends about eighty percent of its time in Watney's journals, if not a little more, but
+[00:29:13] Adam: less exposition, more showing. It can't be total voiceover. So my guess is that where the book spends about 80% of its time in Watney's journals, if not a little more, but
 
 [00:29:26] Will: I think that's pretty accurate.
 
@@ -830,7 +830,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:31:57] Norm: and then problem solving.
 
-[00:32:18] Adam: And so, right there's entire. I mean, a good twenty percent of the book is him just talking about how he might do something and his potential scenarios. All that's kind of get, I'm sure,
+[00:32:18] Adam: And so, right there's entire. I mean, a good 20% of the book is him just talking about how he might do something and his potential scenarios. All that's kind of get, I'm sure,
 
 [00:32:18] Norm: Yeah.
 
@@ -858,7 +858,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:32:55] Will: which you know, it starts when he's left behind, and it finishes when he when he leaves the planet and successfully gets on the  ship.
 
-[00:33:00] Adam: The ultimate, to me, the takeaway from the book is the tenacity of life, right? That is the repeated refrain from the bacteria that survives the hab's depressurization and freezing to his never ever giving up, even when he's in an airlock one hundred and twenty meters from the hab that's already deflated and he has no idea how he's going to survive this with a broken faceplate. His tenacity, and so I I think you are right. An epilogue might show him, like frankly, for all of its campiness, I love the epilogue in Saving Private Ryan
+[00:33:00] Adam: The ultimate, to me, the takeaway from the book is the tenacity of life, right? That is the repeated refrain from the bacteria that survives the hab's depressurization and freezing to his never ever giving up, even when he's in an airlock 120 meters from the hab that's already deflated and he has no idea how he's going to survive this with a broken faceplate. His tenacity, and so I I think you are right. An epilogue might show him, like frankly, for all of its campiness, I love the epilogue in Saving Private Ryan
 
 [00:33:37] Norm: The reunion. Yes, yes, yes.
 
@@ -880,11 +880,11 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:35:05] Adam: And that's what we do as a species. It's just it's innate and it's genetic. It's evolutionary. And the book never loses that either. It completely understands that that's the purpose and the point.
 
-[00:35:18] Will: I I can't imagine like I can't imagine some of the stuff that's described as here's what I do every day, like like every day on the road when he's driving from from where he landed to the to the site of the next Mars mission, which is where he's going, sixteen hundred kilometers, eighteen hundred kilometers away,
+[00:35:18] Will: I I can't imagine like I can't imagine some of the stuff that's described as here's what I do every day, like like every day on the road when he's driving from from where he landed to the to the site of the next Mars mission, which is where he's going, 1,600 kilometers, 1,800 kilometers away,
 
-[00:35:18] Adam: No, thirty-two hundred kilometers.
+[00:35:18] Adam: No, 3,200 kilometers.
 
-[00:35:18] Will: sixteen hundred miles. Um, he has to get up in the morning, pack up twenty-seven presumably large solar panels,
+[00:35:18] Will: 1,600 miles. Um, he has to get up in the morning, pack up twenty-seven presumably large solar panels,
 
 [00:35:44] Adam: half a meter, half a square meter each.
 
@@ -900,7 +900,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:36:11] Norm: fifty days, yeah.
 
-[00:36:11] Will: Make his potato. Yeah, take his multivitamin, and then drive twenty-five kilometers an hour for ninety kilometers.
+[00:36:11] Will: Make his potato. Yeah, take his multivitamin, and then drive 25 kilometers an hour for ninety kilometers.
 
 [00:36:18] Adam: He’s eating not just a potato; he's eating like five or six a day.
 
@@ -1236,7 +1236,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:44:01] Adam: Totally.
 
-[00:44:01] Will: Um, and we'll be back next week with another episode of Still Untitled. Don't forget, tickets for the live show are on sale now. If you would like to come see us, I mean, they're presumably still on sale now. They may be sold out by now. We're they're selling through pretty fast. Um, it's testedlive. Eventbrite. Com. It's October twenty fifth, one p. M. At the Castro Theatre in San Francisco. Hope to see you guys there, and it'll be on the site later. All right, if you can't make it, but thanks for watching. We'll see you guys next week.
+[00:44:01] Will: Um, and we'll be back next week with another episode of Still Untitled. Don't forget, tickets for the live show are on sale now. If you would like to come see us, I mean, they're presumably still on sale now. They may be sold out by now. We're they're selling through pretty fast. Um, it's testedlive. Eventbrite. Com. It's October 25, one p. M. At the Castro Theatre in San Francisco. Hope to see you guys there, and it'll be on the site later. All right, if you can't make it, but thanks for watching. We'll see you guys next week.
 
 [00:44:28] Adam: Thanks, guys.
 

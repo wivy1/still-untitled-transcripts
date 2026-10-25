@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:05:03] Norm: Scale was a big, surprising thing too, both in the art and the architecture. The art, when you see in the textbook or even on your phone or your tablet, it's it's you can visualize the whole thing. But when you see a massive Rembrandt painting in person, and it's you know thirty feet wide by twenty feet tall, it engulfs your entire visage, and you can see all the textural brushwork.
 
-[00:05:26] Adam: Well, and so I went to the National Gallery. The most recent time was about five years ago with my sons. So they were eleven or twelve, and I didn't, I hadn't been there for a decade, and I didn't realize until I was walking through that oh, actually, even though I never really took a college level art history class, I know a college level art history's amount of information, and I started talking to them about what they were looking at about fifteenth, sixteenth, seventeenth, eighteenth, nineteenth, and twentieth century painting, and because of the way that it was laid out at that point. We were getting a course in the shifting movement of how painting changed how we look at ourselves, and there was this way in which you moved from the the mannerist sort of slightly weird portraits of the seventeenth century to the more realistic and the the more incredible, and then you get to the impressionists. And I just remember coming upon the Degas paintings of the dancers and the light, and I'm getting goosebumps as I describe it. I like I got teary because it was so overwhelming to feel this this progression of history of aesthetic history happen. Yeah, and the gallery lays it out so beautifully.
+[00:05:26] Adam: Well, and so I went to the National Gallery. The most recent time was about five years ago with my sons. So they were eleven or twelve, and I didn't, I hadn't been there for a decade, and I didn't realize until I was walking through that oh, actually, even though I never really took a college level art history class, I know a college level art history's amount of information, and I started talking to them about what they were looking at about 15th, 16th, 17th, 18th, 19th, and 20th century painting, and because of the way that it was laid out at that point. We were getting a course in the shifting movement of how painting changed how we look at ourselves, and there was this way in which you moved from the the mannerist sort of slightly weird portraits of the 17th century to the more realistic and the the more incredible, and then you get to the impressionists. And I just remember coming upon the Degas paintings of the dancers and the light, and I'm getting goosebumps as I describe it. I like I got teary because it was so overwhelming to feel this this progression of history of aesthetic history happen. Yeah, and the gallery lays it out so beautifully.
 
 [00:06:41] Danica: It's extraordinary.
 
@@ -200,15 +200,15 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:11:29] Adam: Yeah,
 
-[00:11:29] Norm: the movie came out I think June first. First, I want to say in the states, and we the the ramp up, the contextual ramp up, like the buzz for this film was building. The reviews had come out. Rotten Tomatoes, ninety five percent, glowing reviews everywhere. Studios were reevaluating what how much money you think it was going to make. I think they initially estimated seventy five million at most. You know, comparing it to Thor and Captain America,
+[00:11:29] Norm: the movie came out I think June 1. First, I want to say in the states, and we the the ramp up, the contextual ramp up, like the buzz for this film was building. The reviews had come out. Rotten Tomatoes, 95%, glowing reviews everywhere. Studios were reevaluating what how much money you think it was going to make. I think they initially estimated seventy five million at most. You know, comparing it to Thor and Captain America,
 
 [00:12:05] Adam: they thought that globally or U S.
 
 [00:12:07] Norm: U S. First weekend,
 
-[00:12:08] Adam: so it exceeded their expectations by twenty five percent,
+[00:12:08] Adam: so it exceeded their expectations by 25%,
 
-[00:12:11] Norm: twenty-five percent, which is incredible. And for us, we were in Amsterdam. The movie didn't come out for two weeks.
+[00:12:11] Norm: 25%, which is incredible. And for us, we were in Amsterdam. The movie didn't come out for two weeks.
 
 [00:12:18] Danica: Yeah. And this is what we've been looking forward to. I mean,
 
@@ -464,7 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:26:24] Norm: profile and look at you.
 
-[00:26:26] Adam: And somebody, somebody, I know, I can't remember who it was, tweeted that they saw this in the full IMAX digital projection that was three D,
+[00:26:26] Adam: And somebody, somebody, I know, I can't remember who it was, tweeted that they saw this in the full IMAX digital projection that was 3D,
 
 [00:26:26] Norm: Mm-hmm. Yeah.
 

@@ -16,7 +16,7 @@ Episode URL: No YouTube video found
 
 [00:00:41] Norm: Yeah, all good things, right? It's the, the...
 
-[00:00:44] Adam: Absolutely. I mean, you know, just to give the, the, the, the broadest top line, we spent twenty twenty, like everybody else, relearning about how to do our whole thing. And a lot of A/B testing and a lot of fan interaction and feedback and new models taking a look at, and we realized that in 2021 we wanted to put our energy in some specific places, and that the podcast should probably go away in favor of our energy in, in other spaces.
+[00:00:44] Adam: Absolutely. I mean, you know, just to give the, the, the, the broadest top line, we spent 2020, like everybody else, relearning about how to do our whole thing. And a lot of A/B testing and a lot of fan interaction and feedback and new models taking a look at, and we realized that in 2021 we wanted to put our energy in some specific places, and that the podcast should probably go away in favor of our energy in, in other spaces.
 
 [00:01:15] Norm: Yeah, I mean, if you think about this podcast starting, as Still Untitled, eight years, nine years ago at some point.
 
@@ -36,7 +36,7 @@ Episode URL: No YouTube video found
 
 [00:03:32] Norm: Yeah.
 
-[00:03:32] Adam: How, how, how much that feels even more like a, a focused conversation that ranges wildly, and uh, I will say this about the live streams specifically and the Q and A's with Tested patrons and fans on the live streams is that I've been doing interviews as a public figure since two thousand and three, so [seven, eighteen / eight—number restart uncertain], coming on eighteen years now, and... I have rarely gotten questions from Tested patrons or fans that I've gotten before. Like all of the questions are a brand new forum, and I mean, when you have a TV show, you just got to get ready to answer the same question like a million and a half times. So when someone comes up with a new one, it's always like, "Ooh, that's a cool one!" And that's basically what it is now. It's like all the questions are brand new questions. It's really, it's, it's, it's very exciting to me.
+[00:03:32] Adam: How, how, how much that feels even more like a, a focused conversation that ranges wildly, and uh, I will say this about the live streams specifically and the Q and A's with Tested patrons and fans on the live streams is that I've been doing interviews as a public figure since 2003, so [seven, eighteen / eight—number restart uncertain], coming on eighteen years now, and... I have rarely gotten questions from Tested patrons or fans that I've gotten before. Like all of the questions are a brand new forum, and I mean, when you have a TV show, you just got to get ready to answer the same question like a million and a half times. So when someone comes up with a new one, it's always like, "Ooh, that's a cool one!" And that's basically what it is now. It's like all the questions are brand new questions. It's really, it's, it's, it's very exciting to me.
 
 [00:04:28] Norm: And it's a format that can also evolve, right? Live streaming for us is very fresh and new. And this format of you know, you taking questions as well as doing a demonstration or some kind of build is something we're going to build on. And we may see things that you saw previously on the podcast, you know, talking about the pop culture things that we watch. That may move over there. We may have more interaction between you and you know me or someone else on the Tested team during a live stream. Like, there's a lot of exciting things that we can do in that format.
 
@@ -44,7 +44,7 @@ Episode URL: No YouTube video found
 
 [00:05:41] Norm: And, uh, like Adam said, I'm still doing it. I'm still doing This Is Only a Test with Jeremy and Kishore every week. Um, and Adam, you, there's always an open seat if you want to jump on the Zoom and talk about the Mandalorian when that comes back on the air.
 
-[00:05:53] Adam: Oh yes, a hundred percent. Done. I'm in. I'm in. I'm in.
+[00:05:53] Adam: Oh yes, 100%. Done. I'm in. I'm in. I'm in.
 
 [00:05:56] Norm: We'll have that opportunity as well. Um, but, uh, really, this is to, uh, to make sure that the, the episode numbers aren't just hanging in your, in your subscription feed. Uh, stay subscribed because who knows what'll happen. Um, and, uh, and we'll see you on the YouTube channel. And once again, thank you, thank you for listening. Especially, you know, we hear from some of you who, who've listened through the entire catalog of this podcast multiple times, which I couldn't bear to do that myself. I couldn't listen to myself.
 

@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:01:35] Will: Jack Donaghy.
 
-[00:01:37] Norm: Television makers, GM, and, and, you know, Samsungs of the world to unveil their two thousand thirteen product lines.
+[00:01:37] Norm: Television makers, GM, and, and, you know, Samsungs of the world to unveil their 2013 product lines.
 
 [00:01:43] Adam: Okay.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:05:20] Will: No, no, no, horizontal resolution, right?
 
-[00:05:22] Norm: Uh, vertical resolution, straight lines like that. That's 4K. It's about three thousand eight hundred pixels wide and about a little over two thousand pixels tall.
+[00:05:22] Norm: Uh, vertical resolution, straight lines like that. That's 4K. It's about 3,800 pixels wide and about a little over 2,000 pixels tall.
 
 [00:05:32] Will: Yeah, so it's basically double the, the height of our current TVs, which means it's four times the resolution, basically.
 
@@ -206,13 +206,13 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:05:39] Adam: How do they look?
 
-[00:05:39] Norm: Uh, they look gorgeous. They released one TV that was eighty-four inches late in November, I believe, and that was twenty-five thousand dollars in stores. And this year there is—
+[00:05:39] Norm: Uh, they look gorgeous. They released one TV that was 84 inches late in November, I believe, and that was 25,000 dollars in stores. And this year there is—
 
 [00:05:50] Adam: That's twenty-four and a half thousand dollars more than I want to pay for a TV.
 
 [00:05:53] Will: Exactly. That's, that's the right, that's the right response.
 
-[00:05:55] Norm: Yeah. And, and you know what? It's not worth twenty-four thousand five hundred dollars more in terms of your enjoyment.
+[00:05:55] Norm: Yeah. And, and you know what? It's not worth 24,500 dollars more in terms of your enjoyment.
 
 [00:06:01] Will: Well, because there is no content.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:07:09] Will: You can.
 
-[00:07:10] Adam: I just bought the, a Samsung for my kids downstairs, for their downstairs, and it was. Brian Lam, Wirecutter, gave me the recommendation. I think it was less than four hundred dollars for a forty-two-inch television, plasma. The blacks are gorgeous. That TV is magnificent.
+[00:07:10] Adam: I just bought the, a Samsung for my kids downstairs, for their downstairs, and it was. Brian Lam, Wirecutter, gave me the recommendation. I think it was less than 400 dollars for a forty-two-inch television, plasma. The blacks are gorgeous. That TV is magnificent.
 
 [00:07:27] Will: Well, so the thing that's happened with TVs is the, the vendors got hooked on selling TVs every few years because, you know, we had to switch to HD and we had to switch to flat panels, and then, you know—
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:07:52] Adam: They were durable. They were a durable good.
 
-[00:07:53] Will: Yeah, you bought a new TV when the old one broke and it was two, more than two hundred dollars to fix it, right?
+[00:07:53] Will: Yeah, you bought a new TV when the old one broke and it was two, more than 200 dollars to fix it, right?
 
 [00:07:57] Adam: So, so, so how are the 4Ks though? Are they just 4K stunningly—
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:08:35] Adam: So TV—
 
-[00:08:35] Will: 4K TVs. Nobody's going to buy 4K TVs until twenty fifteen.
+[00:08:35] Will: 4K TVs. Nobody's going to buy 4K TVs until 2015.
 
 [00:08:39] Norm: Not this year.
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:09:18] Norm: LG does have a short throw.
 
-[00:09:19] Adam: I will tell you something. A friend of mine who installs theaters in millionaires' and billionaires' homes gave me this secret. He said, "You can go out and—" I'd use this on a job. He said, "You can go out and spend four thousand bucks on a screen, or, or, how big is your screen to be?" I said, "It needs to be eight feet by twelve feet." He says, "Oh, six feet by, by ten feet." He goes, "Oh, great. Okay, go out and buy a double-wide, rubberized silver Lycra. They make it for costumes and stuff like that. You buy it at the fabric store."
+[00:09:19] Adam: I will tell you something. A friend of mine who installs theaters in millionaires' and billionaires' homes gave me this secret. He said, "You can go out and—" I'd use this on a job. He said, "You can go out and spend 4,000 bucks on a screen, or, or, how big is your screen to be?" I said, "It needs to be eight feet by twelve feet." He says, "Oh, six feet by, by ten feet." He goes, "Oh, great. Okay, go out and buy a double-wide, rubberized silver Lycra. They make it for costumes and stuff like that. You buy it at the fabric store."
 
 [00:09:54] Will: Really?
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:09:55] Will: And stretch that out?
 
-[00:09:56] Adam: And I have to tell you, I stretched it on a wooden frame, and I have to tell you, it looked ninety-nine percent as good as a four thousand—
+[00:09:56] Adam: And I have to tell you, I stretched it on a wooden frame, and I have to tell you, it looked 99% as good as a four thousand—
 
 [00:10:03] Will: We're going to do the backyard movie theater in the spring, Norm. It's, we have to do the backyard movie theater.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:10:10] Adam: You know? Yeah, you can buy the micro-balloons.
 
-[00:10:11] Will: Yeah, yeah, yeah. I mean, and then my other favorite dumb thing to project on is the glass that you put the special, the special, like, prismatic coating on the back of the glass, and then you shoot from behind at forty-five degrees below or forty-five.
+[00:10:11] Will: Yeah, yeah, yeah. I mean, and then my other favorite dumb thing to project on is the glass that you put the special, the special, like, prismatic coating on the back of the glass, and then you shoot from behind at 45 degrees below or forty-five.
 
 [00:10:22] Adam: Oh, I haven't seen that.
 
@@ -614,7 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:17:37] Adam: Yeah.
 
-[00:17:38] Will: Weren't, weren't suitable for this because the thing that they found from those early VR failures of the mid-nineties that we, that we all laugh about now, was that there's a lot of other stuff going on with your perception. Like, there's, there's actually, as you move your eyes, there's split-second hitches. It's one of the reasons that you get like finger tracks.
+[00:17:38] Will: Weren't, weren't suitable for this because the thing that they found from those early VR failures of the mid-'90s that we, that we all laugh about now, was that there's a lot of other stuff going on with your perception. Like, there's, there's actually, as you move your eyes, there's split-second hitches. It's one of the reasons that you get like finger tracks.
 
 [00:17:55] Adam: Right, right, right.
 
@@ -642,13 +642,13 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:18:34] Adam: So they were stunning. It was awesome.
 
-[00:18:36] Norm: It, it was one of those when you, when you, it was wow, like a wow demo. Like you sit down, you put it on, and you go, "Wow, I want this." And it was, it's three hundred bucks, the dev kit, which is I think totally affordable.
+[00:18:36] Norm: It, it was one of those when you, when you, it was wow, like a wow demo. Like you sit down, you put it on, and you go, "Wow, I want this." And it was, it's 300 bucks, the dev kit, which is I think totally affordable.
 
 [00:18:46] Adam: Crazy.
 
 [00:18:47] Norm: Affordable. And they're hoping to have them into retail next year.
 
-[00:18:51] Will: So, so there's a couple of things to note. The dev kit is a much lower resolution than the retail version will be. The dev kit's like a, a eight hundred pixel vertical height—
+[00:18:51] Will: So, so there's a couple of things to note. The dev kit is a much lower resolution than the retail version will be. The dev kit's like a, a 800 pixel vertical height—
 
 [00:18:58] Norm: Panel, seven—
 
@@ -672,7 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:19:39] Adam: Yeah, yeah, yeah. No, we, we've been needing, we've been needing that for driving cars via a remote control forever on our show. It's, it's technology that we desperately—
 
-[00:19:46] Will: We can make driving cars via remote control like a video game that's three-D and the whole nine yards.
+[00:19:46] Will: We can make driving cars via remote control like a video game that's 3D and the whole nine yards.
 
 [00:19:51] Unknown speaker: Okay.
 
@@ -726,7 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:21:36] Adam: And how, how, how expensive is it to do it?
 
-[00:21:38] Will: Fifty-nine dollars for a phone.
+[00:21:38] Will: 59 dollars for a phone.
 
 [00:21:39] Norm: Sixty dollars. You can mail in your phone, but they're also gonna establish a retail presence.
 

@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:08:01] Kayte Sabicer: Whoa!
 
-[00:08:02] Adam: And it started. It started with maybe the greatest Craigslist find ever, which is I guess this is probably now about ten, twelve years ago. I do a lot of regular eBay searches, but every now and then I port my eBay searches over to Craigslist, and most of the time I don't find stuff. But if you can hold, I found someone selling issues, Cinefex issues one through fifteen, for like two hundred fifty bucks.
+[00:08:02] Adam: And it started. It started with maybe the greatest Craigslist find ever, which is I guess this is probably now about ten, twelve years ago. I do a lot of regular eBay searches, but every now and then I port my eBay searches over to Craigslist, and most of the time I don't find stuff. But if you can hold, I found someone selling issues, Cinefex issues one through fifteen, for like 250 bucks.
 
 [00:08:27] Unknown speaker (Norm or Norm then Adam or Adam then Norm): Wow! I know that sounds like a lot. Sounds like a lot.
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:08:38] Adam: to find. Oh yeah. The Blade Runner issue. That Blade Runner issue is is expensive if you can find it.
 
-[00:08:46] Kayte Sabicer: Actually, someone the other day just said to me, " Oh, you know, one day I was walking down the street and I just [unclear: found a box of those magazines that you were just talking about / found a box of those magazines that you were just talking about, and I was like, oh my God, I’m going to]. Like like tons of them. Not recent though; they were all like the old ones from like the seventies and eighties. And I was just like, 'Where are they?'"
+[00:08:46] Kayte Sabicer: Actually, someone the other day just said to me, " Oh, you know, one day I was walking down the street and I just [unclear: found a box of those magazines that you were just talking about / found a box of those magazines that you were just talking about, and I was like, oh my God, I’m going to]. Like like tons of them. Not recent though; they were all like the old ones from like the '70s and '80s. And I was just like, 'Where are they?'"
 
 [00:09:01] Adam: Actually, as an aside, Freddie's over at my storage space. I, I'll have to find it. I have when I completed my collection, I ended up with a bunch of doubles because I had to buy some lots. I'll bring in my doubles later on this week, so you guys can sift through them and have them because I think I have about thirty thirty issues that are that are doubled up.
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:09:23] Kayte Sabicer: I'll just take a vacation week, just look at Cinefex the whole time.
 
-[00:09:27] Adam: It's I. It really like, way back before I was doing television, I worked for Lucasfilm, and they started to send me out to do public speaking on behalf of Lucasfilm. I mentioned to the PR department that I was potentially good at it, and in two thousand, they sent me to the Breckenridge, Colorado Film Festival, and in this, uh, in this small auditorium, I, I I built a slide deck with with actual slides and a slide projector from Lucasfilm Archives, and I built a talk, and then I took questions from the audience, and this is I'm like. A thirty-year-old model maker, right? Thirty-three-year-old model maker. I don't, and yet, because I had read every single episode of Cine—every single issue of Cinefex, I had this ability to put these pieces together for the audience to really help them understand the arc of, uh, how some of the effects that we're using today are still some of the oldest effects that anyone's used in film.
+[00:09:27] Adam: It's I. It really like, way back before I was doing television, I worked for Lucasfilm, and they started to send me out to do public speaking on behalf of Lucasfilm. I mentioned to the PR department that I was potentially good at it, and in 2000, they sent me to the Breckenridge, Colorado Film Festival, and in this, uh, in this small auditorium, I, I I built a slide deck with with actual slides and a slide projector from Lucasfilm Archives, and I built a talk, and then I took questions from the audience, and this is I'm like. A thirty-year-old model maker, right? Thirty-three-year-old model maker. I don't, and yet, because I had read every single episode of Cine—every single issue of Cinefex, I had this ability to put these pieces together for the audience to really help them understand the arc of, uh, how some of the effects that we're using today are still some of the oldest effects that anyone's used in film.
 
 [00:10:33] Norm: Yeah,
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:22:10] Adam: it's it's constantly ongoing, isn't it?
 
-[00:22:13] Kayte Sabicer: It is one hundred percent. Every time I think I get a handle on it, I mean, I, I'm sure you see that because I'm seeing you. I come in and I go, " Oh, this shop is perfect and it's perfectly organized," and yet I'll come in days and you'll have changed a bunch of things, and I'm thought, " Well, that wasn't necessary, was it?" Until I go, " Oh, no, this is much better. I didn't even know it could be better."
+[00:22:13] Kayte Sabicer: It is 100%. Every time I think I get a handle on it, I mean, I, I'm sure you see that because I'm seeing you. I come in and I go, " Oh, this shop is perfect and it's perfectly organized," and yet I'll come in days and you'll have changed a bunch of things, and I'm thought, " Well, that wasn't necessary, was it?" Until I go, " Oh, no, this is much better. I didn't even know it could be better."
 
 [00:22:31] Norm: It's all informed by the work.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:25:57] Kayte Sabicer: I've done that many times. It's so helpful.
 
-[00:25:59] Adam: So opaque projectors are. Expensive used ones start at like one hundred and fifty bucks, and you know they're dumbly expensive.
+[00:25:59] Adam: So opaque projectors are. Expensive used ones start at like 150 bucks, and you know they're dumbly expensive.
 
 [00:26:06] Kayte Sabicer: They are.
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:31:56] Unknown speaker (Adam or Norm): Actually,
 
-[00:31:59] Norm: yeah, and this is like their ten percent time. This is like their stuff. He's not even doing for work. Right, he's just doing on his own. Yeah, amazing stuff. And I think we have a one-day build coming out with a you and Laura Kampf.
+[00:31:59] Norm: yeah, and this is like their 10% time. This is like their stuff. He's not even doing for work. Right, he's just doing on his own. Yeah, amazing stuff. And I think we have a one-day build coming out with a you and Laura Kampf.
 
 [00:32:11] Adam: Oh
 

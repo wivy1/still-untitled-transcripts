@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:07:37] Will: all of it's amazing. But, like that five minutes.
 
-[00:07:38] Adam: Oh, yeah, no, it's real. It's totally incredible. And the guides have all of this wonderful history. We spent in Granada. We went to the, what was it, the big castle over there? The the the Alhambra in Granada is incredible because it's literally been, like, it's been there since the twelfth century, and you get to see like all of these buildings that got built up. It was a Roman fort. Right, I mean, like the amount of history going on in Spain was was super thrilling, and the guides are all amazing at telling you the stories about what this room. We stood in a room in which Queen Isabella of Spain received Christopher Columbus in chains because he'd been arrested for his poor treatment of the colonies.
+[00:07:38] Adam: Oh, yeah, no, it's real. It's totally incredible. And the guides have all of this wonderful history. We spent in Granada. We went to the, what was it, the big castle over there? The the the Alhambra in Granada is incredible because it's literally been, like, it's been there since the 12th century, and you get to see like all of these buildings that got built up. It was a Roman fort. Right, I mean, like the amount of history going on in Spain was was super thrilling, and the guides are all amazing at telling you the stories about what this room. We stood in a room in which Queen Isabella of Spain received Christopher Columbus in chains because he'd been arrested for his poor treatment of the colonies.
 
 [00:08:27] Norm: Wow,
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:15:36] Adam: So for some reason, teenagers getting really stressed out is something I find deeply pleasurable.
 
-[00:15:40] Will: Well, it's because you're still scared of them a little bit, right? It's funny. My my daughter is in first grade now, and like the thing we've realized is that they have either feelings that are all the way or none at all. So like, there's no in between on disappointment or scared or upset. It's either a hundred percent or like no, everything's cool, Dad. What's wrong? So yeah, learning to.
+[00:15:40] Will: Well, it's because you're still scared of them a little bit, right? It's funny. My my daughter is in first grade now, and like the thing we've realized is that they have either feelings that are all the way or none at all. So like, there's no in between on disappointment or scared or upset. It's either 100% or like no, everything's cool, Dad. What's wrong? So yeah, learning to.
 
 [00:16:05] Adam: So that was the trip.
 
@@ -884,7 +884,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:40:24] Adam: Oh, yeah. No, she's going deep. The first episode's out, and it's fantastic. I'm so happy that podcast is back.
 
-[00:40:30] Will: I had, we had the most wonderful conversation about movies at South by Southwest when I had 15 years ago. When I had no, we were sitting at a bar on Sixth Street, just casually, and was like, " Oh, what do you do? I do a podcast about movies. What do you do? I make computer stuff." And we just chatted about movies for 20 minutes while we drank a beer.
+[00:40:30] Will: I had, we had the most wonderful conversation about movies at South by Southwest when I had 15 years ago. When I had no, we were sitting at a bar on 6th Street, just casually, and was like, " Oh, what do you do? I do a podcast about movies. What do you do? I make computer stuff." And we just chatted about movies for 20 minutes while we drank a beer.
 
 [00:40:49] Adam: She's amazing. I've listened to dozens and dozens and dozens of hours of " You Must Remember This." It is one of the best podcasts. It is such dense scholarship.
 

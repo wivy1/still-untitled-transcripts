@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:04:33] Adam: that I didn't know.
 
-[00:04:34] Norm: So there's a show pilot called " Man in the High Castle," and it's an adaptation of a Philip K. Dick book, and it's a alternate universe 1960s, late 60s. What if the Axis won World War II, and the U.S. is divided into Nazi-occupied East Coast and Midwest, and Japanese-owned occupied West Coast, and what the lives are. In that United States,
+[00:04:34] Norm: So there's a show pilot called " Man in the High Castle," and it's an adaptation of a Philip K. Dick book, and it's a alternate universe 1960s, late '60s. What if the Axis won World War II, and the U.S. is divided into Nazi-occupied East Coast and Midwest, and Japanese-owned occupied West Coast, and what the lives are. In that United States,
 
 [00:05:02] Will: that seems grim.
 
@@ -678,7 +678,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:26:03] Will: But that's what I am saying. This is a technique that serves the performance, and that's an amazing thing.
 
-[00:26:07] Adam: Well, and I'd say that about Avatar, right? Avatar might be one of the Avatar and Gravity are the only two movies I can think of where the three D augmented the film.
+[00:26:07] Adam: Well, and I'd say that about Avatar, right? Avatar might be one of the Avatar and Gravity are the only two movies I can think of where the 3D augmented the film.
 
 [00:26:15] Will: Right. Whereas I watched Guardians of the Galaxy on the plane on the way back last night again,
 

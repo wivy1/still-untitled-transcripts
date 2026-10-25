@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=zj_SMQFBLuA
 
 [00:03:36] Norm: there is actually a show coming up in San Francisco.
 
-[00:03:40] Adam: There is on October twelfth. We're doing a matinee at two p.m. and a show at eight p.m.
+[00:03:40] Adam: There is on October 12. We're doing a matinee at two p.m. and a show at eight p.m.
 
 [00:03:44] Norm: Wow, have you ever done that? Two shows in one day?
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=zj_SMQFBLuA
 
 [00:18:28] Norm: Wow!
 
-[00:18:28] Adam: I had flown a red eye. I arrived at the venue. I did the talk, which was ninety five percent done, and I tanked it. I totally couldn't remember whole chunks of it because I was like bleary from the red eye. I said, " I'll see you guys in three hours. I promise, I am going to come back and nail this. I really am." And I went back to the hotel room and I ran the talk about forty times, just back and forth, back and forth, back and forth. And somewhere as and this is look, this sounds like I left it till the last minute, but it is actually one of the ways in which I work. I think about things and then I engage with them late in the process to start to write them down or put them down, and then a structure becomes more clear, more clear, more clear, more clear. And this is part of the process. And there I came to the end of that story, which I am really, I am deeply satisfied with. It's a little bit hokey, but it's perfect for. Exactly what I wanted to achieve
+[00:18:28] Adam: I had flown a red eye. I arrived at the venue. I did the talk, which was 95% done, and I tanked it. I totally couldn't remember whole chunks of it because I was like bleary from the red eye. I said, " I'll see you guys in three hours. I promise, I am going to come back and nail this. I really am." And I went back to the hotel room and I ran the talk about forty times, just back and forth, back and forth, back and forth. And somewhere as and this is look, this sounds like I left it till the last minute, but it is actually one of the ways in which I work. I think about things and then I engage with them late in the process to start to write them down or put them down, and then a structure becomes more clear, more clear, more clear, more clear. And this is part of the process. And there I came to the end of that story, which I am really, I am deeply satisfied with. It's a little bit hokey, but it's perfect for. Exactly what I wanted to achieve
 
 [00:19:18] Norm: With comedy and writing in general. There's a lot of it where you take a step back and everything meshes together in a way that you can't. You can't necessarily explain in words. Like for especially comedy, what's funny, like for some reason something's funny, you can't necessarily explain it, but you can dissect the pieces leading up to it. So it's weird dichotomy of of you knowing a structure and you approaching something analytically, but also having this innate feeling of what's actually resonating with.
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=zj_SMQFBLuA
 
 [00:25:13] Norm: it's fun to watch stuff on TV or listen to it on on MP3. But You know, engage.
 
-[00:25:19] Adam: This is a this is a great time for comedy. I know that people say things like San Francisco in the nineties was the early nineties, the late eighties was a great time for comedy, and stuff like that. This time, right now, with the internet and the way people are able to put up their videos, is a really great time to be exposed to lots of awesome comedy. There are amazing people out there, like Louis C.K., who is doing some of the best stuff ever, and people like Patton and Chris Hardwick. I mean, all of these guys I've named are just at the top of their game and doing really, really stunning work. And a lot of their exposure is online exposure. Their fan bases are online. Paul F. Tompkins will go to your town and perform if you can get enough people to agree to go buy tickets to his show. He goes where the love is, and that's great. He's not performing for a hostile crowd in a drunken comedy club. He's looking for the for the for the love back from the crowd, and that's totally great. That's a great new model.
+[00:25:19] Adam: This is a this is a great time for comedy. I know that people say things like San Francisco in the '90s was the early '90s, the late '80s was a great time for comedy, and stuff like that. This time, right now, with the internet and the way people are able to put up their videos, is a really great time to be exposed to lots of awesome comedy. There are amazing people out there, like Louis C.K., who is doing some of the best stuff ever, and people like Patton and Chris Hardwick. I mean, all of these guys I've named are just at the top of their game and doing really, really stunning work. And a lot of their exposure is online exposure. Their fan bases are online. Paul F. Tompkins will go to your town and perform if you can get enough people to agree to go buy tickets to his show. He goes where the love is, and that's great. He's not performing for a hostile crowd in a drunken comedy club. He's looking for the for the for the love back from the crowd, and that's totally great. That's a great new model.
 
 [00:26:10] Norm: And if you guys have favorite comedians that maybe you think we haven't heard of,
 

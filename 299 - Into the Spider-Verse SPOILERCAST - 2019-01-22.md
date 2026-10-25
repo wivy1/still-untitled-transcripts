@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:05:01] Norm: Oh, yeah.
 
-[00:05:01] Adam: just for a second. Everyone knows that I like space hardware, and I make a lot of replicas of space hardware. I occasionally collect pieces of space hardware. I'm not really, I'm not into spending tons and tons of dough on it. But I recently acquired this piece, which is a real high pressure helmet from Britain in the 70s. It's a it's a high altitude pressure helmet called a Taylor helmet. I am so psyched to get this in my collection. I believe this is part of the inspiration for the helmet that's in the opening shot of Alien. It's not here because I curated it back into my office at home.
+[00:05:01] Adam: just for a second. Everyone knows that I like space hardware, and I make a lot of replicas of space hardware. I occasionally collect pieces of space hardware. I'm not really, I'm not into spending tons and tons of dough on it. But I recently acquired this piece, which is a real high pressure helmet from Britain in the '70s. It's a it's a high altitude pressure helmet called a Taylor helmet. I am so psyched to get this in my collection. I believe this is part of the inspiration for the helmet that's in the opening shot of Alien. It's not here because I curated it back into my office at home.
 
 [00:05:01] Norm: Oh,
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:05:57] Will: So, what was the helmet? Was it like for the Vulcan or something like that? Some weird.
 
-[00:06:00] Adam: I don't know what plane it was for. It was a British, seventies British high altitude plane. Apparently, they cost a fortune, and if you look at the back and you see how they were tightened onto the,
+[00:06:00] Adam: I don't know what plane it was for. It was a British, '70s British high altitude plane. Apparently, they cost a fortune, and if you look at the back and you see how they were tightened onto the,
 
 [00:06:12] Will: fetishware.
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:07:54] Will: Oh no! In the art center.
 
-[00:07:56] Adam: In the in the art center. Yeah, there was a big art show there, and it was it was a fun conversation on stage. It will be broadcast as part of City Arts and Lectures. Tom and I are both participating in a show that MoMA is having this July called " Far Out" about spacesuits and Habs and the NASA era and inspiration for our culture in space. That was, of course, really fun, and I got to explain to Tom that I'd actually shot guns in that very building. Wow! That when MythBusters did bullet drop versus fired, we needed a we needed a room that was at least four hundred feet long because that's about how long it takes a bullet to leave a gun to actually hit the ground from about hand height.
+[00:07:56] Adam: In the in the art center. Yeah, there was a big art show there, and it was it was a fun conversation on stage. It will be broadcast as part of City Arts and Lectures. Tom and I are both participating in a show that MoMA is having this July called " Far Out" about spacesuits and Habs and the NASA era and inspiration for our culture in space. That was, of course, really fun, and I got to explain to Tom that I'd actually shot guns in that very building. Wow! That when MythBusters did bullet drop versus fired, we needed a we needed a room that was at least 400 feet long because that's about how long it takes a bullet to leave a gun to actually hit the ground from about hand height.
 
 [00:08:35] Ben: As we all know.
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:16:11] Will: That's what a podcast is for, Ben.
 
-[00:16:12] Ben: I know that's what a podcast is for, but being in show business, you're supposed to shut up about it. But but so you've got each of these Spider Men from each of these universes that have phlebotinum'd their way to this place, which justifies anything from their universe coming into this place, which is why you have trains running on this axis instead of this axis for your big finale. And I think that the only one who has had more unnecessary hamfisted cameos in Marvel movies than Stan Lee is trains. I didn't like them in Black Panther. I didn't need a train that I have no interest in being part of their finale, and I. Didn't care about a train, and I get that visually it's great, and it's about visuals. It's a visual medium. It's visual, visual, great. Do it. That's why you do it. It's right. It's technically right, and I'm technically wrong. But if you had a bunch of Ben Schwartz and Tom Middleditch animals from the Porker verse coming in, and he gets to see his nemesis, and you have other, you have a bunch of not they set up that this is a Spider Man Noir fights Nazis in the 30s. I want to see 30s Nazis. That's a Chekhov's Nazis rule. Right, Nazis. I want to see today the most Nazis getting punched ever. Like that's what I want. That's what I want to see.
+[00:16:12] Ben: I know that's what a podcast is for, but being in show business, you're supposed to shut up about it. But but so you've got each of these Spider Men from each of these universes that have phlebotinum'd their way to this place, which justifies anything from their universe coming into this place, which is why you have trains running on this axis instead of this axis for your big finale. And I think that the only one who has had more unnecessary hamfisted cameos in Marvel movies than Stan Lee is trains. I didn't like them in Black Panther. I didn't need a train that I have no interest in being part of their finale, and I. Didn't care about a train, and I get that visually it's great, and it's about visuals. It's a visual medium. It's visual, visual, great. Do it. That's why you do it. It's right. It's technically right, and I'm technically wrong. But if you had a bunch of Ben Schwartz and Tom Middleditch animals from the Porker verse coming in, and he gets to see his nemesis, and you have other, you have a bunch of not they set up that this is a Spider Man Noir fights Nazis in the '30s. I want to see '30s Nazis. That's a Chekhov's Nazis rule. Right, Nazis. I want to see today the most Nazis getting punched ever. Like that's what I want. That's what I want to see.
 
 [00:17:32] Will: Like I signed up for two hours of Nazis getting punched. That sounds great.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:18:52] Ben: How did? It's Miller and Lord, right?
 
-[00:18:53] Will: Well, yeah, but still, I mean, they—they're the twenty twenty-one Jump Street.
+[00:18:53] Will: Well, yeah, but still, I mean, they—they're the twenty 21 Jump Street.
 
 [00:18:56] Norm: I think it's because it's animated. Because they feel like with animation, the risk is lower.
 
@@ -706,7 +706,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:23:39] Norm: Yes, the Chris Pine Spider-Man was supposed to be the the Uber Spider-Man, the Spider-Man as we in pop culture understand Spider-Man to be.
 
-[00:23:47] Will: Okay. And okay, so as a person who's not a huge Spider-Man fan, and I say that meaning I've read like three comic book arcs and and mostly watched movies and the seventies television show. What, what, like, are all those real Spider-Men? Did they do comics for all those Spider-Spider? I know Spider Gwen's real.
+[00:23:47] Will: Okay. And okay, so as a person who's not a huge Spider-Man fan, and I say that meaning I've read like three comic book arcs and and mostly watched movies and the '70s television show. What, what, like, are all those real Spider-Men? Did they do comics for all those Spider-Spider? I know Spider Gwen's real.
 
 [00:24:06] Norm: Yeah.
 
@@ -736,7 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:24:21] Will: Oh, okay.
 
-[00:24:21] Norm: And also bringing in Spider-Man twenty ninety nine.
+[00:24:21] Norm: And also bringing in Spider-Man 2099.
 
 [00:24:32] Ben: Oh,
 
@@ -860,7 +860,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:28:31] Unknown speaker: I. I mean, I don't know. Why does what's Peter Parker's real motivation? I kind of. I don't. I don't understand.
 
-[00:28:37] Norm: You're talking about a comic book publishing technique that was like in the 90s and 80s,
+[00:28:37] Norm: You're talking about a comic book publishing technique that was like in the '90s and '80s,
 
 [00:28:42] Ben: and now
 
@@ -956,7 +956,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:32:22] Ben: it's a kids' movie. Oh, so you're not going to use any of that.
 
-[00:32:26] Norm: I think the same with Nick Cage. They they let a lot of the actors improv a bit, and then for him, he did some bits, and because he was doing like 20s talk, they didn't know if some of the slang was real slang or not. And one of the bits wasn't real slang; it was just like a sex act. But no, it didn't make it in the film. They they caught it, but like in reviewing the daily,
+[00:32:26] Norm: I think the same with Nick Cage. They they let a lot of the actors improv a bit, and then for him, he did some bits, and because he was doing like '20s talk, they didn't know if some of the slang was real slang or not. And one of the bits wasn't real slang; it was just like a sex act. But no, it didn't make it in the film. They they caught it, but like in reviewing the daily,
 
 [00:32:49] Ben: not to plug my business, but I wrote it. Deadpool Annual once, where Deadpool was giving Luke Cage crap about how many superhero names sounded like sex acts.
 
@@ -996,7 +996,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:34:02] Adam: Oh, right, okay.
 
-[00:34:03] Will: But you know the the the you know there's any number of those kind of witty bon mots that go back and forth like four lines too long. And then the scene, the scene with the roommate when they're in Miles Morales' dorm room is is some like straight up 30s style silent movie physical comedy genius.
+[00:34:03] Will: But you know the the the you know there's any number of those kind of witty bon mots that go back and forth like four lines too long. And then the scene, the scene with the roommate when they're in Miles Morales' dorm room is is some like straight up '30s style silent movie physical comedy genius.
 
 [00:34:23] Adam: So much fun and such
 
@@ -1050,7 +1050,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:36:20] Adam: Doctor Wave.
 
-[00:36:20] Will: Yeah, they're missing one. Yes, Doctor Wave. Sorry, they. He told me about the time a friend of his was like, " Hey, you need to go see this movie, Akira. It's a two billion dollar live action movie that's animated." And that was the feeling I had walking out of this movie. Like this movie, this movie is a movie that is going to change the way people approach animation, just because of the the way it's astounding how it was shot.
+[00:36:20] Will: Yeah, they're missing one. Yes, Doctor Wave. Sorry, they. He told me about the time a friend of his was like, " Hey, you need to go see this movie, Akira. It's a 2,000,000,000 dollar live action movie that's animated." And that was the feeling I had walking out of this movie. Like this movie, this movie is a movie that is going to change the way people approach animation, just because of the the way it's astounding how it was shot.
 
 [00:36:40] Ben: Didn't they invent new form, like do ways to animate? Didn't they like patent?
 

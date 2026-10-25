@@ -164,11 +164,11 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:08:13] Will: I, I always tip.
 
-[00:08:13] Adam: Don't tip badly, and also tip your pizza guy twenty percent for Christ's sake. But really, it is actually where you are twenty percent. Like if you are going to tip anyone, tip your delivery guy.
+[00:08:13] Adam: Don't tip badly, and also tip your pizza guy 20% for Christ's sake. But really, it is actually where you are 20%. Like if you are going to tip anyone, tip your delivery guy.
 
 [00:08:22] Will: Yeah, the guy he knows where you live
 
-[00:08:23] Adam: first. Frequently, they are delivering, they're delivering something and it's nineteen dollars and twenty six cents, and this is more common than not. Someone says, " Keep the change, kid." What?
+[00:08:23] Adam: first. Frequently, they are delivering, they're delivering something and it's nineteen dollars and 26 cents, and this is more common than not. Someone says, " Keep the change, kid." What?
 
 [00:08:23] Norm: That's like a movie thing. That's just a movie thing.
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:12:04] Will: I used to go to a bar down there fairly regularly in the early 2000s.
 
-[00:12:07] Adam: I look in the 90s. I walked. I spent half of my life at Albion and 16th, thinking that the world was my oyster, and that is still a terrible corner.
+[00:12:07] Adam: I look in the '90s. I walked. I spent half of my life at Albion and 16th, thinking that the world was my oyster, and that is still a terrible corner.
 
 [00:12:16] Will: Yeah, it’s still not. That's not. That's not a happy place.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:25:27] Unknown speaker: It looks pretty darn good. Super cool. You can get amazing stuff out of that.
 
-[00:25:29] Adam: It's. I'm really, really excited about starting to three D print some of this stuff and starting to do paint treatments. Frank has found one of the cool things about the Martian suits. Always, how to make something look weathered is difficult. I was talking like Yoda.
+[00:25:29] Adam: It's. I'm really, really excited about starting to 3D print some of this stuff and starting to do paint treatments. Frank has found one of the cool things about the Martian suits. Always, how to make something look weathered is difficult. I was talking like Yoda.
 
 [00:25:29] Will: Yeah.
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:28:06] Will: Yeah. Do you need to make a half dozen? Send out six people at once.
 
-[00:28:09] Adam: Maybe maybe I get because now I got. I've got this. I've got all the spacesuits set up over there. I've got my. I've got my Mercury. I've got the Nagata Apollo. I've got the the the two thousand and one. I've got the alien suit. The Martian suit belongs over there. I have a couple of other spacesuits I'm interested in replicating this year.
+[00:28:09] Adam: Maybe maybe I get because now I got. I've got this. I've got all the spacesuits set up over there. I've got my. I've got my Mercury. I've got the Nagata Apollo. I've got the the the 2001. I've got the alien suit. The Martian suit belongs over there. I have a couple of other spacesuits I'm interested in replicating this year.
 
 [00:28:27] Will: Okay.
 

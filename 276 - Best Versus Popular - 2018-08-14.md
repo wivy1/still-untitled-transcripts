@@ -138,7 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:05:38] Adam: Amazing.
 
-[00:05:38] Norm: I mean, the the most magical thing is like books, right? The fact that I could search a phrase I distinctly remember in a book, but I don't remember the book title, and Google Books will have that, even if it's not hundred percent correct. I'm like, wow, it I I would never have been able to find this.
+[00:05:38] Norm: I mean, the the most magical thing is like books, right? The fact that I could search a phrase I distinctly remember in a book, but I don't remember the book title, and Google Books will have that, even if it's not 100% correct. I'm like, wow, it I I would never have been able to find this.
 
 [00:05:56] Will: My favorite is is that I want that movie with that guy who drives a truck with a groundhog in it, and and you type that into Google, and it'll pop up, and it's like Bill Murray was in Groundhog Day in 1988.
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:16:03] Will: C one thirty or something,
 
-[00:16:04] Norm: yeah, like a A forty four thousand or some some crazy jet, and that's all being filmed in real time. They had those stunts written on paper. They knew they were going to do that, and they wrote a movie around that, and You know, it's ninety-eight percent on Rotten Tomatoes.
+[00:16:04] Norm: yeah, like a A forty four thousand or some some crazy jet, and that's all being filmed in real time. They had those stunts written on paper. They knew they were going to do that, and they wrote a movie around that, and You know, it's 98% on Rotten Tomatoes.
 
 [00:16:17] Will: So I,
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:16:44] Unknown speaker: Yeah.
 
-[00:16:44] Norm: At the end, like we need, we have five minutes left to get this shot before people need to go. He talks about in the podcast. They had fifteen minutes to shoot certain scenes, and if it gone one minute over, that's another three hundred thousand dollars.
+[00:16:44] Norm: At the end, like we need, we have five minutes left to get this shot before people need to go. He talks about in the podcast. They had fifteen minutes to shoot certain scenes, and if it gone one minute over, that's another 300,000 dollars.
 
 [00:16:44] Unknown speaker: Yeah,
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:17:00] Norm: next day.
 
-[00:17:01] Will: Oh my god. When I've done, like we did some commercial shoots and stuff like that last year, and it's not anywhere near like three hundred thousand dollars a minute if you go over. But like, there's a when you have when you have union actors and you like you're you're.
+[00:17:01] Will: Oh my god. When I've done, like we did some commercial shoots and stuff like that last year, and it's not anywhere near like 300,000 dollars a minute if you go over. But like, there's a when you have when you have union actors and you like you're you're.
 
 [00:17:01] Norm: Your crew
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:19:18] Norm: And what does that? That means so many things to so many different people.
 
-[00:19:59] Will: And they've been over the what eighty years that they've been doing this. Sometimes they get it really right, but more often than not, when you look, if you look back at the movies from the fifties and sixties, they messed up more often than not. Back then, for sure,
+[00:19:59] Will: And they've been over the what eighty years that they've been doing this. Sometimes they get it really right, but more often than not, when you look, if you look back at the movies from the '50s and '60s, they messed up more often than not. Back then, for sure,
 
 [00:20:12] Adam: Yeah,
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:22:53] Will: This is this is why you are not in charge of programming the Oscars, Adam.
 
-[00:22:57] Norm: It loves being in the twenties. I forever stuck in the twenties.
+[00:22:57] Norm: It loves being in the '20s. I forever stuck in the '20s.
 
 [00:23:01] Will: So here is the thing: a lot of the criticism of a popular movie category is are the exact same things that we said ten years ago when they rolled out the Best Animated Feature category, right? And and with a few exceptions, they've done a pretty good job with that.
 
@@ -666,7 +666,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:24:24] Will: No,
 
-[00:24:24] Will: It's twenty twenty. Yeah,
+[00:24:24] Will: It's 2020. Yeah,
 
 [00:24:25] Adam: that's what. Yeah,
 
@@ -724,7 +724,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:25:34] Will: And the Dutch angles are because they had to clip out the parts of the set that aren't that don't like yeah. Meanwhile, what blew
 
-[00:25:47] Adam: me away about and I think I mentioned this when we were talking about it when it happened at the time, but the the season one of Jessica Jones, what blew me away was that they would be like, oh, I'm on the corner of 18th and Sixth Avenue, and I, being a New Yorker, knew that they were actually on the corner of 18th and Sixth. Every location they mention that they're in in that show seems to be the actual location. Do you think
+[00:25:47] Adam: me away about and I think I mentioned this when we were talking about it when it happened at the time, but the the season one of Jessica Jones, what blew me away was that they would be like, oh, I'm on the corner of 18th and 6th Avenue, and I, being a New Yorker, knew that they were actually on the corner of 18th and 6th. Every location they mention that they're in in that show seems to be the actual location. Do you think
 
 [00:26:08] Will: they shut it all down? You think they just cheated, like like went out with small handhelds?
 
@@ -764,7 +764,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:26:32] Adam: I feel like it's going to be quite obvious.
 
-[00:26:35] Norm: All right, so in twenty seventeen, right? Which what won best picture in twenty seventeen? Shape of Water. Right, Shape of Water won best picture. So
+[00:26:35] Norm: All right, so in 2017, right? Which what won best picture in 2017? Shape of Water. Right, Shape of Water won best picture. So
 
 [00:26:42] Will: definitely not a popular film.
 
@@ -880,11 +880,11 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:30:10] Adam: Oh,
 
-[00:30:11] Norm: what you would call twenty seventeen?
+[00:30:11] Norm: what you would call 2017?
 
-[00:30:13] Will: Moonlight was the best picture of twenty sixteen.
+[00:30:13] Will: Moonlight was the best picture of 2016.
 
-[00:30:16] Norm: Right in the twenty seventeen
+[00:30:16] Norm: Right in the 2017
 
 [00:30:17] Will: awards.
 
@@ -1030,7 +1030,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:32:40] Will: I think it's a better film than Finding Dory. I definitely a better film than Finding Dory. I think it's probably a better film than Moana. I look, look as as the parent of a five year old, I've watched each of these movies at least a thousand times.
 
-[00:32:51] Adam: Okay. Okay. What's twenty fifteen?
+[00:32:51] Adam: Okay. Okay. What's 2015?
 
 [00:32:53] Norm: This is the year spotlight one. Okay. Okay. The year spotlight one. Five popular films, highest grossing films: Force Awakens,
 
@@ -1324,7 +1324,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:40:02] Will: One of the critics I follow also pointed out that this airs on ABC, which is. Owned by the company that is most likely to benefit from this change,
 
-[00:40:10] Norm: which which has forty percent of the domestic gross on films.
+[00:40:10] Norm: which which has 40% of the domestic gross on films.
 
 [00:40:14] Will: Yeah, exactly.
 
@@ -1356,11 +1356,11 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:41:48] Norm: You did an astromech.
 
-[00:42:00] Adam: Yes. R two
+[00:42:00] Adam: Yes. R2
 
-[00:42:01] Norm: R two head, really cool paint techniques, and those builds are-
+[00:42:01] Norm: R2 head, really cool paint techniques, and those builds are-
 
-[00:42:03] Adam: [unclear: Our universe / Zara Universe], R two head.
+[00:42:03] Adam: [unclear: Our universe / Zara Universe], R2 head.
 
 [00:42:04] Norm: Yes.
 

@@ -20,7 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:00:26] Adam: Okay, so you're double booking all the time.
 
-[00:00:30] Kishore: A hundred percent. I all of my emails. Start with apologies for this late response.
+[00:00:30] Kishore: 100%. I all of my emails. Start with apologies for this late response.
 
 [00:00:35] Adam: Oh my god,
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:11:27] Kishore: no.
 
-[00:11:28] Adam: Terrific movie, really weird, the kind of weirdo movie that they made in the seventies, late seventies, I think. Anyway, there's a whole bank robbing scene where he he his. I think the task is it's the hardest safe you've ever cracked. Make you know, go and do it. And he
+[00:11:28] Adam: Terrific movie, really weird, the kind of weirdo movie that they made in the '70s, late '70s, I think. Anyway, there's a whole bank robbing scene where he he his. I think the task is it's the hardest safe you've ever cracked. Make you know, go and do it. And he
 
 [00:11:44] Kishore: used bacon to get in.
 
@@ -592,7 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:30:10] Kishore: It still spoke to her.
 
-[00:30:16] Adam: Of course, it's. In fact, actually, I think it may speak more strongly to my mom, who's like who came of her. My mom was born in nineteen thirty-five. She's eighty-three, but she's deeply and she was deeply part of the the scene in New York in the in the late fifties and mostly the sixties. So that like these guys, both Louis and Aziz, are referring deeply to American cinema and foreign cinema in the in the sixties. Right, they're they're looking at Jean Luc Godard. Jean Luc Godard, yes, they're looking at Godard. They're looking at filmmakers like like Fassbinder, and also I see Cassavetes in their work. I see you know it's really it's thrilling how much they're getting to stretch those muscles, and I mean I'll I'll wager Aziz is like, hey man, I am being paid to learn how to be a filmmaker. This is great.
+[00:30:16] Adam: Of course, it's. In fact, actually, I think it may speak more strongly to my mom, who's like who came of her. My mom was born in 1935. She's eighty-three, but she's deeply and she was deeply part of the the scene in New York in the in the late '50s and mostly the '60s. So that like these guys, both Louis and Aziz, are referring deeply to American cinema and foreign cinema in the in the '60s. Right, they're they're looking at Jean Luc Godard. Jean Luc Godard, yes, they're looking at Godard. They're looking at filmmakers like like Fassbinder, and also I see Cassavetes in their work. I see you know it's really it's thrilling how much they're getting to stretch those muscles, and I mean I'll I'll wager Aziz is like, hey man, I am being paid to learn how to be a filmmaker. This is great.
 
 [00:31:10] Norm: Yeah, I hope he I hope he's happy in real life because he's not happy on the show.
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:32:16] Norm: Yep.
 
-[00:32:16] Adam: Twenty-four cities between then and December tenth.
+[00:32:16] Adam: Twenty-four cities between then and December 10.
 
 [00:32:22] Kishore: And then you're taking it overseas.
 

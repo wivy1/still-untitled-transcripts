@@ -368,9 +368,9 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:10:44] Adam: Truly, I am not exaggerating at all.
 
-[00:10:48] Will: When was this made? In the nineties? Yeah,
+[00:10:48] Will: When was this made? In the '90s? Yeah,
 
-[00:10:49] Norm: very early nineties. It was in the whole Leaving Las Vegas and that era,
+[00:10:49] Norm: very early '90s. It was in the whole Leaving Las Vegas and that era,
 
 [00:10:53] Will: See, when you started talking about this, I thought you were talking about Sea of Love, which is Al Pacino and
 
@@ -454,9 +454,9 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:14:03] Will: When you were, when you were
 
-[00:14:04] Adam: in the mid-eighties,
+[00:14:04] Adam: in the mid-'80s,
 
-[00:14:05] Will: Mid-eighties. Oh, Norm, do you remember?
+[00:14:05] Will: Mid-'80s. Oh, Norm, do you remember?
 
 [00:14:06] Norm: It was Spartacus, but not knowing it was Kubrick, and then watching
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:17:23] Adam: I think of 2001 as being a fundamentally happy ending.
 
-[00:17:26] Will: Yeah, I don't think two thousand one is an unhappy ending. I mean, it's it's it is it is good for humanity, maybe bad for Dave.
+[00:17:26] Will: Yeah, I don't think 2001 is an unhappy ending. I mean, it's it's it is it is good for humanity, maybe bad for Dave.
 
 [00:17:33] Adam: Have you seen Paths of Glory?
 
@@ -712,7 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:25:04] Will: Yeah, I I can't. It's been so long since I've seen the read the book that I can't.
 
-[00:25:07] Adam: I just I will point out that the two movies that Stephen I have read the two movies that Stephen King can't. And let me just give. I love Stephen King. Stephen King, if you ever hear this, I love you. I grew up reading everything, but I will say that if I've heard that he holds the opinion that Carrie and The Shining are the two worst adaptations of his books, and I think he's a hundred percent off, one hundred and eighty degrees off the mark.
+[00:25:07] Adam: I just I will point out that the two movies that Stephen I have read the two movies that Stephen King can't. And let me just give. I love Stephen King. Stephen King, if you ever hear this, I love you. I grew up reading everything, but I will say that if I've heard that he holds the opinion that Carrie and The Shining are the two worst adaptations of his books, and I think he's 100% off, 180 degrees off the mark.
 
 [00:25:32] Norm: Worse as in as adaptations, they are not accurate. Or they're.
 
@@ -738,7 +738,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:26:13] Adam: Oh yeah, no the the lens. So you're talking about the famous NASA
 
-[00:26:17] Norm: The point seven aperture lens.
+[00:26:17] Norm: The 0.7 aperture lens.
 
 [00:26:19] Will: Hold on,
 
@@ -746,7 +746,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:26:20] Will: No, I don't know about this. Explain.
 
-[00:26:21] Adam: So Kubrick found out that NASA had built these very very high speed lenses that were point seven,
+[00:26:21] Adam: So Kubrick found out that NASA had built these very very high speed lenses that were 0.7,
 
 [00:26:28] Norm: the widest ever made. Yeah, they made seven of them.
 
@@ -808,7 +808,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:28:15] Adam: been traveling around the world. It's going somewhere in the over the Atlantic Ocean now, but it's coming back to Toronto, if I remember correctly, later on in the year or next early next year.
 
-[00:28:26] Norm: I think it was an exhibit that popped up in two thousand four in Germany.
+[00:28:26] Norm: I think it was an exhibit that popped up in 2004 in Germany.
 
 [00:28:30] Adam: Yes,
 
@@ -816,7 +816,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:28:36] Adam: Oh, really?
 
-[00:28:36] Norm: About about Kubrick came out in around two thousand one. Jan Harlan, but then they they spent eight months going through all his archives and pulling stuff out. I think there is a really great story about the archivist who was in charge of curating the things because you know he had
+[00:28:36] Norm: About about Kubrick came out in around 2001. Jan Harlan, but then they they spent eight months going through all his archives and pulling stuff out. I think there is a really great story about the archivist who was in charge of curating the things because you know he had
 
 [00:28:52] Will: his stuff,
 
@@ -826,7 +826,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:29:08] Will: so, so
 
-[00:29:08] Adam: that Star Child is the one from two thousand and one, because someone was telling me that the one in the exhibit was from two thousand and ten. But Landis maintained, no, no, no, it's absolutely the original one. That exhibit, I spent three and a half hours in it, actually, and I went back a second time to spend another couple of hours. It's it's an incredible exhibit. If you get a chance to go see it, I personally think I'll fly to Toronto to go see it.
+[00:29:08] Adam: that Star Child is the one from 2001, because someone was telling me that the one in the exhibit was from 2010. But Landis maintained, no, no, no, it's absolutely the original one. That exhibit, I spent three and a half hours in it, actually, and I went back a second time to spend another couple of hours. It's it's an incredible exhibit. If you get a chance to go see it, I personally think I'll fly to Toronto to go see it.
 
 [00:29:30] Norm: And you know why it's worth doing that? If you see photos of it being exhibited in Frankfurt, Berlin, and and in Sydney, the the museum curators they all arrange it and present the material in very, very different ways and very unique ways.
 
@@ -930,7 +930,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:33:48] Norm: Yeah.
 
-[00:33:48] Adam: I had first heard about AI in the Christ in the mid 90s. I heard rumors about AI early 90s. I heard rumors. about AI.
+[00:33:48] Adam: I had first heard about AI in the Christ in the mid '90s. I heard rumors about AI early '90s. I heard rumors. about AI.
 
 [00:33:56] Will: Kubrick's sci, sci, science fiction masterpiece.
 
@@ -986,7 +986,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:35:30] Will: Perfect. Yeah.
 
-[00:35:30] Adam: Done. So, uh, wait, I wanted to go back to oh, so in addition to these script pages and these card catalogs and these the the depth of his research, there's also the fact that, and John Landis was saying this when he talked about having met and talked to Kubrick, he was nearly obsessive about saving money, and one of the reasons, from what I've been reading, is because he wanted to he wanted the freedom to shoot a hundred takes or to shoot for two hundred days if he needed to. So he was a genius at saving money and putting it into continuing to shoot or Using the insurance policy for the film to keep adding more days to the shooting schedule, and he famously owned a lot of his own camera equipment. So he owned that Mitchell that they shot Barry Lyndon on. In the exhibit are his whole collection of these beautiful Schneider lenses and Arriflex mini thirty-five millimeter cameras and the you know all of the pieces that he utilized because he he was a real techno geek at the same time as being this incredible [unclear: alternative]
+[00:35:30] Adam: Done. So, uh, wait, I wanted to go back to oh, so in addition to these script pages and these card catalogs and these the the depth of his research, there's also the fact that, and John Landis was saying this when he talked about having met and talked to Kubrick, he was nearly obsessive about saving money, and one of the reasons, from what I've been reading, is because he wanted to he wanted the freedom to shoot a hundred takes or to shoot for two hundred days if he needed to. So he was a genius at saving money and putting it into continuing to shoot or Using the insurance policy for the film to keep adding more days to the shooting schedule, and he famously owned a lot of his own camera equipment. So he owned that Mitchell that they shot Barry Lyndon on. In the exhibit are his whole collection of these beautiful Schneider lenses and Arriflex mini 35 millimeter cameras and the you know all of the pieces that he utilized because he he was a real techno geek at the same time as being this incredible [unclear: alternative]
 
 [00:36:32] Norm: fascinated by technology.
 

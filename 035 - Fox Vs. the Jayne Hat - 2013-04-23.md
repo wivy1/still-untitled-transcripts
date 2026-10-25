@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=VIRyVepJcH4
 
 [00:00:53] Norm: Oh my goodness! Oh, the view is gorgeous.
 
-[00:00:57] Adam: That, that. I took so many panoramas, and it was so. I've, I love panoramas. I've been stitching panoramas since the mid nineties, and I, I love the process. I love the view. I always want to see everything.
+[00:00:57] Adam: That, that. I took so many panoramas, and it was so. I've, I love panoramas. I've been stitching panoramas since the mid '90s, and I, I love the process. I love the view. I always want to see everything.
 
 [00:01:11] Will: Yeah.
 
@@ -196,13 +196,13 @@ Episode URL: https://www.youtube.com/watch?v=VIRyVepJcH4
 
 [00:07:02] Adam: Yes.
 
-[00:07:03] Will: and Twentieth Century Fox.
+[00:07:03] Will: and 20th Century Fox.
 
 [00:07:05] Adam: A large conglomerate.
 
 [00:07:07] Will: Well, no, name names. We're gonna get it out there. Yeah.
 
-[00:07:07] Adam: No, yeah, yeah. Twentieth Century Fox.
+[00:07:07] Adam: No, yeah, yeah. 20th Century Fox.
 
 [00:07:09] Will: About intellectual property stuff,
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=VIRyVepJcH4
 
 [00:08:04] Adam: Can't remember. But, but, and he puts it on and it's totally incongruous. Um, and the Jayne hat, which is this Peruvian multicolored hat, has been a crafting project since, since it showed up. I mean, when you go to Comic-Con, you see hundreds of people wearing them. I have one that's for a finger, for my thumb. I have a little one someone knitted.
 
-[00:08:28] Will: And, and people, like, you, their plans, their knitting instructions on the internet. Like the whole thing is, it's, it is, it is, it is owned by the people in the eyes of everyone except for Twentieth Century Fox.
+[00:08:28] Will: And, and people, like, you, their plans, their knitting instructions on the internet. Like the whole thing is, it's, it is, it is, it is owned by the people in the eyes of everyone except for 20th Century Fox.
 
 [00:08:40] Norm: Immediately identifiable to the character, but something that's still a, a regular object that you would feel comfortable wearing.
 
@@ -248,9 +248,9 @@ Episode URL: https://www.youtube.com/watch?v=VIRyVepJcH4
 
 [00:08:55] Will: Yeah,
 
-[00:08:55] Adam: people have been making them, and recently Twentieth Century Fox reached out and said to, they started shutting down the Etsy...
+[00:08:55] Adam: people have been making them, and recently 20th Century Fox reached out and said to, they started shutting down the Etsy...
 
-[00:09:03] Will: Yeah, so they started shutting down the Etsy sellers. They sent, they, they basically nastygrammed them, so they sent them cease and desists in much the same way that Twentieth Century. I mean, so...
+[00:09:03] Will: Yeah, so they started shutting down the Etsy sellers. They sent, they, they basically nastygrammed them, so they sent them cease and desists in much the same way that 20th Century. I mean, so...
 
 [00:09:14] Norm: Fox finally cares about Firefly.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=VIRyVepJcH4
 
 [00:12:09] Will: Well, but. oh, go ahead.
 
-[00:12:10] Adam: I guess my thing is is that the idea of twentieth century Fox coming in and shutting down these sites that make Jayne hats is is it's a great example of where to start talking about fair use and fan outreach. And one of the examples I'll give is Lucasfilm. Lucasfilm is a fantastic example of a company that really does understand its brand and its fans. They they support the Artoo D2 Builders Group and the Stormtrooper, the Five Hundred First Legions. They don't support them by giving them things, but they understand that they're out there and they don't stop them from doing what they're doing.
+[00:12:10] Adam: I guess my thing is is that the idea of 20th century Fox coming in and shutting down these sites that make Jayne hats is is it's a great example of where to start talking about fair use and fan outreach. And one of the examples I'll give is Lucasfilm. Lucasfilm is a fantastic example of a company that really does understand its brand and its fans. They they support the Artoo D2 Builders Group and the Stormtrooper, the Five Hundred First Legions. They don't support them by giving them things, but they understand that they're out there and they don't stop them from doing what they're doing.
 
 [00:12:51] Will: Well, and they include them in official events, too. Like the Five Hundred First is charity stuffs and all sorts of things.
 

@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:02:04] Will: This is a great bit for the audio listeners.
 
-[00:02:06] Adam: So, what's on the table are these two large fish. One is about twenty-six inches long. One is about twenty-two inches long, and they're effectively fiberglass replicas of fish that are very brightly colored and painted. The kind of things you'd see on the wall of a bar or Grandpa's den,
+[00:02:06] Adam: So, what's on the table are these two large fish. One is about 26 inches long. One is about 22 inches long, and they're effectively fiberglass replicas of fish that are very brightly colored and painted. The kind of things you'd see on the wall of a bar or Grandpa's den,
 
 [00:02:25] Norm: Kitsch.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:08:28] Adam: Yeah, I got a model, model T Ford,
 
-[00:08:30] Norm: right? And you get, and I got like a space, like a F fourteen fighter jet. I remember, like a small one in fifth grade, and it's like the best thing ever. But you don't want,
+[00:08:30] Norm: right? And you get, and I got like a space, like a F-14 fighter jet. I remember, like a small one in fifth grade, and it's like the best thing ever. But you don't want,
 
 [00:08:38] Adam: but then you need to send them a registered letter to cancel the subscription. That's the whole thing, making it hard to get out of something. It's just, it's one of the. I think it's right. I think if they did an update of Dante's Inferno, there would be a special place in hell for the
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:08:57] Will: right. I I got still
 
-[00:08:59] Adam: something like twenty percent of their actual annual income is that
+[00:08:59] Adam: something like 20% of their actual annual income is that
 
 [00:09:03] Will: ten dollar a month,
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:10:19] Norm: Oh no, you are right.
 
-[00:10:20] Will: I am one hundred percent right.
+[00:10:20] Will: I am 100% right.
 
 [00:10:20] Norm: This weekend is.
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:10:57] Adam: It's over. What's just happened for me is I've just gotten back from the tour, and I'll bet it was great.
 
-[00:11:05] Will: You know what, I am one hundred percent sure it was. Can you believe what happened in Albuquerque?
+[00:11:05] Will: You know what, I am 100% sure it was. Can you believe what happened in Albuquerque?
 
 [00:11:10] Adam: No,
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:15:40] Adam: stunning. Night and day. Yeah. Chalk and cheese, as they say in the UK.
 
-[00:15:43] Will: Pee-wee's Playhouse. There's a similar re-release of that, and it's only ninety nine bucks. I think that's on my list. Because that's too much to impulse buy.
+[00:15:43] Will: Pee-wee's Playhouse. There's a similar re-release of that, and it's only 99 bucks. I think that's on my list. Because that's too much to impulse buy.
 
 [00:15:50] Adam: Mrs. Don't try this, and I, my wife and I, we kind of, yeah.
 

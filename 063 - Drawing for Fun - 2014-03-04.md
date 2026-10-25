@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=fwM1wYjqiDw
 
 [00:04:40] Will: Yes.
 
-[00:04:40] Adam: Their budget, if the headline on Reddit is correct, their budget was like three hundred dollars for makeup for that whole film.
+[00:04:40] Adam: Their budget, if the headline on Reddit is correct, their budget was like 300 dollars for makeup for that whole film.
 
 [00:04:58] Norm: Well, does, does Matthew McConaughey in makeup this year?
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=fwM1wYjqiDw
 
 [00:05:53] Will: Was it a 2D?
 
-[00:05:53] Norm: it's not a two D.
+[00:05:53] Norm: it's not a 2D.
 
 [00:06:00] Adam: In a long time that Pixar hasn't had a film.
 
@@ -434,13 +434,13 @@ Episode URL: https://www.youtube.com/watch?v=fwM1wYjqiDw
 
 [00:13:22] Will: There is always one in hand.
 
-[00:13:24] Adam: Yes. Uh, and they erase really well, so the line is really crisp and sharp, but they erase really well. So I do the drawing, I rough out the drawing in that. Um, and then I go over it, um, in a really fine point oh one, uh, black pen. And I've got a couple of different ones, a, a Staedtler, Staedtler,
+[00:13:24] Adam: Yes. Uh, and they erase really well, so the line is really crisp and sharp, but they erase really well. So I do the drawing, I rough out the drawing in that. Um, and then I go over it, um, in a really fine 0.01, uh, black pen. And I've got a couple of different ones, a, a Staedtler, Staedtler,
 
 [00:13:24] Will: Staedtler is a pen manufacturer.
 
 [00:13:24] Adam: Staedtler is one. Uh, and I got another. I am still playing around with what brand I love the most. Um.
 
-[00:13:24] Will: I, I'm partial to the the Uniball, but they’re only they’re point three—two eight or point three eight.
+[00:13:24] Will: I, I'm partial to the the Uniball, but they’re only they’re 0.3—two eight or 0.38.
 
 [00:13:57] Adam: Yeah, so I am going. I am going so crazy
 

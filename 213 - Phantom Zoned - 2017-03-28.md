@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:08:49] Norm: Yeah, it was like three fifty a pound, and yeah. So so Adam, the tour it's you have like a week and a half left, right? It's coming to a close.
 
-[00:09:00] Adam: Uh, just about two weeks. April tenth is when I get home. Uh, I'm actually going home tomorrow for twenty four hours, just because it's been too long since I've been home.
+[00:09:00] Adam: Uh, just about two weeks. April 10 is when I get home. Uh, I'm actually going home tomorrow for twenty four hours, just because it's been too long since I've been home.
 
 [00:09:11] Norm: Oh wow!
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:16:17] Adam: yeah,
 
-[00:16:17] Will: I was blown away because it was not at all like I was expecting your kind of 90s style dry science show, and you guys definitely didn't do that. So I'm really excited to see what you've done with Michael and and and see how this new shows come together and how it's different.
+[00:16:17] Will: I was blown away because it was not at all like I was expecting your kind of '90s style dry science show, and you guys definitely didn't do that. So I'm really excited to see what you've done with Michael and and and see how this new shows come together and how it's different.
 
 [00:16:45] Adam: And it's it is so so so different. It's um yeah, it's completely different, and I really enjoyed working with Michael. He is, I mean, anybody who's seen his videos knows how talented he is and how what an amazing master explainer he is. But he's also Wonderful, wonderful at improv, moving on the fly. We try different things all the time. We've added several pieces into the show over the course of it, and the collaboration with him and my director, our director Michael Weber, is just—it's super, super fruitful. I look forward to continuing to tour this show and continuing to write new versions of Brain Candy because it's endlessly fun seeing how the audience responds. Plus, we're—I guess—have we talked about the fact that our meet and greets now are a hundred people a night instead of fifty people a night? Yeah.
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:30:43] Adam: You are, and that's actually a beautiful segue to talking about the science march, for instance.
 
-[00:30:50] Norm: That's right. So we just announced yesterday that Adam, you'll be. Taking part in the Science March, March for Science, in April twenty second Earth Day,
+[00:30:50] Norm: That's right. So we just announced yesterday that Adam, you'll be. Taking part in the Science March, March for Science, in April 22 Earth Day,
 
 [00:30:50] Adam: yeah,
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:32:38] Will: this one's not a real one.
 
-[00:32:39] Adam: No, no, no, no! It's from NASA Education. So it is actually built for NASA for outreach back in the late 80s, early 90s, which is really excited. I can't wait to lay hands on it.
+[00:32:39] Adam: No, no, no, no! It's from NASA Education. So it is actually built for NASA for outreach back in the late '80s, early '90s, which is really excited. I can't wait to lay hands on it.
 
 [00:32:53] Will: I think you should build one of the original. Build one of the original MMUs, the giant, huge one that they did for the first untethered spacewalks.
 

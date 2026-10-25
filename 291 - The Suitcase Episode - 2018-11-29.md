@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:07:57] Adam: Oh.
 
-[00:07:57] Norm: seven point oh, six point oh.
+[00:07:57] Norm: 7.0, 6.0.
 
 [00:08:05] Adam: Richter scale.
 
@@ -224,13 +224,13 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:08:21] Adam: You don't. I will tell you that after you've wiped someone's butt a few thousand times, even when they're an adult human, it's still this edge of you that has a hard time taking them seriously.
 
-[00:08:31] Will: Well, it's it's one of those things that like like so. My daughter's now at the age where she's starting to develop a desire for privacy when she's going to the bathroom and stuff like that. But then at the end of it, if if like if it's a complicated wiping situation, she'll still just she'll be like, " Hey, Dad, can you give me a hand here?" And I'll come in, and she'll be bent over with cheeks spread, ready to go. I'm like, yeah, okay, we we're like ninety percent of the way there.
+[00:08:31] Will: Well, it's it's one of those things that like like so. My daughter's now at the age where she's starting to develop a desire for privacy when she's going to the bathroom and stuff like that. But then at the end of it, if if like if it's a complicated wiping situation, she'll still just she'll be like, " Hey, Dad, can you give me a hand here?" And I'll come in, and she'll be bent over with cheeks spread, ready to go. I'm like, yeah, okay, we we're like 90% of the way there.
 
 [00:08:54] Adam: That lack of dignity is so important. I mean, it's good.
 
 [00:08:57] Will: Yeah,
 
-[00:08:58] Adam: really. Like, there was a point at which, you know, you you go through the I cannot believe I am moving phase, right? And it's just that's part of it, right? You're literally it's four thirty. It's it's three in the morning. Is not as bad as like four twenty.
+[00:08:58] Adam: really. Like, there was a point at which, you know, you you go through the I cannot believe I am moving phase, right? And it's just that's part of it, right? You're literally it's 4:30. It's it's three in the morning. Is not as bad as like 4:20.
 
 [00:09:13] Will: The time when the sun's starting to rise, is always the worst,
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:17:01] Adam: Spirits were very good. It was a very light atmosphere, and it's beautiful Pasadena.
 
-[00:17:27] Will: We're on, as a species, a pretty hot streak. With Mars, yeah, we are compared to like the early late nineties, early two thousands.
+[00:17:27] Will: We're on, as a species, a pretty hot streak. With Mars, yeah, we are compared to like the early late '90s, early 2000s.
 
 [00:17:34] Adam: So that, frankly, talking about that hot streak, the thing about the the landing that was the most emotional to me was touchdown was great, and then there was a lot of celebrating, and then there was the waiting for the amount of data to come through for the photo
 
@@ -482,7 +482,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:19:43] Adam: I just look, yeah. I appreciate what he does, but I hope that person isn't Elon Musk,
 
-[00:19:48] Norm: seventy percent chance.
+[00:19:48] Norm: 70% chance.
 
 [00:19:48] Adam: Because I just imagine him landing on Mars and going, " Suck it, haters."
 
@@ -838,9 +838,9 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:36:45] Adam: it's really good.
 
-[00:36:55] Adam: I remember going to my parents. I was probably seven. My sister was four, five, and we were trying to get them to take us to a movie. What would it have been? It would have been like the early seventies. It's like Chitty Chitty Bang Bang or something like. No, that's late sixties, right?
+[00:36:55] Adam: I remember going to my parents. I was probably seven. My sister was four, five, and we were trying to get them to take us to a movie. What would it have been? It would have been like the early '70s. It's like Chitty Chitty Bang Bang or something like. No, that's late '60s, right?
 
-[00:37:10] Will: Late sixties, or like Bedknobs and Broomsticks, maybe. Yeah,
+[00:37:10] Will: Late '60s, or like Bedknobs and Broomsticks, maybe. Yeah,
 
 [00:37:13] Adam: something like that. Escape from Witch Mountain.
 
@@ -862,11 +862,11 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:37:46] Adam: and it was late. I think my son was probably. I think my boys were probably. I don't know, twenty months.
 
-[00:38:03] Will: Your kids were born right around the millennium, like ninety eight,
+[00:38:03] Will: Your kids were born right around the millennium, like '98,
 
-[00:38:05] Adam: ninety nine,
+[00:38:05] Adam: '99,
 
-[00:38:06] Will: ninety nine. Yeah, so so you would have had a TiVo or something and not watched ads, probably.
+[00:38:06] Will: '99. Yeah, so so you would have had a TiVo or something and not watched ads, probably.
 
 [00:38:09] Adam: Yeah, actually, they woke up and on the only time they really watched television was on the weekends. We would just watch the Teletubbies, or we'd watch Willy Wonka and the Chocolate Factory over and over again. Totoro. There was just an endless stream of things we watched repeatedly. And one morning, the DVD player broke. Oh, if I remember correctly, when I opened it up to figure out why it was broken, it was full of quarters and Cheerios.
 
@@ -972,7 +972,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:41:58] Adam: Bat Shield.
 
-[00:41:58] Norm: The Bat Shield from the Batman nineteen sixty-six. The
+[00:41:58] Norm: The Bat Shield from the Batman 1966. The
 
 [00:42:01] Will: unfolding one.
 

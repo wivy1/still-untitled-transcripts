@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:00:26] Adam: Oh, okay. So we we I I participated a little bit in an amazing thing you did last week for Lenovo called for all of us Fridays, where you built a steel wool powered Catherine wheel, spraying sparks thirty meters into the German sky last last Friday.
 
-[00:00:47] Laura: It was fantastic. Yeah, I I was asked to build something spectacular, and my neighbor is a scrap scrapyard guy, so he brought me a huge motor a couple weeks ago. And I wanted to do something with this motor. It has two point eight horsepower, so it's like three phase. It's very, very powerful, very, very awesome. And then I played around with lights and fire and all these things. And eventually, I remembered that if you put steel wool on fire and you spin it around, or you expose it to oxygen, it just sparks and lights up like crazy. So I basically built this huge propeller for the motor that has a big cage that I could pack with probably half a kilo of steel wool, and then spin it around. And it was it was more impressive and intense than I anticipated.
+[00:00:47] Laura: It was fantastic. Yeah, I I was asked to build something spectacular, and my neighbor is a scrap scrapyard guy, so he brought me a huge motor a couple weeks ago. And I wanted to do something with this motor. It has 2.8 horsepower, so it's like three phase. It's very, very powerful, very, very awesome. And then I played around with lights and fire and all these things. And eventually, I remembered that if you put steel wool on fire and you spin it around, or you expose it to oxygen, it just sparks and lights up like crazy. So I basically built this huge propeller for the motor that has a big cage that I could pack with probably half a kilo of steel wool, and then spin it around. And it was it was more impressive and intense than I anticipated.
 
 [00:01:37] Laura: To be honest.
 
@@ -184,13 +184,13 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:14:57] Adam: What's your go-to motorcycle? What's your favorite one right now?
 
-[00:15:00] Laura: I love the Yamaha DTs. So I have two from the eighties. One is a four hundred cc, and one is a hundred seventy-five cc.
+[00:15:00] Laura: I love the Yamaha DTs. So I have two from the '80s. One is a 400 cc, and one is a 175 cc.
 
 [00:15:08] Adam: One hundred seventy-five. You can get a lot of trouble with one of those little ones.
 
 [00:15:11] Laura: Yes.
 
-[00:15:15] Adam: I had a mid-eighties Yamaha six fifty.
+[00:15:15] Adam: I had a mid-'80s Yamaha six fifty.
 
 [00:15:18] Laura: Oh, nice. That's powerful. Yeah.
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:22:17] Laura: Yeah,
 
-[00:22:18] Adam: that antidepressant thing. I at some point in the last few weeks, some really I don't even remember what happened, but some bad news came down the pike, and I was very sad about it. And I was really like surprised because my first thought was, I just want to go stand in front of the workbench. Everything makes sense there. Everything makes sense looking at that clean bench. And as I speak, I built a a a present for a relative last yesterday as a one day build, and I ended up staying until like seven thirty at night to finish it. And I just i I was like, " We're gonna finish this today," and I did. And then I just left, and the shop is like a bomb went off.
+[00:22:18] Adam: that antidepressant thing. I at some point in the last few weeks, some really I don't even remember what happened, but some bad news came down the pike, and I was very sad about it. And I was really like surprised because my first thought was, I just want to go stand in front of the workbench. Everything makes sense there. Everything makes sense looking at that clean bench. And as I speak, I built a a a present for a relative last yesterday as a one day build, and I ended up staying until like 7:30 at night to finish it. And I just i I was like, " We're gonna finish this today," and I did. And then I just left, and the shop is like a bomb went off.
 
 [00:23:00] Unknown speaker (Adam or Laura): Yes.
 
@@ -302,11 +302,11 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:29:46] Laura: I think so too. It's all there, and. You need to tell me how big yours is because I want to make mine slightly bigger.
 
-[00:29:55] Adam: I think mine is about forty-five centimeters, sixteen inches.
+[00:29:55] Adam: I think mine is about 45 centimeters, sixteen inches.
 
 [00:29:59] Laura: Okay, good. Good to know.
 
-[00:30:02] Adam: Is that forty-five centimeters? No, that's about.
+[00:30:02] Adam: Is that 45 centimeters? No, that's about.
 
 [00:30:04] Laura: It could be the the.
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:31:12] Adam: Taking stuff apart.
 
-[00:31:12] Laura: I had the best discovery a couple weeks ago because I got a new bandsaw. That's pretty pretty heavy duty. Ah, it's a good one. I will send you a picture. You will love it. It's from the 80s. It's an old metal bandsaw. It has a little welding attachment, so you can weld your own saw blades. Oh, so good! So I got this bandsaw, and I wanted to build a table, and I wanted to find a way to build a tabletop on the bandsaw. That was my intention, just because I love this machine so much. And then I realized a really cool trick: how you can make perfect tabletops without stressing about the joints being super square when you have live edge boards.
+[00:31:12] Laura: I had the best discovery a couple weeks ago because I got a new bandsaw. That's pretty pretty heavy duty. Ah, it's a good one. I will send you a picture. You will love it. It's from the '80s. It's an old metal bandsaw. It has a little welding attachment, so you can weld your own saw blades. Oh, so good! So I got this bandsaw, and I wanted to build a table, and I wanted to find a way to build a tabletop on the bandsaw. That was my intention, just because I love this machine so much. And then I realized a really cool trick: how you can make perfect tabletops without stressing about the joints being super square when you have live edge boards.
 
 [00:31:52] Adam: Yeah.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:35:19] Laura: Ah, right, right, okay.
 
-[00:35:20] Adam: And I poured that, and I was able to reduce the moisture from about twenty five percent to about eight percent.
+[00:35:20] Adam: And I poured that, and I was able to reduce the moisture from about 25% to about 8%.
 
 [00:35:26] Laura: Oh wow! Do you have a meter, like a moisture meter? For
 

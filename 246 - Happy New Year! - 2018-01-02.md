@@ -54,13 +54,13 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:00:48] Will: I forgot the one. Forgot to carry.
 
-[00:00:50] Adam: Um. So yeah, I never thought about. I never thought as far as 2018. Um. I if you'd asked me in the mid 90s, I would have thought that 2018 might feel a little closer to Blade Runner. Then it currently does.
+[00:00:50] Adam: Um. So yeah, I never thought about. I never thought as far as 2018. Um. I if you'd asked me in the mid '90s, I would have thought that 2018 might feel a little closer to Blade Runner. Then it currently does.
 
 [00:01:06] Will: That’s grim, but okay.
 
 [00:01:08] Adam: Yeah, well, I mean, that was my favorite movie then. I mean, you know, one of my all-time favorites.
 
-[00:01:10] Will: I was hoping for Jetsons by twenty eighteen. Oh yeah, flying cars.
+[00:01:10] Will: I was hoping for Jetsons by 2018. Oh yeah, flying cars.
 
 [00:01:14] Norm: Movies do a really bad job of like projecting how far ahead, but they always say the year.
 
@@ -208,19 +208,19 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:07:39] Adam: We did. Well, no, we we stayed in a hotel up there, but we have good. We have a lot of family up there, so we did Christmas with them. A big long Christmas with them, which was great.
 
-[00:07:47] Will: Did you do down one hundred one, or did you do down five?
+[00:07:47] Will: Did you do down 101, or did you do down 5?
 
-[00:07:49] Adam: We did down one hundred one this time. So we took
+[00:07:49] Adam: We did down 101 this time. So we took
 
 [00:07:51] Adam: from Portland. We went due west and then south down to Gold Beach. Oh man! We stayed that night in Gold Beach, and then we thought. We would have a choice about how to get home, but from Gold Beach,
 
 [00:07:51] Will: nope,
 
-[00:07:51] Adam: the fastest way is one hundred and one, and we were like, " Wow, I guess we got seven and a half hours of driving ahead of us."
+[00:07:51] Adam: the fastest way is 101, and we were like, " Wow, I guess we got seven and a half hours of driving ahead of us."
 
 [00:08:08] Will: Yeah,
 
-[00:08:09] Adam: and so we got up really early. I think at like six thirty in the morning, and yeah, we were home by four. It was great.
+[00:08:09] Adam: and so we got up really early. I think at like 6:30 in the morning, and yeah, we were home by four. It was great.
 
 [00:08:15] Will: I was. I wish I'd known you were going there. I would have told you. There is a the Tillamook factory is there.
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:17:40] Adam: Um, holy hell, it's it's even better the second time. Oh yeah. Oh, there's so much more room to take it in on a second viewing. Um, and again the. All the scenes in in Snoke's throne room are some of the most beautiful battle scenes ever filmed.
 
-[00:17:57] Will: If If you think about the gorgeous sets of twenty seventeen, that set, um, uh, what's his name's office from Blade Runner, um,
+[00:17:57] Will: If If you think about the gorgeous sets of 2017, that set, um, uh, what's his name's office from Blade Runner, um,
 
 [00:18:07] Adam: Mm-hmm.
 
@@ -642,9 +642,9 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:23:07] Norm: I'll tell you this: getting I got new TV over over this past month,
 
-[00:23:07] Adam: four K,
+[00:23:07] Adam: 4K,
 
-[00:23:07] Norm: four K HDR, which means like movie experiences. I'm just like massage. Give me the what? Give me the best you got. Massage my eyeballs. I don't care if the movie's good. Just give give me the visuals.
+[00:23:07] Norm: 4K HDR, which means like movie experiences. I'm just like massage. Give me the what? Give me the best you got. Massage my eyeballs. I don't care if the movie's good. Just give give me the visuals.
 
 [00:23:21] Adam: Wow, do you have to down crank its resolution to watch older movies? Because I find
 
@@ -692,7 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:24:58] Will: Oh.
 
-[00:24:58] Norm: eighty-three men died in five minutes, and that's the premise. And it opens with a town that's run ninety percent by women, and a looming gang comes. Weeks.
+[00:24:58] Norm: eighty-three men died in five minutes, and that's the premise. And it opens with a town that's run 90% by women, and a looming gang comes. Weeks.
 
 [00:25:53] Will: What's the name of the What's the name of it?
 

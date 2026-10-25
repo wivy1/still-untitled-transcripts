@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:05:12] Adam: Because this is one of those ones where cutting out nice, crisp, chrome letters just made the thing made your whole eye just goes. That's a real thing.
 
-[00:05:20] Will: Well, it was interesting because that was. I assume that that wasn't a four hundred dollars Walkman before the movie came out. Probably
+[00:05:20] Will: Well, it was interesting because that was. I assume that that wasn't a 400 dollars Walkman before the movie came out. Probably
 
 [00:05:25] Unknown (Adam or Will): No.
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:05:44] Will: That's really cool,
 
-[00:05:45] Adam: but yeah, Walkman running original Walkman. Yeah, they were they weren't four hundred dollars, but they're about a hundred bucks.
+[00:05:45] Adam: but yeah, Walkman running original Walkman. Yeah, they were they weren't 400 dollars, but they're about a hundred bucks.
 
 [00:05:45] Will: Okay,
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:08:36] Adam: the one that did me as a panda dressed as.
 
-[00:08:39] Norm: Oh, I don't know. Hmm, maybe I don't know. And then I met—I was looking for kits and stuff, and I found one guy who day job is a three D modeler working for like Hasbro or some toy company, and just started doing his own line of tiny, like Warhammer style miniatures. Oh,
+[00:08:39] Norm: Oh, I don't know. Hmm, maybe I don't know. And then I met—I was looking for kits and stuff, and I found one guy who day job is a 3D modeler working for like Hasbro or some toy company, and just started doing his own line of tiny, like Warhammer style miniatures. Oh,
 
 [00:08:56] Will: okay. Like sixteenth scale or something, sixty fourth
 
@@ -722,7 +722,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:25:26] Norm: what I also like was that you know with the mysterious reveal right one of the best parts about the the comics whenever comics try to make like a superhero real they just add more support cast right? No, Iron Man the realistic version of Iron Man has like a team of one hundred technicians that helps him put him on and this is what they did for the villain a realistic version of how a villain works well he has a whole support team that he directs he's a director and they I love that him going back to the the the the steaming of the cape right that the vanity of that that that bit was so funny
 
-[00:25:56] Will: well that and the whole idea of his his actual supervillain costume being a three D motion capture suit
+[00:25:56] Will: well that and the whole idea of his his actual supervillain costume being a 3D motion capture suit
 
 [00:25:56] Norm: yeah
 
@@ -994,11 +994,11 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:36:57] Will: and just doing the kind of like the the the kind of the grunt work, like the small brushing and the Taking stuff off and putting it back on, and all that, and a lot of more ones that that had been at that time were had repaired those. What was it? A B nineteen, B twenty five. I can't remember. Anyway, World War Two era bombers because they served and were the mechanics for World War Two era bombers. It was so cool. So cool.
 
-[00:37:35] Adam: The first time I saw the flying fortress and I saw the beautiful clear plastic gunner's ball on the underside. I saw one of those up close and I was like, " Oh my god! I understand another thirty percent of George Lucas's aesthetic."
+[00:37:35] Adam: The first time I saw the flying fortress and I saw the beautiful clear plastic gunner's ball on the underside. I saw one of those up close and I was like, " Oh my god! I understand another 30% of George Lucas's aesthetic."
 
 [00:37:49] Adam: How did they make so many Star Wars ships exemplified by that one ball?
 
-[00:37:54] Will: Yeah. How did they make those domes in nineteen forty?
+[00:37:54] Will: Yeah. How did they make those domes in 1940?
 
 [00:37:56] Adam: That is a good question, and I think they're actually polycarbonate, and I'm not sure. I've never researched it, which is dumb of me.
 

@@ -142,9 +142,9 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:11:19] Adam: Was it?
 
-[00:11:20] Will: Must have been twenty twelve.
+[00:11:20] Will: Must have been 2012.
 
-[00:11:20] Adam: Twenty twelve, they were thirteen.
+[00:11:20] Adam: 2012, they were thirteen.
 
 [00:11:23] Will: It's amazing how much of a like even in just the four years that Norm and I've been around, how much they went from kind of you know boys and and now they're they're really young men.
 
@@ -156,7 +156,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:11:53] Norm: a diaper genie.
 
-[00:11:55] Adam: A diaper genie is, yeah. Sorry, when you have kids, a diaper genie is an endless plastic bag. It's like twenty five feet long, and it's about eight inches in diameter. And you you use twisties, and it like it's a very efficient way to bag up dirty diapers very quickly.
+[00:11:55] Adam: A diaper genie is, yeah. Sorry, when you have kids, a diaper genie is an endless plastic bag. It's like 25 feet long, and it's about eight inches in diameter. And you you use twisties, and it like it's a very efficient way to bag up dirty diapers very quickly.
 
 [00:12:13] Will: So so basically, you can make a a diaper caterpillar that then you can drag out to the trash. They're also really really shoddily made, so ours lasted almost exactly two years and two months. And when it broke, we were like, well, I guess we have to get out of diapers because I wasn't buying another one.
 
@@ -394,7 +394,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:33:16] Will: When, when was it?
 
-[00:33:16] Adam: the 30s.
+[00:33:16] Adam: the '30s.
 
 [00:33:20] Unknown speaker: Okay.
 
@@ -406,9 +406,9 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:33:46] Norm: Yeah, it's funny that all comes full circle because you know Ron Perlman did a Beauty and the Beast television.
 
-[00:33:51] Adam: Yes, right with Linda Hamilton. My God, that was the late eighties.
+[00:33:51] Adam: Yes, right with Linda Hamilton. My God, that was the late '80s.
 
-[00:33:56] Norm: Yeah, late eighties, early nineties, and then speaking of GDT, he. Do you see the Hellboy news?
+[00:33:56] Norm: Yeah, late '80s, early '90s, and then speaking of GDT, he. Do you see the Hellboy news?
 
 [00:34:03] Adam: I did.
 
@@ -522,4 +522,4 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:39:56] Will: See you all next week.
 
-[00:39:58] Norm: Thanks for listening to Still Untitled. We wouldn't be able to do what we do without your support and the support of our great advertisers. But in order to continue doing that, we need your help. So please go to podsurvey.com/untitled and take a quick anonymous survey that will help us get to know you a little better. That way, we can show advertisers just how great you, our listeners, are. Plus, once you complete the survey, you can enter to win a one hundred dollar Amazon gift card. Again, that's podsurvey.com/untitled. P o d s u r v e y dot com slash u n t i t l e d. Thanks for your help.
+[00:39:58] Norm: Thanks for listening to Still Untitled. We wouldn't be able to do what we do without your support and the support of our great advertisers. But in order to continue doing that, we need your help. So please go to podsurvey.com/untitled and take a quick anonymous survey that will help us get to know you a little better. That way, we can show advertisers just how great you, our listeners, are. Plus, once you complete the survey, you can enter to win a 100 dollar Amazon gift card. Again, that's podsurvey.com/untitled. P o d s u r v e y dot com slash u n t i t l e d. Thanks for your help.

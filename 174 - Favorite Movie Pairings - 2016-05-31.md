@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:00:53] Will: '84,
 
-[00:00:54] Adam: '85. Okay. A little bit later, those early eighties action, cool, fun movies. Anyway, so we watched Rambo: First Blood.
+[00:00:54] Adam: '85. Okay. A little bit later, those early '80s action, cool, fun movies. Anyway, so we watched Rambo: First Blood.
 
 [00:01:03] Will: Mm-hmm, Yep, I've never seen that.
 
@@ -60,13 +60,13 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:01:20] Norm: Yeah, those are those are all great,
 
-[00:01:22] Adam: And, and so the the the First Blood is incredible. When you watch old movies like from the seventies, one of the things that I find surprising is, jeezum crow, we're like thirty minutes in, and I don't know what this movie's about yet. Like, they really take their time. The pacing, I mean, Rocky, amazing movie, but it crawls along as far as narratively.
+[00:01:22] Adam: And, and so the the the First Blood is incredible. When you watch old movies like from the '70s, one of the things that I find surprising is, jeezum crow, we're like thirty minutes in, and I don't know what this movie's about yet. Like, they really take their time. The pacing, I mean, Rocky, amazing movie, but it crawls along as far as narratively.
 
 [00:01:44] Norm: A different type of audience,
 
 [00:01:45] Adam: yes.
 
-[00:01:47] Will: What, why? When did that change? Like mid eighties MTV.
+[00:01:47] Will: What, why? When did that change? Like mid '80s MTV.
 
 [00:01:50] Adam: It's a good question. I'm not. I don't know the exact answer, but here's the thing about Rambo: First Blood. Is it? It feels totally modern.
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:02:24] Will: he must have been like seventeen.
 
-[00:02:25] Adam: This is way. This is like eighty one.
+[00:02:25] Adam: This is way. This is like '81.
 
 [00:02:25] Will: Oh wow!
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:05:50] Adam: like Nick Nolte spends the movie calling Eddie Murphy. Every racial epithet that there is,
 
-[00:05:57] Will: it's it's like the John Pryor free association skit from SNL in seventy six, made into a feature length film.
+[00:05:57] Will: it's it's like the John Pryor free association skit from SNL in '76, made into a feature length film.
 
 [00:06:04] Adam: It's terrifying, and you watch it, you realize Julia was like, my wife was like, they wouldn't do that today, and I said, no, they would do that, but they'd make in the in the in the you could see in the screenwriter's head, I think of forty eight hours that he's like, oh well, Nick's an old racist cop, and he turns around and realizes that Eddie's great. That's the that's the arc, but today it'd be like you he can't call him watermelon without him suffering later for some reason, and that is the least awful of the things he calls Murphy.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:08:18] Norm: all the way to the very end.
 
-[00:08:22] Will: Well, I mean, like that that that whole that whole kind of movie kind of peaked and died with what Eraser or something like that in the late eighties.
+[00:08:22] Will: Well, I mean, like that that that whole that whole kind of movie kind of peaked and died with what Eraser or something like that in the late '80s.
 
 [00:08:28] Adam: Yeah,
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:12:32] Adam: two or three. It's just it's really great.
 
-[00:12:34] Will: Yeah, more eighties action movies, man.
+[00:12:34] Will: Yeah, more '80s action movies, man.
 
 [00:12:37] Norm: Hey, so a couple weeks ago,
 
@@ -572,7 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:15:17] Will: It's an okay segue, Norman.
 
-[00:15:19] Norm: That was seven point five. We need to get there somewhere.
+[00:15:19] Norm: That was 7.5. We need to get there somewhere.
 
 [00:15:21] Adam: We did. Um. Yeah,
 
@@ -758,7 +758,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:22:31] Adam: Wow.
 
-[00:22:31] Norm: He’s gonna say, " Oh, white color. Oh, this was made in ninety five."
+[00:22:31] Norm: He’s gonna say, " Oh, white color. Oh, this was made in '95."
 
 [00:22:45] Will: And does he just leave them on the beach?
 
@@ -806,7 +806,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:24:59] Adam: exactly. But he's totally excited about everybody making Strandbeest. Oh, that's awesome! Whether they’re wood, beautiful Japanese shoes that have Strandbeest locomotion
 
-[00:25:09] Norm: and three D printed ones, he sees it as the viral, the meme nature of it. These are how they self propagate.
+[00:25:09] Norm: and 3D printed ones, he sees it as the viral, the meme nature of it. These are how they self propagate.
 
 [00:25:15] Will: We, at some point, we should do an episode about pieces of art that exist because of the limitations, and talk about this and jaws and all because because like there’s an interesting talking to a lot of creative people lately,
 
@@ -894,7 +894,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:27:42] Norm: No, it was it was
 
-[00:27:42] Will: the C three PO of dogs. Sorry, too soon. See you guys next week.
+[00:27:42] Will: the C-3PO of dogs. Sorry, too soon. See you guys next week.
 
 [00:27:42] Adam: Thank you.
 

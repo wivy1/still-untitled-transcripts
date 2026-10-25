@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:02:36] Adam: Photoshop.
 
-[00:02:37] Will: Yes, writer Photoshop. Actually, the guy who designed the original the three D Death Star in Star Wars, right?
+[00:02:37] Will: Yes, writer Photoshop. Actually, the guy who designed the original the 3D Death Star in Star Wars, right?
 
 [00:02:37] Adam: Yes.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:04:44] Will: and and so she was there when science fiction was still a super, super small, like edge case niche, and then watched it become this massive mainstream thing where the science fiction movies are making billions of dollars every year.
 
-[00:05:06] Adam: My favorite bit of comeuppance that I got was in my interview with DC, as I said, so you worked on the original Star Trek in the sixties, and then of course you worked on the reboot about the Next Generation, and she went, she basically went stop right there. Yeah, there was an animated Star Trek series. I was like, yeah, no, I know about that. She's like, right, none of the writers or any of the production staff of Star Trek considered that anything less than a full blown reboot of Star Trek was the same writers room, the same complexity of plots and same, same complexity of character development, just happened to be animated. So she was really clear that within the canon of Star Trek, the animated series belongs after the TOS, and that was really cool to me. I didn't expect that.
+[00:05:06] Adam: My favorite bit of comeuppance that I got was in my interview with DC, as I said, so you worked on the original Star Trek in the '60s, and then of course you worked on the reboot about the Next Generation, and she went, she basically went stop right there. Yeah, there was an animated Star Trek series. I was like, yeah, no, I know about that. She's like, right, none of the writers or any of the production staff of Star Trek considered that anything less than a full blown reboot of Star Trek was the same writers room, the same complexity of plots and same, same complexity of character development, just happened to be animated. So she was really clear that within the canon of Star Trek, the animated series belongs after the TOS, and that was really cool to me. I didn't expect that.
 
 [00:05:47] Will: Did you watch those? Like those hold up really well.
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:12:35] Will: Oh yeah,
 
-[00:12:35] Adam: the date, the API or whatever it was. And then we were we met in November of two thousand and three, and we were married in September of two thousand and four.
+[00:12:35] Adam: the date, the API or whatever it was. And then we were we met in November of 2003, and we were married in September of 2004.
 
 [00:12:35] Will: Oh wow.
 
@@ -300,11 +300,11 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:12:54] Will: so it was just just the Saturday that worked for your schedule. I mean, I assume you were shooting Mythbusters at that point, right?
 
-[00:12:58] Adam: So we decided. We decided. We yes, I was shooting Mythbusters. We decided we wanted to get married at the Marin Headlands Art Center in Marin, in the Marin Headlands, and it's a magnificent space. And we said this is like April of two thousand and four, and we're like, we'd love to get married sometime in the next ten months. And they're like, really? And we're like, yeah. And they're like, there is nothing. And I'm like, nothing. I'm like, well, we've got some Sundays. I'm like, no, no, no, no. We're not going to make our people travel on a Sunday. We want a Saturday. We want a classic wedding day. And they're like, yeah, there's nothing. And I went, I have this special thing where when someone says no too fast, I ask again.
+[00:12:58] Adam: So we decided. We decided. We yes, I was shooting Mythbusters. We decided we wanted to get married at the Marin Headlands Art Center in Marin, in the Marin Headlands, and it's a magnificent space. And we said this is like April of 2004, and we're like, we'd love to get married sometime in the next ten months. And they're like, really? And we're like, yeah. And they're like, there is nothing. And I'm like, nothing. I'm like, well, we've got some Sundays. I'm like, no, no, no, no. We're not going to make our people travel on a Sunday. We want a Saturday. We want a classic wedding day. And they're like, yeah, there's nothing. And I went, I have this special thing where when someone says no too fast, I ask again.
 
 [00:13:36] Will: Yeah.
 
-[00:13:37] Adam: So there's no date between now and next April. Well, there is December twenty seventh. Okay, I feel you. Let's write that one off. Yeah. No. But there's no Saturday between now and a year from now. Well, there is one. Oh, which one might it be? Well, September 11th, and we thought, let's take this. Yes, we want to get married on this day, but let's also take this day back and have it mean something good as well as something so so so awful. So yeah, we were married on September 11th.
+[00:13:37] Adam: So there's no date between now and next April. Well, there is December 27. Okay, I feel you. Let's write that one off. Yeah. No. But there's no Saturday between now and a year from now. Well, there is one. Oh, which one might it be? Well, September 11th, and we thought, let's take this. Yes, we want to get married on this day, but let's also take this day back and have it mean something good as well as something so so so awful. So yeah, we were married on September 11th.
 
 [00:14:08] Will: That's
 
@@ -550,7 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:21:07] Will: It's really expensive and really big.
 
-[00:21:08] Norm: It's eight hundred dollars.
+[00:21:08] Norm: It's 800 dollars.
 
 [00:21:10] Adam: It's seven and a half thousand pieces.
 
@@ -656,7 +656,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:24:19] Adam: Yeah.
 
-[00:24:19] Will: like like starting with Space Ghost. Way back when I was probably in college, still, like what they do with animation is kind of it's it's kind of like what Mike Judge did with Beavis and Butt Head and and the the the Liquid Television people were doing on MTV and the in the 90s. Like it's really fascinating. It was amazing to go in there and watch those those folks work and and get to be the tiniest little. I mean, I guess we we do animate all do all the animation, so we're not the tiniest little.
+[00:24:19] Will: like like starting with Space Ghost. Way back when I was probably in college, still, like what they do with animation is kind of it's it's kind of like what Mike Judge did with Beavis and Butt Head and and the the the Liquid Television people were doing on MTV and the in the '90s. Like it's really fascinating. It was amazing to go in there and watch those those folks work and and get to be the tiniest little. I mean, I guess we we do animate all do all the animation, so we're not the tiniest little.
 
 [00:25:09] Adam: You're getting a really awesome ringside seat to to play with these guys.
 
@@ -722,9 +722,9 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:26:22] Will: it's been terrible.
 
-[00:26:27] Adam: It's still been sixty percent humidity here. I'm sweating all day long.
+[00:26:27] Adam: It's still been 60% humidity here. I'm sweating all day long.
 
-[00:26:30] Will: Everything sticks to you. Why would people live here? This is all like I've gotten so good at manipulating the fans in my house in the last three weeks. It's like okay, it's below seventy-eight degrees. Time to turn on the exhaust fans.
+[00:26:30] Will: Everything sticks to you. Why would people live here? This is all like I've gotten so good at manipulating the fans in my house in the last three weeks. It's like okay, it's below 78 degrees. Time to turn on the exhaust fans.
 
 [00:26:42] Adam: That was so weird. Thing thing two is off, and living in Los Angeles, but thing one is living in the house. And what we have now is a war of a war of of who's using who's using the Dyson fan.
 

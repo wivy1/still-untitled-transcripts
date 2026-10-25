@@ -450,7 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:26:58] Greg: I remember that. I've never seen in person. I saw the schematics for it.
 
-[00:27:01] Will: God, it was so good. They made it for Burning Man first, and they brought it to Maker Faire, and I think twenty ten or twenty eleven.
+[00:27:01] Will: God, it was so good. They made it for Burning Man first, and they brought it to Maker Faire, and I think 2010 or 2011.
 
 [00:27:01] Adam: Yes,
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:30:01] Will: and if you don't know what family meal is, it's the end of service. Usually, people sit down and and make a meal for themselves. They sit down, they you know either new dishes that people are working on, or they they try different things or whatever. Anyway, so just for people at home. So what's what is is this the same? Is this a conceptual?
 
-[00:30:18] Greg: So our all hands, I end up we do them on a Friday. We actually knock off at about four thirty, and we get together and we talk with everyone. We drink a lot of beers and we eat a lot of chips, and it's a chance for us to share. We know what's happening with the studio because communication is everything, right? Like that's really what most companies ever studios cultures ever complain about is like the lack of communication. So it's a chance for us weekly to say, hey, these are the things that have been happening, and also a chance for everyone to come together and show something. So we have the awesomeness review where people can put in like a little video about the code that they've been developing, the tool that they've been building, the art, showing the animation, and we show it all off. And it's great. It's a really wonderful sharing thing. So. It's not actually a normal thing to do at a workshop. at Weta Workshop, Richard will do like a address to a lot of the team a little bit less often. But Richard is actually the great thing with communication. There is that Richard is on the floor all the time, walking around, and it's a very communicative place. But for us, this is just as part of Weta Gameshop, and so our all hands is really like that chance to get together and share all the information. Because, like I say, you just want to create more opportunities for that. If you're a creative team, and we're about fifty odd in our team at the moment, you're just trying to create as many opportunities as possible for people to talk.
+[00:30:18] Greg: So our all hands, I end up we do them on a Friday. We actually knock off at about 4:30, and we get together and we talk with everyone. We drink a lot of beers and we eat a lot of chips, and it's a chance for us to share. We know what's happening with the studio because communication is everything, right? Like that's really what most companies ever studios cultures ever complain about is like the lack of communication. So it's a chance for us weekly to say, hey, these are the things that have been happening, and also a chance for everyone to come together and show something. So we have the awesomeness review where people can put in like a little video about the code that they've been developing, the tool that they've been building, the art, showing the animation, and we show it all off. And it's great. It's a really wonderful sharing thing. So. It's not actually a normal thing to do at a workshop. at Weta Workshop, Richard will do like a address to a lot of the team a little bit less often. But Richard is actually the great thing with communication. There is that Richard is on the floor all the time, walking around, and it's a very communicative place. But for us, this is just as part of Weta Gameshop, and so our all hands is really like that chance to get together and share all the information. Because, like I say, you just want to create more opportunities for that. If you're a creative team, and we're about fifty odd in our team at the moment, you're just trying to create as many opportunities as possible for people to talk.
 
 [00:31:26] Adam: I really, I really respect and love how how proud the team is of their work and how much they love the work. It's something that's like whenever you introduce me to someone and say he did that part that you told me that you liked, and we start talking about it, it's always like an iceberg, right? There's so much depth below the thing and getting to it and describing it and hearing about it. It's just it's thrilling.
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:34:27] Greg: Anytime.
 
-[00:34:27] Adam: Oh, I have a I have an announcement. So I've got a a book coming out on May seventh.
+[00:34:27] Adam: Oh, I have a I have an announcement. So I've got a a book coming out on May 7.
 
 [00:34:27] Greg: Wait, what?
 

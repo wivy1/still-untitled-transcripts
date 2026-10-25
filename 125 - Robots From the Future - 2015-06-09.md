@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:09:56] Will: I have a hard copy.
 
-[00:09:56] Norm: It's coming today. Twenty one bucks.
+[00:09:56] Norm: It's coming today. 21 bucks.
 
 [00:09:58] Will: It's a big giant book.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:11:32] Adam: It was an amazing success that actually Google stepped in and generated Google's autonomous car division based on the two winners of that DARPA challenge.
 
-[00:11:43] Will: Lots. So, so they do two sides. First, they offer a very large prize. It's like a two or three million dollar prize pool, depending on the challenge. But they also fund researchers at universities and and even private companies give issue grants to work to work toward these goals. So, the idea, I think, is that you get a lot of brains working on it on in different directions, and there's some that some people that rolled into this with like twelve thousand dollar robots, some people that rolled into this with two million dollar robots. Some people that loaned rolled into this with software that they'd written for loaner robots from Boston Dynamics,
+[00:11:43] Will: Lots. So, so they do two sides. First, they offer a very large prize. It's like a two or three million dollar prize pool, depending on the challenge. But they also fund researchers at universities and and even private companies give issue grants to work to work toward these goals. So, the idea, I think, is that you get a lot of brains working on it on in different directions, and there's some that some people that rolled into this with like 12,000 dollar robots, some people that rolled into this with 2,000,000 dollar robots. Some people that loaned rolled into this with software that they'd written for loaner robots from Boston Dynamics,
 
 [00:12:13] Norm: right?
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:17:49] Norm: Let's answer your question.
 
-[00:17:49] Will: So to answer your question, yes, lots of robots fell over. Two million dollars crunch like a tree. Ah. Um. They
+[00:17:49] Will: So to answer your question, yes, lots of robots fell over. 2,000,000 dollars crunch like a tree. Ah. Um. They
 
 [00:17:57] Adam: did anybody succeed at the challenge?
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:20:05] Adam: fascinating
 
-[00:20:05] Will: right two million dollars right on its side so. It was it was absolutely fascinating. There were a ton of other cool robots there as well. This was at the L.A. County Fairgrounds at Fairplex.
+[00:20:05] Will: right 2,000,000 dollars right on its side so. It was it was absolutely fascinating. There were a ton of other cool robots there as well. This was at the L.A. County Fairgrounds at Fairplex.
 
 [00:20:15] Adam: Oh, okay.
 

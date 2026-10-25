@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:01:11] Will: After what, like fourteen seasons, fourteen and a half seasons.
 
-[00:01:15] Adam: Well, I've been filming MythBusters since the summer of two thousand and two, so for me, it's fourteen years, and the last ever episode, the last ever new episode of MythBusters aired Saturday night
+[00:01:15] Adam: Well, I've been filming MythBusters since the summer of 2002, so for me, it's fourteen years, and the last ever episode, the last ever new episode of MythBusters aired Saturday night
 
 [00:01:27] Will: until Netflix comes in in like three years, puts the whole team together, and and you do another six episodes, and they release them all on a Sunday night.
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:06:20] Will: That's that was one of those days. After that, we we saw you immediately after you did that. You came in and you were you were legitimately like I mean, and and Norm and I have both worked places for a really long time and left, but it's not quite the same. I think as as a small you know crazy tight team that made the amount of television and stuff that you did. I mean, it was really neat. I thought it was a really. I thought I thought actually all three parts of that because you had basically the huge explosion
 
-[00:06:45] Adam: with four parts. We we blew up a we blew up an RV at fifty thousand frames per second. Then we destroyed Buster. We sent Buster to a better place. I've got some chunks of him around here somewhere.
+[00:06:45] Adam: with four parts. We we blew up a we blew up an RV at 50,000 frames per second. Then we destroyed Buster. We sent Buster to a better place. I've got some chunks of him around here somewhere.
 
 [00:06:56] Will: It looked like he hit so hard he caught on fire.
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:07:12] Adam: yeah.
 
-[00:07:12] Norm: You explained why use an RV, and kind of you're also demonstrating recording an explosion at fifty thousand frames per second.
+[00:07:12] Norm: You explained why use an RV, and kind of you're also demonstrating recording an explosion at 50,000 frames per second.
 
 [00:07:23] Adam: Yeah. So the digital camera, high speed digital cameras have have come of age alongside of MythBusters and Phantom, the preeminent maker of them and supplier of MythBusters cameras, now has a camera that can do HD at fifty thousand frames.
 
@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:07:50] Norm: If all you need are to measure a few pixels wide,
 
-[00:07:53] Adam: and that's the thing is when they say, " Oh, it's got a maximum of five hundred thousand frames per second," that means it's like. Twelve by thirty pixels.
+[00:07:53] Adam: and that's the thing is when they say, " Oh, it's got a maximum of 500,000 frames per second," that means it's like. 12 by 30 pixels.
 
 [00:08:00] Will: It means basically you need something that's going to flash the entire field of view in order to see what what happens.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:08:18] Adam: oh no
 
-[00:08:19] Norm: ten thousand fps for for a lot of things.
+[00:08:19] Norm: 10,000 fps for for a lot of things.
 
 [00:08:21] Adam: No, someone gets smacked in the kisser you don't need more than two hundred and fifty frames.
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:08:25] Norm: An iPhone can do that absolutely, but explosions.
 
-[00:08:29] Adam: You you absolutely and there's so we've filmed thousands of explosions. We've filmed hundreds thousands of them on the high speed camera, and mostly between one thousand and about six thousand frames per second. I think fifty five hundred is the max HD in sunlight that we can get out of our our the main Phantom we've been using the last few years. At fifty thousand frames per second, there was a couple of things that were super notable. One was that you got to watch the. Impetus of the explosion for many frames. You got to watch the inside of this RV light up.
+[00:08:29] Adam: You you absolutely and there's so we've filmed thousands of explosions. We've filmed hundreds thousands of them on the high speed camera, and mostly between one thousand and about 6,000 frames per second. I think fifty five hundred is the max HD in sunlight that we can get out of our our the main Phantom we've been using the last few years. At 50,000 frames per second, there was a couple of things that were super notable. One was that you got to watch the. Impetus of the explosion for many frames. You got to watch the inside of this RV light up.
 
 [00:08:29] Will: Yeah.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:10:39] Adam: You'd be there'd be this, and then
 
-[00:10:42] Adam: your your jelly. Because what it will do is it will accelerate all the cells in your body at about twenty thousand feet per second, but just the tiniest fraction of an inch. But it'll tear apart all the connective whatever inside of you and just turn you to a bag full of jelly, which arguably we already are, but
+[00:10:42] Adam: your your jelly. Because what it will do is it will accelerate all the cells in your body at about 20,000 feet per second, but just the tiniest fraction of an inch. But it'll tear apart all the connective whatever inside of you and just turn you to a bag full of jelly, which arguably we already are, but
 
 [00:11:01] Will: more so,
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:11:02] Will: Why do you guys use ANFO for that kind of stuff? Because it's
 
-[00:11:06] Adam: we use ANFO is cheap and it's a nice slow explosive, nice and slow. I'm sorry, I think ANFO is. You know, people will correct me. High explosives like plastic explosives or cast boosters those move at like twenty two to twenty five thousand frame feet per second. The ANFO, it's slower. I think like sixteen thousand feet per second. Again, I'm trying to remember these numbers. I just know it's it's not like half the speed, but ANFO is meant for pushing. It's used in in mining for like pushing giant chunks of a mountain off of it.
+[00:11:06] Adam: we use ANFO is cheap and it's a nice slow explosive, nice and slow. I'm sorry, I think ANFO is. You know, people will correct me. High explosives like plastic explosives or cast boosters those move at like twenty two to twenty five thousand frame feet per second. The ANFO, it's slower. I think like 16,000 feet per second. Again, I'm trying to remember these numbers. I just know it's it's not like half the speed, but ANFO is meant for pushing. It's used in in mining for like pushing giant chunks of a mountain off of it.
 
 [00:11:06] Unknown speaker: Okay.
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:12:49] Will: Looked like it was what five thousand, ten thousand feet, or something. It was really high.
 
-[00:12:51] Adam: Five thousand feet. We got some. I don't think it was more than a thousand feet, if I remember correctly. But honestly, you'd have to ask Duncan. I can't quite remember
+[00:12:51] Adam: 5,000 feet. We got some. I don't think it was more than a thousand feet, if I remember correctly. But honestly, you'd have to ask Duncan. I can't quite remember
 
 [00:12:58] Will: Okay.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:13:55] Adam: Yes.
 
-[00:13:55] Will: After the thing goes. I assume on a fifty thousand frame per second camera, you have what maybe twenty seconds, thirty seconds a minute.
+[00:13:55] Will: After the thing goes. I assume on a 50,000 frame per second camera, you have what maybe twenty seconds, thirty seconds a minute.
 
 [00:14:14] Adam: If it's twenty seconds, I think it's like twelve or fourteen.
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:20:59] Will: Yeah,
 
-[00:20:59] Adam: I don't want to err towards the camera car. I can't see on my right because I don't want to. I don't want to hurt him. Now that's being driven by a professional cop training driver, Brian. So I know he knows enough to stay safe. But again, I'm in the sixty thousand pound vehicle. I want to keep it away from everybody. So I'm using touch. I'm using sight, and I'm. We put up street signs that had each year on them, and I'm using those to gauge my my direction. It was. I said this to you guys on the podcast right afterwards. It was without a doubt the best driving I've ever done in my professional life.
+[00:20:59] Adam: I don't want to err towards the camera car. I can't see on my right because I don't want to. I don't want to hurt him. Now that's being driven by a professional cop training driver, Brian. So I know he knows enough to stay safe. But again, I'm in the 60,000 pound vehicle. I want to keep it away from everybody. So I'm using touch. I'm using sight, and I'm. We put up street signs that had each year on them, and I'm using those to gauge my my direction. It was. I said this to you guys on the podcast right afterwards. It was without a doubt the best driving I've ever done in my professional life.
 
 [00:21:36] Will: Did you guys put the last couple of vans in the funnel on purpose, or was that just a happy accident?
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:22:21] Will: I mean, aside from the obvious,
 
-[00:22:22] Adam: we did. Jamie designed the front fin, and we put in an extra, I think, like ten thousand pounds on the backside to balance it,
+[00:22:22] Adam: we did. Jamie designed the front fin, and we put in an extra, I think, like 10,000 pounds on the backside to balance it,
 
 [00:22:22] Will: okay,
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:23:01] Will: were you having to shift during the during the run? Are you downshifting?
 
-[00:23:04] Adam: I at one point it kicked itself out of gear seventy percent of the way in,
+[00:23:04] Adam: I at one point it kicked itself out of gear 70% of the way in,
 
 [00:23:10] Will: Wow.
 
@@ -596,15 +596,15 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:27:11] Norm: The last last explosion. The big one.
 
-[00:27:13] Adam: The five thousand and one pound
+[00:27:13] Adam: The 5,001 pound
 
-[00:27:15] Will: was the previous was the previous record. Five thousand pounds.
+[00:27:15] Will: was the previous was the previous record. 5,000 pounds.
 
-[00:27:18] Adam: Five thousand pounds of high speed explosives that Kari, Grant and Tory used at New Mexico Tech a few years ago to make diamonds.
+[00:27:18] Adam: 5,000 pounds of high speed explosives that Kari, Grant and Tory used at New Mexico Tech a few years ago to make diamonds.
 
 [00:27:18] Will: Okay.
 
-[00:27:18] Adam: Um, the high pressure helping to create diamonds. Um, so we used five thousand and one pounds.
+[00:27:18] Adam: Um, the high pressure helping to create diamonds. Um, so we used 5,001 pounds.
 
 [00:27:30] Will: Okay.
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:28:46] Will: Okay.
 
-[00:28:46] Adam: Even though we didn't have a high speed shot of it, so we thought the fact that we didn't have a high speed shot and it's a fan favorite, let's finish with that and give it an amazing high speed shot. That high speed shot was also at fifty thousand frames per second.
+[00:28:46] Adam: Even though we didn't have a high speed shot of it, so we thought the fact that we didn't have a high speed shot and it's a fan favorite, let's finish with that and give it an amazing high speed shot. That high speed shot was also at 50,000 frames per second.
 
 [00:29:13] Will: Okay, I was gonna say, yeah, we can see the lensing on that one too.
 
@@ -698,7 +698,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:30:37] Will: Yeah, no, it was good.
 
-[00:30:38] Adam: So I flew in on Sunday. I rehearsed over at at Sullivan Theater on Monday. They had a big day on Tuesday because their cold open was in conjunction with the Fiddler on the Roof cast. So Monday, I spent a couple of hours over there working with their people, nicest crew in the world, and I've some of them were some of them had been part of the crew when Jamie and I first flew balloons outside on Fifty Third Street for Letterman in two thousand four. Um. Yeah, it was amazing. And many of them were there when I did Letterman the last time. Many of them I knew from the Late Show. Many of the writers. So it was great to see everybody. And it is just, it's a really lovely set. Like everyone loves working there.
+[00:30:38] Adam: So I flew in on Sunday. I rehearsed over at at Sullivan Theater on Monday. They had a big day on Tuesday because their cold open was in conjunction with the Fiddler on the Roof cast. So Monday, I spent a couple of hours over there working with their people, nicest crew in the world, and I've some of them were some of them had been part of the crew when Jamie and I first flew balloons outside on 53rd Street for Letterman in 2004. Um. Yeah, it was amazing. And many of them were there when I did Letterman the last time. Many of them I knew from the Late Show. Many of the writers. So it was great to see everybody. And it is just, it's a really lovely set. Like everyone loves working there.
 
 [00:30:38] Unknown speaker: Oh yeah,
 

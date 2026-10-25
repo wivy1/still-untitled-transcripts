@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:02:26] Will: The first, the first weekend I after I moved to San Francisco was Labor Day weekend, or it was it was Folsom Street Fair weekend. So I, my wife had just gotten my then girlfriend, now wife, had just gotten here. I was like, hey, let's go downtown. We'll check it out. We'll show you. I'll show you what San Francisco is. I'd been out here for about a month before she got here, and we got on the on the Muni, and the next stop, like six guys get in, all wearing like leather bikini thongs, and suspenders, and one guy had a like a 12 foot whip and the whole thing, and we kind of looked at it. We're like, oh, okay, so this is what San Francisco is going to be like. Turns out. Not every weekend, but often enough.
 
-[00:03:04] Adam: Funny that you say it because say this because the very first time my parents came to San Francisco, which is in the early 90s, to visit me, I took them to Orphan Andy's over there in the Castro, and within 10 seconds they saw a man's hairy bottom.
+[00:03:04] Adam: Funny that you say it because say this because the very first time my parents came to San Francisco, which is in the early '90s, to visit me, I took them to Orphan Andy's over there in the Castro, and within 10 seconds they saw a man's hairy bottom.
 
 [00:03:19] Will: Yeah,
 
@@ -72,9 +72,9 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:04:27] Adam: So yeah, you know, it it it it it. My mom is never minded. She when I was born, I spent the first two years of my life in the West Village. So you know, yeah, she is used to seeing crazy things happen.
 
-[00:04:39] Will: This is like late seven, early seventies West Village,
+[00:04:39] Will: This is like late seven, early '70s West Village,
 
-[00:04:41] Adam: late sixties, early seventies. Yeah, yeah.
+[00:04:41] Adam: late '60s, early '70s. Yeah, yeah.
 
 [00:04:44] Will: So she was, she was, she was on.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:20:08] Adam: No, no, I am thinking that you are sanding garage kits or model kits or something like that, adding bondo to something,
 
-[00:20:15] Will: finishing your three D three D prints stuff like that.
+[00:20:15] Will: finishing your 3D 3D prints stuff like that.
 
 [00:20:17] Adam: Exactly, but that practice of so, let's see, best practices. One is to have your tools and your sanding stuff in a place that is accessible to you, so it's not like inside a box that's inside a box that's inside a box. So make that accessible too. And people, I was amazed when I taught at the Academy of Art how much people needed help with this, but. Um, everyone sands wrong, in my opinion. Everyone takes, they use a piece of sandpaper way past its utility, and like sandpaper is relatively inexpensive, and your time is worth more. So go ahead and keep on refreshing that piece of sandpaper as soon as it's gummed up. I find blue jeans, by the way, are great for getting dust out of sandpaper. But as soon as that piece of sandpaper isn't really gripping or grading with the with the right amount of of grit, toss it out, tear off a new one, and keep on sanding.
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:28:54] Will: No, I've not seen this.
 
-[00:28:55] Adam: It's absolutely incredible. It is ten parts, I believe, and it's an hour per roughly an hour per part, like forty five to fifty five minutes per. He's very, very centered on non American films, so he really takes you all over the world from the turn of the nineteenth to the twentieth century all the way till now, showing you all the ways and places in which film was new territory and film was being braved in Japan, in India, in Turkey, in Russia, in I mean that influenced American film because we have a the history of film is very America centric and the lang the the the actual history of film isn't. Necessarily, so the history of film is a really watchable series that gives you a deep insight into the language of filmmaking and how that language was invented and developed.
+[00:28:55] Adam: It's absolutely incredible. It is ten parts, I believe, and it's an hour per roughly an hour per part, like forty five to fifty five minutes per. He's very, very centered on non American films, so he really takes you all over the world from the turn of the 19th to the 20th century all the way till now, showing you all the ways and places in which film was new territory and film was being braved in Japan, in India, in Turkey, in Russia, in I mean that influenced American film because we have a the history of film is very America centric and the lang the the the actual history of film isn't. Necessarily, so the history of film is a really watchable series that gives you a deep insight into the language of filmmaking and how that language was invented and developed.
 
 [00:29:46] Will: So the last thing I'll say, oh, go ahead.
 
@@ -644,7 +644,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:33:37] Will: I fell asleep on the couch the other night, and my wife had put it on, and I was I woke up, and I was like, " This is the best way to wake up ever. These people are so cool." I and I would say totally make a movie club, like make a make a regular like Friday Friday evening beers where you guys sit around and watch a movie and then talk about it with two or three of your friends, and that is a thing that you will that you will really enjoy. True, this will help you with this project if you are if you and if you have a couple of like minded friends.
 
-[00:34:04] Adam: A hundred percent. So
+[00:34:04] Adam: 100%. So
 
 [00:34:05] Will: I guess that'll do it for us this week. If you have more questions, podcast@tested.com. Put questions for Adam, even if they're for Norm or me and Adam, and we will be back next week with another episode of Still Untitled. Thank you guys for watching.
 

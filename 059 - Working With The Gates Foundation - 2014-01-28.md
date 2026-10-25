@@ -100,9 +100,9 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:02:00] Norm: They were
 
-[00:02:02] Will: what, like mid two thousands, early
+[00:02:02] Will: what, like mid 2000s, early
 
-[00:02:04] Norm: early thousands,
+[00:02:04] Norm: early 2000s,
 
 [00:02:05] Adam: yes,
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:22:09] Will: It's exactly. And on that note, unless there's anything else,
 
-[00:22:12] Adam: well, I just want to say, years and years ago, I was in New York. I was on. I remember this: Forty Second Street and Fifth Avenue at about midnight. And I looked up, and there was this beautiful woman on the street, and I realized, ah, it's Spike Lee's sister, Joie Lee. There she is. She's just gorgeous. I love her, and I walked up and I said, " You're Joie Lee," and she said, " Yes," and I said, " I love you." Have a great night, and then I moved on.
+[00:22:12] Adam: well, I just want to say, years and years ago, I was in New York. I was on. I remember this: 42nd Street and 5th Avenue at about midnight. And I looked up, and there was this beautiful woman on the street, and I realized, ah, it's Spike Lee's sister, Joie Lee. There she is. She's just gorgeous. I love her, and I walked up and I said, " You're Joie Lee," and she said, " Yes," and I said, " I love you." Have a great night, and then I moved on.
 
 [00:22:38] Will: I bet she still remembers that.
 

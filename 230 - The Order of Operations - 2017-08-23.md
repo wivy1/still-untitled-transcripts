@@ -112,9 +112,9 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:04:06] Norm: Yeah,
 
-[00:04:06] Norm: so you're anywhere outside of that path, and then you know you're still seeing a significant portion of the sun. I think here in San Francisco, it was at most seventy-five percent or so, seventy-eighty percent.
+[00:04:06] Norm: so you're anywhere outside of that path, and then you know you're still seeing a significant portion of the sun. I think here in San Francisco, it was at most 75% or so, 70-80%.
 
-[00:04:16] Adam: Seventy-five percent occlusion,
+[00:04:16] Adam: 75% occlusion,
 
 [00:04:17] Norm: yeah, and which looked fantastic.
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:04:44] Adam: Oh yeah, they were doing pinhole cameras. And yeah,
 
-[00:04:46] Norm: and it was really cool. Just as around nine thirty, nine nine to ten, just to watch people on the street, everyone kind of do their thing and observe it their own way.
+[00:04:46] Norm: and it was really cool. Just as around 9:30, nine nine to ten, just to watch people on the street, everyone kind of do their thing and observe it their own way.
 
 [00:04:54] Adam: From my roof, looking around my particular block in the Mission, it was fun because there was like four or five people dotted around the roofs of the buildings, all doing it. Someone tweeted a photo of them and their kids, which was hilarious because they all made these oblong. Camera obscuras out of cardboard, and so it was like these three children, all giant long cardboard boxes on their heads, trying to variously aim at this particular location. It was very entertaining.
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:07:47] Adam: Really.
 
-[00:07:47] Norm: And it was piggybacking on the story in twenty sixteen when I think it was an astronomer from the Hayden Planetarium had figured out that one of the flights from to Honolulu would cross in totality, totality. And convince Alaska Airlines to delay their flight by half an hour,
+[00:07:47] Norm: And it was piggybacking on the story in 2016 when I think it was an astronomer from the Hayden Planetarium had figured out that one of the flights from to Honolulu would cross in totality, totality. And convince Alaska Airlines to delay their flight by half an hour,
 
 [00:08:12] Adam: Wow.
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:23:57] Adam: You mean of the original movie?
 
-[00:23:58] Norm: Yes, original. I want to say there was a four, the four K. There is a 4K screening of it soon in San Francisco. I don't know if this is a new 4K remaster.
+[00:23:58] Norm: Yes, original. I want to say there was a four, the 4K. There is a 4K screening of it soon in San Francisco. I don't know if this is a new 4K remaster.
 
 [00:24:07] Adam: Fascinating.
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:25:19] Jeremy Williams: The final, final, final cut.
 
-[00:25:20] Adam: The thing I was most surprised about about watching that final cut because I watched the original with Harrison Ford's stilted narration at least ten times in theaters in New York in the eighties and the nineties, is when someone's not talking at you, how much more you see.
+[00:25:20] Adam: The thing I was most surprised about about watching that final cut because I watched the original with Harrison Ford's stilted narration at least ten times in theaters in New York in the '80s and the '90s, is when someone's not talking at you, how much more you see.
 
 [00:25:37] Jeremy Williams: Hmm.
 

@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:08:24] Norm: That's great.
 
-[00:08:25] Adam: It went off. The piece went very well. I I'm I was very happy with with how it came off. Immediately upon leaving the stage, one of the Karamazov brothers came over and said that was wonderful. And then he, the Karamazov brothers, do a thing called a Chautauqua, the old time Chautauqua, which is what people don't realize is that the precursor to the TED Talk was happening in the teens and twenties all over the United States, which were these effectively traveling lecture road entertainment shows called Chautauquas.
+[00:08:25] Adam: It went off. The piece went very well. I I'm I was very happy with with how it came off. Immediately upon leaving the stage, one of the Karamazov brothers came over and said that was wonderful. And then he, the Karamazov brothers, do a thing called a Chautauqua, the old time Chautauqua, which is what people don't realize is that the precursor to the TED Talk was happening in the '10s and '20s all over the United States, which were these effectively traveling lecture road entertainment shows called Chautauquas.
 
 [00:08:53] Will: You didn't have radio or TV to watch, so people went out to the Community hall at night and the Moose Lodge,
 
@@ -382,11 +382,11 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:17:07] Adam: in the mission here. I don't really, and from here to work and back, I don't really need anything but one speed, and it works fine. Amazingly, I didn't think a single speed was reasonable for San Francisco, but it is for me.
 
-[00:17:16] Norm: We also chatted with some of the R two D two the Builders Club guys, the Astromech guys, and they, I know you have an R two that's an ongoing project.
+[00:17:16] Norm: We also chatted with some of the R2-D2 the Builders Club guys, the Astromech guys, and they, I know you have an R2 that's an ongoing project.
 
 [00:17:16] Adam: Yeah.
 
-[00:17:16] Norm: They opened one of their R two s up, so we did like a dissection anatomy. They have new control systems.
+[00:17:16] Norm: They opened one of their R2s up, so we did like a dissection anatomy. They have new control systems.
 
 [00:17:16] Will: The new controllers, seen? Oh my god!
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:17:40] Norm: Yes.
 
-[00:17:41] Adam: So he sells that system. He's offered it to me. I haven't. I haven't decided to invest in it for my R two.
+[00:17:41] Adam: So he sells that system. He's offered it to me. I haven't. I haven't decided to invest in it for my R2.
 
 [00:17:45] Will: But it's it's beautiful
 
@@ -478,11 +478,11 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:20:29] Will: Norm,
 
-[00:20:29] Norm: the R two guys.
+[00:20:29] Norm: the R2 guys.
 
 [00:20:29] Adam: Yeah.
 
-[00:20:29] Norm: Seeing that remote control system. I mean, the way they're piling it. You're you're when you're walk when you see an R two, I instinctively look for the driver.
+[00:20:29] Norm: Seeing that remote control system. I mean, the way they're piling it. You're you're when you're walk when you see an R2, I instinctively look for the driver.
 
 [00:20:29] Adam: Yeah.
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:21:02] Adam: Let's do it. Let's do it. This is a public invite. We'll reach out to our channels.
 
-[00:21:06] Will: Your R two's. I mean, people ask for R videos about your R two a lot.
+[00:21:06] Will: Your R2's. I mean, people ask for R videos about your R2 a lot.
 
 [00:21:09] Adam: Yeah. Well, no, because he's got new motors, but we've never revealed the inside of him. And I built this guy from scratch over five years.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:21:45] Adam: I have one of those. They're beautiful.
 
-[00:21:46] Will: Yeah, it's a it's a this milled aluminum. It's really really pretty. Um, the the Saitek X fifty two
+[00:21:46] Will: Yeah, it's a it's a this milled aluminum. It's really really pretty. Um, the the Saitek X52
 
 [00:21:46] Adam: yeah
 
@@ -578,13 +578,13 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:23:22] Will: Right, right.
 
-[00:23:22] Norm: Three D printing, big presence, big presence, big presence, and now sits among the other CNC home desktop CNC projects. So it's not one thing. We see it's cool to see something get really popular. A technology, and then also then find its place.
+[00:23:22] Norm: 3D printing, big presence, big presence, big presence, and now sits among the other CNC home desktop CNC projects. So it's not one thing. We see it's cool to see something get really popular. A technology, and then also then find its place.
 
 [00:23:46] Adam: Does Locksport ever have a?
 
 [00:23:48] Will: They're still there. The TOOOL guys there are there every year.
 
-[00:23:50] Adam: Did you see the three D printed Master Lock cracker?
+[00:23:50] Adam: Did you see the 3D printed Master Lock cracker?
 
 [00:23:54] Norm: No,
 
@@ -592,7 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:23:54] Norm: that’d be cool.
 
-[00:23:56] Adam: Somebody's built a three D printed it'll crack a Master combo lock in like seventy seconds.
+[00:23:56] Adam: Somebody's built a 3D printed it'll crack a Master combo lock in like seventy seconds.
 
 [00:24:01] Norm: Oh my goodness!
 
@@ -696,7 +696,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:27:58] Will: So you drew. You have these toolboxes.
 
-[00:28:01] Adam: I have these toolboxes that I used professionally when I worked at Industrial Light and Magic. They were, they were the end result of seven years of working as a model maker, year round, and honing and refining the tools that I needed to be able to work as fast and efficiently as humanly possible, so that I could be completely autonomous when I sat down at a table and I could have access to these tools as quickly as possible. These toolboxes are the zenith of my engineering of how to be the fastest possible model maker. I drew an elaborate drawing of both of my toolboxes, A and B, and included a list of every single tool and part and piece that was in all of them. I think at one point I tallied it up, and it was in the it was over ten thousand dollars worth of tools in terms of The retail cost of each one new,
+[00:28:01] Adam: I have these toolboxes that I used professionally when I worked at Industrial Light and Magic. They were, they were the end result of seven years of working as a model maker, year round, and honing and refining the tools that I needed to be able to work as fast and efficiently as humanly possible, so that I could be completely autonomous when I sat down at a table and I could have access to these tools as quickly as possible. These toolboxes are the zenith of my engineering of how to be the fastest possible model maker. I drew an elaborate drawing of both of my toolboxes, A and B, and included a list of every single tool and part and piece that was in all of them. I think at one point I tallied it up, and it was in the it was over 10,000 dollars worth of tools in terms of The retail cost of each one new,
 
 [00:28:54] Will: and and those those toolboxes are so heavy. You put them on screw jacks.
 
@@ -716,7 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:29:44] Adam: That's very cool.
 
-[00:29:44] Will: We've done the hypno cube that's in the background of Adam's shop. We've done quads and three D printers and all sorts of stuff. And then we also do Lego with friends or something with Lego, where we bring somebody who's interesting, friend of the site. We bring them in for five days and we kind of just sit around and shoot the shit while we build Lego.
+[00:29:44] Will: We've done the hypno cube that's in the background of Adam's shop. We've done quads and 3D printers and all sorts of stuff. And then we also do Lego with friends or something with Lego, where we bring somebody who's interesting, friend of the site. We bring them in for five days and we kind of just sit around and shoot the shit while we build Lego.
 
 [00:29:44] Adam: Yeah.
 

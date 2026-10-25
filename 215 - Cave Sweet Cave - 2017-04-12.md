@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:13:02] Will: oh, it would be like I, yeah.
 
-[00:13:04] Adam: Is it the 10? Is it the ten that's that really old freeway that goes between the two?
+[00:13:04] Adam: Is it the 10? Is it the 10 that's that really old freeway that goes between the two?
 
 [00:13:07] Norm: Oh, I don't know.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:16:13] Adam: Yeah,
 
-[00:16:13] Norm: and then there are some companies up now that take ZBrush sculptures and then they turn them into three D printed
+[00:16:13] Norm: and then there are some companies up now that take ZBrush sculptures and then they turn them into 3D printed
 
 [00:16:13] Adam: oh wow
 
@@ -694,9 +694,9 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:27:54] Norm: and.
 
-[00:27:55] Adam: Took away any look. Scarlett Johansson is different. She's not the one writing the movie, and I think she's a wonderful actress. And I, I, I think the world of her. So I'm, I'm not blaming her for taking this role. Like, how can you blame someone for taking ten million dollars and I'm not blaming— to go do something? That's, that's not the problem.
+[00:27:55] Adam: Took away any look. Scarlett Johansson is different. She's not the one writing the movie, and I think she's a wonderful actress. And I, I, I think the world of her. So I'm, I'm not blaming her for taking this role. Like, how can you blame someone for taking 10,000,000 dollars and I'm not blaming— to go do something? That's, that's not the problem.
 
-[00:28:12] Will: You're welcome to give me ten million dollars. You're welcome to blame me.
+[00:28:12] Will: You're welcome to give me 10,000,000 dollars. You're welcome to blame me.
 
 [00:28:15] Norm: You could put on the suit also.
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:28:17] Adam: Will is willing to whitewash any cultural heritage you've got for ten million,
 
-[00:28:21] Will: ten million dollars. It's all out the window.
+[00:28:21] Will: 10,000,000 dollars. It's all out the window.
 
 [00:28:23] Adam: But, but for all of their complaints about we really wanted to treat this right, there, the degree of which the story manhandled the whitewashing of the, of the casting was appalling.
 
@@ -978,7 +978,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:39:09] Norm: —that's all you. Those shots do.
 
-[00:39:12] Adam: And Villeneuve is maybe like the greatest master shot maker now. Oh, yeah. Filming films, and I hope that people will watch that and take that as like, oh, if I—I don't need to spend twenty million dollars on my master shots. I can actually spend four million and get a lot more out of them just by making sure someone's asking at the top of this pyramid. How does this push our plot forward?
+[00:39:12] Adam: And Villeneuve is maybe like the greatest master shot maker now. Oh, yeah. Filming films, and I hope that people will watch that and take that as like, oh, if I—I don't need to spend 20,000,000 dollars on my master shots. I can actually spend four million and get a lot more out of them just by making sure someone's asking at the top of this pyramid. How does this push our plot forward?
 
 [00:39:34] Will: Like the the moment, the first moment when Amy Adams and and and what's his name
 
@@ -1054,7 +1054,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:42:57] Will: Well, yeah.
 
-[00:42:57] Adam: Marvel has earned it time and time again by hiring good directors, and you know, I know Joss. Whedon talk has talked extensively about how hard he fought to keep the the the Hawkeye farmhouse scene in Civil War, and he's a hundred percent right. That movie is so importantly better
+[00:42:57] Adam: Marvel has earned it time and time again by hiring good directors, and you know, I know Joss. Whedon talk has talked extensively about how hard he fought to keep the the the Hawkeye farmhouse scene in Civil War, and he's 100% right. That movie is so importantly better
 
 [00:43:16] Will: in Avengers two.
 

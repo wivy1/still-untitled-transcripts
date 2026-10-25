@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:19:20] Adam: Exactly.
 
-[00:19:20] Will: When you watch old like pre Sesame Street kids shows, there's there there's a guy sitting there. The host is sitting there smoking a cigarette sometimes on the Saturday morning fifties shows.
+[00:19:20] Will: When you watch old like pre Sesame Street kids shows, there's there there's a guy sitting there. The host is sitting there smoking a cigarette sometimes on the Saturday morning '50s shows.
 
 [00:19:20] Adam and Will: Wow, really? Yeah. Yeah.
 

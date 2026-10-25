@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:01:02] Will: Yeah, it's a great time to go there.
 
-[00:01:04] Adam: Oh man, it was brutal. I was loading some of Chico MacMurtrie's sculptures into the Art Institute there back in probably ninety two, ninety three.
+[00:01:04] Adam: Oh man, it was brutal. I was loading some of Chico MacMurtrie's sculptures into the Art Institute there back in probably '92, '93.
 
 [00:01:13] Will: Was it like? Did was it? Let me ask. I have I have some new perspective on cold. That I gained this weekend.
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:20:30] Norm: Yes.
 
-[00:20:31] Will: It's no, but it's a spectacular documentary, and it explains, like, it explains. It's it's almost like film school 100. Like like you're. It explains both editing history, like like why we no longer do establishing shots in the when somebody like when somebody changes venue in the 70s, you would always do an establish like in all the presidents men when Woodward and Bernstein go into the Washington Post, you have an exterior shot of the front door of the Washington Post that says the Washington Post there. We don't do that anymore because people know what a newsroom looks like, and if you see, say, Lois Lane and Clark Kent in a Superman movie sitting in the Daily Planet newsroom, we all know that that's a newsroom. It's a bunch of desks with computers on them and phones and like we they don't have to explain. Hey, the guys have returned to the to the newsroom anymore. Stuff like that, stuff like how you do cross cuts and stuff like that. All all of the things that it's kind of it's another thing like letting right. It's a thing that once you once you once you understand it and see how it happens, you'll see it everywhere and you'll be able to appreciate when it's awesome.
+[00:20:31] Will: It's no, but it's a spectacular documentary, and it explains, like, it explains. It's it's almost like film school 100. Like like you're. It explains both editing history, like like why we no longer do establishing shots in the when somebody like when somebody changes venue in the '70s, you would always do an establish like in all the presidents men when Woodward and Bernstein go into the Washington Post, you have an exterior shot of the front door of the Washington Post that says the Washington Post there. We don't do that anymore because people know what a newsroom looks like, and if you see, say, Lois Lane and Clark Kent in a Superman movie sitting in the Daily Planet newsroom, we all know that that's a newsroom. It's a bunch of desks with computers on them and phones and like we they don't have to explain. Hey, the guys have returned to the to the newsroom anymore. Stuff like that, stuff like how you do cross cuts and stuff like that. All all of the things that it's kind of it's another thing like letting right. It's a thing that once you once you once you understand it and see how it happens, you'll see it everywhere and you'll be able to appreciate when it's awesome.
 
 [00:21:32] Adam: It's totally true. And so, yeah, I was talking to the post supervisor, the the guy who'll be overseeing all the cutting of this show, came on to the set for the first few days, and we spent a lot of time talking. We share a lot of cultural commonalities. He's just about my age, from the same part of the country, from the East Coast, New York tri-state area, and that gave us a little bit of a shorthand with each other. But I also handed him my sketchbook and said, " Spend a couple of hours just flipping through the sketchbook. This will give you an idea of the way I approach my ideas and the way I approach what I'm working on, and that might be germane to how we how we do graphics in post. And if you want to scan any of this stuff, we can use that too.
 
@@ -690,7 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:33:32] Norm: Not great.
 
-[00:33:32] Will: After you get past the first five episodes, it gets it they like I so far of the first ten episodes, which I've watched, they've had maybe two episodes that feel like classic Trek, and then the rest of them feel like a war movie. It feels a little bit like a submarine movie a lot from like like S sixties like Run Silent, Run Deep, or no older than that.
+[00:33:32] Will: After you get past the first five episodes, it gets it they like I so far of the first ten episodes, which I've watched, they've had maybe two episodes that feel like classic Trek, and then the rest of them feel like a war movie. It feels a little bit like a submarine movie a lot from like like S '60s like Run Silent, Run Deep, or no older than that.
 
 [00:33:52] Adam: Older than that,
 
@@ -756,7 +756,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:35:59] Norm: Pulled it off.
 
-[00:36:00] Adam: Um, but Gene Hackman also comes out of comes out of that 1970s. I I feel like he's a direct result of the Cassavetes Revolution, where in the early 70s Hollywood started casting what they thought of as ugly people, like Dustin Hoffman,
+[00:36:00] Adam: Um, but Gene Hackman also comes out of comes out of that 1970s. I I feel like he's a direct result of the Cassavetes Revolution, where in the early '70s Hollywood started casting what they thought of as ugly people, like Dustin Hoffman,
 
 [00:36:16] Will: [unclear: in these / Yeah, the uglies].
 
@@ -850,7 +850,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:38:33] Will: I always wondered why you had a radiator in the shop because it's always cold as hell here.
 
-[00:38:36] Adam: We made so they'd shot in a they'd shot in a a landmark courtroom in New Orleans, and then they replicated that courtroom on Treasure Island for a bunch of extra scenes. And when they did the thirteen radiators that they that were in the original courtroom, it was it was cheaper to have us build them from scratch than it was to ship like eighteen hundred pounds of radiators from wherever they were around the country.
+[00:38:36] Adam: We made so they'd shot in a they'd shot in a a landmark courtroom in New Orleans, and then they replicated that courtroom on Treasure Island for a bunch of extra scenes. And when they did the thirteen radiators that they that were in the original courtroom, it was it was cheaper to have us build them from scratch than it was to ship like 1,800 pounds of radiators from wherever they were around the country.
 
 [00:38:36] Will: Wow.
 

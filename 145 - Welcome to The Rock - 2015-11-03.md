@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:19:44] Will: what was on it Creedence
 
-[00:19:44] Adam: I have no idea but the the my cameraman Soz and I did stretch it out to see how what the distance of a tape cassette was of a sixty minute tape cassette was and it wasn't as far as I thought it was like four hundred fifty feet
+[00:19:44] Adam: I have no idea but the the my cameraman Soz and I did stretch it out to see how what the distance of a tape cassette was of a sixty minute tape cassette was and it wasn't as far as I thought it was like 450 feet
 
 [00:19:57] Will: that's a lot
 

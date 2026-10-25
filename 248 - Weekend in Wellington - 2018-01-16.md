@@ -232,7 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:12:01] Norm: Ah,
 
-[00:12:01] Adam: when I first got there in nineteen ninety eight, the model shop was larger than it ever would be again. In my tenure at ILM,
+[00:12:01] Adam: when I first got there in 1998, the model shop was larger than it ever would be again. In my tenure at ILM,
 
 [00:12:09] Joey: And you guys were just cranking out the prequels, right? Those were
 

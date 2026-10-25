@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:10:07] Norm: Because they came in character. They came in character. They walked into the room, not just dressed and up as, but performing.
 
-[00:10:13] Ryan Kiser: Hundred percent. I mean, movements, that whole hand thing, which I can't emulate. I don't want to offend anybody by trying to, but I mean, it was just, and so now every time I look at somebody that's that's in cosplay, I don't see, you know, oh, that's somebody dressed up. I see somebody having the time of their life for that day.
+[00:10:13] Ryan Kiser: 100%. I mean, movements, that whole hand thing, which I can't emulate. I don't want to offend anybody by trying to, but I mean, it was just, and so now every time I look at somebody that's that's in cosplay, I don't see, you know, oh, that's somebody dressed up. I see somebody having the time of their life for that day.
 
 [00:10:13] Norm: Yeah.
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:11:04] Ryan Kiser: absolutely. And like you're talking about the expo, you know, and and you know, you know, we're kind of in this, you know, this box. You know, we we make stuff, we put it out, and we read comments. But like, you know, you get somebody that comes up, and and you know, we had all these props set up, and people like, I remember that video, I remember this video, and there's just the again, it's the genuine just love of just like, wow, I learned how to do this because of this, and like that's like priceless. Yeah. There's, I mean, the worst day in the world turned around after you know ten minutes with somebody from college. You know,
 
-[00:11:32] Adam: a hundred percent. I um I was I was it was a little rough having Totoro out of my house for a whole weekend. The weekend of the Crunchyroll Expo, I am really glad that like hundreds and hundreds of people got pictures with Totoro. Um, this Friday, my friend Stephen's band, the Morning Line, played a show at the Makeout Room, and was that Friday or Saturday? I'm thinking I can't honestly remember. It was one of those two days. Anyway, the Morning Line was. Fabulous! It was a great show. It was all our friends at the makeout room. We brought them all back to the house because, again, it was still eighty on the deck.
+[00:11:32] Adam: 100%. I um I was I was it was a little rough having Totoro out of my house for a whole weekend. The weekend of the Crunchyroll Expo, I am really glad that like hundreds and hundreds of people got pictures with Totoro. Um, this Friday, my friend Stephen's band, the Morning Line, played a show at the Makeout Room, and was that Friday or Saturday? I'm thinking I can't honestly remember. It was one of those two days. Anyway, the Morning Line was. Fabulous! It was a great show. It was all our friends at the makeout room. We brought them all back to the house because, again, it was still eighty on the deck.
 
 [00:12:07] Norm: Right.
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:28:03] Adam: can I tell you? I have a specific
 
-[00:28:05] Adam: pet peeve: is when your supervisor goes, " Oh, yeah, I know we're supposed to work till seven, but now it looks like we'll get out of here at four thirty." And you're like, " Oh my god! [unclear: Wow, that’s us / Wow, that sucks]" And then at like four, it's like, " Nope, we’re staying"
+[00:28:05] Adam: pet peeve: is when your supervisor goes, " Oh, yeah, I know we're supposed to work till seven, but now it looks like we'll get out of here at 4:30." And you're like, " Oh my god! [unclear: Wow, that’s us / Wow, that sucks]" And then at like four, it's like, " Nope, we’re staying"
 
 [00:28:18] Ryan Kiser: Oh, why would you do that?
 

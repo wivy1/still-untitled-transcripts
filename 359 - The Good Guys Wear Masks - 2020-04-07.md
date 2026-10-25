@@ -60,19 +60,19 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:05:25] Norm: rope and elastic, and you're just using shoelaces.
 
-[00:05:28] Adam: And elastic is a so the other thing that let's just talk about this for a second. And I don't want to pretend that I'm or we are authorities on this whatsoever. But if you are using a mask like this out in public, and these haven't been worn out in the field just yet. The real thing is, you don't want to be touching the mask with your hand if you don't have to. When you take the mask off, the outside is contagious; is potentially packed with contagion. You actually want to bake your masks in your oven at one hundred and fifty degrees every night, every or every time you use them. Actually, if you want to have real best practices.
+[00:05:28] Adam: And elastic is a so the other thing that let's just talk about this for a second. And I don't want to pretend that I'm or we are authorities on this whatsoever. But if you are using a mask like this out in public, and these haven't been worn out in the field just yet. The real thing is, you don't want to be touching the mask with your hand if you don't have to. When you take the mask off, the outside is contagious; is potentially packed with contagion. You actually want to bake your masks in your oven at 150 degrees every night, every or every time you use them. Actually, if you want to have real best practices.
 
 [00:06:07] Will: Um, you you can also steam them. Is my understanding? I think it's once you hit
 
 [00:06:10] Adam: Oh, really?
 
-[00:06:10] Will: one hundred and eighty degrees, then then your your problems are solved.
+[00:06:10] Will: 180 degrees, then then your your problems are solved.
 
 [00:06:15] Adam: But you can once you steam them, you have to dry them.
 
 [00:06:17] Will: Yeah, you want them dry. Um, it, it's the the maker stuff. It's a our mutual friend Jeff Solin, who I think you met at Ord Camp this year, is a teacher in Chicago, and he posted, uh, plans for a flat pack face shield. So we've seen a lot of 3D printer community building face shields, but throughput is or frames for face shields. Throughput's a real problem.
 
-[00:06:38] Adam: The maker community, the maker community, has been living up to its Apollo thirteen moment in every corner of the world. I mean the the group efforts and the tens and hundreds of thousands of 3D printers being commandeered around the world to in service of this has been really an inspiring story.
+[00:06:38] Adam: The maker community, the maker community, has been living up to its Apollo 13 moment in every corner of the world. I mean the the group efforts and the tens and hundreds of thousands of 3D printers being commandeered around the world to in service of this has been really an inspiring story.
 
 [00:06:56] Will: Well, so Jeff saw that, and he was one of multiple people. I know there's other people who've done something similar, but there he designed a, um, a flat pack laser cuttable face shield. Uh, that's that you could cut on a normal like your average mid range laser in about two minutes out of PTEG. What did I what did I say? A little PTEG anyway.
 
@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:12:10] Will: oh I watched that last night
 
-[00:12:10] Adam: our best friends have also been burning through it is so it is such dense comedy it's been activating my brain and reminding me of how great it was when it was first airing which was like oh seven oh eight am I right about that
+[00:12:10] Adam: our best friends have also been burning through it is so it is such dense comedy it's been activating my brain and reminding me of how great it was when it was first airing which was like '07 '08 am I right about that
 
 [00:12:27] Will: yeah that seems right it was it was when we were at Maximum PC still, back, uh, Norm.
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:19:49] Adam: I was just going to say there's a there's a a phrase, and I I'm not sure if I heard it in Buddhism in my in the Buddhism reading that I have done and do, but I sense that it does, and the phrase is this is what's happening, and that simple phrase has been incredibly stabilizing for me to be repeating during this. Uh, and it's not to say that I have been on an even keel the whole time. I've had some real emotional swings over the past few weeks, and it's all informed by, like I said, like we talked about at the beginning. Uh, and that that that acceptance, right? It, I mean, it happens. It happens when you're a new parent, too, right? Well, like you at first, you're just like, " Jesus Christ, this is unrelenting," and then you're like, " Man, I just unrelenting is the flavor. That's that's what we are. We're we're existing within unrelenting."
 
-[00:20:46] Will: Norm, you and I have talked about this, but there's a moment when your kid is like three, two or three months old, when you're like, " You're like, oh God, I I'm so tired," and then and then you you realize in your head that it's like this isn't gonna stop for the rest of your life, probably, but at least like a good ten, twenty years, and um, like you have to you have to get acceptance and resignation and and all you know, move through all the stages. Uh, the the thing we're finding is that days are both very very long and seem and then you look up and it's four four forty five or five o'clock, and like the individual moments are long. We're we're trying to live very much in the moment on the day to day. It helps having a seven year old around because having a short attention span human being in your life lets you lets you do that more often. Um, and and the nice thing I've, I like, I'm in a conveniently I'm in a position where like my business is slow right now, but I do have stuff that I have to do every day. So you know we're when I get my stuff done, then if I don't feel like I'm going to be productive, if I'm not in a productive headspace, I can go in and hang out with my kid, and we can do a puzzle or build some Lego or whatever together. Which which is you know it's a it's a small um it's a small uh you know bright side to an otherwise very grim time. So you find small comfort.
+[00:20:46] Will: Norm, you and I have talked about this, but there's a moment when your kid is like three, two or three months old, when you're like, " You're like, oh God, I I'm so tired," and then and then you you realize in your head that it's like this isn't gonna stop for the rest of your life, probably, but at least like a good ten, twenty years, and um, like you have to you have to get acceptance and resignation and and all you know, move through all the stages. Uh, the the thing we're finding is that days are both very very long and seem and then you look up and it's four 4:45 or five o'clock, and like the individual moments are long. We're we're trying to live very much in the moment on the day to day. It helps having a seven year old around because having a short attention span human being in your life lets you lets you do that more often. Um, and and the nice thing I've, I like, I'm in a conveniently I'm in a position where like my business is slow right now, but I do have stuff that I have to do every day. So you know we're when I get my stuff done, then if I don't feel like I'm going to be productive, if I'm not in a productive headspace, I can go in and hang out with my kid, and we can do a puzzle or build some Lego or whatever together. Which which is you know it's a it's a small um it's a small uh you know bright side to an otherwise very grim time. So you find small comfort.
 
 [00:22:09] Adam: We we we tried to build a puzzle, but I had to give up at the sky. It was like a vast white sky. I built I built 85% of the puzzle without looking at the box, and I never looked at the box. But the white sky just beat me. It defeated me.
 

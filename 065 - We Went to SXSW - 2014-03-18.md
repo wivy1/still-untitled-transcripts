@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:09:56] Adam: My first time.
 
-[00:09:57] Will: So it's. I used to go in the mid two thousands, which was already at that point. There were old timers going around. Man, South by is not the same anymore. We used to just go out to Bruce Sterling's house after the end of the show, and he'd talk for a while, and we'd all just get really shit faced and high out on the lake. But it's it's it's different. I mean, it's a lot bigger than it was even seven or eight years ago, and a lot like the tone of the event has changed a lot as a result. So it used to be the kind of place that you go, and at the end of a session or something, everybody would go out and like the speakers, and everybody would come and stand out in the hall, and you'd kind of chit chat. Oh, and then if you wanted to, you'd go get a beer or something in one of the bars down the street.
+[00:09:57] Will: So it's. I used to go in the mid 2000s, which was already at that point. There were old timers going around. Man, South by is not the same anymore. We used to just go out to Bruce Sterling's house after the end of the show, and he'd talk for a while, and we'd all just get really shit faced and high out on the lake. But it's it's it's different. I mean, it's a lot bigger than it was even seven or eight years ago, and a lot like the tone of the event has changed a lot as a result. So it used to be the kind of place that you go, and at the end of a session or something, everybody would go out and like the speakers, and everybody would come and stand out in the hall, and you'd kind of chit chat. Oh, and then if you wanted to, you'd go get a beer or something in one of the bars down the street.
 
 [00:09:57] Adam: That would never happen now?
 
@@ -404,17 +404,17 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:11:45] Will: Yeah, that's another conversation that started ten years, fifteen years ago.
 
-[00:11:48] Adam: It is. It is. It's the same conversation was happening when I lived on Twenty Second and Mission during the dot com boom in ninety six, ninety seven, ninety eight. And it is a mix of all of those things because San Francisco's housing policy is also really terrible and backwards.
+[00:11:48] Adam: It is. It is. It's the same conversation was happening when I lived on 22nd and Mission during the dot com boom in '96, '97, '98. And it is a mix of all of those things because San Francisco's housing policy is also really terrible and backwards.
 
 [00:12:03] Will: It's a real terrible mix of NIMBYism and complete failure to develop.
 
 [00:12:08] Adam: And again, another example where the the right idea, which is rent control, is executed in the worst way that benefits a small number of people but harms a much larger number of people.
 
-[00:12:21] Will: Well, and because a lot of times stuff like so, for example, the San Francisco rent control example is a great example because it was you know went into place in the what middle eighties, probably I mean initially probably in the sixties and then was updated in the eighties and then it's been static ever since. So rather than having rolling dates, for example, at the time I think the idea was that when something's been around for five or six years, it becomes rent controlled.
+[00:12:21] Will: Well, and because a lot of times stuff like so, for example, the San Francisco rent control example is a great example because it was you know went into place in the what middle '80s, probably I mean initially probably in the '60s and then was updated in the '80s and then it's been static ever since. So rather than having rolling dates, for example, at the time I think the idea was that when something's been around for five or six years, it becomes rent controlled.
 
 [00:12:21] Adam: Right.
 
-[00:12:21] Will: They just set a fixed start date of nineteen eighty or eighty two or something. Right.
+[00:12:21] Will: They just set a fixed start date of 1980 or eighty two or something. Right.
 
 [00:12:21] Adam: Yeah.
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:14:07] Will: And the Driskill is on
 
-[00:14:08] Norm: Sixth Street,
+[00:14:08] Norm: 6th Street,
 
 [00:14:10] Adam: yeah. And I was right there. Like I walked out onto my balcony at four p.m. and like all the pedicab drivers were like, " Hey, Adam!" and like you know, lifting their shirts.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:15:42] Norm: These are bars.
 
-[00:15:43] Adam: And the Ginger Man in New York is actually a bar slash restaurant that my father used to be a part owner of back in the late fifties and early sixties.
+[00:15:43] Adam: And the Ginger Man in New York is actually a bar slash restaurant that my father used to be a part owner of back in the late '50s and early '60s.
 
 [00:15:43] Norm: Wow.
 
@@ -688,7 +688,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:21:17] Will: Yes,
 
-[00:21:17] Norm: with all pretty good actors. Total low budget indie film about a life on a space station, as if it was a space station envisioned in the 1976 in the 70s.
+[00:21:17] Norm: with all pretty good actors. Total low budget indie film about a life on a space station, as if it was a space station envisioned in the 1976 in the '70s.
 
 [00:21:30] Will: So like, is it like a toroid?
 

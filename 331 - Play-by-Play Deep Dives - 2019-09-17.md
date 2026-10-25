@@ -1042,7 +1042,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:42:01] Norm: They have that.
 
-[00:42:01] Adam: so they've released a compendium of Dark Knight in large in a larger format, like forty percent larger.
+[00:42:01] Adam: so they've released a compendium of Dark Knight in large in a larger format, like 40% larger.
 
 [00:42:07] Will: I have the Sandman absolutes that are repainted, yeah,
 
@@ -1104,11 +1104,11 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:43:39] Adam: dude.
 
-[00:43:40] Norm: If you have an Oculus Quest or Go, you can download it now. It's called Adam Savage's Tested VR. It's free, and you can watch amazing three six or three D one eighty degree videos of makers that we traveled to their spaces and documented their projects. But we're going to do a big podcast in the future talking about the making of it.
+[00:43:40] Norm: If you have an Oculus Quest or Go, you can download it now. It's called Adam Savage's Tested VR. It's free, and you can watch amazing three six or 3D 180 degree videos of makers that we traveled to their spaces and documented their projects. But we're going to do a big podcast in the future talking about the making of it.
 
-[00:43:57] Adam: Yeah, just to briefly sell it, this came about from an experiment that Norman and I did here in the here at Tested about a year ago, and we were blown away. Both of us being aficionados of watching people build stuff, we were blown away by the intimacy that three D VR brought to watching a maker go through their paces. And this video series just it exceeds all of our expectations. It's we're so happy and proud of it.
+[00:43:57] Adam: Yeah, just to briefly sell it, this came about from an experiment that Norman and I did here in the here at Tested about a year ago, and we were blown away. Both of us being aficionados of watching people build stuff, we were blown away by the intimacy that 3D VR brought to watching a maker go through their paces. And this video series just it exceeds all of our expectations. It's we're so happy and proud of it.
 
-[00:44:21] Will: You guys made Joey shot the best three D video I've ever seen.
+[00:44:21] Will: You guys made Joey shot the best 3D video I've ever seen.
 
 [00:44:25] Adam: Not only that, I said this last night at the event, and this is also just worth saying as a sign off. Like in film school. You study Sergei Eisenstein's Potemkin Steps sequence, and if you don't know about it, go ahead and Google it because you can get a walkthrough of it. Because it was one of the very first times anyone had tried a jump cut to explain action. This is the beginning of film language. We didn't know that you could do this, and your brain would plug in the in-between part. They just didn't. They were inventing it as they went. And Joey, and along with Eric Cheng, did a tremendous amount of brand new narrative storytelling in a new medium in order to figure like how do you do close-ups in VR?
 

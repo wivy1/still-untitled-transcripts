@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:15:46] Will: But but but do people just send you an extension number and you go pick up a phone and dial it?
 
-[00:15:50] Ariel: Yeah, so you have a phone like a old school phone in your dorm. You have an old school phone in your office. For me, I had a lab also, so I had an old school phone in my lab, and so all of those have extension numbers. And so then, yeah, if someone needed to reach me and they couldn't reach me at the exact time at the phone, then they would have to page me, and then I would have to go. Looking for a phone to call them back because there's no there's no cellular service. So yeah, a lot of things are very 90s era tech.
+[00:15:50] Ariel: Yeah, so you have a phone like a old school phone in your dorm. You have an old school phone in your office. For me, I had a lab also, so I had an old school phone in my lab, and so all of those have extension numbers. And so then, yeah, if someone needed to reach me and they couldn't reach me at the exact time at the phone, then they would have to page me, and then I would have to go. Looking for a phone to call them back because there's no there's no cellular service. So yeah, a lot of things are very '90s era tech.
 
 [00:15:50] Unknown speaker: I love it.
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:18:36] Will: No. When he was on tour. What, I mean, so you pack your clothes, you pack your science gear. How how much? Like, do you have a weight? I assume you have a weight allowance because you have to come in by plane, right? Yeah. What What is it? How much? How much can you carry?
 
-[00:18:50] Ariel: Yeah, so if you don't have an excess baggage allowance, I think it's like only like eighty five pounds, which you know, and a lot of people are there for months, and no, it's not.
+[00:18:50] Ariel: Yeah, so if you don't have an excess baggage allowance, I think it's like only like 85 pounds, which you know, and a lot of people are there for months, and no, it's not.
 
 [00:19:02] Will: Like a backpacking
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:24:06] Will: yeah, thousand year old water, yeah, yeah, untouched by human human chemicals. Um, what uh, what like in the base is it is it cold? Like, is the base like are you walking around in heavy sweaters and boots and all that inside?
 
-[00:24:17] Ariel: So around McMurdo, as I said, like McMurdo's. Pretty comfortable. So I got there, you know, at the start of summer, and it was definitely there were days where it was just like really cold, and the wind always affects how cold it is, a hundred percent. So, but towards the end, so over a five weeks span, it went from, you know, the ground being utterly frozen and really cold, just miserable days, to at the end of the five weeks, like there was water on the ground and sun is out, and like everything's melting, and so you definitely got the sense of oh yeah, this is summer in Antarctica, and and when it is that warm, some people, not me, but some people consider it t-shirt weather, just because when there's no wind, even when it, so it's like if there's no wind and it's like twenty degrees Fahrenheit and there's sun, like it's actually not that bad. So wind affects everything, and and but you know most of the time, you know, you don't have to wear a big red parka just to dart between buildings and everything. You can just wear. Jeans or whatever.
+[00:24:17] Ariel: So around McMurdo, as I said, like McMurdo's. Pretty comfortable. So I got there, you know, at the start of summer, and it was definitely there were days where it was just like really cold, and the wind always affects how cold it is, 100%. So, but towards the end, so over a five weeks span, it went from, you know, the ground being utterly frozen and really cold, just miserable days, to at the end of the five weeks, like there was water on the ground and sun is out, and like everything's melting, and so you definitely got the sense of oh yeah, this is summer in Antarctica, and and when it is that warm, some people, not me, but some people consider it t-shirt weather, just because when there's no wind, even when it, so it's like if there's no wind and it's like twenty degrees Fahrenheit and there's sun, like it's actually not that bad. So wind affects everything, and and but you know most of the time, you know, you don't have to wear a big red parka just to dart between buildings and everything. You can just wear. Jeans or whatever.
 
 [00:25:17] Will: It's pretty dry, right? So you're not. It's
 

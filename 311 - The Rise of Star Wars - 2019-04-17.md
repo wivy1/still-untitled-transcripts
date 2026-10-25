@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:04:17] Will: Gareth Edwards. Sorry,
 
-[00:04:18] Norm: yes. Uh, and I think fans of classic Godzilla. I mean, Godzilla has so many forms. There's been modern takes in Godzilla, Godzilla two thousand Shin Godzilla,
+[00:04:18] Norm: yes. Uh, and I think fans of classic Godzilla. I mean, Godzilla has so many forms. There's been modern takes in Godzilla, Godzilla 2000 Shin Godzilla,
 
 [00:04:18] Jeremy: right?
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:05:31] Jeremy: Well, that's the good one.
 
-[00:05:33] Norm: Did you let you borrow the four K HDR Blu Ray disc?
+[00:05:33] Norm: Did you let you borrow the 4K HDR Blu Ray disc?
 
 [00:05:35] Jeremy: Did you see the Dark Crystal?
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:09:13] Norm: Exactly, it's a double header.
 
-[00:09:14] Will: Twice the Will, zero percent of the Adam.
+[00:09:14] Will: Twice the Will, 0% of the Adam.
 
 [00:09:17] Norm: Wow, that's right.
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:11:18] Norm: Start from scratch, and so he and Chris Terrio, who was co-writer on Justice League and Argo, to be fair,
 
-[00:11:18] Unknown (Will or Jeremy): Fifty percent ain’t bad.
+[00:11:18] Unknown (Will or Jeremy): 50% ain’t bad.
 
 [00:11:18] Norm: wrote
 

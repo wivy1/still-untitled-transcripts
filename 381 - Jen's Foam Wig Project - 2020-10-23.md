@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=EEgc5m5LWPk
 
 [00:09:16] Adam: When, uh, when I'm working with a new material, there's frequently like when I start to when I take a look at that first aesthetic assembly, that's when it is so far from what I was intending that I'm like I don't even know where to begin with how crappy I've made this thing. Is that sort of like what you're describing, pulling it in from there?
 
-[00:09:34] Jen: A hundred percent. Yeah, when you're starting to see like the layers are on, so you're starting to get an idea of like what's the silhouette, what is the what is this going to be? And it's it was I'm looking at my reference and I'm looking at this thing and I'm like this is not this is not work at all.
+[00:09:34] Jen: 100%. Yeah, when you're starting to see like the layers are on, so you're starting to get an idea of like what's the silhouette, what is the what is this going to be? And it's it was I'm looking at my reference and I'm looking at this thing and I'm like this is not this is not work at all.
 
 [00:09:48] Adam: Yeah.
 
@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=EEgc5m5LWPk
 
 [00:11:24] Adam: Right. It's like it's like you're figuring out out a way to communicate to your own eye the story of what the wig is telling, right?
 
-[00:11:32] Jen: Yeah, a hundred percent. And it's funny how much that translates across so many different design processes. It's like it applies for a sculpture. It applies for a logo. Anything you're making, like it's like when you when you design something in black and white before you do it in color because you want to see that the the form reads as what it's supposed to read as. Yeah, I learned a ton, and also, I mean, I'm sure you can both relate to this, but like learning a new process and a new material on camera while while trying to tell a cohesive story was like ah.
+[00:11:32] Jen: Yeah, 100%. And it's funny how much that translates across so many different design processes. It's like it applies for a sculpture. It applies for a logo. Anything you're making, like it's like when you when you design something in black and white before you do it in color because you want to see that the the form reads as what it's supposed to read as. Yeah, I learned a ton, and also, I mean, I'm sure you can both relate to this, but like learning a new process and a new material on camera while while trying to tell a cohesive story was like ah.
 
 [00:12:04] Norm: I was gonna say yeah, as someone who's gone through footage of. Both of you who filmed yourselves
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=EEgc5m5LWPk
 
 [00:14:26] Adam: Amazing.
 
-[00:14:26] Jen: But I thought I. I kind of tried to tie in the color scheme, and I felt like there, there's. I could have gone 18th century with a big hoop dress, but I was like, whatever. I'm going to be doing. I'm going to be doing on Zoom. No one's going to see the bottom part of this, so I need. I need drama at the top, and I thought it'd be a great kind of mashup to do 18th century Versailles with 80s glam rock, and I thought that was a great. That was a great mashup. So that's what I went for.
+[00:14:26] Jen: But I thought I. I kind of tried to tie in the color scheme, and I felt like there, there's. I could have gone 18th century with a big hoop dress, but I was like, whatever. I'm going to be doing. I'm going to be doing on Zoom. No one's going to see the bottom part of this, so I need. I need drama at the top, and I thought it'd be a great kind of mashup to do 18th century Versailles with '80s glam rock, and I thought that was a great. That was a great mashup. So that's what I went for.
 
 [00:14:50] Adam: As Sofia Coppola demonstrated, I think they're closer than most people realize.
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=EEgc5m5LWPk
 
 [00:25:54] Jen: Yeah, there's like it's like little vignettes. Like you're creating these little. Areas of look over here. Now look over, over there. And moods for the whole space. There's one. Speaking of museums, I think I've mentioned this once before. There is a one of my favorite museum displays of all time is in the Museum of Natural History in New York, and it's a it's a whole wall. It's probably like two stories tall, and it's a it's sort of like a frosted acrylic with a whole like taxidermied animals. So it— and it's it's they're all organized like it'll be like a turtle and then a smaller turtle and a smaller one and a smaller one. So it's this very sort of organized taxonomy of things, and it's all backlit just by this diffused white glowing wall. So it's like it's silhouettes, but you can they're also lit from the front, and it's it's so beautiful and so satisfying in this like, mm, organized way of I don't know of looking at something, but I I've wanted to recreate that. I don't quite know how, but I've wanted to recreate that like organization of things backlit with the labels, and it's just it's it's such a phenomenal display. I've taken so many pictures of it.
 
-[00:27:02] Adam: Um, That type of inspiration it will follow you for your whole life. I can guarantee you. I, I will tell you that the the lit cabinets here in the cave are all inspired by a nightclub in New York in the mid eighties called MK, and it was built into a former bank building right off of Twenty Third and Broadway in New York. It was a super hot club. You can actually see it. Christopher Walken has dinner in it in the movie The King of New York by Abel Ferrara, um, and MK the coat check room was the old vault of the bank, so it was like one of those huge round doors
+[00:27:02] Adam: Um, That type of inspiration it will follow you for your whole life. I can guarantee you. I, I will tell you that the the lit cabinets here in the cave are all inspired by a nightclub in New York in the mid '80s called MK, and it was built into a former bank building right off of 23rd and Broadway in New York. It was a super hot club. You can actually see it. Christopher Walken has dinner in it in the movie The King of New York by Abel Ferrara, um, and MK the coat check room was the old vault of the bank, so it was like one of those huge round doors
 
 [00:27:38] Unknown speaker (possibly Norm): Yeah, yeah.
 

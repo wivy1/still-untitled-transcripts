@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:04:05] Adam: fourteen years ago, maybe. I
 
-[00:04:06] Will: way back in two thousand five.
+[00:04:06] Will: way back in 2005.
 
 [00:04:07] Adam: Way back, I had dinner with Don Herbert, the original Mister Wizard.
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:04:53] Norm: war zone.
 
-[00:04:54] Will: Yeah. What did you think? I would describe it as like Baghdad in like nineteen ninety three, the night of the invasion.
+[00:04:54] Will: Yeah. What did you think? I would describe it as like Baghdad in like 1993, the night of the invasion.
 
 [00:05:00] Adam: How did How did Ripley do?
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:07:57] Unknown speaker: It’s got to be close to ten.
 
-[00:07:57] Adam: It's my eighth. I think two thousand and eight was my very first one.
+[00:07:57] Adam: It's my eighth. I think 2008 was my very first one.
 
 [00:08:01] Will: This is nine.
 
@@ -322,13 +322,13 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:10:17] Adam: No, they don't. It's freaking me out, man.
 
-[00:10:19] Will: Did you go down one hundred and one?
+[00:10:19] Will: Did you go down 101?
 
 [00:10:19] Adam: We did.
 
-[00:10:19] Will: Did you go down five?
+[00:10:19] Will: Did you go down 5?
 
-[00:10:21] Adam: No, we took one hundred and one.
+[00:10:21] Adam: No, we took 101.
 
 [00:10:22] Will: Man, that is such an awesome drive,
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:19:16] Will: That's pretty cool.
 
-[00:19:16] Adam: Yeah, um, I'm I'm totally so. You know, to me, it's just like I wake up. It's like seven thirty every morning and going until two or three every night. Um, I am on a sci-fi panel about science fiction in general that will be uh, hosted by John Hodgman, Oh,
+[00:19:16] Adam: Yeah, um, I'm I'm totally so. You know, to me, it's just like I wake up. It's like 7:30 every morning and going until two or three every night. Um, I am on a sci-fi panel about science fiction in general that will be uh, hosted by John Hodgman, Oh,
 
 [00:19:16] Unknown speaker: Wow.
 

@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:24:18] Will: Oh, yeah.
 
-[00:24:18] Adam: He looked for a thing that was lucky and. Symbolized food, you threw it in the pot, and in ten minutes, you gave you seventy ten minutes of boiling in the pot gave you seventy percent of your day's needs of iron, Oh, and it eliminated anemia.
+[00:24:18] Adam: He looked for a thing that was lucky and. Symbolized food, you threw it in the pot, and in ten minutes, you gave you seventy ten minutes of boiling in the pot gave you 70% of your day's needs of iron, Oh, and it eliminated anemia.
 
 [00:24:32] Will: That's amazing!
 

@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:12:15] Norm: Oh wow!
 
-[00:12:17] Adam: So Joey does that with the sword, and Peter goes, " Yeah, that's um, it's quite a thing to do with a forty thousand dollar sword,
+[00:12:17] Adam: So Joey does that with the sword, and Peter goes, " Yeah, that's um, it's quite a thing to do with a 40,000 dollar sword,
 
 [00:12:24] Norm: at least. Yeah.
 
@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:15:42] Will: Oh, that's so good!
 
-[00:15:42] Adam: It's amazing. And FONCO FON Davis built one. I contributed a little R two D two head to it. It was.
+[00:15:42] Adam: It's amazing. And FONCO FON Davis built one. I contributed a little R2-D2 head to it. It was.
 
 [00:15:49] Norm: A lot of our friends in the builder community, you know,
 

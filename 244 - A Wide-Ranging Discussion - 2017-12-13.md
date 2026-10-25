@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:02:14] Will: I can imagine.
 
-[00:02:14] Adam: my crew. I will tell you, this was the gold standard crew I have ever toured with. People, most of them have been with me on and off since two thousand and twelve.
+[00:02:14] Adam: my crew. I will tell you, this was the gold standard crew I have ever toured with. People, most of them have been with me on and off since 2012.
 
 [00:02:14] Unknown speaker: Wow.
 
@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:03:03] Will: and pretty much the world ends. I mean, there's there's there's no coming back from that. It's all over.
 
-[00:03:18] Adam: My dad. My dad went to high school in the thirty in the thirties and forties in Texas, and he said at one point it snowed and everyone lost their mind.
+[00:03:18] Adam: My dad. My dad went to high school in the thirty in the '30s and '40s in Texas, and he said at one point it snowed and everyone lost their mind.
 
 [00:03:29] Will: It's like when it snows here, except for there, it sometimes gets cold enough to actually stick.
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:07:15] Norm: I think it's a testament to how bad cell phone battery life has been, and so people can't they don't trust having cameras and their phones powered on. You know,
 
-[00:07:22] Adam: here's how bad cell phone battery life is. Every single meet and greet, somebody's phone is at one percent.
+[00:07:22] Adam: here's how bad cell phone battery life is. Every single meet and greet, somebody's phone is at 1%.
 
 [00:07:28] Norm: That's great. It's end of day,
 
@@ -486,9 +486,9 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:20:43] Norm: easy sous vide. Yeah, all you need is your app.
 
-[00:20:46] Will: You put you put a hundred and twenty watt light bulb instead of the sixty in there, and man, that thing cranks up to five hundred.
+[00:20:46] Will: You put you put a 120 watt light bulb instead of the sixty in there, and man, that thing cranks up to five hundred.
 
-[00:20:50] Adam: You're reminding me of an old Doonesbury joke. Tonight, the role of Jesus will be played by a twenty-five. The role of baby Jesus will be played by a twenty-five watt light bulb.
+[00:20:50] Adam: You're reminding me of an old Doonesbury joke. Tonight, the role of Jesus will be played by a twenty-five. The role of baby Jesus will be played by a 25 watt light bulb.
 
 [00:21:02] Norm: This past weekend. To get into the spirit, we went to, and I want to give a recommendation to the Dickens Fair.
 
@@ -948,7 +948,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:34:06] Norm: Yes, is is write and direct a film,
 
-[00:34:08] Will: made a fifty thousand dollar film for six million dollars.
+[00:34:08] Will: made a 50,000 dollar film for 6,000,000 dollars.
 
 [00:34:10] Norm: That's true. Also, yeah, yeah,
 

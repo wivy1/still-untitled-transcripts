@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:01:01] Unknown (Adam or Will): if I've ever heard this one.
 
-[00:01:01] Adam: Okay, so this is it's from a long, long, long time ago. I mean, like maybe the late nineties. And she has Ice T on, and she's talking to him, and he's super smart, right? He's, I mean, a brilliant creator, and also like really, really able to talk about the cultural impact and the reasons and the, you know, I love hearing Ice T talk about.
+[00:01:01] Adam: Okay, so this is it's from a long, long, long time ago. I mean, like maybe the late '90s. And she has Ice T on, and she's talking to him, and he's super smart, right? He's, I mean, a brilliant creator, and also like really, really able to talk about the cultural impact and the reasons and the, you know, I love hearing Ice T talk about.
 
 [00:01:25] Adam: this stuff.
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:11:09] Norm: Okay.
 
-[00:11:09] Adam: To find out, though, I get downstairs to find out that my driver has left. Then he stayed until six thirty and then left.
+[00:11:09] Adam: To find out, though, I get downstairs to find out that my driver has left. Then he stayed until 6:30 and then left.
 
 [00:11:18] Norm: But no one reached up to wake you up. No one.
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:12:29] Adam: still not as fast as
 
-[00:12:29] Will: one point three times.
+[00:12:29] Will: 1.3 times.
 
 [00:12:29] Adam: So I'm running the whole way. I'm running down the escalator,
 
@@ -732,23 +732,23 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:27:18] Adam: perfect pair of terms,
 
-[00:27:19] Will: and like, like everything from like I was watching even his delivery, he he does like a fifties inspired screwball wind up where he looks up at the sky and then just wangs him out there.
+[00:27:19] Will: and like, like everything from like I was watching even his delivery, he he does like a '50s inspired screwball wind up where he looks up at the sky and then just wangs him out there.
 
 [00:27:28] Unknown speaker: Yeah,
 
 [00:27:29] Norm: well, it's Hudsucker Proxy, yeah, it's his character. It
 
-[00:27:31] Will: is, yeah. I mean, it's it's kind of the same character as Hudsucker Proxy. Yeah. Um, but the the Hudsucker Proxy guy had a vision, and I think that Nuke LaLoosh has is an empty vessel, um, which Kevin Costner pours all of the knowledge into, and it's just a lovely story that everybody holds their own in that movie. The sexual politics of the mid eighties, yeah,
+[00:27:31] Will: is, yeah. I mean, it's it's kind of the same character as Hudsucker Proxy. Yeah. Um, but the the Hudsucker Proxy guy had a vision, and I think that Nuke LaLoosh has is an empty vessel, um, which Kevin Costner pours all of the knowledge into, and it's just a lovely story that everybody holds their own in that movie. The sexual politics of the mid '80s, yeah,
 
 [00:27:51] Adam: they don't, they don't, they, they, it's yeah, well, it just wouldn't have been made that way today.
 
-[00:27:57] Will: Well, the thing that I realized about that movie is it's it's like I I feel like they said it in like the late seventies when it was made in the mid eighties.
+[00:27:57] Will: Well, the thing that I realized about that movie is it's it's like I I feel like they said it in like the late '70s when it was made in the mid '80s.
 
 [00:28:07] Adam: Yeah,
 
-[00:28:07] Will: like if you look at like the buses are those kind of curved top seventies designs, the cars are all. 50s, 60s, and 70s cars.
+[00:28:07] Will: like if you look at like the buses are those kind of curved top '70s designs, the cars are all. '50s, '60s, and '70s cars.
 
-[00:28:14] Adam: But I think five years ago in the mid 80s was what the coastal cities thought of the Midwest.
+[00:28:14] Adam: But I think five years ago in the mid '80s was what the coastal cities thought of the Midwest.
 
 [00:28:20] Will: Oh,
 
@@ -804,7 +804,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:29:48] Norm: He didn't. I know Jim Lovell wanted him to play.
 
-[00:29:50] Adam: The thing is, is that Jim Lovell during Apollo thirteen looked exactly like
+[00:29:50] Adam: The thing is, is that Jim Lovell during Apollo 13 looked exactly like
 
 [00:29:55] Adam: Kevin Costner.
 
@@ -928,7 +928,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:33:41] Norm: Yeah. Yeah. I mean, they're all kind of that Hudsucker Proxy comic book. Like they're they are pulp comic characters.
 
-[00:33:47] Will: Forties, reminiscing of the forties.
+[00:33:47] Will: '40s, reminiscing of the '40s.
 
 [00:33:50] Norm: Yes,
 
@@ -1018,7 +1018,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:35:14] Norm: There's amazing incognito that we'll have the the videos for shortly after.
 
-[00:35:20] Adam: Sorry, actually, and I have a bit of housekeeping to do. Next Friday I am doing a New York Comic Con event, small, three hundred people only. Friday at four thirty as part of Anime Fest.
+[00:35:20] Adam: Sorry, actually, and I have a bit of housekeeping to do. Next Friday I am doing a New York Comic Con event, small, three hundred people only. Friday at 4:30 as part of Anime Fest.
 
 [00:35:31] Norm: Yeah,
 
@@ -1072,7 +1072,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:36:52] Adam: Saturday afternoon. Sorry,
 
-[00:36:53] Norm: three thirty p.m.
+[00:36:53] Norm: 3:30 p.m.
 
 [00:36:54] Will: That's awesome.
 
@@ -1080,7 +1080,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:36:56] Will: And walking, you're doing costume walks.
 
-[00:36:58] Adam: I am doing costume walks. I'm doing more than one. I'm doing one with a friend early on the con, and then I'm doing an official one, which is actually ninety percent ready.
+[00:36:58] Adam: I am doing costume walks. I'm doing more than one. I'm doing one with a friend early on the con, and then I'm doing an official one, which is actually 90% ready.
 
 [00:37:07] Will: It looks really good.
 

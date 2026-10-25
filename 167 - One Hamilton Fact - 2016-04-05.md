@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:02:48] Will: yeah, that's where I go to get my beans because I don't have a Ritual in my neighborhood.
 
-[00:02:51] Adam: Yes, so I go back and forth between Ritual and Stanza on Sixteenth Street. And at Ritual, this guy came up to me and he goes. I'm a big fan, and I said, " Oh, thank you very much." And he said, " I'm listening to your podcast right now."
+[00:02:51] Adam: Yes, so I go back and forth between Ritual and Stanza on 16th Street. And at Ritual, this guy came up to me and he goes. I'm a big fan, and I said, " Oh, thank you very much." And he said, " I'm listening to your podcast right now."
 
 [00:03:06] Will: Well, that is that has never happened.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:06:57] Adam: That's fantastic.
 
-[00:06:57] Will: So, what what we built, what we're building, is a framework for creating. Lightly interactive television like content that that lives in VR. It's three D rendered that you can interact with. There’s video, people have captured some videos, so you can go look at them. But the first show is the Foo Show. It's featuring me, and I interview people who make cool things, as we have in the past. And the first people I talked to are these guys, Jake Rodkin and Sean Vanaman from Campo Santo. They made a little adventure game. It's not they made an indie adventure game called Firewatch. And in Firewatch, you are this guy who's kind of running away from problems in his life, and he goes to be a fire watch guy in the Wyoming woods in the late eighties. So, so like you spend a lot of time in this watchtower that's a little fourteen by fourteen foot box on the top of a really high stilts, and you walk around this environment. You it's basically you walk in the woods, and then sometimes mysterious stuff happens in the woods.
+[00:06:57] Will: So, what what we built, what we're building, is a framework for creating. Lightly interactive television like content that that lives in VR. It's 3D rendered that you can interact with. There’s video, people have captured some videos, so you can go look at them. But the first show is the Foo Show. It's featuring me, and I interview people who make cool things, as we have in the past. And the first people I talked to are these guys, Jake Rodkin and Sean Vanaman from Campo Santo. They made a little adventure game. It's not they made an indie adventure game called Firewatch. And in Firewatch, you are this guy who's kind of running away from problems in his life, and he goes to be a fire watch guy in the Wyoming woods in the late '80s. So, so like you spend a lot of time in this watchtower that's a little fourteen by fourteen foot box on the top of a really high stilts, and you walk around this environment. You it's basically you walk in the woods, and then sometimes mysterious stuff happens in the woods.
 
 [00:07:52] Adam: I heard about this game. It sounds fascinating.
 

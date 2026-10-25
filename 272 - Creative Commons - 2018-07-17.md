@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:06:29] Adam: it's all it's all a jumble in my head now. After all that research.
 
-[00:06:31] Norm: The terrible Shining remake, the TV movie in the 90s was shot.
+[00:06:31] Norm: The terrible Shining remake, the TV movie in the '90s was shot.
 
 [00:06:37] Unknown speaker (Adam or Norm): Oh yeah,
 
@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:06:54] Adam: totally fine.
 
-[00:06:54] Will: Yeah, it's totally fine. Like it happened with two thousand one. I mean, even though that was a that was a co-written product, Arthur C. Clarke always said he preferred the the book. I believe after after
+[00:06:54] Will: Yeah, it's totally fine. Like it happened with 2001. I mean, even though that was a that was a co-written product, Arthur C. Clarke always said he preferred the the book. I believe after after
 
 [00:07:03] Unknown speaker (Adam or Will): Interesting. Different mediums.
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:13:29] Adam: Yeah.
 
-[00:13:29] Will: For like ninety percent of them, like just the stylistic choices they made about making them kind of gray-skinned and making their proportions intentionally dysmorphic. Um, but there were a couple of bits in there that were profoundly awesome, including I don't want to spoil it because it was actually one of my favorite parts of the film, but. It was something that's close to I think everyone here.
+[00:13:29] Will: For like 90% of them, like just the stylistic choices they made about making them kind of gray-skinned and making their proportions intentionally dysmorphic. Um, but there were a couple of bits in there that were profoundly awesome, including I don't want to spoil it because it was actually one of my favorite parts of the film, but. It was something that's close to I think everyone here.
 
 [00:13:48] Adam: All right, I will. Yeah, I'm looking forward to it.
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:13:56] Adam: Well, and this is the thing: It's like, even if you don't like, but like, even Spielberg's, even the movies of Spielberg's that I don't like are masterpiece, are masterfully put together, like Soderbergh, like Michael Mann.
 
-[00:14:07] Will: Yeah. Well, and and so in this, like, they got through the first ten or fifteen minutes were the nostalgia part that was interesting on the first read of the book and insufferable on every subsequent visit through. And and I thought it was really like he got that out of the way up front, and then it was just kind of like it was there in the background if you wanted to go in and frame by frame see what all the characters were, but it wasn't. It wasn't a hey, look at my Delorean with the Knight Rider flashy lights and the R two D two on the back,
+[00:14:07] Will: Yeah. Well, and and so in this, like, they got through the first ten or fifteen minutes were the nostalgia part that was interesting on the first read of the book and insufferable on every subsequent visit through. And and I thought it was really like he got that out of the way up front, and then it was just kind of like it was there in the background if you wanted to go in and frame by frame see what all the characters were, but it wasn't. It wasn't a hey, look at my Delorean with the Knight Rider flashy lights and the R2-D2 on the back,
 
 [00:14:35] Norm: Right, right. It showed.
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:15:18] Norm: Oh, wow!
 
-[00:15:18] Adam: And then walks you through all the different aspects of the industrial revolution and twentieth-century manufacturing that yielded the final product, and it's it's it's riveting and really really a lovely read.
+[00:15:18] Adam: And then walks you through all the different aspects of the industrial revolution and 20th-century manufacturing that yielded the final product, and it's it's it's riveting and really really a lovely read.
 
 [00:15:32] Norm: If you are interested, you did a conversation with him at the Exploratorium.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:18:32] Will: Okay.
 
-[00:18:32] Adam: And it was so understand to remind you, I grew up with an animator. My dad was an animator and did interstitials for Sesame Street. So I grew up with many animators and understanding deeply the process, cell animation, hand painting. I understood That and I could see that that was the process being used here, and yet these vistas and these moving cityscapes that looked three D. And it was when the that in the first fight with the clowns when the taillights drag.
+[00:18:32] Adam: And it was so understand to remind you, I grew up with an animator. My dad was an animator and did interstitials for Sesame Street. So I grew up with many animators and understanding deeply the process, cell animation, hand painting. I understood That and I could see that that was the process being used here, and yet these vistas and these moving cityscapes that looked 3D. And it was when the that in the first fight with the clowns when the taillights drag.
 
 [00:19:00] Will: Oh yeah.
 
@@ -870,7 +870,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:37:46] Adam: because he was like, right in traffic.
 
-[00:37:48] Will: We were walking down Sixth Street, and and just all of a sudden, I was like, " What's that weird sound?" And then all of a sudden, millions of them rambling by,
+[00:37:48] Will: We were walking down 6th Street, and and just all of a sudden, I was like, " What's that weird sound?" And then all of a sudden, millions of them rambling by,
 
 [00:37:56] Adam: amazing.
 

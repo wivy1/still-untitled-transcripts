@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:23:56] Jen: I'll I'll check that out. I did get dim sum last weekend off of. I'm trying to think. It's like 24th Street, and I've wandered around Valencia a little bit. Um, there, yeah, there's So much good food here.
 
-[00:24:08] Adam: Ooh, ooh, Shizen vegan sushi on Fourteenth and Valencia. S H I Z E N.
+[00:24:08] Adam: Ooh, ooh, Shizen vegan sushi on 14th and Valencia. S H I Z E N.
 
 [00:24:08] Jen: I've heard about this.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:29:41] Jen: I haven't seen it yet.
 
-[00:29:41] Adam: Really uniquely different film than the right stuff or Apollo thirteen. It's a much more internal film, and it deals much more with the emotional aspects of the partnership between Neil and his wife, who's an amazing character played by Claire Foy, and also it's the one film that kind of. That really communicates how rickety, a lot of the stuff they were doing was. You know how tiny those capsules were, and how how touch and go it was.
+[00:29:41] Adam: Really uniquely different film than the right stuff or Apollo 13. It's a much more internal film, and it deals much more with the emotional aspects of the partnership between Neil and his wife, who's an amazing character played by Claire Foy, and also it's the one film that kind of. That really communicates how rickety, a lot of the stuff they were doing was. You know how tiny those capsules were, and how how touch and go it was.
 
 [00:30:10] Norm: I think Hollywood Reporter just did a small video story on Ryan Nagata's costume.
 

@@ -250,7 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:10:19] Adam: I and it's basically all the shitty, awful messages people get from people who are stealing their stuff. Yeah. So this is you reach out to someone on Instagram and say, " Hey, you're posting this without attribution. It's mine." And they get like, " F you, you stupid! You're just an artist, and I’m giving you exposure. You should give it to me for free."
 
-[00:10:38] Will: The Mark Frauenfelder posted a great one the other day that was like the whole dialogue from, " Hey, I'd like to commission a print." To fuck you, no, two hundred fifty dollars is too much. It's for my kid dying of cancer, and he's like, " Okay, well, if your kid's dying of cancer, I'll do it. I'll do it for two hundred bucks." He's like, " No, your work's not worth that." I was like, " You're the one who reached out to me because you wanted to commission me." Yeah, anyway,
+[00:10:38] Will: The Mark Frauenfelder posted a great one the other day that was like the whole dialogue from, " Hey, I'd like to commission a print." To fuck you, no, 250 dollars is too much. It's for my kid dying of cancer, and he's like, " Okay, well, if your kid's dying of cancer, I'll do it. I'll do it for 200 bucks." He's like, " No, your work's not worth that." I was like, " You're the one who reached out to me because you wanted to commission me." Yeah, anyway,
 
 [00:10:59] Norm: yeah, and it's not just for prints. It's all anything, anything anyone makes.
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:13:59] Adam: and those contractual relationships come with responsibilities for policing that IP. That's totally understandable.
 
-[00:14:05] Will: But then they also clearly take like a blind eye to things like RPF runs, where people are you know banding together to recreate props, because in a lot of cases, like the fact that there's a big community, people make stormtrooper armor and R two D two s and Boba Fett armor, and all of the different kind of Kind of cosplay stuff has a massive follow-on benefit for Lucas
+[00:14:05] Will: But then they also clearly take like a blind eye to things like RPF runs, where people are you know banding together to recreate props, because in a lot of cases, like the fact that there's a big community, people make stormtrooper armor and R2-D2s and Boba Fett armor, and all of the different kind of Kind of cosplay stuff has a massive follow-on benefit for Lucas
 
 [00:14:24] Will, possibly Unknown short replies: It does. It does. It does. It does. It does.
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:22:49] Norm: because they fulfill. They exist because someone else hasn't made that product yet.
 
-[00:22:54] Adam: Absolutely, and there, I mean, the high end, the high end tricorder market for tricorders from across the Star Wars spectrum is really, really wonderful. And no, there's, it's as master replicas and every other prop company that has gone out of business. It is really hard to service this this fandom. Either you have people with so much investment in the knowledge of the prop that they're going to find problems no matter what you do, or you have people who aren’t invested in the product. They’re not invested and can't see why they should spend seven hundred and fifty dollars on a noisy cricket from Men in Black.
+[00:22:54] Adam: Absolutely, and there, I mean, the high end, the high end tricorder market for tricorders from across the Star Wars spectrum is really, really wonderful. And no, there's, it's as master replicas and every other prop company that has gone out of business. It is really hard to service this this fandom. Either you have people with so much investment in the knowledge of the prop that they're going to find problems no matter what you do, or you have people who aren’t invested in the product. They’re not invested and can't see why they should spend 750 dollars on a noisy cricket from Men in Black.
 
 [00:23:27] Will: Yeah,
 
@@ -542,11 +542,11 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:25:34] Adam: So my my Raiders hats are canon. Ooh.
 
-[00:25:40] Norm: The best part is going to like a prop meetup event where there are some FX guys who worked on these movies, and they'll flip through a catalog list and like, " What? That's going for fifteen thousand pounds, and I made that in two hours that one night before shoot day because the set decorator needed it."
+[00:25:40] Norm: The best part is going to like a prop meetup event where there are some FX guys who worked on these movies, and they'll flip through a catalog list and like, " What? That's going for 15,000 pounds, and I made that in two hours that one night before shoot day because the set decorator needed it."
 
 [00:25:56] Will: But it has intrinsic value.
 
-[00:25:57] Adam: the flip side is much more common, which is the spaceship from the movie will be the miniature spaceship from this B grade movie will sell for you know three thousand dollars when the production company charged twenty five thousand dollars to make it. But, but back to your point about garage kits, I am going to speak right now to people who might be considering doing a small run of garage kits and say, go for it! Like, just go for it. The fact is, is these big companies like Sony and Lucasfilm they don't sue you out of the gate; they send you a cease and desist letter, and that's the shot across the bow that says you are bad. Stop doing this.
+[00:25:57] Adam: the flip side is much more common, which is the spaceship from the movie will be the miniature spaceship from this B grade movie will sell for you know 3,000 dollars when the production company charged 25,000 dollars to make it. But, but back to your point about garage kits, I am going to speak right now to people who might be considering doing a small run of garage kits and say, go for it! Like, just go for it. The fact is, is these big companies like Sony and Lucasfilm they don't sue you out of the gate; they send you a cease and desist letter, and that's the shot across the bow that says you are bad. Stop doing this.
 
 [00:26:36] Will: Yeah, in a garage kit, you've probably already you've already sent them all out. You're already done. You're just not going to sell anymore. Right. So you've already won.
 
@@ -576,7 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:28:13] Adam: to Blade Runner were like requiring a massive buy-in just to start. Right, you just had to guarantee them a certain amount of income.
 
-[00:28:21] Norm: Well, it all grew out of the 80s and early 90s when licensing was much bigger because of Star Wars
+[00:28:21] Norm: Well, it all grew out of the '80s and early '90s when licensing was much bigger because of Star Wars
 
 [00:28:28] Adam: Right.
 

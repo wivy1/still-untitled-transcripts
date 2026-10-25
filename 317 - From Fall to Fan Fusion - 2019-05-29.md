@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:18:01] Will: this is the this is the billion dollar question.
 
-[00:18:02] Adam: It is the alchemy of movie making. I mean, on one hand, you have, I from what I understand the. From the interviews with him, Tony Gilroy, one of the producers of Rogue One, did was key and instrumental to those reshoots, and he's a an amazing writer and an and actually an amazing director in his own right. Michael Clayton's one of my favorite movies of that genre of I don't even know what you'd call that genre. It's like the Alan Pakula, you know, nineteen seventies Parallax View type films that you know, good thriller. But again, these kind of things, I can only imagine when you fire two people that have already shot most of a movie and you bring in Ron Howard. I I these are things that nobody outside the studio will ever fully know the actual story on. I just resolved myself to knowing that you were never going to know.
+[00:18:02] Adam: It is the alchemy of movie making. I mean, on one hand, you have, I from what I understand the. From the interviews with him, Tony Gilroy, one of the producers of Rogue One, did was key and instrumental to those reshoots, and he's a an amazing writer and an and actually an amazing director in his own right. Michael Clayton's one of my favorite movies of that genre of I don't even know what you'd call that genre. It's like the Alan Pakula, you know, 1970s Parallax View type films that you know, good thriller. But again, these kind of things, I can only imagine when you fire two people that have already shot most of a movie and you bring in Ron Howard. I I these are things that nobody outside the studio will ever fully know the actual story on. I just resolved myself to knowing that you were never going to know.
 
 [00:18:56] Adam: Obviously, they were trying to make a great movie that stuck, and something didn't quite gel.
 
@@ -772,7 +772,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:30:30] Will: You're probably fine.
 
-[00:30:30] Norm: You don't need to. But the thing I should. I'll give some new links to. Is after every episode this past season, because every episode this last season was an hour and a half, basically a movie that they made for like fifteen million dollars
+[00:30:30] Norm: You don't need to. But the thing I should. I'll give some new links to. Is after every episode this past season, because every episode this last season was an hour and a half, basically a movie that they made for like 15,000,000 dollars
 
 [00:30:30] Adam: Yeah.
 

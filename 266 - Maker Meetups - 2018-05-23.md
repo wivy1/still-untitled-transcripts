@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:03:25] Adam: Yeah.
 
-[00:03:25] Norm: that you can get for like two hundred dollars. Toys R Us going out of business has it for like a hundred fifty bucks, and he took the shell of that and it fit perfectly over a Razor. Remember, Razor had those little scooters.
+[00:03:25] Norm: that you can get for like 200 dollars. Toys R Us going out of business has it for like 150 bucks, and he took the shell of that and it fit perfectly over a Razor. Remember, Razor had those little scooters.
 
 [00:03:25] Adam: Yeah,
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:07:46] Adam: they that has a rabid and dedicated fandom and ecosystem. Yeah,
 
-[00:07:52] Will: well, and in a way that like video games are, video games are more egalitarian now than they have been since the 80s or 90s. But it's still you know depending on the type of game you want, it's a big investment to make a game. A board game is something that you can take dice and paper and cards,
+[00:07:52] Will: well, and in a way that like video games are, video games are more egalitarian now than they have been since the '80s or '90s. But it's still you know depending on the type of game you want, it's a big investment to make a game. A board game is something that you can take dice and paper and cards,
 
 [00:07:52] Adam: yeah,
 
@@ -512,11 +512,11 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:24:21] Adam: So inspiring.
 
-[00:24:22] Will: Um, hey, shout out to the R two and BB eight builders clubs because they are always there in force.
+[00:24:22] Will: Um, hey, shout out to the R2 and BB-8 builders clubs because they are always there in force.
 
 [00:24:22] Adam: They are,
 
-[00:24:22] Will: and the thing that they do is magic. Like if you want to, if you want to smile a lot, I have. This is the closest I've ever felt to being inside your Chewbacca costume. But if you walk around and follow some people driving R two's,
+[00:24:22] Will: and the thing that they do is magic. Like if you want to, if you want to smile a lot, I have. This is the closest I've ever felt to being inside your Chewbacca costume. But if you walk around and follow some people driving R2's,
 
 [00:24:22] Adam: yeah.
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:24:46] Will: Yeah,
 
-[00:24:46] Adam: like what could be? When I built the R two, my best friend was like, " Dude, you're making a happiness machine. Because if R two is in your house, how could you be sad?"
+[00:24:46] Adam: like what could be? When I built the R2, my best friend was like, " Dude, you're making a happiness machine. Because if R2 is in your house, how could you be sad?"
 
 [00:24:56] Will: And that's exactly it. Like like they're little kids and they see him and they're shy at first and they kind of look and then they're like, and then and then they walk up to him, look at him. He turns and looks and beeps at them and they're like, " Yeah, exactly." It's it is
 
@@ -590,9 +590,9 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:26:35] Will: Oh, well, never mind.
 
-[00:26:35] Norm: They've done Alien, they've done Raiders, and next month I believe is Apollo thirteen.
+[00:26:35] Norm: They've done Alien, they've done Raiders, and next month I believe is Apollo 13.
 
-[00:26:46] Adam: Apollo Thirteen. Yeah, I realized. Oh, I got to be there. I'll be there.
+[00:26:46] Adam: Apollo 13. Yeah, I realized. Oh, I got to be there. I'll be there.
 
 [00:26:48] Norm: Yeah, exactly.
 
@@ -804,7 +804,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:33:35] Adam: The thing about sharing is Paul McCartney is right at the end of Abbey Road: the love you take is equal to the love that you make.
 
-[00:33:35] Adam: I turned 50 last year. My sons are out of the house, making their way in the world, and now I'm one fifth as old as America. And it feels old when I put it that way. And I'm not superstitious, and I know that it is just a number, but it has altered the way that I see my life moving forward. I now see myself in this new phase in which I'm no longer arriving. I'm now in the process, however long, and I'm hoping for at least 40 more years. I'm in the process of leaving and preparing myself and my things for my departure. I had dinner with one of my oldest friends a few weeks ago, and I told him these thoughts, and he's just nobody knows me better than him and the three or four people that I was bouncing around New York with in the 80s. And he said, " Oh, buddy, it's totally true. We're all dying, and we have to pass everything on."
+[00:33:35] Adam: I turned 50 last year. My sons are out of the house, making their way in the world, and now I'm one fifth as old as America. And it feels old when I put it that way. And I'm not superstitious, and I know that it is just a number, but it has altered the way that I see my life moving forward. I now see myself in this new phase in which I'm no longer arriving. I'm now in the process, however long, and I'm hoping for at least 40 more years. I'm in the process of leaving and preparing myself and my things for my departure. I had dinner with one of my oldest friends a few weeks ago, and I told him these thoughts, and he's just nobody knows me better than him and the three or four people that I was bouncing around New York with in the '80s. And he said, " Oh, buddy, it's totally true. We're all dying, and we have to pass everything on."
 
 [00:33:35] Adam: I'm working to archive my collection so that each and every important story about what I've collected is saved. I've brought in full-time help this year into my shop to assist in that process. I've started getting the rid of the things that I don't need to hold on to anymore. Giving them away, eBay, Craigslist, family and friends. I'm looking at the things I have with a more critical eye. I seek to keep only the objects that I consciously want to be a steward of, and everything else should go to someone who should who can use it.
 

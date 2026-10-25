@@ -136,11 +136,11 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:02:57] Will: Okay,
 
-[00:02:57] Adam: and I was not one of the chefs this year. I was one of the sous chefs, and it was really so much fun. The chefs are all teachers at the school. The sous chefs positions were auctioned off, and then taster positions were auctioned off, so people could sit there and score the meals. And at the end of four different rounds, the scores were in the eight hundreds, and the difference between the four teams was only like one or two percent.
+[00:02:57] Adam: and I was not one of the chefs this year. I was one of the sous chefs, and it was really so much fun. The chefs are all teachers at the school. The sous chefs positions were auctioned off, and then taster positions were auctioned off, so people could sit there and score the meals. And at the end of four different rounds, the scores were in the eight hundreds, and the difference between the four teams was only like 1 or 2%.
 
 [00:02:57] Will: Wow,
 
-[00:02:57] Adam: it was very close. The food quality was incredibly high, and it's just I was we were cooking from like three p.m. until ten thirty p.m.
+[00:02:57] Adam: it was very close. The food quality was incredibly high, and it's just I was we were cooking from like three p.m. until 10:30 p.m.
 
 [00:03:33] Will: So is this a positive experience? Or was it Top Chef style, where everybody's screaming at each other all the time?
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:08:26] Norm: Wow, yeah, that's heavy duty,
 
-[00:08:27] Adam: heavy heavy duty. So Duncan's legacy and Duncan's particular bailiwick is quad rotors, and then now he's actually purchased a five foot diameter octo rotor that has, I think, all told, it’s seventeen pounds when it's loaded with the camera, but it can handle a a five D Mark three. Yeah, I think you could even put an FS seven hundred on it if you if you dared.
+[00:08:27] Adam: heavy heavy duty. So Duncan's legacy and Duncan's particular bailiwick is quad rotors, and then now he's actually purchased a five foot diameter octo rotor that has, I think, all told, it’s seventeen pounds when it's loaded with the camera, but it can handle a a 5D Mark three. Yeah, I think you could even put an FS700 on it if you if you dared.
 
 [00:08:53] Norm: So he
 
@@ -374,11 +374,11 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:09:44] Norm: That’s definitely.
 
-[00:09:45] Adam: Well, because you know that speaking of the gimbal mounts, this is something that people might not be realizing is going through some massive technological overhauls right now to the most. Awesome effect, which is picture a camera on a platform with three axes, each axis controlled by a stepper motor that knows when that camera is upright and keeps it upright no matter what. So it's effectively a Steadicam, and you can buy a rig for a GoPro that's like two hundred dollars,
+[00:09:45] Adam: Well, because you know that speaking of the gimbal mounts, this is something that people might not be realizing is going through some massive technological overhauls right now to the most. Awesome effect, which is picture a camera on a platform with three axes, each axis controlled by a stepper motor that knows when that camera is upright and keeps it upright no matter what. So it's effectively a Steadicam, and you can buy a rig for a GoPro that's like 200 dollars,
 
-[00:10:11] Norm: two hundred bucks for a two-axis gimbal,
+[00:10:11] Norm: 200 bucks for a two-axis gimbal,
 
-[00:10:12] Adam: for a two-axis gimbal, and it's like three hundred bucks for a three-axis gimbal. But they they make these all the way up to professional rigs. There is a thing called a Movi M O V I. Yeah, V I.
+[00:10:12] Adam: for a two-axis gimbal, and it's like 300 bucks for a three-axis gimbal. But they they make these all the way up to professional rigs. There is a thing called a Movi M O V I. Yeah, V I.
 
 [00:10:22] Will: We saw it at NAB
 
@@ -388,11 +388,11 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:10:24] Unknown speaker: They have.
 
-[00:10:24] Adam: Well, so that was a fifteen thousand dollars unit. Now there is a five thousand dollars unit.
+[00:10:24] Adam: Well, so that was a 15,000 dollars unit. Now there is a 5,000 dollars unit.
 
 [00:10:24] Norm: Yep.
 
-[00:10:24] Adam: And really, within a year, it's going to be twelve hundred bucks.
+[00:10:24] Adam: And really, within a year, it's going to be 1,200 bucks.
 
 [00:10:33] Will: And then some doodle posted thing on Instructables.
 
@@ -402,17 +402,17 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:10:59] Adam: yeah.
 
-[00:10:59] Norm: And so it's going to be steady even if you're walking down a very slight slight incline. It'll be on that one plane. So when we were testing this Phantom, which is the consumer line, it's a thirteen hundred dollar quadrotor, and it has a ten eighty p camera that's equivalent of a GoPro two. We were wondering, you know, what you use and what when you evaluate production cameras for MythBusters, what's important and for the camera person to consider.
+[00:10:59] Norm: And so it's going to be steady even if you're walking down a very slight slight incline. It'll be on that one plane. So when we were testing this Phantom, which is the consumer line, it's a 1,300 dollar quadrotor, and it has a 1080p camera that's equivalent of a GoPro 2. We were wondering, you know, what you use and what when you evaluate production cameras for MythBusters, what's important and for the camera person to consider.
 
 [00:11:30] Adam: Well, so on MythBusters, because MythBusters is broadcast in HD, we have a contractual requirement to have a certain amount of footage be in broadcast quality HD.
 
-[00:11:41] Will: So that means ten eighty p and
+[00:11:41] Will: So that means 1080p and
 
 [00:11:42] Adam: yes, but it means it means it means that everything we use falls into that category except for the GoPros.
 
 [00:11:42] Will: Okay,
 
-[00:11:42] Adam: the GoPros are ten eighty p, but they're not quite broadcast quality. So you You have to. We have to limit in the edit sometimes the number of GoPro shots we have.
+[00:11:42] Adam: the GoPros are 1080p, but they're not quite broadcast quality. So you You have to. We have to limit in the edit sometimes the number of GoPro shots we have.
 
 [00:11:59] Will: And I assume, I assume you guys probably have an exception. Like you probably have an unusual contract because I bet most people aren't allowed to use GoPros. It's just because of the stuff that you do.
 
@@ -526,9 +526,9 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:16:44] Adam: You're just crashing in to make sure you've got the shot.
 
-[00:16:46] Norm: In the 80s, it was a fun trick for. Directors to use and they overuse it. Then but that was it.
+[00:16:46] Norm: In the '80s, it was a fun trick for. Directors to use and they overuse it. Then but that was it.
 
-[00:16:51] Adam: Yes, yes. Oh, and also in the fifties when the first zoom lenses came out on home film cameras, we used these Sony's. God, what were those called? It was like your. It was the first three chip Sony.
+[00:16:51] Adam: Yes, yes. Oh, and also in the '50s when the first zoom lenses came out on home film cameras, we used these Sony's. God, what were those called? It was like your. It was the first three chip Sony.
 
 [00:17:06] Norm: Oh, not the Canons?
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:18:03] Will: Yeah, you can.
 
-[00:18:04] Adam: You go buy them on eBay. They're like they start at four hundred bucks, and when they were new,
+[00:18:04] Adam: You go buy them on eBay. They're like they start at 400 bucks, and when they were new,
 
 [00:18:08] Adam: they were like sixteen, eighteen hundred bucks. They were super expensive.
 
@@ -642,7 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:21:07] Will: Yes, yeah, that's why. Anyway,
 
-[00:21:11] Adam: so we got to play with one of the brand new phantoms recently. We shot some shots at seventy three thousand frames per second.
+[00:21:11] Adam: so we got to play with one of the brand new phantoms recently. We shot some shots at 73,000 frames per second.
 
 [00:21:17] Will: What?
 
@@ -668,13 +668,13 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:21:56] Will: Oh wow.
 
-[00:21:56] Adam: So, so yeah, and this is something that's interesting to note about the pro level high speed cameras is they'll say we can shoot up to one hundred thousand frames per second. Yeah. But the critical data that you want to know is what's the highest frame rate you can shoot full frame broadcast quality, and on the Phantom we own, I think it's like seven thousand.
+[00:21:56] Adam: So, so yeah, and this is something that's interesting to note about the pro level high speed cameras is they'll say we can shoot up to 100,000 frames per second. Yeah. But the critical data that you want to know is what's the highest frame rate you can shoot full frame broadcast quality, and on the Phantom we own, I think it's like seven thousand.
 
 [00:22:17] Will: Yeah. That's that's really good.
 
 [00:22:19] Adam: No, it's really good.
 
-[00:22:19] Will: Yeah. I mean, we we tested that edgertronic, and to get seven twenty p out of that, it was like
+[00:22:19] Will: Yeah. I mean, we we tested that edgertronic, and to get 720p out of that, it was like
 
 [00:22:24] Norm: seven hundred,
 
@@ -686,7 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:22:40] Adam: Yeah,
 
-[00:22:41] Will: it's web video in nineteen ninety seven.
+[00:22:41] Will: it's web video in 1997.
 
 [00:22:42] Adam: It is exact, it’s pixel vision.
 
@@ -700,7 +700,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:23:12] Adam: They survive so much,
 
-[00:23:14] Will: and they're three hundred bucks. So
+[00:23:14] Will: and they're 300 bucks. So
 
 [00:23:14] Adam: right,
 
@@ -786,7 +786,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:26:43] Norm: their transmitters they don't use digital transmitters. They use like security camera transmitters, which is all all analog, all radio signals.
 
-[00:26:58] Will: Nine hundred megahertz,
+[00:26:58] Will: 900 megahertz,
 
 [00:26:58] Norm: a lot of range. Yeah, and they buy cameras like for like close for security footage, which you can like mount anywhere.
 

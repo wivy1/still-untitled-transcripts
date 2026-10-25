@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:01:05] Norm: This is not an easy thing to replicate, to mass produce.
 
-[00:01:07] Adam: No, no, no. It's mass produced. He's he's very he's very good. Uh, actually, you can actually still buy them up on his website, I believe. Uh, I can't remember the exact cost, but it's under one hundred bucks.
+[00:01:07] Adam: No, no, no. It's mass produced. He's he's very he's very good. Uh, actually, you can actually still buy them up on his website, I believe. Uh, I can't remember the exact cost, but it's under 100 bucks.
 
 [00:01:17] Will: Regular Tested readers will know.
 
@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:02:23] Adam: If anybody, so it's clearly a manufactured item. They didn't just make this for the movie. So if anyone knows where we can get this, this movie was shot in. Uh, sorry, tho—those scenes weren't shot in Switzerland. I can't remember where they were exactly filmed,
 
-[00:02:35] Will: but it was shot in like two thousand, two thousand two?
+[00:02:35] Will: but it was shot in like 2000, 2002?
 
 [00:02:37] Adam: Something like that. And
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:03:41] Will: And those like those those experiences, I'm as as a new father, I'm thinking about how that stuff translates to now, and how. So let's talk about best vacations, both as a kid and as a parent.
 
-[00:03:52] Adam: So I, I had, uh, we were quite lucky in that my great. Grandmother purchased a peninsula of land in Cape Cod round about the turn of the the last century, so the nineteen hundreds.
+[00:03:52] Adam: So I, I had, uh, we were quite lucky in that my great. Grandmother purchased a peninsula of land in Cape Cod round about the turn of the the last century, so the 1900s.
 
 [00:04:05] Will: Okay.
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:06:05] Will: Oh, that's cool.
 
-[00:06:06] Adam: Uh, and I, on the Upper Hudson, about thirty-five miles north of New York City, thirty miles north of New York City, there's a big mountain called Hook Mountain. Uh, it is a very prominent feature. You can see it from my house in Tarrytown. You could also see it from West Point, uh, south on the river. Pretty sure you could see it from West Point, uh, and it it is like a kind of a central, uh, central geographic visual, uh, reference on the Hudson River. And many of the artists painted it. And my father found all these places that
+[00:06:06] Adam: Uh, and I, on the Upper Hudson, about 35 miles north of New York City, thirty miles north of New York City, there's a big mountain called Hook Mountain. Uh, it is a very prominent feature. You can see it from my house in Tarrytown. You could also see it from West Point, uh, south on the river. Pretty sure you could see it from West Point, uh, and it it is like a kind of a central, uh, central geographic visual, uh, reference on the Hudson River. And many of the artists painted it. And my father found all these places that
 
 [00:06:33] Will: so he used it as a point of reference, and then could kind of back into where the where the paintings were made. That's awesome.
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:07:41] Adam: I didn't know that
 
-[00:07:42] Will: people would die and stuff would get donated to this to the city or the town or the county or whatever, and it seemed like it was more in the Southwest and the West. But like in Bishop, there's this county museum for whatever county Bishop, California is in, and this is in the Eastern Sierras, kind of between the Nevada border and and the mountains. And it's just it's just just crazy stuff. So there's like old dentist tools from the turn of the century in the late eighteen hundreds from when they initially initially settled. There's train locomotives.
+[00:07:42] Will: people would die and stuff would get donated to this to the city or the town or the county or whatever, and it seemed like it was more in the Southwest and the West. But like in Bishop, there's this county museum for whatever county Bishop, California is in, and this is in the Eastern Sierras, kind of between the Nevada border and and the mountains. And it's just it's just just crazy stuff. So there's like old dentist tools from the turn of the century in the late 1800s from when they initially initially settled. There's train locomotives.
 
 [00:08:07] Unknown speaker: Yeah, yeah.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:12:31] Will: Okay.
 
-[00:12:32] Adam: And then went up, uh, to Whistler where we did some mountain biking, we did some zip lining, and drove all the way back. We did twenty-four hundred miles in twelve days.
+[00:12:32] Adam: And then went up, uh, to Whistler where we did some mountain biking, we did some zip lining, and drove all the way back. We did 2,400 miles in twelve days.
 
 [00:12:39] Will: Well, that's a that's a good rate.
 

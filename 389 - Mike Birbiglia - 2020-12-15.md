@@ -250,7 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=Wf15R6uZloY
 
 [00:29:41] Mike Birbiglia: Yeah. It's it's uncanny. I mean, if people are watching this and they're looking for something that makes you laugh and think and feel emotions, In and of Itself, I think is on Hulu or it's going to be on Hulu any day now. It like put it on your queue, whatever it is. Like, holy cow! Like, I honestly, like, I get choked up thinking about it now.
 
-[00:30:03] Adam: Oh no! Hundred percent. I. Also, actually, I think it intersects. The three of us have public personas, and and a public person. I think the show speaks deeply to the side that we decide to show people and the side that we don't. And when you're in the business of being front public facing, all the psychological machinations that happen in there are are I think augmented in some ways. And he speaks deeply to that.
+[00:30:03] Adam: Oh no! 100%. I. Also, actually, I think it intersects. The three of us have public personas, and and a public person. I think the show speaks deeply to the side that we decide to show people and the side that we don't. And when you're in the business of being front public facing, all the psychological machinations that happen in there are are I think augmented in some ways. And he speaks deeply to that.
 
 [00:30:33] Mike Birbiglia: Yeah, yeah, because when you walk into the show and and you see in the film that when people walk into the show, they choose, you know, a card that that describes who they are. It's like an optimist, you know, a magician, a you know, like a like a rainmaker, you know, a provider, a father, a son, you know, whatever the thing is. And I think that mine, and then I don't want to give away what happens, but like I think mine was optimist when I went. I went twice, but I think that was what it was.
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=Wf15R6uZloY
 
 [00:43:45] Mike Birbiglia: Okay. Okay.
 
-[00:43:46] Adam: Um, and the no member of the audience is more than about seventy-five feet from the stage, because they're they're they're stacked, and I've never been in a room that felt as immediate. And it just at that point it feels almost like you're having a conversation with with a thousand people.
+[00:43:46] Adam: Um, and the no member of the audience is more than about 75 feet from the stage, because they're they're they're stacked, and I've never been in a room that felt as immediate. And it just at that point it feels almost like you're having a conversation with with a thousand people.
 
 [00:44:04] Mike Birbiglia: There's a you know there's a I couldn't recommend more a theater in Minneapolis called the Guthrie. They have a they have a
 

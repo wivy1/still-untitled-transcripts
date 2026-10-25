@@ -480,11 +480,11 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:17:11] Adam: It's about profile. It is about the burgeoning understanding from the FBI that there is such a thing as a serial killer.
 
-[00:17:17] Will: So it's in the fifties or sixties.
+[00:17:17] Will: So it's in the '50s or '60s.
 
-[00:17:19] Adam: It's in the late seventies.
+[00:17:19] Adam: It's in the late '70s.
 
-[00:17:19] Will: Late seventies. Wow.
+[00:17:19] Will: Late '70s. Wow.
 
 [00:17:19] Adam: But it's about how it. It's really about a few scientific minds looking over the chasm of a brand new field of inquiry. That's what I find really exciting about it because it's a deeply intellectual thing of like, well, how can we? So one of them, Jonathan Groff, starts to interview Ed Kemper about being a serial killer, and as his partner says at one point, " How can we go after crazy if we don't know how crazy thinks? " Right. And this was groundbreaking in 1977 to talk to serial killers about what they do, and the guy that plays Ed Kemper. I mean, so I watched the first few shows with my wife yesterday, and I had to leave the room during some of Ed Kemper’s speeches, Because the things he says are so awful, I could only hear them once.
 
@@ -566,9 +566,9 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:20:22] Adam: I don't want that kind of. And this is coming from someone who had suffered from 20th Century Fox with significant studio interference with with with with Alien Three, which of course is what happens when you're a brand new director brought into a franchise. They bring in a new director so that they have some measure of control.
 
-[00:20:42] Norm: I would think Steven Soderbergh's the other director who does something different every single time. And speaking of Star Wars, you see that he posted recently his rejection letter from Lucasfilm back in the 80s, I believe. Like, sorry,
+[00:20:42] Norm: I would think Steven Soderbergh's the other director who does something different every single time. And speaking of Star Wars, you see that he posted recently his rejection letter from Lucasfilm back in the '80s, I believe. Like, sorry,
 
-[00:20:56] Adam: Look, everybody has a story like that. I have a rejection letter from the. Exploratorium from a job I applied for there in nineteen ninety six,
+[00:20:56] Adam: Look, everybody has a story like that. I have a rejection letter from the. Exploratorium from a job I applied for there in 1996,
 
 [00:20:56] Will: [unclear: sorry, ninety seven / Sorry, Adam].
 

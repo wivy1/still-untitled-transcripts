@@ -178,7 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:12:44] Will: It's a lot of people in the Land Cruiser.
 
-[00:12:45] Adam: Well, no, no, no. We are in two cars. Okay. So my son and I were in my Land Cruiser, and we're on two eighty heading north, right around the Ocean Avenue exit.
+[00:12:45] Adam: Well, no, no, no. We are in two cars. Okay. So my son and I were in my Land Cruiser, and we're on 280 heading north, right around the Ocean Avenue exit.
 
 [00:12:53] Will: Okay.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:13:27] Adam: Right. This is no. It is effectively. I was without a steering wheel from. I was going fifty miles an hour, and all of a sudden, my steering wheel broke away. Like nothing's happening.
 
-[00:13:41] Norm: Two eighty gets curvy,
+[00:13:41] Norm: 280 gets curvy,
 
 [00:13:42] Adam: and I started swerving across all four lanes in full traffic.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:16:39] Adam: I had my son in the car
 
-[00:16:40] Will: Exactly. Yeah, I mean that that I I don't I still drive a little bit differently when I'm driving my daughter. But but two eighty. We should paint a picture for people to know what 280 where you're talking about is. It's it's six lanes, probably five or six lanes at that point.
+[00:16:40] Will: Exactly. Yeah, I mean that that I I don't I still drive a little bit differently when I'm driving my daughter. But but 280. We should paint a picture for people to know what 280 where you're talking about is. It's it's six lanes, probably five or six lanes at that point.
 
 [00:16:55] Adam: It's five lanes,
 
@@ -488,11 +488,11 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:23:08] Adam: R two D
 
-[00:23:08] Norm: two in R two,
+[00:23:08] Norm: two in R2,
 
 [00:23:09] Adam: you you kind of imagine. looking at it-
 
-[00:23:13] Norm: There's in the teaser trailer, and I believe in the trailer, there's a brief shot of a fire at night, and you see R two
+[00:23:13] Norm: There's in the teaser trailer, and I believe in the trailer, there's a brief shot of a fire at night, and you see R2
 
 [00:23:20] Adam: and a hand reaches out his cloak, a mechanical hand,
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:25:39] Adam: I get the feeling that Luke might be the Yoda,
 
-[00:25:41] Norm: or the Yoda or the Spock. Right, where where in two thousand nine, you know, we knew Leonard Nimoy was part of the movie, but his his appearance in it was a surprise. It was in the middle of the movie, and he connects everything together. And what I love about and we're talking about Star Trek in this context is they didn't have to kill Spock
+[00:25:41] Norm: or the Yoda or the Spock. Right, where where in 2009, you know, we knew Leonard Nimoy was part of the movie, but his his appearance in it was a surprise. It was in the middle of the movie, and he connects everything together. And what I love about and we're talking about Star Trek in this context is they didn't have to kill Spock
 
 [00:25:58] Adam: right
 

@@ -50,9 +50,9 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:00:59] Norm: Jeez.
 
-[00:01:00] Will: But the but the gallon of water per almond sounds like one of those huge stats. And then the real one is it's like twenty five hundred gallons of water for a quarter pound hamburger. So
+[00:01:00] Will: But the but the gallon of water per almond sounds like one of those huge stats. And then the real one is it's like 2,500 gallons of water for a quarter pound hamburger. So
 
-[00:01:09] Adam: and other things like for every shrimp you eat, thirty five pounds of bycatch is caught and killed and thrown away. Just bycatch is the other crap they dredge up from the bottom while grabbing the shrimp.
+[00:01:09] Adam: and other things like for every shrimp you eat, 35 pounds of bycatch is caught and killed and thrown away. Just bycatch is the other crap they dredge up from the bottom while grabbing the shrimp.
 
 [00:01:23] Norm: Wow.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:02:38] Adam: It's a lot of water.
 
-[00:02:39] Will: Um, you know, I I got much more upset a few years ago when the reports about the the farmers in the valley using eighty percent of California's water and not um and and not actually using like water conservative irrigation methods like drip irrigation and stuff like that. Now a lot of those guys, it seems like, have have Turned over to to
+[00:02:39] Will: Um, you know, I I got much more upset a few years ago when the reports about the the farmers in the valley using 80% of California's water and not um and and not actually using like water conservative irrigation methods like drip irrigation and stuff like that. Now a lot of those guys, it seems like, have have Turned over to to
 
 [00:03:03] Adam: Seen the light and
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:04:21] Norm: Turn off, taking all the green space away.
 
-[00:04:24] Adam: Well, you know, as as as far as talking to talking about consequences, I was talking with the kids this morning. We were we were going over some tax stuff. So every now and then, Juliet hands me some forms, some breakdowns from our from our tax records, and says, " Can you look over these and tell me if they are all corporate expenses? Let's just make sure." So going through the granularity and thing two says, " Why do you have to?" Is it really bad to spend money from your corporate card on non-corporate stuff? And so we start to explain the tax system, and then we start to explain also why you need to keep track of that stuff. Like keeping track is the lifeblood of not getting behind financially. Yeah. And then we start telling them, man, like you'll get a bank account, and they'll just start sending you credit cards in the mail that say, " Sign this," and immediately you have three thousand dollars, which you don't have to pay off for a long time,
+[00:04:24] Adam: Well, you know, as as as far as talking to talking about consequences, I was talking with the kids this morning. We were we were going over some tax stuff. So every now and then, Juliet hands me some forms, some breakdowns from our from our tax records, and says, " Can you look over these and tell me if they are all corporate expenses? Let's just make sure." So going through the granularity and thing two says, " Why do you have to?" Is it really bad to spend money from your corporate card on non-corporate stuff? And so we start to explain the tax system, and then we start to explain also why you need to keep track of that stuff. Like keeping track is the lifeblood of not getting behind financially. Yeah. And then we start telling them, man, like you'll get a bank account, and they'll just start sending you credit cards in the mail that say, " Sign this," and immediately you have 3,000 dollars, which you don't have to pay off for a long time,
 
 [00:05:24] Will: forever. Forever. If you pay the minimum payment, yeah.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:07:46] Will: And then they probably hit you with the fees as well too. Right.
 
-[00:07:48] Adam: And the fees are the fees are what. It's like a standard fee. It's going to be like thirty-five dollars, and then there's an amount on the check that it takes— it takes a percentage of. It can be hundreds of dollars.
+[00:07:48] Adam: And the fees are the fees are what. It's like a standard fee. It's going to be like 35 dollars, and then there's an amount on the check that it takes— it takes a percentage of. It can be hundreds of dollars.
 
 [00:08:00] Will: Oh yeah. The the um well okay just to be clear
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:08:48] Will: it's not like a magazine subscription
 
-[00:08:50] Adam: I got in so much trouble. I mean it took me years to pay off that original. Twenty five hundred dollar.
+[00:08:50] Adam: I got in so much trouble. I mean it took me years to pay off that original. 2,500 dollar.
 
 [00:08:56] Unknown speaker: Wow!
 
@@ -316,11 +316,11 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:10:50] Norm: that's incredible. And they said it was it was the most liberating thing ever. Everyone says that.
 
-[00:10:54] Adam: Did you guys ever get in trouble and use consumer credit counselors? Do you know about this service? This is kind of amazing. When you if you end up if you end up with a lot of credit card debt from multiple credit cards, it can be very, very, very difficult, not impossible, to get out from under that. If you have let's say some past dues of thirty, sixty, or ninety days, they will be coming after you. They will be compounding fees and penalties, et cetera. So there is a group. It's a nonprofit, I believe, called Consumer Credit Counseling Services. They actually were, if I'm not incorrect about my history, formed by the credit card companies to help people get out of default. And the way it works is because Consumer Credit Counselors has a terrific record. What they'll do is you go to them and you say, " I owe money on these five credit cards. It's eighteen thousand dollars in debt." My minimum monthly payment is eighteen hundred dollars a month, and I can't make that.
+[00:10:54] Adam: Did you guys ever get in trouble and use consumer credit counselors? Do you know about this service? This is kind of amazing. When you if you end up if you end up with a lot of credit card debt from multiple credit cards, it can be very, very, very difficult, not impossible, to get out from under that. If you have let's say some past dues of thirty, sixty, or ninety days, they will be coming after you. They will be compounding fees and penalties, et cetera. So there is a group. It's a nonprofit, I believe, called Consumer Credit Counseling Services. They actually were, if I'm not incorrect about my history, formed by the credit card companies to help people get out of default. And the way it works is because Consumer Credit Counselors has a terrific record. What they'll do is you go to them and you say, " I owe money on these five credit cards. It's 18,000 dollars in debt." My minimum monthly payment is 1,800 dollars a month, and I can't make that.
 
 [00:11:53] Will: Right.
 
-[00:11:53] Adam: They go to the credit card companies and negotiate with them as on as a block, and say, " Can you freeze the?" And they get most of them to freeze the interest. That's giant. Then they get them to accept. They say, " What can you pay?" Then you work with them. Okay, you can pay you know nine hundred dollars a month. Then they figure out and they go and negotiate with all four of the companies that you owe money to, and say, " He can only pay two hundred here. He can pay one hundred and sixty here. He can pay this and this."
+[00:11:53] Adam: They go to the credit card companies and negotiate with them as on as a block, and say, " Can you freeze the?" And they get most of them to freeze the interest. That's giant. Then they get them to accept. They say, " What can you pay?" Then you work with them. Okay, you can pay you know 900 dollars a month. Then they figure out and they go and negotiate with all four of the companies that you owe money to, and say, " He can only pay two hundred here. He can pay one hundred and sixty here. He can pay this and this."
 
 [00:12:24] Will: And but the interest isn't isn't running anymore, so the clock's not ticking, and you're at least not accruing more debt. You're actually not.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:13:38] Norm: it's not even even numbers,
 
-[00:13:40] Adam: right? And this whole like I think I have one hundred dollars in the bank. Like that doesn't.
+[00:13:40] Adam: right? And this whole like I think I have 100 dollars in the bank. Like that doesn't.
 
 [00:13:45] Norm: Yeah, let me Venmo something. Nope, overdrawn. Yeah,
 
@@ -410,11 +410,11 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:14:52] Adam: I'm like this has one job, which is to hold a microphone, which it shouldn't make any noise.
 
-[00:14:56] Will: This is a thirty five dollar one, and I put silicone, the lithium grease on the on the joints when I got it, and it was quiet for a long time. It doesn't have like the smooth fluid movement.
+[00:14:56] Will: This is a 35 dollar one, and I put silicone, the lithium grease on the on the joints when I got it, and it was quiet for a long time. It doesn't have like the smooth fluid movement.
 
 [00:15:06] Adam: Yeah.
 
-[00:15:06] Will: The RØDE ones that I got for the office that are ninety nine dollars each.
+[00:15:06] Will: The RØDE ones that I got for the office that are 99 dollars each.
 
 [00:15:12] Adam: Yeah.
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:18:26] Adam: the cheapness and expense of buying an older nice car, but working on it and fixing it up and the things.
 
-[00:18:34] Will: I think I told the story about my dad getting a three hundred dollars CJ three for me and us working on it together.
+[00:18:34] Will: I think I told the story about my dad getting a 300 dollars CJ three for me and us working on it together.
 
 [00:18:39] Adam: That's amazing.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:18:59] Adam: Yeah.
 
-[00:18:59] Will: where to take it to get the top machine, and and then how to put it back together. And probably nine percent of that is usable information on in a car I drive today.
+[00:18:59] Will: where to take it to get the top machine, and and then how to put it back together. And probably 9% of that is usable information on in a car I drive today.
 
 [00:19:08] Adam: Yeah,
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:19:35] Adam: Mine were Always brown.
 
-[00:19:36] Will: It had it had wood paneling sticker on the side. It wasn't even wood paneling. And then the first car I bought though was a Ford pickup truck, a Ranger, a nineteen eighty five Ranger.
+[00:19:36] Will: It had it had wood paneling sticker on the side. It wasn't even wood paneling. And then the first car I bought though was a Ford pickup truck, a Ranger, a 1985 Ranger.
 
 [00:19:46] Adam: Norm,
 

@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:01:03] Norm: Ooh.
 
-[00:01:05] Adam: I also had this little moment where, you know, the invitation said starts at five p.m. So I showed up at like five oh eight, which meant that I was late.
+[00:01:05] Adam: I also had this little moment where, you know, the invitation said starts at five p.m. So I showed up at like 5:08, which meant that I was late.
 
 [00:01:14] Norm: Yeah,
 
@@ -38,7 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:01:18] Norm: Okay,
 
-[00:01:18] Adam: so I should have showed up at like four forty-five. But I'm always terrified of being early. I'm almost as terrified of being early as I am of being late.
+[00:01:18] Adam: so I should have showed up at like 4:45. But I'm always terrified of being early. I'm almost as terrified of being early as I am of being late.
 
 [00:01:24] Will: Yeah, you bring it, you brought your WASP business.
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:05:04] Adam: What um, uh, what is your act? But when you had auto aim turned on, what is your what is your accuracy rate?
 
-[00:05:10] Will: Eighty percent.
+[00:05:10] Will: 80%.
 
 [00:05:10] Adam: Yeah, I am hitting eighty pretty consistently.
 
@@ -654,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:26:58] Will: yeah, it's great. All right.
 
-[00:26:58] Norm: And she comes from a family of Imagineers, and it is unprecedented access into Imagineering and the history. You see, there's footage, archival footage from the 50s of. Anaheim being being orange groves and being bulldozed and them building the twenty foot mounds around the edge of the perimeter of Disneyland and then laying down the railroad track
+[00:26:58] Norm: And she comes from a family of Imagineers, and it is unprecedented access into Imagineering and the history. You see, there's footage, archival footage from the '50s of. Anaheim being being orange groves and being bulldozed and them building the twenty foot mounds around the edge of the perimeter of Disneyland and then laying down the railroad track
 
 [00:27:22] Adam: Amazing wow.
 

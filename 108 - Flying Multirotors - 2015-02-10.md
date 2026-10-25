@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:03:46] Will: Never forget.
 
-[00:03:50] Adam: Was a hundred and eighty gram frisbee. It was a really nice, big one.
+[00:03:50] Adam: Was a 180 gram frisbee. It was a really nice, big one.
 
 [00:03:54] Will: I have my childhood frisbee, my glow-in-the-dark one. It hangs inside my garage, so when I leave the lights on, I go out to turn the lights off at night.
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:10:07] Adam: and the footage, the low-res footage was was shite. The Inspire, on the other hand, is a magnificent piece of kit that I'm continually blown away by. And I know that you know Jamie and I were at their launch event for the Inspire. So you should take my opinion with a grain of salt, but I swear, up and down, this this thing is incredible.
 
-[00:10:28] Will: Just, I mean, just that that thing exists. All of those things, like from the five hundred dollar kit quads that you put together at home, all the way up to three or four thousand dollars for something that's pro, semi pro level in a lot of cases, is amazing.
+[00:10:28] Will: Just, I mean, just that that thing exists. All of those things, like from the 500 dollar kit quads that you put together at home, all the way up to three or four thousand dollars for something that's pro, semi pro level in a lot of cases, is amazing.
 
 [00:10:42] Norm: I think there are a couple of interesting things about your experience so far with the Inspire. So we've gone on a couple of trips, and there's video that's going to be on the site. I think it might already be on the site about one of our trips. But you're approaching it from a kind of a videographer and photographer perspective.
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:11:36] Will: You should have had Norm bring our Phantom to let them practice on.
 
-[00:11:39] Norm: I did have, I did have enough batteries. And there's big differences between those quadcopters. And we'll talk more about it when we actually go in depth into the the technology and in a separate tested video. But the DJI, just this one company with these two classes of quadcopters, the Phantom is something that is very maneuverable, not as maneuverable as you know your own two fifty millimeter quad. But you can, you know, you can turn off the safety modes. You can do flips. You can, you can, you can race them.
+[00:11:39] Norm: I did have, I did have enough batteries. And there's big differences between those quadcopters. And we'll talk more about it when we actually go in depth into the the technology and in a separate tested video. But the DJI, just this one company with these two classes of quadcopters, the Phantom is something that is very maneuverable, not as maneuverable as you know your own 250 millimeter quad. But you can, you know, you can turn off the safety modes. You can do flips. You can, you can, you can race them.
 
 [00:12:02] Will: You can get kind of crazy.
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:16:38] Norm: You're always aware of what it's over, and you're always preparing your mind for the worst possible consequence. You, you mentioned something like one of the reasons that airplanes and airlines are so statistically safe is because they have the pre flight checklist that they go over, no matter what.
 
-[00:16:53] Adam: No matter what, no. I mean, ninety nine percent of the time, most of the things on that checklist are are are have no need to be checked.
+[00:16:53] Adam: No matter what, no. I mean, 99% of the time, most of the things on that checklist are are are have no need to be checked.
 
 [00:17:02] Adam: I have. They never don't do it.
 
@@ -550,7 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:25:34] Norm: technology.
 
-[00:25:36] Adam: Well, and basically, that's just going to force companies like three D robotics and DJI to to have countermeasures for that sort of thing. Not just have it be open,
+[00:25:36] Adam: Well, and basically, that's just going to force companies like 3D robotics and DJI to to have countermeasures for that sort of thing. Not just have it be open,
 
 [00:25:47] Will: yeah, open open Wi Fi signals, which is what everybody uses now.
 

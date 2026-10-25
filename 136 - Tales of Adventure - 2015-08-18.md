@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:03:31] Will: Explain a recent city.
 
-[00:03:32] Adam: Well, so the United Arab Emirates is a also fairly recently minted country, as it were. I mean, it existed as a bunch of separate nation states. Dubai is included, and they discovered oil in the seventies. And before that, Abu Dhabi was a fishing village on the Strait of Hormuz. It was part of the British colonies, which means that they were, you know, being totally screwed over.
+[00:03:32] Adam: Well, so the United Arab Emirates is a also fairly recently minted country, as it were. I mean, it existed as a bunch of separate nation states. Dubai is included, and they discovered oil in the '70s. And before that, Abu Dhabi was a fishing village on the Strait of Hormuz. It was part of the British colonies, which means that they were, you know, being totally screwed over.
 
 [00:03:32] Will: Right.
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:05:22] Will: Well, and it's it's amazing to me because you're talking about these cities that are building up. Like normally, when you talk about mega skyscrapers, it's some place like Manhattan or Chicago where there's a limited amount of space to develop. And here, we're talking about a place that's surrounded by infinite space, almost
 
-[00:05:39] Adam: space. And you know, they're building so furiously that a not insignificant percentage—I think it's like ten or fifteen percent—of the world's cranes are in the UAE.
+[00:05:39] Adam: space. And you know, they're building so furiously that a not insignificant percentage—I think it's like 10 or 15%—of the world's cranes are in the UAE.
 
 [00:05:39] Will: Wow,
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:11:34] Adam: that that is brutal and there's no breeze,
 
-[00:11:40] Will: as opposed to like Arizona where it's 120 degrees and it's zero percent humidity. You just you start sweating and just immediately evaporates and all of your stuff is working really well.
+[00:11:40] Will: as opposed to like Arizona where it's 120 degrees and it's 0% humidity. You just you start sweating and just immediately evaporates and all of your stuff is working really well.
 
 [00:11:48] Adam: Well, we just did two shoots in the high desert. One in eastern Oregon, where it was 99, and the other just two weeks ago in Mojave Desert, south of China Lake and south of China Lake, southwest of Edwards, and it was 105.
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:12:49] Will: If I remember, I'll edit this out, but I probably won't remember. I'll be perfectly honest.
 
-[00:12:53] Adam: We are going to the resort, Qasr Al Sarab Desert Resort. Now, apparently, they shot some of the new Star Wars film out here, and it's totally clear why. I we it's two hours, it's two hundred kilometers south of Abu Dhabi, due south. So you're about twenty clicks from the Saudi border, in a place called the Empty Quadrant. I think it's one of the largest unbroken deserts in the world. It is amazing.
+[00:12:53] Adam: We are going to the resort, Qasr Al Sarab Desert Resort. Now, apparently, they shot some of the new Star Wars film out here, and it's totally clear why. I we it's two hours, it's 200 kilometers south of Abu Dhabi, due south. So you're about twenty clicks from the Saudi border, in a place called the Empty Quadrant. I think it's one of the largest unbroken deserts in the world. It is amazing.
 
 [00:13:22] Will: Just sand dunes.
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:16:45] Norm: from here. Went to Portland.
 
-[00:16:46] Adam: Three thousand miles in ten days.
+[00:16:46] Adam: 3,000 miles in ten days.
 
 [00:16:47] Norm: Yeah, something like that. I mean, it was three days to Calgary and then two days back.
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:16:59] Adam: What route did you take up there?
 
-[00:16:59] Norm: Five.
+[00:16:59] Norm: 5.
 
 [00:16:59] Adam: [unclear: Five.] Oh, so you went past? Went past Shasta.
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:20:41] Norm: back.
 
-[00:20:46] Adam: Well, I mean, I was astonished by Mount Shasta. We, we, when we went to Whistler, we took, we took 101 all the way up the coast. Stopped in Portland, Seattle, Vancouver, and then Whistler, and then we took five back, so the eastern route back, and you can see Shasta for like hundreds of miles.
+[00:20:46] Adam: Well, I mean, I was astonished by Mount Shasta. We, we, when we went to Whistler, we took, we took 101 all the way up the coast. Stopped in Portland, Seattle, Vancouver, and then Whistler, and then we took 5 back, so the eastern route back, and you can see Shasta for like hundreds of miles.
 
 [00:21:05] Will: Oh yeah,
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:23:57] Adam: Right, right, right.
 
-[00:23:57] Will: So it's like they have you know the moon rocks and and the Apollo Eleven capsule and Gus Grissom's and and and. And John Glenn's caps, Mercury capsules, and all all that kind of stuff is all down there. The original Wright brothers' plane, the Spirit of St. Louis, the Bell X One,
+[00:23:57] Will: So it's like they have you know the moon rocks and and the Apollo 11 capsule and Gus Grissom's and and and. And John Glenn's caps, Mercury capsules, and all all that kind of stuff is all down there. The original Wright brothers' plane, the Spirit of St. Louis, the Bell X-1,
 
 [00:23:57] Adam: amazing.
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:26:15] Adam: are they just so high up they don't create a sonic boom that we can hear?
 
-[00:26:18] Will: I think that's probably the air is probably thin thin enough that I mean they travel at Mach three, but I'd say probably it dissipates by the time it gets to the ground. Um, the like all the they had Cold War aircraft, they had World War one aircraft, they had pre World War aircraft, they had interwar aircraft, they had World War two aircraft, they had like I said, they had a seven zero seven and and you know just planes that are normally too too big to have right in that kind of museum
+[00:26:18] Will: I think that's probably the air is probably thin thin enough that I mean they travel at Mach 3, but I'd say probably it dissipates by the time it gets to the ground. Um, the like all the they had Cold War aircraft, they had World War one aircraft, they had pre World War aircraft, they had interwar aircraft, they had World War two aircraft, they had like I said, they had a seven zero seven and and you know just planes that are normally too too big to have right in that kind of museum
 
 [00:26:42] Norm: in one hangar
 
@@ -700,7 +700,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:30:47] Adam: Holy shit!
 
-[00:30:47] Will: There's Chuck Yeager's Bell X One. It's not the one from the Right Stuff. No, it's the one. Like, like. It's that stuff that's funny. I saw that as a kid. I understood what it was, but I didn't appreciate it. And I,
+[00:30:47] Will: There's Chuck Yeager's Bell X-1. It's not the one from the Right Stuff. No, it's the one. Like, like. It's that stuff that's funny. I saw that as a kid. I understood what it was, but I didn't appreciate it. And I,
 
 [00:31:01] Adam: when you realize, you realize, that they're, yeah,
 

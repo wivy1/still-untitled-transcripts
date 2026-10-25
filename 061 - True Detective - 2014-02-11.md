@@ -608,7 +608,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:15:26] Adam: right?
 
-[00:15:26] Norm: He doesn't take his shirt off like Matthew McConaughey of the nineties.
+[00:15:26] Norm: He doesn't take his shirt off like Matthew McConaughey of the '90s.
 
 [00:15:26] Adam: Take your shirt off.
 
@@ -642,9 +642,9 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:16:15] Norm: And so that itself is world building. They're for callback 1995. There, you know, Clinton references.
 
-[00:16:15] Adam: I mean, I will tell you, watching the third episode, I couldn't figure out because Louisiana is all like, you know, I was like, am I watching something from the 50s?
+[00:16:15] Adam: I mean, I will tell you, watching the third episode, I couldn't figure out because Louisiana is all like, you know, I was like, am I watching something from the '50s?
 
-[00:16:40] Will: When he rolls out of a mid 90s Crown Vic, I'm like, wow, is the is the Louisiana PD so so hard up that they're still driving 15 year old Crown Vics?
+[00:16:40] Will: When he rolls out of a mid '90s Crown Vic, I'm like, wow, is the is the Louisiana PD so so hard up that they're still driving 15 year old Crown Vics?
 
 [00:16:40] Adam: Yeah.
 

@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:01:23] Will: It's an important distinction.
 
-[00:01:25] Adam: Yes, in Even Cowgirls Get the Blues, it's Sissy's thumbs and it's hitchhiking as a mode of transcendence. Uh, in Still Life with a Woodpecker, it's bombs and cigarettes. And in Jitterbug Perfume, uh, it's about a couple, Alobar and Kudra, who meet somewhere around the eighth century, fall in love, and live together for over a thousand years.
+[00:01:25] Adam: Yes, in Even Cowgirls Get the Blues, it's Sissy's thumbs and it's hitchhiking as a mode of transcendence. Uh, in Still Life with a Woodpecker, it's bombs and cigarettes. And in Jitterbug Perfume, uh, it's about a couple, Alobar and Kudra, who meet somewhere around the 8th century, fall in love, and live together for over a thousand years.
 
 [00:01:44] Will: Wow, that seems like a long time.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:08:57] Norm: That's what you're paying for.
 
-[00:08:59] Adam: But yeah, right, exactly. I once went to a Peter. I went to Peter Gabriel's last tour at the Oakland Coliseum, and someone was like the next day. They're like, "Yeah, it was a little theatrical," and I'm like, "I don't know what you spent a hundred and fifty dollars on."
+[00:08:59] Adam: But yeah, right, exactly. I once went to a Peter. I went to Peter Gabriel's last tour at the Oakland Coliseum, and someone was like the next day. They're like, "Yeah, it was a little theatrical," and I'm like, "I don't know what you spent 150 dollars on."
 
 [00:09:09] Will: You wanted the, the floating pink balloon, the—
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:09:24] Norm: Yeah, oh no, people die in this movie.
 
-[00:09:27] Adam: Thousands, thousands and thousands and thousands. Yeah, and every, every other shot looks like something out of nine-eleven, like something hits a building and fire shoots out from every window on that floor.
+[00:09:27] Adam: Thousands, thousands and thousands and thousands. Yeah, and every, every other shot looks like something out of 9/11, like something hits a building and fire shoots out from every window on that floor.
 
 [00:09:37] Unknown speaker: Oh, it's terrifying.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:09:53] Will: You—
 
-[00:09:53] Adam: Can't. It's true. You can't. But I, and I think that Snyder is working off of the same kind of stuff we grew up with, with Superman II, and like big fights meant big destruction of buildings and stuff. But maybe it's because I have kids, and maybe it's because of nine-eleven. But I watched it, and I kept on having—that was what kept pulling me out of my suspension of disbelief.
+[00:09:53] Adam: Can't. It's true. You can't. But I, and I think that Snyder is working off of the same kind of stuff we grew up with, with Superman II, and like big fights meant big destruction of buildings and stuff. But maybe it's because I have kids, and maybe it's because of 9/11. But I watched it, and I kept on having—that was what kept pulling me out of my suspension of disbelief.
 
 [00:10:13] Will: Well, so in Iron Man, they, they, they—sorry, I didn't—
 
@@ -712,7 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:20:31] Norm: and everything should be like, " Oh, that was." That was really well written, or I got a chill from that
 
-[00:20:36] Adam: having having you know just having the tiniest limited experience I have with writing stuff and then producing it. I get the feeling sometimes in these movies that early on in the process somebody writes down something thinking we're going to fix that later, we're going to refine that later, and then it doesn't get refined, and you end up feeling like oh good, you know maybe ten percent of the script just feels like a first run.
+[00:20:36] Adam: having having you know just having the tiniest limited experience I have with writing stuff and then producing it. I get the feeling sometimes in these movies that early on in the process somebody writes down something thinking we're going to fix that later, we're going to refine that later, and then it doesn't get refined, and you end up feeling like oh good, you know maybe 10% of the script just feels like a first run.
 
 [00:21:01] Will: Well, or or they leave you leave the line in that is specifically there so that they can say well this scene's a little bit long we need to cut this you know this doesn't add anything and then nobody ever complains about it.
 
@@ -830,7 +830,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:24:04] Adam: Cat Stevens. This was my first Cat Stevens album.
 
-[00:24:07] Will: You really weren't kidding when you said you were a pop kid. in the 70s and 80s.
+[00:24:07] Will: You really weren't kidding when you said you were a pop kid. in the '70s and '80s.
 
 [00:24:09] Adam: Oh no, no, no, not at all. Not at all. Morning has broken. I remember finding this album, not knowing anything about it, being like eight years old, and putting this on the stereo and being like, " I love this song." Morning has broken.
 
@@ -1148,9 +1148,9 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:32:09] Norm: twelfth. Yeah,
 
-[00:32:10] Adam: July twelfth.
+[00:32:10] Adam: July 12.
 
-[00:32:10] Norm: July twelfth. Yeah.
+[00:32:10] Norm: July 12. Yeah.
 
 [00:32:11] Adam: Three days before my birthday.
 

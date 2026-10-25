@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:04:42] Will: yeah.
 
-[00:04:42] Adam: So, so Pete Seeger was an is an American folk singer and an icon of the stripe of Woody Guthrie, and that important. Where Woody Guthrie is early part of the century, stumping for miners and unionization in in early part of the twentieth century. Pete Seeger is definitely the mid century, famous for touring with a group called the Weavers, and singing and writing beautiful protest songs. Was right there with Martin Luther King and the civil rights movement. Part of the Hollywood blacklist, absolutely was blackballed out of the entertainment industry for decades because of his communist leanings. I don't even think they were leanings. I think he was right in the middle.
+[00:04:42] Adam: So, so Pete Seeger was an is an American folk singer and an icon of the stripe of Woody Guthrie, and that important. Where Woody Guthrie is early part of the century, stumping for miners and unionization in in early part of the 20th century. Pete Seeger is definitely the mid century, famous for touring with a group called the Weavers, and singing and writing beautiful protest songs. Was right there with Martin Luther King and the civil rights movement. Part of the Hollywood blacklist, absolutely was blackballed out of the entertainment industry for decades because of his communist leanings. I don't even think they were leanings. I think he was right in the middle.
 
 [00:05:22] Will: I think he's probably a communist,
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:05:46] Adam: Nice, yeah.
 
-[00:05:47] Will: And when I was in high school, when I was like a freshman in high school, and I was like, " This is incredible! These guys like they're singing songs that mean things. It's not just the eighties pop pablum that I grew up with.
+[00:05:47] Will: And when I was in high school, when I was like a freshman in high school, and I was like, " This is incredible! These guys like they're singing songs that mean things. It's not just the '80s pop pablum that I grew up with.
 
 [00:05:47] Adam: Yeah, exactly.
 
@@ -780,7 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:28:31] Adam: Two days from now.
 
-[00:28:32] Norm: Earth Day, April twenty second. March for Science dot com is the website you want to go to for information.
+[00:28:32] Norm: Earth Day, April 22. March for Science dot com is the website you want to go to for information.
 
 [00:28:37] Adam: There are marches in 430 cities all over
 

@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:10:13] Adam: Ah, Cancun. Yeah. Okay.
 
-[00:10:14] Simone: Okay. Ninth Mission and Nineteenth. Yeah. Yeah. It was. Uh. It was a glorious experience. Good reunion of me and my burrito friend.
+[00:10:14] Simone: Okay. Ninth Mission and 19th. Yeah. Yeah. It was. Uh. It was a glorious experience. Good reunion of me and my burrito friend.
 
 [00:10:23] Adam: I am a fan of. I'm particularly a fan of. El Farolito.
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:12:07] Norm: No.
 
-[00:12:08] Adam: Shizen, it's here on Fourteenth and Valencia, I think.
+[00:12:08] Adam: Shizen, it's here on 14th and Valencia, I think.
 
 [00:12:11] Simone: Okay.
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:29:08] Simone: right? Right. Right.
 
-[00:29:08] Adam: And apparently went back and visited Norway in his in his middle age, so this would be the nineteen forties or fifties. And apparently, discovered at that point he was like speaking Norwegian because he grew up speaking Norwegian, and he's like going around Norway speaking to everybody like what he remembers from when he was ten years old, and he's very proud that he can speak the language. It turns out a day and a half in that actually he speaks Swedish.
+[00:29:08] Adam: And apparently went back and visited Norway in his in his middle age, so this would be the 1940s or '50s. And apparently, discovered at that point he was like speaking Norwegian because he grew up speaking Norwegian, and he's like going around Norway speaking to everybody like what he remembers from when he was ten years old, and he's very proud that he can speak the language. It turns out a day and a half in that actually he speaks Swedish.
 
 [00:29:37] Simone: No.
 
@@ -656,7 +656,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:30:14] Adam: I don't mean that.
 
-[00:30:15] Adam: well. He was a he was a surgeon. He was actually my grandfather was one of the pioneers of breast cancer surgery in the 40s and the 50s. And my mom actually remembers. I mean, he was very much a Norwegian father. Like when my mom was first pregnant, he was like, " Yes, my dear, it's exactly what I expected of you."
+[00:30:15] Adam: well. He was a he was a surgeon. He was actually my grandfather was one of the pioneers of breast cancer surgery in the '40s and the '50s. And my mom actually remembers. I mean, he was very much a Norwegian father. Like when my mom was first pregnant, he was like, " Yes, my dear, it's exactly what I expected of you."
 
 [00:30:37] Norm: Wow,
 

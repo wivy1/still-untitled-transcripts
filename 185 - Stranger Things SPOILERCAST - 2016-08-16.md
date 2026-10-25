@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:08:27] Adam: Ooh, you are so big, so absolutely huge.
 
-[00:08:32] Rebecca: I, uh, for my brother got married last year on the beach. It was a beautiful wedding, and I was looking up like poetry that I might want to. Put into the ordeal. I don't know why that's the word that came to mind. It wasn't an ordeal. But, um, I was looking at poetry, and I was specifically looking for things with ocean, beachy themes. And what I realized is that ninety percent of all poetry about the ocean is depressing as hell. Like it's all about death.
+[00:08:32] Rebecca: I, uh, for my brother got married last year on the beach. It was a beautiful wedding, and I was looking up like poetry that I might want to. Put into the ordeal. I don't know why that's the word that came to mind. It wasn't an ordeal. But, um, I was looking at poetry, and I was specifically looking for things with ocean, beachy themes. And what I realized is that 90% of all poetry about the ocean is depressing as hell. Like it's all about death.
 
 [00:09:02] Adam: Yeah, the ocean is a portal to death. Of course, it is.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:09:17] Adam: She's an aquanaut.
 
-[00:09:18] Rebecca: Yes, and she's she's this amazing explorer, and she has a lot of really awesome things to say about the ocean and the interconnectedness of life and how the like, uh, ninety something like ninety seven percent of all of the world's life is in the ocean, and this is the only planet we know of with life. So maybe ninety seven percent of all life in the universe. Is in the ocean. That's why it's so important to protect them and to honor our oceans.
+[00:09:18] Rebecca: Yes, and she's she's this amazing explorer, and she has a lot of really awesome things to say about the ocean and the interconnectedness of life and how the like, uh, ninety something like 97% of all of the world's life is in the ocean, and this is the only planet we know of with life. So maybe 97% of all life in the universe. Is in the ocean. That's why it's so important to protect them and to honor our oceans.
 
 [00:09:44] Adam: That's cool.
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:11:12] Rebecca: Subtle.
 
-[00:11:12] Adam: This is fifteenth century. Such wilt thou be to me, who like the other foot must obliquely run. Thy firmness makes my circle just and makes me end where I begun.
+[00:11:12] Adam: This is 15th century. Such wilt thou be to me, who like the other foot must obliquely run. Thy firmness makes my circle just and makes me end where I begun.
 
 [00:11:23] Norm: That's impressive.
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:21:01] Norm: Did, what did you guys think of the monster? The design of the monster and how, like, uh, the the moment at the end of season two, where it's coming through the walls and that poltergeist moment, that was amazing. I thought it got a little less effective once they showed the full monster.
 
-[00:21:13] Adam: Well, and then a friend of mine pointed out that they think that they were trying to be true to eighties movies in like the monster is scary as long as we're implying it, but we're going to show it to you, and it's going to be a little lame. Petal head.
+[00:21:13] Adam: Well, and then a friend of mine pointed out that they think that they were trying to be true to '80s movies in like the monster is scary as long as we're implying it, but we're going to show it to you, and it's going to be a little lame. Petal head.
 
 [00:21:24] Rebecca: I think they kind of had their cake and ate it too, in that. You know, it is scarier when you don't see it, and so we had so many movies, Cloverfield esque, where you just you never get that money shot, and you go away feeling like slightly annoyed.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:24:06] Rebecca: Right.
 
-[00:24:06] Adam: And identical twins are always just a statistical anomaly. Every now and then, an egg splits into two separate eggs, and that just happens. But that's the much rarer of the two kinds of twins. And twins are, in fact, two percent of births. That is the same number of births as redheads, for instance.
+[00:24:06] Adam: And identical twins are always just a statistical anomaly. Every now and then, an egg splits into two separate eggs, and that just happens. But that's the much rarer of the two kinds of twins. And twins are, in fact, 2% of births. That is the same number of births as redheads, for instance.
 
 [00:24:25] Rebecca: Wow, did not know that. Fascinating.
 
@@ -614,7 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:24:40] Rebecca: Yeah, there's a lot of twins in our peer group for some reason. It's weird.
 
-[00:24:43] Norm: Two percent more than two percent.
+[00:24:43] Norm: 2% more than 2%.
 
 [00:24:45] Rebecca: Yeah,
 
@@ -958,7 +958,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:36:29] Rebecca: last month.
 
-[00:36:52] Norm: yeah, exactly. Right, they could ruin the summer, the great summer of twenty sixteen.
+[00:36:52] Norm: yeah, exactly. Right, they could ruin the summer, the great summer of 2016.
 
 [00:36:57] Adam: The actress who plays Eleven's name is I don't know, advertisement. What are you doing to me? Three, two, one. Hold on. Here we go. Her name is Millie Bobby Brown.
 
@@ -990,7 +990,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:38:39] Adam: wow
 
-[00:38:39] Rebecca: text her and like you. I'm the only. It's seven thirty in the morning. I'm the only one on a dead end street, and I'm like, " Did I die?"
+[00:38:39] Rebecca: text her and like you. I'm the only. It's 7:30 in the morning. I'm the only one on a dead end street, and I'm like, " Did I die?"
 
 [00:38:47] Adam: I have a funny Sixth Sense story. John Land, so Deborah Nadoolman Landis, who was on my panel.
 
@@ -1034,7 +1034,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:40:00] Rebecca: Yeah,
 
-[00:40:00] Adam: and that was it's just it's just such an amazing love letter to eighties cinema and all of those wonderful tropes. Um, can't wait. Yeah,
+[00:40:00] Adam: and that was it's just it's just such an amazing love letter to '80s cinema and all of those wonderful tropes. Um, can't wait. Yeah,
 
 [00:40:08] Adam: Norm,
 

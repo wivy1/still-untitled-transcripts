@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=aT8qF-nF2HA
 
 [00:17:16] Norm: that look like with Cate Blanchett in the flashbacks that looked the most gorgeous, you know, hard shadow lighting you'd seen.
 
-[00:18:01] Adam: Well, and speaking of that, how amazing is Cate Blanchett? As it's like if you get to hire Cate Blanchett as your villain, you're like seventy percent of the way there. She's amazing.
+[00:18:01] Adam: Well, and speaking of that, how amazing is Cate Blanchett? As it's like if you get to hire Cate Blanchett as your villain, you're like 70% of the way there. She's amazing.
 
 [00:18:12] Will: Oh, I like, look. I I watching her do that makes me want the Galadriel goes dark movie, Yeah. Right? Like like I want to see I want to see her pissed off and all powerful more often, and and like and I'm I'm thrilled that they didn't kill her at the end of this movie. Presumably, like we didn't see her die, so presumably she's still alive. There's no lawyers, so she's she still exists in the universe. I hope we see more of of of Hela.
 

@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:01:14] Will: Yeah.
 
-[00:01:14] Adam: So I didn't realize that when you're in another market like LA or Chicago, half, ninety percent of LAR sounds of of of NPR sounds exactly like the Schweddy ball sketch.
+[00:01:14] Adam: So I didn't realize that when you're in another market like LA or Chicago, half, 90% of LAR sounds of of of NPR sounds exactly like the Schweddy ball sketch.
 
 [00:01:27] Will: Oh yeah.
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:04:44] Will: When I when I go when I went home for Christmas on the East Coast, Amazon is the greatest thing ever because you go buy all the stuff for the people and you send it back and you don't have to haul it on the airplane.
 
-[00:04:51] Adam: Oh no, a hundred percent.
+[00:04:51] Adam: Oh no, 100%.
 
 [00:04:52] Will: It is a wonderful thing.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:06:41] Adam: We've got it downstairs.
 
-[00:06:42] Will: Which is, it's awesome. The the original binding I think came with like lunar asteroid or something and sold for fifteen thousand dollars or something ridiculous, but they reissued it like three years ago. It's great.
+[00:06:42] Will: Which is, it's awesome. The the original binding I think came with like lunar asteroid or something and sold for 15,000 dollars or something ridiculous, but they reissued it like three years ago. It's great.
 
 [00:06:51] Adam: That's awesome.
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:15:43] Will: Yeah, at some point, some guy looked up and was like, "I've I've cracked it, guys! We've broken the slide rule. We— you throw out your slide rules. This thing is going to change the world." And then nobody could figure out.
 
-[00:15:51] Adam: They made something like they made hundreds of thousands of these between the fifties and and the early seventies when the Texas Instruments first digital—
+[00:15:51] Adam: They made something like they made hundreds of thousands of these between the '50s and and the early '70s when the Texas Instruments first digital—
 
 [00:16:04] Will: The first solar calculator.
 
@@ -554,9 +554,9 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:18:17] Will: Because you can, the— it's Japanese, so it's it's from people that normally make rice cookers, and you press the button, and the little lid flops open, so you don't pour coffee on yourself while you're trying to get the coffee in the little cup while you're driving with your knee and nice and like that's the kind of thing that like is a slam dunk. It's twenty bucks. You jam it in everybody's stocking.
 
-[00:18:33] Norm: Thirty-six bucks.
+[00:18:33] Norm: 36 bucks.
 
-[00:18:34] Will: Six— thirty-six bucks now, really?
+[00:18:34] Will: Six— 36 bucks now, really?
 
 [00:18:35] Norm: Yeah.
 
@@ -726,7 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:22:45] Will: Right? Yeah, you just open— Norm's opening cards like crazy all the time.
 
-[00:22:49] Adam: So I will also say Christmas buying guide. I'm going to go back to local. Here in my neighborhood, in the Mission District, Valencia between sixteenth and twenty-fourth Street is a tremendous Christmas extravaganza for purchasing. There's some fantastic stores, Serendipity, Paxton Gate, wonderful esoteric gift shops that sell stuff you wouldn't find anywhere else. I mean, I know my kids are get— probably getting me stuff at both of those places.
+[00:22:49] Adam: So I will also say Christmas buying guide. I'm going to go back to local. Here in my neighborhood, in the Mission District, Valencia between 16th and 24th Street is a tremendous Christmas extravaganza for purchasing. There's some fantastic stores, Serendipity, Paxton Gate, wonderful esoteric gift shops that sell stuff you wouldn't find anywhere else. I mean, I know my kids are get— probably getting me stuff at both of those places.
 
 [00:23:18] Will: Well, and if you're not in San Francisco, which I'm sure a fair number of you guys aren't—
 

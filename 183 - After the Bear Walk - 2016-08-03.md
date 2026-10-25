@@ -96,9 +96,9 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:03:29] Will: life was cheap.
 
-[00:03:29] Norm: In company, right, right, in the sixties and seventies, companies would sell like just like you could buy your house in a box. They would sell your playground in a box to to counties and small cities, and they would be incredible. That whole futuristic age, giant robots that kids would climb on, and
+[00:03:29] Norm: In company, right, right, in the '60s and '70s, companies would sell like just like you could buy your house in a box. They would sell your playground in a box to to counties and small cities, and they would be incredible. That whole futuristic age, giant robots that kids would climb on, and
 
-[00:03:47] Adam: we we they they built one in my hometown in I think nineteen eighty four, and it was all out of recycled lumber, and it was all bolted together, and it was really elaborate. Isn't
+[00:03:47] Adam: we we they they built one in my hometown in I think 1984, and it was all out of recycled lumber, and it was all bolted together, and it was really elaborate. Isn't
 
 [00:03:56] Will: truck tires?
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:10:03] Will: Was it the normal like hundred degree surface of the Sun Comic Con, or was it nice?
 
-[00:10:08] Adam: No, it was like eighty degrees, but seventy five percent humidity.
+[00:10:08] Adam: No, it was like eighty degrees, but 75% humidity.
 
 [00:10:11] Norm: Yeah. So Joey and I are already doing our like navigation, our weaving around, stealthy weaving, and then Team Two, which we sent ahead of time. So like people don't realize this is a big production for us. Like from the packing,
 

@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:01:16] Will: So you mean East Coast, East Coast intellectual elitism and, as a—
 
-[00:01:20] Adam: Which was the only intellectual elitism back in the mid century, right in the thirties and the forties? So, uh, so he sought out what he he looked around for a type of American based fiction that had not that no one was paying attention to.
+[00:01:20] Adam: Which was the only intellectual elitism back in the mid century, right in the '30s and the '40s? So, uh, so he sought out what he he looked around for a type of American based fiction that had not that no one was paying attention to.
 
 [00:01:39] Will: Okay.
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:07:18] Norm: So you mentioned Chabon and other writers. You said are influenced by Chandler and even directors. What are good examples of that?
 
-[00:07:24] Adam: Well, I, I, I feel like when I watch any Tarantino film, that he's a big admirer of Chandler. I know that one of my all time favorite writers, Haruki Murakami, is a big Chandler fan. I think the great, the great Sheep Chase is a is a an homage in its entirety to Chandler. And I like I did a talk a few years ago at DragonCon called "One Hundred Wishes," and one of them was I would love someday to sit down over some drinks and talk to Murakami about Chandler. In fact, if I could, I'd go in a time machine and drive through nineteen fifties Los Angeles with him,
+[00:07:24] Adam: Well, I, I, I feel like when I watch any Tarantino film, that he's a big admirer of Chandler. I know that one of my all time favorite writers, Haruki Murakami, is a big Chandler fan. I think the great, the great Sheep Chase is a is a an homage in its entirety to Chandler. And I like I did a talk a few years ago at DragonCon called "One Hundred Wishes," and one of them was I would love someday to sit down over some drinks and talk to Murakami about Chandler. In fact, if I could, I'd go in a time machine and drive through 1950s Los Angeles with him,
 
 [00:07:57] Will: With Murakami. So, so let's let's give a reading list,
 
@@ -334,11 +334,11 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:16:41] Will: Why, why was he controversial?
 
-[00:16:42] Adam: So what he did was he he wrote a bunch of books that purport to be, uh, sort of, uh, an anthropologist's journey through a mystical training by a magic teacher in Mexico in the 60s.
+[00:16:42] Adam: So what he did was he he wrote a bunch of books that purport to be, uh, sort of, uh, an anthropologist's journey through a mystical training by a magic teacher in Mexico in the '60s.
 
 [00:16:54] Will: Okay.
 
-[00:16:54] Adam: So that he went to this went to Mexico in the 60s to learn about, uh, psychotropic drugs and their use in rituals for Indian, uh, uh, magicians—
+[00:16:54] Adam: So that he went to this went to Mexico in the '60s to learn about, uh, psychotropic drugs and their use in rituals for Indian, uh, uh, magicians—
 
 [00:17:04] Will: Coming of age and or that kind of stuff—
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:18:37] Will: Do biographies or histories or—
 
-[00:18:39] Adam: I do actually. I recently plowed through a couple of Jay Winik's books, um, April 1864, and uh, okay. God, there's another one about I can't remember the title, but it's basically about how the American Revolution went on to foment and start the French Revolution and was ultimately responsible for the downfall of Catherine the Great. So he links these historical events all together, um, and he's a wonderful, engaging writer. So I love histories. I love biographies. I love. Uh, I, I, I recently finished Taylor, the second of the three books of Taylor Branch's, um, super intense chronicle of uh of the, uh, the civil rights movement in the South. Um, again, I'm old, so trying to call up the titles of the books. Parting the Waters is one of them. They're all about Martin Luther King and the civil rights movement in the South through, uh, through the sixties. You know.
+[00:18:39] Adam: I do actually. I recently plowed through a couple of Jay Winik's books, um, April 1864, and uh, okay. God, there's another one about I can't remember the title, but it's basically about how the American Revolution went on to foment and start the French Revolution and was ultimately responsible for the downfall of Catherine the Great. So he links these historical events all together, um, and he's a wonderful, engaging writer. So I love histories. I love biographies. I love. Uh, I, I, I recently finished Taylor, the second of the three books of Taylor Branch's, um, super intense chronicle of uh of the, uh, the civil rights movement in the South. Um, again, I'm old, so trying to call up the titles of the books. Parting the Waters is one of them. They're all about Martin Luther King and the civil rights movement in the South through, uh, through the '60s. You know.
 
 [00:19:31] Will: With the internet, if you have an author name and Amazon,
 

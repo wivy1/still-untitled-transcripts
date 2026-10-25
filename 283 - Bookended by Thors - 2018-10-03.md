@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:01:46] Will: Boy, are your arms tired?
 
-[00:01:47] Adam: Yes. So we raised just a shade over seventy thousand dollars for our children's trust.
+[00:01:47] Adam: Yes. So we raised just a shade over 70,000 dollars for our children's trust.
 
 [00:01:47] Norm: Wow, that's awesome.
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:03:31] Will: total cost for ownership is complicated on simple stuff. So,
 
-[00:03:34] Adam: so what you're sorry to interrupt, but you're reminding me years ago, Spy Magazine, one of the great satirical monthlies ever produced. Spy Magazine did a long article on how many lives you're taking just by moving through your day, and it'd be like I wake up and I go into the bathroom. The ceramics industry that provided the tile for my bathroom, on average, about you know 28 people a year die mining these chemicals. And at the end, he figured out at the end of his day that he was. Personally responsible every single day for something like point oh oh oh one eight deaths.
+[00:03:34] Adam: so what you're sorry to interrupt, but you're reminding me years ago, Spy Magazine, one of the great satirical monthlies ever produced. Spy Magazine did a long article on how many lives you're taking just by moving through your day, and it'd be like I wake up and I go into the bathroom. The ceramics industry that provided the tile for my bathroom, on average, about you know 28 people a year die mining these chemicals. And at the end, he figured out at the end of his day that he was. Personally responsible every single day for something like 0.00018 deaths.
 
 [00:04:08] Will: So, so you guys have a special special version of this as well. I think Hank Green maybe at XOXO a few years ago did a talk. Oh yes, I
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:21:43] Adam: Yeah, go, but support the small builders of the world. Support those small companies working hard to all that. All Industria Mechanika wants to do is put cooler kits in the hands of more people. That's Their life goal,
 
-[00:21:56] Will: yep. And the thing that they do, pairing the artists with the with the with the people who can turn those you know two D flats into three D objects in the real world, is well, it's just it's just beautiful.
+[00:21:56] Will: yep. And the thing that they do, pairing the artists with the with the with the people who can turn those you know 2D flats into 3D objects in the real world, is well, it's just it's just beautiful.
 
 [00:22:06] Norm: Yeah, that's where so much of that cost is is figuring that out, and it's all original IP, right? It's all stuff that just hits our buttons for like this is the coolest thing ever.
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:25:57] Will: no there's no hard lines. I
 
-[00:25:58] Adam: also fully recognize that you know we are in this wonderful position where oftentimes small sellers will send us their kits to build, and I really appreciate that. We also abs but sorry, and I fully recognize that the difference between a hundred dollars and one hundred and sixty dollars is a real difference. Like that, I get that. I exhort you to think of it not as I'm losing another sixty dollars as as much as I am supporting an independent artist executing their work at the level that they see fit. That's what that's what you should be thinking about it as.
+[00:25:58] Adam: also fully recognize that you know we are in this wonderful position where oftentimes small sellers will send us their kits to build, and I really appreciate that. We also abs but sorry, and I fully recognize that the difference between a hundred dollars and 160 dollars is a real difference. Like that, I get that. I exhort you to think of it not as I'm losing another sixty dollars as as much as I am supporting an independent artist executing their work at the level that they see fit. That's what that's what you should be thinking about it as.
 
 [00:26:35] Norm: It matters just as much to the person making it in their garage.
 

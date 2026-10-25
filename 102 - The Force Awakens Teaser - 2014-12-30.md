@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:03:39] Norm: He already made the new Star Wars.
 
-[00:03:41] Adam: I love Star Trek. I love it, and he is exactly the right person to do it, having be having been so deeply inculcated with that Spielberg, Lucas, the early 80s aesthetic of theirs.
+[00:03:41] Adam: I love Star Trek. I love it, and he is exactly the right person to do it, having be having been so deeply inculcated with that Spielberg, Lucas, the early '80s aesthetic of theirs.
 
 [00:03:53] Norm: Yeah, he made a fan film, Super Eight.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:11:00] Norm: yeah.
 
-[00:11:01] Adam: You know, actually, I reached out to Damon Lindelof and said, " You know, if they need an R two D two, I've got one."
+[00:11:01] Adam: You know, actually, I reached out to Damon Lindelof and said, " You know, if they need an R2-D2, I've got one."
 
 [00:11:06] Norm: They got guys working on that from the club.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:11:46] Adam: But we're getting away from the thing.
 
-[00:11:47] Norm: Yeah, JJ Abrams and and a lot of people watch Star Star Trek two thousand nine and also Into Darkness, and there are scenes in both where you can say that he really wanted to make Star Wars, and he was given the Star Trek franchise. And it's great that he got a lot of that maybe out of his system, so he challenges himself. Like for example, in Star Trek: Into Darkness, there's a great chase scene when they're in a small shuttle pod, and it's being chased by a Klingon bird of prey, and that feels very Star Wars like, you know, and and the banter that's going on during that scene, and so it's great that he did that, so that he had he he's gone through the thought process over two movies now without the burden of it being then having to do Star Wars without anything before.
+[00:11:47] Norm: Yeah, JJ Abrams and and a lot of people watch Star Star Trek 2009 and also Into Darkness, and there are scenes in both where you can say that he really wanted to make Star Wars, and he was given the Star Trek franchise. And it's great that he got a lot of that maybe out of his system, so he challenges himself. Like for example, in Star Trek: Into Darkness, there's a great chase scene when they're in a small shuttle pod, and it's being chased by a Klingon bird of prey, and that feels very Star Wars like, you know, and and the banter that's going on during that scene, and so it's great that he did that, so that he had he he's gone through the thought process over two movies now without the burden of it being then having to do Star Wars without anything before.
 
 [00:12:28] Will: So, hold on, you’re saying he's getting called up to the big leagues now?
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:14:48] Will: But it has to be bad, or it wouldn't be interesting.
 
-[00:14:50] Adam: And if if and I know that Damon Lindelof doesn't have anything to do with this movie, but he did say as soon as you're spending two hundred million dollars at a movie, the fate of the universe has to be hanging in the balance. So clearly, we're probably meeting them when they're all old and don't want to be galvanized, and you get to watch these these three characters
+[00:14:50] Adam: And if if and I know that Damon Lindelof doesn't have anything to do with this movie, but he did say as soon as you're spending 200,000,000 dollars at a movie, the fate of the universe has to be hanging in the balance. So clearly, we're probably meeting them when they're all old and don't want to be galvanized, and you get to watch these these three characters
 
 [00:15:09] Frank: like reluctantly get
 

@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:01:18] Will: And next Thursday rolls around. It's right back. I
 
-[00:01:22] Adam: remember once. Oh my god! Here's how tidy Jamie Hyneman is about, and how unsentimental he is about the products that he makes. Back in like 2012, I think we did the truck driving through 16 cars with the big fin on it, and then in 2015 we did it again. Except this time I drove the same truck or an equivalent truck through you know the 15 years of MythBusters history. And the first time we did it, Jamie had taken the measurements of the truck, and in The computer done a three D CAD drawing of the mounting points of the truck, and then designed this plasma cut sheet steel fin, right?
+[00:01:22] Adam: remember once. Oh my god! Here's how tidy Jamie Hyneman is about, and how unsentimental he is about the products that he makes. Back in like 2012, I think we did the truck driving through 16 cars with the big fin on it, and then in 2015 we did it again. Except this time I drove the same truck or an equivalent truck through you know the 15 years of MythBusters history. And the first time we did it, Jamie had taken the measurements of the truck, and in The computer done a 3D CAD drawing of the mounting points of the truck, and then designed this plasma cut sheet steel fin, right?
 
 [00:01:22] Will: A plow essentially.
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:05:03] Norm: Backup CDs.
 
-[00:05:04] Adam: Yeah. And so I pulled, I pulled a whole bunch of them, but in in two thousand when I started working on episode two, the arena was a miniature set built in the model shop, and it's a beautiful set. It was really
+[00:05:04] Adam: Yeah. And so I pulled, I pulled a whole bunch of them, but in in 2000 when I started working on episode two, the arena was a miniature set built in the model shop, and it's a beautiful set. It was really
 
 [00:05:23] Norm: with the cotton swab heads,
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:05:36] Adam: the very first
 
-[00:06:02] Will: three megapixel camera. Yeah,
+[00:06:02] Will: 3 megapixel camera. Yeah,
 
 [00:06:04] Adam: dude, you know that was a masterpiece of of engineering and design, and it was precisely the size of a pack of cigarettes.
 
@@ -922,7 +922,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:30:28] Will: skit show. That's interesting.
 
-[00:30:29] Norm: Two point four. It's the Rick James skit.
+[00:30:29] Norm: 2.4. It's the Rick James skit.
 
 [00:30:32] Will: Oh yeah, okay.
 
@@ -1232,7 +1232,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:39:22] Norm: Like
 
-[00:39:26] Adam: anti-racism in the early seventies was still pretty racist.
+[00:39:26] Adam: anti-racism in the early '70s was still pretty racist.
 
 [00:39:29] Will: I mean, in fairness. In fairness, the Happy Days episode that probably had the most cultural impact is when Fonzie jumped the shark. Oh, so you know?
 
@@ -1422,7 +1422,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:45:03] Norm: I'm going to watch.
 
-[00:45:04] Will: We are playing in the Twitch broadcaster Royale, and they are. It's a three hundred thousand dollar tournament, I think.
+[00:45:04] Will: We are playing in the Twitch broadcaster Royale, and they are. It's a 300,000 dollar tournament, I think.
 
 [00:45:11] Norm: Holy smokes!
 

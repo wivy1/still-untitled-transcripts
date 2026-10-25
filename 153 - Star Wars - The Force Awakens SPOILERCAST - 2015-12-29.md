@@ -724,7 +724,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:29:36] Will: Are you talking about the monsters?
 
-[00:29:37] Norm: No, no. The third action thing, I think. Oh, also going back to what J. J. Abrams did with warp drive in the Star Trek two thousand nine, he made warp his own by making it a violent action. Like when the Enterprise warps, it's like a bullet.
+[00:29:37] Norm: No, no. The third action thing, I think. Oh, also going back to what J. J. Abrams did with warp drive in the Star Trek 2009, he made warp his own by making it a violent action. Like when the Enterprise warps, it's like a bullet.
 
 [00:29:37] Will: Right.
 
@@ -884,9 +884,9 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:34:08] Adam: Han, old buddy.
 
-[00:34:10] Norm: BB Eight.
+[00:34:10] Norm: BB-8.
 
-[00:34:11] Adam: BB Eight. Dude, I had no idea how much I would love BB-8 as a character.
+[00:34:11] Adam: BB-8. Dude, I had no idea how much I would love BB-8 as a character.
 
 [00:34:16] Will: I walked out of that movie and I was like, " Oh man, I'm gonna go buy one of those Spheros now. I can't help it."
 
@@ -912,7 +912,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:34:52] Norm: Oh yeah,
 
-[00:35:03] Will: lighter thumbs. So the thing, the thing I love most about BB-8 is that he. Fixes the design problems with R two. R two is clearly designed to walk around on metal smooth floors.
+[00:35:03] Will: lighter thumbs. So the thing, the thing I love most about BB-8 is that he. Fixes the design problems with R2. R2 is clearly designed to walk around on metal smooth floors.
 
 [00:35:14] Adam: Yes, with no stairs.
 
@@ -922,15 +922,15 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:35:20] Will: no guardrails.
 
-[00:35:20] Norm: I think this goes to the puppetry, and you have to appreciate the way BB eight was designed, uh, the an elegant an elegant form, two circles, which is when an artist draws a figure, any figure, you have basically two circles, a body and a head,
+[00:35:20] Norm: I think this goes to the puppetry, and you have to appreciate the way BB-8 was designed, uh, the an elegant an elegant form, two circles, which is when an artist draws a figure, any figure, you have basically two circles, a body and a head,
 
 [00:35:20] Adam: right?
 
-[00:35:20] Norm: But the puppetry of BB eight is amazing, both in the animator on the CG side and also
+[00:35:20] Norm: But the puppetry of BB-8 is amazing, both in the animator on the CG side and also
 
 [00:35:20] Will: the practical.
 
-[00:35:20] Norm: The practical. When you have when Rey hunts Finn down with a stick and says he's a thief, BB eight is growling off the side. That is a real puppet being moved around. When BB eight rolls down the staircase in Maz's castle, when Rey finds lightsaber, and he's in the background, or he or she, I don’t know—BB-8—but he dips down, looks down, and then walks down the stairs.
+[00:35:20] Norm: The practical. When you have when Rey hunts Finn down with a stick and says he's a thief, BB-8 is growling off the side. That is a real puppet being moved around. When BB-8 rolls down the staircase in Maz's castle, when Rey finds lightsaber, and he's in the background, or he or she, I don’t know—BB-8—but he dips down, looks down, and then walks down the stairs.
 
 [00:35:59] Adam: But he's also using he's using the momentum of his head's center weight to change his center of gravity. I've rolled big things downstairs, and that was. Dead perfect. Not like all of a sudden I have rockets in my life.
 
@@ -940,9 +940,9 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:36:23] Will: Go ahead.
 
-[00:36:24] Norm: Yeah, and then BB Eight. I think if you compare BB Eight with WALL-E, I think these are two huge achievements in character and personality without having to say a single word.
+[00:36:24] Norm: Yeah, and then BB-8. I think if you compare BB-8 with WALL-E, I think these are two huge achievements in character and personality without having to say a single word.
 
-[00:36:33] Will: Well, a lot of BB Eight is Ben Burtt too. I mean, Ben Burtt did the did the sound for BB Eight, right?
+[00:36:33] Will: Well, a lot of BB-8 is Ben Burtt too. I mean, Ben Burtt did the did the sound for BB-8, right?
 
 [00:36:38] Norm: Bill Hader.
 
@@ -1008,7 +1008,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:39:14] Adam: There could be. I liked. I enjoyed that joke immensely. Is there a trash compactor? Yeah. Yeah, there is. And that was a nice callback to the sanitation work.
 
-[00:39:22] Will: There were there were like maybe twenty percent too many nice callbacks in this film.
+[00:39:22] Will: There were there were like maybe 20% too many nice callbacks in this film.
 
 [00:39:26] Adam: I didn't. I I disagree. So
 

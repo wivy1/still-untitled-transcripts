@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:03:11] Norm: Yes.
 
-[00:03:11] Will: Okay. Well, they they figured that lerp's don't work. I mean, lerp's work for ninety percent of people and really don't work for like five percent. Lerp is a linear expression of I can't remember what it stands for, but it basically means you jump and it doesn't blink out the movement; it just shows it in like six frames.
+[00:03:11] Will: Okay. Well, they they figured that lerp's don't work. I mean, lerp's work for 90% of people and really don't work for like 5%. Lerp is a linear expression of I can't remember what it stands for, but it basically means you jump and it doesn't blink out the movement; it just shows it in like six frames.
 
 [00:03:25] Adam: Ah.
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:06:04] Norm: Yeah.
 
-[00:06:05] Adam: Um, I notice my aiming accuracy is at about seventy five percent. Yeah,
+[00:06:05] Adam: Um, I notice my aiming accuracy is at about 75%. Yeah,
 
 [00:06:09] Norm: yeah, yeah.
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:13:25] Will: It was it was a riot where the white people were upset that there was a prosperous black community and
 
-[00:13:30] Adam: burned it down and killed a bunch of people. One of the most prosperous black communities in the United States. It was called Black Wall Street, and it was an entire effective part of a city in which the local white people were so incensed about it, they not only showed up and murdered hundreds and hundreds of people, they were flying planes over and dropping. Bombs, fire bombs on the. They they razed an entire town. R a z e d. Um, it's a horrifying part of American history because it happened in the twenties.
+[00:13:30] Adam: burned it down and killed a bunch of people. One of the most prosperous black communities in the United States. It was called Black Wall Street, and it was an entire effective part of a city in which the local white people were so incensed about it, they not only showed up and murdered hundreds and hundreds of people, they were flying planes over and dropping. Bombs, fire bombs on the. They they razed an entire town. R a z e d. Um, it's a horrifying part of American history because it happened in the '20s.
 
 [00:13:58] Will: They never. They don't. It's funny growing up in the South. It's something they don't teach you.
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:19:04] Will: but she's fucking with with Jon's omnipotence too, presumably. Like, does he see the he sees the entire joke at the same time? He knows that there's no joke. She knows that there's no point to telling him the joke, and she does it anyway purely for her own edification and and because she wants to fuck with Jon.
 
-[00:19:21] Adam: And there's this point in the joke, I guess, at about the seventy percent mark of the joke, where she says, " And now the last hero steps up, and God cracks his knuckles." And again, she. My wife was walking by while I was watching this. She hasn't jumped into Watchmen with me yet, but she looked and she went, " Oh, Jean Smart," and I was like, " Yeah," and she was like, " How's she doing?" And I'm like. Oh man, she's really bringing every all the crap.
+[00:19:21] Adam: And there's this point in the joke, I guess, at about the 70% mark of the joke, where she says, " And now the last hero steps up, and God cracks his knuckles." And again, she. My wife was walking by while I was watching this. She hasn't jumped into Watchmen with me yet, but she looked and she went, " Oh, Jean Smart," and I was like, " Yeah," and she was like, " How's she doing?" And I'm like. Oh man, she's really bringing every all the crap.
 
 [00:19:47] Will: There's nothing left on the table.
 

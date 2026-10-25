@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:06:51] Norm: Well, they're they're from the new film, and this one you actually got from the the RPF.
 
-[00:06:55] Adam: Yes, that is an RPF purchase, version two of a fan sculpt of Stormtrooper.
+[00:06:55] Adam: Yes, that is an RPF purchase, version 2 of a fan sculpt of Stormtrooper.
 
 [00:06:59] Norm: It does say V two
 
@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:12:51] Will: It was all in.
 
-[00:12:51] Adam: If you had two hundred bucks in your stack and you were up against another stack that big, you could go all in.
+[00:12:51] Adam: If you had 200 bucks in your stack and you were up against another stack that big, you could go all in.
 
 [00:12:55] Will: Nice
 
@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:18:53] Norm: where would you want to go back and then the B part question maybe which I think is what he was asking is for actual film
 
-[00:18:59] Adam: um so we have we get a lot of production value out of MythBusters without ever really having to travel for the most part we do we've done ninety five percent of what we needed to do here in San Francisco or within a day's drive we did get to travel to Africa in the mid two thousands
+[00:18:59] Adam: um so we have we get a lot of production value out of MythBusters without ever really having to travel for the most part we do we've done 95% of what we needed to do here in San Francisco or within a day's drive we did get to travel to Africa in the mid 2000s
 
 [00:19:14] Will: oh wow
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:19:57] Norm: yeah, film set or production,
 
-[00:19:59] Adam: I mean, it'd be hard to pass up just wanting to visit the Millennium Falcon on the original set of Star Wars. Um, and it's The Shining is an interesting one, but I I might find myself more interested in visiting the set of two thousand and one simply because of this. I don't know.. That was the first thing that came to my mind.
+[00:19:59] Adam: I mean, it'd be hard to pass up just wanting to visit the Millennium Falcon on the original set of Star Wars. Um, and it's The Shining is an interesting one, but I I might find myself more interested in visiting the set of 2001 simply because of this. I don't know.. That was the first thing that came to my mind.
 
 [00:20:18] Will: I figured it would be a Kubrick, but I wasn't sure which one.
 
@@ -726,7 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:25:56] Norm: So now the questions kind of go away from MythBusters and more about what your interest and what you're doing. Someone asked if you now you have more time, and if have you thought about writing a book? And if you were going to write a book, what would you want that book to be about?
 
-[00:26:07] Adam: Ah, I think it's worth just stating outright. Yeah, I do have a book. I would like to. I would like to write. I mean, I have an outline that I wrote 12 years ago and have augmented since then here and there. I'd like to write a really definitive model making manual. I've got over there. I built a new bookshelf last week, and it's that's all my model making books. I've I collect them whenever I can. So I've got probably about 100 written all the way back to the 20s. Um, but the type of model making that I do, that I learned to do, is different than most model making manuals, which are for home hobbyists and train enthusiasts and stuff like that. And that, speed is really of the essence. Time and money are the the things you have to battle to build stuff for film.
+[00:26:07] Adam: Ah, I think it's worth just stating outright. Yeah, I do have a book. I would like to. I would like to write. I mean, I have an outline that I wrote 12 years ago and have augmented since then here and there. I'd like to write a really definitive model making manual. I've got over there. I built a new bookshelf last week, and it's that's all my model making books. I've I collect them whenever I can. So I've got probably about 100 written all the way back to the '20s. Um, but the type of model making that I do, that I learned to do, is different than most model making manuals, which are for home hobbyists and train enthusiasts and stuff like that. And that, speed is really of the essence. Time and money are the the things you have to battle to build stuff for film.
 
 [00:26:57] Will: It's the good, fast, or cheap, right?
 
@@ -744,7 +744,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:28:13] Norm: Got a name for your book or a chapter? At least a chapter at the very obvious one day build.
 
-[00:28:19] Adam: Oh, nice, nice. One thing that one thing that I did, I I wrote the outline at the time I was teaching advanced model making at the Academy of Academy of Art College in San Francisco in the late nineties and early two thousands, and teaching advanced model making taught me an amazing thing, which is that I needed to have an entire chapter devoted to sanding. Because I had no idea how hard most people found the concept of sanding, and you'd see people with a piece of sandpaper just jammed with material and almost smooth because it was so caked with stuff, and they're still sitting there and doing it. So I have a whole philosophy of sanding that I've written out into a chapter. In fact, a couple of different pieces that I wrote for that book have been articles that I ended up putting in Make Magazine, and that is a great harbinger of the way that book would look. And in fact, the design layout and methodical approach that Make takes to showing builds is to me the gold standard
+[00:28:19] Adam: Oh, nice, nice. One thing that one thing that I did, I I wrote the outline at the time I was teaching advanced model making at the Academy of Academy of Art College in San Francisco in the late '90s and early 2000s, and teaching advanced model making taught me an amazing thing, which is that I needed to have an entire chapter devoted to sanding. Because I had no idea how hard most people found the concept of sanding, and you'd see people with a piece of sandpaper just jammed with material and almost smooth because it was so caked with stuff, and they're still sitting there and doing it. So I have a whole philosophy of sanding that I've written out into a chapter. In fact, a couple of different pieces that I wrote for that book have been articles that I ended up putting in Make Magazine, and that is a great harbinger of the way that book would look. And in fact, the design layout and methodical approach that Make takes to showing builds is to me the gold standard
 
 [00:28:19] Unknown speaker: It’s the gold standard.
 
@@ -800,7 +800,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:31:02] Will: Oh, damn, I'm smooth.
 
-[00:31:04] Norm: Crossing fingers that you're available that seventeenth, December seventeenth.
+[00:31:04] Norm: Crossing fingers that you're available that seventeenth, December 17.
 
 [00:31:07] Adam: We're gonna we're gonna work that out.
 

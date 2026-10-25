@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:04:54] Will: The I know that for a while, the like as the Soviet Union was collapsing, the Russian hardware was available at. Fire sale prices, but that was, I think, when I was in college. For the most part, I
 
-[00:05:03] Adam: think a while back, a few years ago, you could still buy a so-called Russian suit for about twenty thousand bucks, but no longer.
+[00:05:03] Adam: think a while back, a few years ago, you could still buy a so-called Russian suit for about 20,000 bucks, but no longer.
 
 [00:05:03] Will: Yeah,
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:05:15] Adam: hope springs eternal. And yes, I may move to other pressure suits. I mean, to me, it is the it's it's a yeah, you are carrying around your own little atmosphere.
 
-[00:05:22] Will: Well, you you have had like since we started working with you in twenty twelve like you you've made you did you've done four or five spacesuits, you know, pretend movie spacesuits,
+[00:05:22] Will: Well, you you have had like since we started working with you in 2012 like you you've made you did you've done four or five spacesuits, you know, pretend movie spacesuits,
 
 [00:05:32] Adam: and by oh yeah
 
@@ -138,9 +138,9 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:05:45] Will: You gotta be close.
 
-[00:05:46] Adam: yeah. I am not far off. I have a and plus I've got a whole helmet collection in addition to the suits. I've got all these like the Mark Four Navy suit that was what became the Mercury helmet. The sorry, the Mark Four Navy high altitude helmet, which became the Mercury helmet. I don't have a whole suit, no. I would love an X fifteen suit. If you've got one and you want to trade it to me for something, I am ready to bargain.
+[00:05:46] Adam: yeah. I am not far off. I have a and plus I've got a whole helmet collection in addition to the suits. I've got all these like the Mark Four Navy suit that was what became the Mercury helmet. The sorry, the Mark Four Navy high altitude helmet, which became the Mercury helmet. I don't have a whole suit, no. I would love an X-15 suit. If you've got one and you want to trade it to me for something, I am ready to bargain.
 
-[00:06:07] Will: Hold on, is the X fifteen suit the suit they used in the X fifteen, or is that the suit that is is that the name of the suit that the Navy used for altitude jets?
+[00:06:07] Will: Hold on, is the X-15 suit the suit they used in the X-15, or is that the suit that is is that the name of the suit that the Navy used for altitude jets?
 
 [00:06:13] Adam: That's I don't know the difference. Yeah, I am not sure.
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:12:37] Will: So, so just to be clear, this is the same place that they launched from a few months ago, and it went out kind of over L.A. and people like were swerving their cars off their freeway and thought there was a UFO. It was Independence Day.
 
-[00:12:47] Norm: If you were, if you were four hundred feet higher than where we were, maybe in the mountains,
+[00:12:47] Norm: If you were, if you were 400 feet higher than where we were, maybe in the mountains,
 
 [00:12:51] Will: Did you take a drone,
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:14:16] Norm: Yeah,
 
-[00:14:16] Norm: it was first first big rocket launch of any kind, and while you know everyone there, it's it's funny because they tell you the weather officer on the on the military base says we have a twenty percent chance of visibility,
+[00:14:16] Norm: it was first first big rocket launch of any kind, and while you know everyone there, it's it's funny because they tell you the weather officer on the on the military base says we have a 20% chance of visibility,
 
 [00:14:16] Unknown speaker (Adam or Will): Mm-hmm.
 
@@ -442,11 +442,11 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:14:16] Unknown speaker (Adam or Will): Yeah.
 
-[00:14:16] Norm: But all that means is that you know of many many checks and redundancies that they have. Seeing it as a safety is you know probably not possible, but everything was ninety eight percent optimal. So everyone, but everyone saw their gear set up. You know, hundreds of thousands of dollars worth of gear, long lenses. Everyone with the tripods, media, local media, national media, all set up on this gravel ridge, essentially, and we all saw the same thing. We we we were waiting there for like an hour and a half, and it was me. Ariel Waldman and my buddy Trace from Seeker, and we're just like, oh, we got an hour. It's really cold. We bought some beef jerky. Let's just put every camera, everything that we have with a camera that can take a picture, video on a tripod, and it's gaff tape. So we had 14 cameras set up, and
+[00:14:16] Norm: But all that means is that you know of many many checks and redundancies that they have. Seeing it as a safety is you know probably not possible, but everything was 98% optimal. So everyone, but everyone saw their gear set up. You know, hundreds of thousands of dollars worth of gear, long lenses. Everyone with the tripods, media, local media, national media, all set up on this gravel ridge, essentially, and we all saw the same thing. We we we were waiting there for like an hour and a half, and it was me. Ariel Waldman and my buddy Trace from Seeker, and we're just like, oh, we got an hour. It's really cold. We bought some beef jerky. Let's just put every camera, everything that we have with a camera that can take a picture, video on a tripod, and it's gaff tape. So we had 14 cameras set up, and
 
 [00:14:16] Unknown speaker (Adam or Will): Nice.
 
-[00:14:16] Norm: our cheapest iPhone and GoPro took the exact same imagery as the fifty thousand dollar camera next to us, which was blackness.
+[00:14:16] Norm: our cheapest iPhone and GoPro took the exact same imagery as the 50,000 dollar camera next to us, which was blackness.
 
 [00:15:28] Will: I was gonna say there was a really good article on. I think it was on Tested. It was one of Terry's articles the other day about the one of the guys who's a rocket photographer and based out of Florida. It seemed like mostly.
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:16:21] Unknown speaker (Will and Norm boundaries): [Will] Oh, see. [Norm] Well, twenty, twenty, twenty.
 
-[00:16:23] Adam: this one, and so well twenty twenty is definitely.
+[00:16:23] Adam: this one, and so well 2020 is definitely.
 
 [00:16:25] Norm: I think that's the one. I mean, well, there's also SpaceX launches all the time.
 
@@ -652,7 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:22:53] Unknown speaker (Adam or Norm): Oh, nice.
 
-[00:22:53] Unknown speaker (Norm and Will boundaries): [unclear: [Norm] you know, it’s only place I can find 40s movies. [Will] in the 40s and the movies in the 30s and movies. [Norm] that are in the Criterion Collection / [Norm] It’s the only place I can find. [Will] So you can get Armageddon and The Rock there? [Norm] Movies from the 30s and movies that are in the Criterion Collection / [Norm] it’s the only place I can find forties. [Will] movies in the thirties. [Norm] and movies that are in the criterion collection].
+[00:22:53] Unknown speaker (Norm and Will boundaries): [unclear: [Norm] you know, it’s only place I can find '40s movies. [Will] in the '40s and the movies in the '30s and movies. [Norm] that are in the Criterion Collection / [Norm] It’s the only place I can find. [Will] So you can get Armageddon and The Rock there? [Norm] Movies from the '30s and movies that are in the Criterion Collection / [Norm] it’s the only place I can find '40s. [Will] movies in the '30s. [Norm] and movies that are in the criterion collection].
 
 [00:23:02] Adam: Did you see someone on Reddit posted recently, or maybe it was Twitter, that they said that? Amazon's movie collection looks like they are perusing a random gar garage sale of VHS tapes.
 
@@ -706,11 +706,11 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:24:16] Adam: awesome.
 
-[00:24:17] Norm: And then one thing I also wanted to talk about stuff that you can find on Tested is we just released the first episode of a little mini series we did, which is a project that we brought back from twenty sixteen.
+[00:24:17] Norm: And then one thing I also wanted to talk about stuff that you can find on Tested is we just released the first episode of a little mini series we did, which is a project that we brought back from 2016.
 
 [00:24:28] Adam: Oh my god, yes,
 
-[00:24:29] Norm: we filmed in twenty sixteen, and we maybe alluded to this. You were were you part of? You were still tested. Will?
+[00:24:29] Norm: we filmed in 2016, and we maybe alluded to this. You were were you part of? You were still tested. Will?
 
 [00:24:29] Will: No.
 
@@ -876,7 +876,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:31:38] Norm: So we'll hope to see you there.
 
-[00:31:40] Will: Yes, and also, oh, two tips for Maker Faire: if you're going for the first time, park offsite. Like, look at look on their website beforehand. There's all sorts of offsite parking locations. They're coming down 101, two eighty, or from the south, wherever you would come there. They have buses that run constantly. It's very humane. It's much better way to get there than to try to park on location.
+[00:31:40] Will: Yes, and also, oh, two tips for Maker Faire: if you're going for the first time, park offsite. Like, look at look on their website beforehand. There's all sorts of offsite parking locations. They're coming down 101, 280, or from the south, wherever you would come there. They have buses that run constantly. It's very humane. It's much better way to get there than to try to park on location.
 
 [00:32:01] Adam: Over a hundred thousand people are attending.
 

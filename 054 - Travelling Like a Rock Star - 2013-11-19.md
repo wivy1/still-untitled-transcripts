@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:11:28] Will: Okay.
 
-[00:11:28] Adam: So there's like five crew members on my bus, five on Jamie's bus in bunks in the middle, and then the back, like thirty percent of the bus is a suite,
+[00:11:28] Adam: So there's like five crew members on my bus, five on Jamie's bus in bunks in the middle, and then the back, like 30% of the bus is a suite,
 
 [00:11:36] Will: like the Air Force One. Yeah. It's like the under the nose.
 
@@ -418,11 +418,11 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:13:18] Norm: Are there cities that you haven't been to before on this tour that you're kind of excited about getting to.
 
-[00:13:22] Adam: Yeah, good good portion of them I haven't been to before. If you go to Behind the Myths tour or MythbustersTour dot com, you can see the list. I'd say about two thirds are new for me and Jamie. And then we don't really have anything to do during the day until about six o'clock when it's time for a mic check. The crew's already loaded in. Only takes a few hours to load in the show, and then they go off and take a break. At six o'clock we do mic check. Six thirty, and then we we had we head back on the bus, chill out until it's show time.
+[00:13:22] Adam: Yeah, good good portion of them I haven't been to before. If you go to Behind the Myths tour or MythbustersTour dot com, you can see the list. I'd say about two thirds are new for me and Jamie. And then we don't really have anything to do during the day until about six o'clock when it's time for a mic check. The crew's already loaded in. Only takes a few hours to load in the show, and then they go off and take a break. At six o'clock we do mic check. 6:30, and then we we had we head back on the bus, chill out until it's show time.
 
-[00:13:52] Will: Show time is seven thirty.
+[00:13:52] Will: Show time is 7:30.
 
-[00:13:53] Adam: Show time seven thirty or eight o'clock, and sometimes Jamie and I only see each other back for the first time on a day backstage. Like hey, it's like places, and we I show up backstage right, and Jamie's standing there, and I'm like hey, good show, and he's like good show, and we go out and we do the show, come back, do a meet and greet with fifty or seventy five people, VIPs. You can get VIP tickets to the shows and see a meet and greet, and we'll take pictures and answer questions backstage, and then. Back on the bus by eleven, eleven thirty. Some pizza with the crew. Usually by twelve thirty or one, you're on the road. You fall asleep. You wake up in a new city. Same thing goes again.
+[00:13:53] Adam: Show time 7:30 or eight o'clock, and sometimes Jamie and I only see each other back for the first time on a day backstage. Like hey, it's like places, and we I show up backstage right, and Jamie's standing there, and I'm like hey, good show, and he's like good show, and we go out and we do the show, come back, do a meet and greet with fifty or seventy five people, VIPs. You can get VIP tickets to the shows and see a meet and greet, and we'll take pictures and answer questions backstage, and then. Back on the bus by eleven, 11:30. Some pizza with the crew. Usually by 12:30 or one, you're on the road. You fall asleep. You wake up in a new city. Same thing goes again.
 
 [00:14:27] Norm: Awesome. That life for a month, for just one month.
 

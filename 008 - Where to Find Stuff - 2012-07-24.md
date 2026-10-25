@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:07:19] Will: Oh yeah.
 
-[00:07:19] Adam: When you're building props for theater on a budget where your whole budget for a play is like a hundred and thirty dollars.
+[00:07:19] Adam: When you're building props for theater on a budget where your whole budget for a play is like 130 dollars.
 
 [00:07:25] Will: Well, of course, and and I mean, if you're going to take it apart and use bits and pieces of it anyway, there's no reason to buy something new,
 

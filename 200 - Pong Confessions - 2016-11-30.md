@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:16:21] Unknown speaker: Yeah, yeah, yeah.
 
-[00:16:21] Adam: because you see the drops and the lighting is such that the drops are really bright. Um, it is absolutely gorgeous. I tweeted some photos from it, and the Guillermo exhibit. I managed to catch it on its last day. So I I go to LA like once a week, [unclear: and then… / and then I go to the store, and then] for the last two months, not at all. So it was great. I caught it on the last day. It's a beautiful exhibit. It is, uh. So I don't know if you know, Guillermo del Toro, the filmmaker, released a bunch of art from his collection. So only, I'd say maybe only thirty percent was pieces of stuff and ephemera from Guillermo's films. But there's a lot of super beautiful original artwork, original Moebius, original Edward Gorey, original Drew Struzan stuff, artwork that he found inspiring, books and volumes and automata that he had purchased.
+[00:16:21] Adam: because you see the drops and the lighting is such that the drops are really bright. Um, it is absolutely gorgeous. I tweeted some photos from it, and the Guillermo exhibit. I managed to catch it on its last day. So I I go to LA like once a week, [unclear: and then… / and then I go to the store, and then] for the last two months, not at all. So it was great. I caught it on the last day. It's a beautiful exhibit. It is, uh. So I don't know if you know, Guillermo del Toro, the filmmaker, released a bunch of art from his collection. So only, I'd say maybe only 30% was pieces of stuff and ephemera from Guillermo's films. But there's a lot of super beautiful original artwork, original Moebius, original Edward Gorey, original Drew Struzan stuff, artwork that he found inspiring, books and volumes and automata that he had purchased.
 
 [00:17:23] Norm: It's from his cave.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:24:36] Simone: Yeah, and it's always when you watch these documentaries of like child geniuses, and you just feel so bad. You’re like, you’re like disappointed in yourself. Why am I not that way?
 
-[00:24:45] Adam: It's all version. So my mom, uh, my mom used to. She did her junior year, uh, in college. This is in the 50s, uh, abroad. She did. She did her junior year at Smith in France, in Paris. And one of the things she did while she was living for a year in Paris was she au paired, um, a French family, and she was the au pair for their two young children. And she said the most amazing and annoying thing about French children is at two and a half years old they speak French better than you ever will.
+[00:24:45] Adam: It's all version. So my mom, uh, my mom used to. She did her junior year, uh, in college. This is in the '50s, uh, abroad. She did. She did her junior year at Smith in France, in Paris. And one of the things she did while she was living for a year in Paris was she au paired, um, a French family, and she was the au pair for their two young children. And she said the most amazing and annoying thing about French children is at two and a half years old they speak French better than you ever will.
 
 [00:25:15] Simone: Oh my gosh! Yeah, yeah,
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:28:55] Norm: making
 
-[00:28:56] Adam: pasta. No, I know I um after during one of our trips I did the math by the way I've flown almost a hundred and thirty thousand miles
+[00:28:56] Adam: pasta. No, I know I um after during one of our trips I did the math by the way I've flown almost 130,000 miles
 
 [00:29:05] Unknown speaker: this year
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:29:20] Simone: yeah yeah yeah yeah I wonder how many times
 
-[00:29:23] Adam: the the diameter this the, uh, circumference of the earth is about twenty two thousand miles okay yeah so
+[00:29:23] Adam: the the diameter this the, uh, circumference of the earth is about 22,000 miles okay yeah so
 
 [00:29:29] Norm: so five times around the earth
 

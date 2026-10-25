@@ -380,9 +380,9 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:09:55] Norm: Yeah.
 
-[00:09:55] Will: Which Tesla? The Model Three?
+[00:09:55] Will: Which Tesla? The Model 3?
 
-[00:09:57] Norm: Model X Model Three no there's no Model Three
+[00:09:57] Norm: Model X Model 3 no there's no Model 3
 
 [00:09:59] Will: I saw Gina swears she saw one driving around San Francisco the other day
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:11:56] Will: I've it's been documented.
 
-[00:11:58] Adam: It's been documented. But wait, there is a there is an instrument on the On the dashboard, a dashboard of Apollo Eleven
+[00:11:58] Adam: It's been documented. But wait, there is a there is an instrument on the On the dashboard, a dashboard of Apollo 11
 
 [00:12:05] Will: control panel.
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:12:45] Norm: one-off gauges from NASA. I mean, I guess in the far future when we do go beyond the solar system, that would be a very nice thing to have. That would be the compass home, like always let you know what direction the blue dot is.
 
-[00:12:57] Will: Well, so so it was interesting the Apollo Eleven thing because it got me thinking about like the rise of augmented reality and how that's going to impact like
+[00:12:57] Will: Well, so so it was interesting the Apollo 11 thing because it got me thinking about like the rise of augmented reality and how that's going to impact like
 
 [00:13:06] Adam: right
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:18:44] Adam: That freaks me out. I want that. I want that experience. Can you arrange that for me?
 
-[00:18:47] Norm: Yeah, we can totally because. You can imagine, you can trust computer eighty percent of the time. Maybe even less. It's a beta product right now. But if you are going down six hours, L A, there is no way with that on you are going to be fully concentrated on the road.
+[00:18:47] Norm: Yeah, we can totally because. You can imagine, you can trust computer 80% of the time. Maybe even less. It's a beta product right now. But if you are going down six hours, L A, there is no way with that on you are going to be fully concentrated on the road.
 
 [00:19:01] Will: But I mean, I am going to be honest. By the time I hit Grapevine and start going up the giant mountain, if I am like if I haven't gotten out of the car and walked around some, I'll have a hard time being fully conscious of the road. Then,
 
@@ -724,7 +724,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:21:28] Adam: It's an amazing, amazing achievement, and it is it's the it's one of the high watermarks for for for the commercial space industry.
 
-[00:21:36] Will: Well, it's important for two reasons. One is that something like sixty or seventy percent of the cost of a launch is in that first stage. So being able to reuse that is incredibly, incredibly powerful. It's an it's. I got conflicting things, I guess, depending on how you measure stories, but it's the equivalent of an 18 to 25 story building high.
+[00:21:36] Will: Well, it's important for two reasons. One is that something like 60 or 70% of the cost of a launch is in that first stage. So being able to reuse that is incredibly, incredibly powerful. It's an it's. I got conflicting things, I guess, depending on how you measure stories, but it's the equivalent of an 18 to 25 story building high.
 
 [00:21:54] Adam: Yeah.
 
@@ -808,11 +808,11 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:24:27] Norm: Yeah.
 
-[00:24:27] Will: But it turns out the moment the lights come down in the in the theater and the robots line up and they start spinning these massive amounts of kinetic energy around, and you know that they're about to connect with two hundred and fifty pounds of robot, well, five hundred pounds total is gonna. You just, it's really exciting,
+[00:24:27] Will: But it turns out the moment the lights come down in the in the theater and the robots line up and they start spinning these massive amounts of kinetic energy around, and you know that they're about to connect with 250 pounds of robot, well, 500 pounds total is gonna. You just, it's really exciting,
 
 [00:24:44] Adam: and I have seen some of the contestants. I've seen some preliminary pictures of some of the robots, and it's amazing. And I want to point out that when you see spinning robots, you have Jamie Hyneman to thank. Blendo was the very first of all the centrifugally powered nightmare death machines.
 
-[00:25:02] Will: Nothing more terrifying than a giant titanium blade that weighs like two hundred pounds, spinning at twenty thousand RPMs.
+[00:25:02] Will: Nothing more terrifying than a giant titanium blade that weighs like 200 pounds, spinning at 20,000 RPMs.
 
 [00:25:09] Unknown speaker: Oh,
 
@@ -820,7 +820,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:25:14] Will: Oh, yeah, I'd love to hear that.
 
-[00:25:15] Adam: Nineteen ninety three, but that was the second. Yeah, we did the we did the first annual Robot Wars.
+[00:25:15] Adam: 1993, but that was the second. Yeah, we did the we did the first annual Robot Wars.
 
 [00:25:21] Will: There we go. See you guys next week.
 

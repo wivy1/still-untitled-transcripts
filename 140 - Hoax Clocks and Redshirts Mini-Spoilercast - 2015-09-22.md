@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:04:56] Norm: What does weight matter if you are just going to keep it on top of it?
 
-[00:04:58] Adam: Weight doesn't matter; it's just easier for me to put it up if it doesn't weigh one hundred pounds.
+[00:04:58] Adam: Weight doesn't matter; it's just easier for me to put it up if it doesn't weigh 100 pounds.
 
 [00:05:02] Will: I am so the the tent I've been most interested in for the last, let's say, you know, year and a half, two years since I knew it existed are the tree hammock tents.
 
@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:05:02] Adam: Yeah,
 
-[00:05:02] Will: I I really really really want to try one of those, and they sell them at REI, but they're like a grand maybe seven hundred dollars. They're really expensive.
+[00:05:02] Will: I I really really really want to try one of those, and they sell them at REI, but they're like a grand maybe 700 dollars. They're really expensive.
 
 [00:05:26] Adam: That is that is a rough price.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:09:39] Unknown speaker: Scrawny, no.
 
-[00:09:39] Will: I'll post some pictures when I was when I was when I was your age. When I was nineteen, I weighed the better part of one hundred and twenty-two pounds, and was six feet the same height I am right now.
+[00:09:39] Will: I'll post some pictures when I was when I was when I was your age. When I was nineteen, I weighed the better part of 122 pounds, and was six feet the same height I am right now.
 
 [00:09:39] Adam: Oh my god!
 
@@ -354,11 +354,11 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:13:28] Adam: right, right, right. The MIT student who was arrested, I think, at Logan Airport for wearing the shirt with blinky LEDs wired into it.
 
-[00:13:38] Will: Well, or the or the the Aqua what was it Aqua Aqua Teen Hunger Force thing in two thousand eight.
+[00:13:38] Will: Well, or the or the the Aqua what was it Aqua Aqua Teen Hunger Force thing in 2008.
 
 [00:13:44] Norm: Oh yeah,
 
-[00:13:44] Will: two thousand seven. Where they where they put the
+[00:13:44] Will: 2007. Where they where they put the
 
 [00:13:46] Norm: oh right,
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:19:04] Adam: And what I love is that Scalzi goes all in. He pushes all his chips in. He doesn't do the. It turns out the shirt has some quality to it, or there's a lot of ways you could go down this. He goes full freaking meta on this.
 
-[00:19:19] Norm: It's a deconstruction of of the trope, and I'm not exactly. I mean, partly why why stories are written that way back, referring to 1960s, early 70s science fiction, and then, I mean, there is a point where we have to spoil.
+[00:19:19] Norm: It's a deconstruction of of the trope, and I'm not exactly. I mean, partly why why stories are written that way back, referring to 1960s, early '70s science fiction, and then, I mean, there is a point where we have to spoil.
 
 [00:19:35] Adam: I think we're right there. We're
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:21:16] Norm: Why the captain and and the bridge crew are on these away missions in the first place,
 
-[00:21:30] Will: or just the way science works in this universe. You you get ninety percent of the way to the solution of a problem, come up, spout some gibberish, and then Spock says, " Oh, well, you just need to realign the Rasmuskeeters in order to get the phase, what's McCall it in in line?
+[00:21:30] Will: or just the way science works in this universe. You you get 90% of the way to the solution of a problem, come up, spout some gibberish, and then Spock says, " Oh, well, you just need to realign the Rasmuskeeters in order to get the phase, what's McCall it in in line?
 
 [00:21:44] Norm: Yeah, the magic box.
 

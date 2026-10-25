@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:11:54] Will: Yeah,
 
-[00:11:55] Norm: so this is an interesting spoiler cast because the movie made two hundred and fifty eight million dollars over the three and a half day. Weekend, which at the average ticket price of about nine dollars, that's over twenty-five million people in the U.S. who saw that, which is like close to a tenth of the population.
+[00:11:55] Norm: so this is an interesting spoiler cast because the movie made 258,000,000 dollars over the three and a half day. Weekend, which at the average ticket price of about nine dollars, that's over twenty-five million people in the U.S. who saw that, which is like close to a tenth of the population.
 
 [00:12:13] Will: Yeah,
 
@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:24:48] Will: Oh, I assumed everybody was dead. No, I assumed they were. I assumed this was the last Marvel Cinematic Universe movie that they were killing off everybody at the end of it, and it'd be like. Just Black Widow and the Hulk hanging out in the Quinjet. No, there was
 
-[00:24:57] Adam: it's. It hit the first credit, smashed a black of the first credit, and I went, " What?" And and and and, Kishore's there taking off his three D glasses, and he went, " Yep."
+[00:24:57] Adam: it's. It hit the first credit, smashed a black of the first credit, and I went, " What?" And and and and, Kishore's there taking off his 3D glasses, and he went, " Yep."
 
 [00:25:11] Will: So, so,
 

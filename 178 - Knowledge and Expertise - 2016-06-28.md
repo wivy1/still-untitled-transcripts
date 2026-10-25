@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:05:51] Adam: Yeah, that's that sounds like it.
 
-[00:05:53] Simone: But I mean, I bought a bike yesterday, and I I bought like the first best one. I mean, I did find one. It was a beautiful trek bike, my size, fifty two centimeters.
+[00:05:53] Simone: But I mean, I bought a bike yesterday, and I I bought like the first best one. I mean, I did find one. It was a beautiful trek bike, my size, 52 centimeters.
 
 [00:06:01] Adam: Craigslist or
 
@@ -530,7 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:24:13] Adam: Yes,
 
-[00:24:13] Norm: Seveneves, with the screenwriter of Apollo Thirteen,
+[00:24:13] Norm: Seveneves, with the screenwriter of Apollo 13,
 
 [00:24:16] Adam: Yeah,
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:29:09] Simone: No,
 
-[00:29:10] Adam: that's fine. What Norm is referring to is Captain America gets unfrozen after fifty years in a sort of cryogenic sleep, and as he's woken up now in the two thousands, he's like, " How do I catch up on culture since World War Two?" And people keep giving him suggestions, and he's writing down his suggestions in a notebook. And in the film, you catch a glimpse of what's in that notebook. But what's really cool is they changed what was in that notebook depending on the market that the film was released in.
+[00:29:10] Adam: that's fine. What Norm is referring to is Captain America gets unfrozen after fifty years in a sort of cryogenic sleep, and as he's woken up now in the 2000s, he's like, " How do I catch up on culture since World War Two?" And people keep giving him suggestions, and he's writing down his suggestions in a notebook. And in the film, you catch a glimpse of what's in that notebook. But what's really cool is they changed what was in that notebook depending on the market that the film was released in.
 
 [00:29:36] Simone: Oh, really?
 

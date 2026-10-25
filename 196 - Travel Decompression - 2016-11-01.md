@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:13:31] Norm: But you got those two and a half hours in.
 
-[00:13:33] Adam: I was able to get about five or six a night. So I'd always fall asleep around nine thirty, and then I'd wake up going, " Oh, it's morning," and it would only be midnight. This always just make me so sad.
+[00:13:33] Adam: I was able to get about five or six a night. So I'd always fall asleep around 9:30, and then I'd wake up going, " Oh, it's morning," and it would only be midnight. This always just make me so sad.
 
 [00:13:42] Joey Fameli: I'm still feeling it. It's two days.
 

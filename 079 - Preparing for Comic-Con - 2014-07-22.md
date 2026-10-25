@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:04:08] Will: it's hard work having that much fun.
 
-[00:04:10] Adam: Well, I will say, David Mamet wrote some great books about various things. About there are essays about his process, and one of the first ones, the first two are called " Some Freaks" and " Writing in Restaurants." And I can't remember which one he writes about the process of making " House of Games," his first feature film. But he was astonished by how much work it was, and he described the process as an analogy. He talked about nearly drowning when he was a kid. He was in a stream with some rapids, and he accidentally got pinned under the rapids. And he was conscious that he was pinned under the rapids and couldn't move. And he had this thought: " You know, I'd be fine if I could just turn the water off." He said, " That's what filmmaking is like," and I submit that's also what Comic Con is like. It's like you get up at seven thirty every morning, have your coffee, and you are going until two, three o'clock every morning.
+[00:04:10] Adam: Well, I will say, David Mamet wrote some great books about various things. About there are essays about his process, and one of the first ones, the first two are called " Some Freaks" and " Writing in Restaurants." And I can't remember which one he writes about the process of making " House of Games," his first feature film. But he was astonished by how much work it was, and he described the process as an analogy. He talked about nearly drowning when he was a kid. He was in a stream with some rapids, and he accidentally got pinned under the rapids. And he was conscious that he was pinned under the rapids and couldn't move. And he had this thought: " You know, I'd be fine if I could just turn the water off." He said, " That's what filmmaking is like," and I submit that's also what Comic Con is like. It's like you get up at 7:30 every morning, have your coffee, and you are going until two, three o'clock every morning.
 
 [00:05:04] Norm: For Five days in a row.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:09:02] Will: There is a lot of that.
 
-[00:09:02] Adam: Yeah, no, I know, and is and also I will point out that like if you are if you are if you were on a seventies television show and that's the main acting job you had, you've got syndication, and then you've got the weekends of signing autographs, which are incredibly lucrative and make a very reasonable living doing this.
+[00:09:02] Adam: Yeah, no, I know, and is and also I will point out that like if you are if you are if you were on a '70s television show and that's the main acting job you had, you've got syndication, and then you've got the weekends of signing autographs, which are incredibly lucrative and make a very reasonable living doing this.
 
 [00:09:36] Norm: There are entire conventions, not Comic Con, but ballrooms that are rented out in L.A. where it is the ballroom is is not adorned at all; it's just benches,
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:09:55] Adam: and they make reasonable livings doing it, which is. Also, totally, totally awesome.
 
-[00:09:59] Will: And if you had a show in the seventies before the people realized syndication was a thing, did those people make bunches of money because their contracts didn't include syndication?
+[00:09:59] Will: And if you had a show in the '70s before the people realized syndication was a thing, did those people make bunches of money because their contracts didn't include syndication?
 
 [00:10:07] Adam: I don't know
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:12:54] Will: Wow, that was amazing.
 
-[00:12:56] Adam: But so we are throwing a big Comic Con party this year in San Diego in the Gaslight District. But but to go back to my story, we'll get to that in a second. To go back. Um, I thought, okay, I'm gonna throw my own party, so I did for a couple years in a row, three years in a row, and then I decide. I thought, I, I bet now I've been to Comic Con enough. I sort of understand the scene. I bet I could crash the EW party, and so I thought, how should I crash the EW party? I'm gonna have to socially engineer the the people at the door, and how do I want to do that? I don't want to do that in the middle of a crush of famous people, because they don't want to be dealing with me when Bill Paxton's behind me, right? They just want they want to send me away or send me through, and I'd already seen, yeah, I've seen lots of people turned away at the door. So I thought, okay, the door is open from nine to eleven, right? That's when the red carpet is, but pretty much by ten forty five, no one's on that carpet. It's just crickets. So that's when I'm gonna go. I'm gonna get a car from the hotel, right? One of the courtesy vans.
+[00:12:56] Adam: But so we are throwing a big Comic Con party this year in San Diego in the Gaslight District. But but to go back to my story, we'll get to that in a second. To go back. Um, I thought, okay, I'm gonna throw my own party, so I did for a couple years in a row, three years in a row, and then I decide. I thought, I, I bet now I've been to Comic Con enough. I sort of understand the scene. I bet I could crash the EW party, and so I thought, how should I crash the EW party? I'm gonna have to socially engineer the the people at the door, and how do I want to do that? I don't want to do that in the middle of a crush of famous people, because they don't want to be dealing with me when Bill Paxton's behind me, right? They just want they want to send me away or send me through, and I'd already seen, yeah, I've seen lots of people turned away at the door. So I thought, okay, the door is open from nine to eleven, right? That's when the red carpet is, but pretty much by 10:45, no one's on that carpet. It's just crickets. So that's when I'm gonna go. I'm gonna get a car from the hotel, right? One of the courtesy vans.
 
 [00:12:56] Will: Yeah.
 

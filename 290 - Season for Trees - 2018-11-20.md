@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:05:25] Adam: Wow.
 
-[00:05:25] Will: But the spatchcocking, if you haven't done it, America's Test Kitchen redid Julia Child's spatchcock recipe from the sixties.
+[00:05:25] Will: But the spatchcocking, if you haven't done it, America's Test Kitchen redid Julia Child's spatchcock recipe from the '60s.
 
 [00:05:25] Adam: Wow.
 
@@ -190,9 +190,9 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:07:37] Adam: like blonde, blonde, blonde, all the way past his shoulders.
 
-[00:07:37] Will: Like the seventies or early eighties, probably?
+[00:07:37] Will: Like the '70s or early '80s, probably?
 
-[00:07:49] Unknown speaker (Adam or Adam then Kayte): [unclear: Actually, actually, yeah, early seventies. Early seventies, yeah / Actually, actually, yeah, early seventies. Wow / Actually, yeah, early seventies. Early seventies. Wow, wow].
+[00:07:49] Unknown speaker (Adam or Adam then Kayte): [unclear: Actually, actually, yeah, early '70s. Early '70s, yeah / Actually, actually, yeah, early '70s. Wow / Actually, yeah, early '70s. Early '70s. Wow, wow].
 
 [00:07:55] Kayte: And where was that?
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:11:07] Adam: yeah
 
-[00:11:07] Will: yeah these these guys one of the things that they have that I'd never seen before Is a giant belt that goes around the base of the tree. It's like it's like a nylon webbing that was like a foot foot wide, and then it has maybe an eighteen inch diameter. But looks like a like a tire, a wheel hub on a car that they wrap around, and they use that as the brake on the belay, so that one guy can lower four hundred pounds of log without having to use like a block and tackle or something off just a single pulley. And like it's it's amazing, like it's it's so much like. And they don't go to arborist school for this. Like these guys go on, and the guy who's the eighty year old was like, " Yeah, I apprenticed when I was fourteen years old, and I worked for the city for a long time, and I've I've just been cutting down big trees in Northern California my entire life. It's what I do. Wow, very cool.
+[00:11:07] Will: yeah these these guys one of the things that they have that I'd never seen before Is a giant belt that goes around the base of the tree. It's like it's like a nylon webbing that was like a foot foot wide, and then it has maybe an eighteen inch diameter. But looks like a like a tire, a wheel hub on a car that they wrap around, and they use that as the brake on the belay, so that one guy can lower 400 pounds of log without having to use like a block and tackle or something off just a single pulley. And like it's it's amazing, like it's it's so much like. And they don't go to arborist school for this. Like these guys go on, and the guy who's the eighty year old was like, " Yeah, I apprenticed when I was fourteen years old, and I worked for the city for a long time, and I've I've just been cutting down big trees in Northern California my entire life. It's what I do. Wow, very cool.
 
 [00:11:57] Adam: Yeah, I I love I love watching specialized crafts people like that
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:14:28] Will: MythBusters Seniors. Twenty five old people.
 
-[00:14:32] Adam: Look, it's I, you know, I won't lie. It's definitely got some some some of that DNA in it because it's me. Um, but literally just this week we've started official pre production on it, and um, you know, MythBusters Junior is going to air starting January second. Uh, ten episodes. I couldn't be prouder of them. I cannot wait to see the world receive these six new MythBusters and embrace them into their hearts. They
+[00:14:32] Adam: Look, it's I, you know, I won't lie. It's definitely got some some some of that DNA in it because it's me. Um, but literally just this week we've started official pre production on it, and um, you know, MythBusters Junior is going to air starting January 2. Uh, ten episodes. I couldn't be prouder of them. I cannot wait to see the world receive these six new MythBusters and embrace them into their hearts. They
 
 [00:14:55] Kayte: are a delight. I've I've met them a few times, and I've you know been chatting, and we keep up on social media with a few of the kids, and I just love them. And what's funny is that I feel bad referring to them as the kids too, because for so much of it, like I have so much to learn from them. Like they are all so capable.
 

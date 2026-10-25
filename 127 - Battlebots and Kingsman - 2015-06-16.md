@@ -96,15 +96,15 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:03:29] Norm:  So we got to see how this new production took place: the building of the new arena, the new the new battle box. But like you said it's a lot of the same. The people who competed before. What was Battle Bots like back then?
 
-[00:03:48] Adam: Um, so originally it was called Robot Wars, and it ran for I think three years. Back in ninety three, ninety four, ninety five,
+[00:03:48] Adam: Um, so originally it was called Robot Wars, and it ran for I think three years. Back in '93, '94, '95,
 
 [00:03:59] Will: and it continued being called Robot Warriors Wars in the UK. So, the UK there is a television show in the UK called Robot Wars,
 
 [00:04:07] Adam: which was different than the original Robot Wars we participated in, which was not broadcast. It was effectively pre Internet,
 
-[00:04:14] Will: like mid nineties,
+[00:04:14] Will: like mid '90s,
 
-[00:04:16] Adam: early and mid nineties. So, it was when I was working at Colossal Pictures when Jamie, who was younger than than I am now, was running the Colossal Pictures model shop, a lot younger than than I am now, and we built Blendo together.
+[00:04:16] Adam: early and mid '90s. So, it was when I was working at Colossal Pictures when Jamie, who was younger than than I am now, was running the Colossal Pictures model shop, a lot younger than than I am now, and we built Blendo together.
 
 [00:04:32] Will: He Fon said in the early days it was a lot of like special effects and robot people, 
 
@@ -126,9 +126,9 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:06:17] Adam: Yeah,
 
-[00:06:17] Will:  and they were all there helping, you know, giving suggestions and not like sabotaging suggestions. They were saying, " Okay, here's this is this is good, but if you do this, it's going to be a little sturdier, or whatever. Here's let me help you fix the chain that's broken [unclear: and then we're going to do this and then we're] or whatever it happened to be." And it was because they all wanted to have the best possible fight. When they get into the arena, they want everybody at a hundred percent.
+[00:06:17] Will:  and they were all there helping, you know, giving suggestions and not like sabotaging suggestions. They were saying, " Okay, here's this is this is good, but if you do this, it's going to be a little sturdier, or whatever. Here's let me help you fix the chain that's broken [unclear: and then we're going to do this and then we're] or whatever it happened to be." And it was because they all wanted to have the best possible fight. When they get into the arena, they want everybody at 100%.
 
-[00:07:00] Adam: They and they all want to fight each other at a hundred percent. No one wants to win because your opponent has a wire that got knocked out. And let me give you an idea, lest you think through BattleBots and you think, " Well, that can't be that difficult." It's just a couple of motors and a battery, and you bang into each other. If you want to build a robot that can withstand the BattleBots arena, any given one that you want to choose from all through the past, build a robot and then while it's running, try running over it with a car and hitting it repeatedly with a sledgehammer and see if it keeps running. [unclear: Or/And] that's the type of abuse you are going to receive.
+[00:07:00] Adam: They and they all want to fight each other at 100%. No one wants to win because your opponent has a wire that got knocked out. And let me give you an idea, lest you think through BattleBots and you think, " Well, that can't be that difficult." It's just a couple of motors and a battery, and you bang into each other. If you want to build a robot that can withstand the BattleBots arena, any given one that you want to choose from all through the past, build a robot and then while it's running, try running over it with a car and hitting it repeatedly with a sledgehammer and see if it keeps running. [unclear: Or/And] that's the type of abuse you are going to receive.
 
 [00:07:34] Norm: bare minimum.
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:13:10] Norm: Spinning the and holding up, it's it's itself a robot hand.
 
-[00:13:13] Adam: I will give you an idea. If you've seen Hellboy, you've seen Hellboy battle Samael. Hmm. Samael in I think ninety five percent of the shots in Hellboy is not CG. Samael is a practical costume and model, and all of those tentacles are that entire thing was built by Mark and his team at Spectral Motion under the under the direction of Mike Elizalde. Um, and those guys we've covered them on the, on Tested they they they built the Hellboy mecha hand the original for Hellboy. Um, and Mark is I seriously think Mark might be an alien or someone from the future sent to teach us about you know the humanity of robots.
+[00:13:13] Adam: I will give you an idea. If you've seen Hellboy, you've seen Hellboy battle Samael. Hmm. Samael in I think 95% of the shots in Hellboy is not CG. Samael is a practical costume and model, and all of those tentacles are that entire thing was built by Mark and his team at Spectral Motion under the under the direction of Mike Elizalde. Um, and those guys we've covered them on the, on Tested they they they built the Hellboy mecha hand the original for Hellboy. Um, and Mark is I seriously think Mark might be an alien or someone from the future sent to teach us about you know the humanity of robots.
 
 [00:13:53] Will: The thing that amazes me about his work is how organic. Like we've all put servos stuff together with servos, and when I put something together with a servo, it looks like a servo. [unclear: Chunk, chunk, chunk,/Chunk, chunk, chunk, chunk, right?] 
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:14:47] Adam: I'm really glad that it's getting network exposure. And the framework that was explained to me about how they're doing the contest is just exactly right.
 
-[00:14:56] Will: Well, and and like they had they had a ton of smart people doing the on camera stuff for the network. So, Bobak from JPL, who everybody knows is the Mohawk guy from the Curiosity rover, he was one of the sideline commentators. He was asking questions about robots to the people who make robots. It was really good. Like it was, it was. I can't wait to see it on television. It premieres on June twenty first on ABC, which is Father's Day, coincidentally. And we have a ton of video from there, so you'll see it all on the site.
+[00:14:56] Will: Well, and and like they had they had a ton of smart people doing the on camera stuff for the network. So, Bobak from JPL, who everybody knows is the Mohawk guy from the Curiosity rover, he was one of the sideline commentators. He was asking questions about robots to the people who make robots. It was really good. Like it was, it was. I can't wait to see it on television. It premieres on June 21 on ABC, which is Father's Day, coincidentally. And we have a ton of video from there, so you'll see it all on the site.
 
 [00:15:25] Adam: That is, I cannot wait. I, I, I wanted to make it up there. I couldn't. I was recovering from surgery from my jaw, my wisdom teeth. We talked about that a couple of podcasts ago. But rest assured, if this show gets picked up, I will be there at the arena to see this thing in person.
 

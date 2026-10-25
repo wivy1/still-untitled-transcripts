@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:22:32] Will: I I remember absolutely loving Spartan when I saw it. I don't think I sadly I don't remember a whole lot about it right now.
 
-[00:22:39] Adam: Spartan is really worth your time. I have watched it probably half a dozen times since it came out in two thousand four.
+[00:22:39] Adam: Spartan is really worth your time. I have watched it probably half a dozen times since it came out in 2004.
 
 [00:22:46] Norm: Spartan and and Ronin are a good combo too, right?
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:24:24] Unknown speaker, possibly Norm or Adam: That's the name of the movie.
 
-[00:24:26] Will: So, so I watched Death Race two thousand this weekend because it's leaving Criterion at the end of the month. I had never seen it before. Um, it was the schlockiest thing I've seen in a really long time, but you know, not good, but kind of interesting. It was. It's challenging.
+[00:24:26] Will: So, so I watched Death Race 2000 this weekend because it's leaving Criterion at the end of the month. I had never seen it before. Um, it was the schlockiest thing I've seen in a really long time, but you know, not good, but kind of interesting. It was. It's challenging.
 
 [00:24:45] Adam: You watched the original, not the remake.
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:30:42] Will: [Doors / floors], yeah, the big, the big, huge clamp, all that stuff.
 
-[00:30:45] Adam: Funnily enough, it also turns out that my grandfather, who was a maker, my grandfather was a surgeon who had a home shop and did a lot of his own repair. And actually, my grandfather, my grandfather had a remote control for the volume on his television in the seventies that he built. And I am going to purchase a television and replicate this as a one-day build, so you guys can see the cleverness of my. Wonderful, strange.
+[00:30:45] Adam: Funnily enough, it also turns out that my grandfather, who was a maker, my grandfather was a surgeon who had a home shop and did a lot of his own repair. And actually, my grandfather, my grandfather had a remote control for the volume on his television in the '70s that he built. And I am going to purchase a television and replicate this as a one-day build, so you guys can see the cleverness of my. Wonderful, strange.
 
 [00:31:16] Will: Did he design it too, or was it like a popular mechanics kit or something like that?
 

@@ -42,11 +42,11 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:00:48] Norm: No, whatever. It's it's fine. It's it's and by any metric, you can still look back the past ten years.
 
-[00:00:53] Will: Did we finish the millennium at the end of two thousand or nineteen ninety nine?
+[00:00:53] Will: Did we finish the millennium at the end of 2000 or 1999?
 
 [00:00:56] Norm: I don't want to have this conversation.
 
-[00:00:56] Adam: What we what we end up so this year twenty twenty August twenty twenty is the thirtieth anniversary of my arrival in San Francisco.
+[00:00:56] Adam: What we what we end up so this year 2020 August 2020 is the thirtieth anniversary of my arrival in San Francisco.
 
 [00:01:05] Will: Wow, really?
 
@@ -58,9 +58,9 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:01:10] Will: June is. I came out in I came out in July
 
-[00:01:13] Adam: of two thousand.
+[00:01:13] Adam: of 2000.
 
-[00:01:14] Will: Of two thousand, ah,
+[00:01:14] Will: Of 2000, ah,
 
 [00:01:15] Adam: my kids were already, uh, a year old.
 
@@ -1042,7 +1042,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:33:51] Norm: Ah, that's not a bad idea. So have a wonderful Christmas. Have a happy New Year. We're going to be back with a lot of cool stuff.
 
-[00:34:00] Adam: Oh my God, twenty twenty is shaping up to be. You know, it's funny. People always say things like this. Oh, the next year's shaping up to be great.
+[00:34:00] Adam: Oh my God, 2020 is shaping up to be. You know, it's funny. People always say things like this. Oh, the next year's shaping up to be great.
 
 [00:34:09] Norm: But guess what? We filmed so much of it for January.
 
@@ -1050,7 +1050,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:34:13] Norm: we can tell you it's good.
 
-[00:34:14] Adam: Yeah, it's really good. It's very exciting. Tested twenty twenty is going to be an awesome year. Um, thank you. Yeah, guys.
+[00:34:14] Adam: Yeah, it's really good. It's very exciting. Tested 2020 is going to be an awesome year. Um, thank you. Yeah, guys.
 
 [00:34:22] Will: Thanks,
 

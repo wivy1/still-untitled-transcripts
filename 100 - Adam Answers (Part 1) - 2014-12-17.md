@@ -40,13 +40,13 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:00:28] Adam: No, was Gene a little pissed about that?
 
-[00:00:28] Will: No, I was pissed because I was the one who was up until twelve thirty with it. But yeah, so then
+[00:00:28] Will: No, I was pissed because I was the one who was up until 12:30 with it. But yeah, so then
 
 [00:01:08] Norm: So you brought it on yourself.
 
 [00:01:09] Will: I brought it was a mistake of my own making. But that doesn't make me any less tired this morning.
 
-[00:01:13] Norm: Twelve thirty—that's time for second dinner.
+[00:01:13] Norm: 12:30—that's time for second dinner.
 
 [00:01:15] Adam: Second breakfast.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:02:21] Will: right? Constantly challenging the world,
 
-[00:02:22] Adam: yeah, and also with your love and your empathy with them, right? But so I would work at ILM. Yeah, I got I got hired at ILM just just around the time the boys were born, and so I'd work from probably I'd leave the house at I guess eight seven forty five, be back home by six six fifteen, and then I would take the boys from then until the morning.
+[00:02:22] Adam: yeah, and also with your love and your empathy with them, right? But so I would work at ILM. Yeah, I got I got hired at ILM just just around the time the boys were born, and so I'd work from probably I'd leave the house at I guess eight 7:45, be back home by six 6:15, and then I would take the boys from then until the morning.
 
 [00:02:48] Will: So
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:05:31] Will: bloody covered with gore,
 
-[00:05:33] Adam: you have this. It's exactly like Trinity learning how to fly a helicopter. You go, oh, I understand eighty percent of my parents.
+[00:05:33] Adam: you have this. It's exactly like Trinity learning how to fly a helicopter. You go, oh, I understand 80% of my parents.
 
 [00:05:33] Will: Yeah,
 
@@ -204,15 +204,15 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:06:39] Will: Little bastards? No, no, no.
 
-[00:06:39] Adam: No. I think about that all the time. I mean, that the the the I I I have growing up in the digital age, I got my first Canon Rebel. When did that first come out? Two thousand
+[00:06:39] Adam: No. I think about that all the time. I mean, that the the the I I I have growing up in the digital age, I got my first Canon Rebel. When did that first come out? 2000
 
-[00:06:56] Will: Two thousand and three or two thousand and two?
+[00:06:56] Will: 2003 or 2002?
 
 [00:06:56] Adam: Okay,
 
 [00:06:57] Will: somewhere in there.
 
-[00:06:57] Adam: So I had the Canon Sure Shot in ninety nine when it first came out. Yeah. Okay. And I took crap tons of photos with that, and then I got the Rebel. So I've got probably ten thousand photos of the boys over the years. Maybe not ten thousand.
+[00:06:57] Adam: So I had the Canon Sure Shot in '99 when it first came out. Yeah. Okay. And I took crap tons of photos with that, and then I got the Rebel. So I've got probably ten thousand photos of the boys over the years. Maybe not ten thousand.
 
 [00:07:12] Will: I bet you have ten thousand.
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:09:49] Will: So see that. I can see where you get there.
 
-[00:09:52] Adam: So he wanted to make a holder for his Leatherman, and we broke out some leather. And I said, he said, you know, what should I do? And I said, you need to make a pattern. You need to think through what it's going to be. And I already had an idea about the structure, a simple structure, but I said right off the bat, you need to resolve yourself. You're going to build this three or four times. Just right now, give in, give up, and know that you're going to go eighty percent down and realize you have to start from scratch, and that's going to happen at least twice.
+[00:09:52] Adam: So he wanted to make a holder for his Leatherman, and we broke out some leather. And I said, he said, you know, what should I do? And I said, you need to make a pattern. You need to think through what it's going to be. And I already had an idea about the structure, a simple structure, but I said right off the bat, you need to resolve yourself. You're going to build this three or four times. Just right now, give in, give up, and know that you're going to go 80% down and realize you have to start from scratch, and that's going to happen at least twice.
 
 [00:10:21] Will: Inevitably, as soon as I make the first cut, I'm like, " Wow, the better way to do this would have been something that is now impossible because I've already cut the first piece of wood."
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:18:49] Will: Gimbal's based stuff, yeah, things like that.
 
-[00:18:51] Adam: Yeah, a Steadicam. Steadicam, for if you don't know, is a camera stabilization platform that the operator wears on their body. It was invented by Garrett Brown in the seventies, used in films like Rocky, American Werewolf in London, and The Shining, and then in every movie you've ever seen since Steadicam shots just they allowed. Filmmakers to be freed from the dolly shot and do all sorts of unbelievable things with cameras.
+[00:18:51] Adam: Yeah, a Steadicam. Steadicam, for if you don't know, is a camera stabilization platform that the operator wears on their body. It was invented by Garrett Brown in the '70s, used in films like Rocky, American Werewolf in London, and The Shining, and then in every movie you've ever seen since Steadicam shots just they allowed. Filmmakers to be freed from the dolly shot and do all sorts of unbelievable things with cameras.
 
 [00:19:13] Will: It's the shot of him following the little boy on the on the big wheel. Yeah, is the one that I always think of as the first. Like that's the first one I think of as this is the Steadicam
 
@@ -440,11 +440,11 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:20:01] Will: Yeah.
 
-[00:20:01] Adam: It is really hard to operate one of those things. And now we've got motors that can potentially keep a camera stable under the most completely adverse conditions for five thousand bucks,
+[00:20:01] Adam: It is really hard to operate one of those things. And now we've got motors that can potentially keep a camera stable under the most completely adverse conditions for 5,000 bucks,
 
 [00:20:01] Will: yeah,
 
-[00:20:01] Adam: six thousand bucks,
+[00:20:01] Adam: 6,000 bucks,
 
 [00:20:15] Will: and they're only going to get cheaper.
 
@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:21:02] Will: make if
 
-[00:21:02] Adam: you can build a three D printer, you could build a motion control platform.
+[00:21:02] Adam: you can build a 3D printer, you could build a motion control platform.
 
 [00:21:02] Will: Yeah.
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:21:11] Will: see y'all later.
 
-[00:21:13] Adam: Laser cut wood on skateboard wheels, and all of a sudden you could do, frankly, ninety-five percent of the image quality that John Dykstra was getting with his first motion control platform in nineteen seventy-six. Now with you know a few hundred dollars worth of hardware.
+[00:21:13] Adam: Laser cut wood on skateboard wheels, and all of a sudden you could do, frankly, 95% of the image quality that John Dykstra was getting with his first motion control platform in 1976. Now with you know a few hundred dollars worth of hardware.
 
 [00:21:29] Will: Well, and the other thing that I think is also happening.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:25:56] Will: Oh, neat.
 
-[00:25:56] Adam: it was brilliant, brilliant piece of engineering, and, um, he's built everything. He, uh, I first met him as part of Robot Wars in the early nineties. Everyone was building robots, you know, what, flying wedges, and, uh, Jamie and I built. Blendo, which was the first centrifugal robot. Setrakian showed up with a goddamn snake. I mean, like a twelve foot long snake that could wrap around, and it had a drill in the middle of its three clawed mouth, and would like totally impractical, but beautiful, with sliding sections. And then the next year, independent six legged spider whose three sections could rotate 360 degrees independently of each other, so it could actually just roll itself sideways or walk forward. I mean, everything that he builds has this kind of moment about it. And like I said, he's he's a good friend and a bloody genius. So it's lovely to show him. He came to the party. He was at the, uh, at the party at Comic Con.
+[00:25:56] Adam: it was brilliant, brilliant piece of engineering, and, um, he's built everything. He, uh, I first met him as part of Robot Wars in the early '90s. Everyone was building robots, you know, what, flying wedges, and, uh, Jamie and I built. Blendo, which was the first centrifugal robot. Setrakian showed up with a goddamn snake. I mean, like a twelve foot long snake that could wrap around, and it had a drill in the middle of its three clawed mouth, and would like totally impractical, but beautiful, with sliding sections. And then the next year, independent six legged spider whose three sections could rotate 360 degrees independently of each other, so it could actually just roll itself sideways or walk forward. I mean, everything that he builds has this kind of moment about it. And like I said, he's he's a good friend and a bloody genius. So it's lovely to show him. He came to the party. He was at the, uh, at the party at Comic Con.
 
 [00:25:56] Will: Oh, cool!
 
@@ -646,7 +646,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:34:21] Will: Right. Don't post them on your on your Instagram.
 
-[00:34:22] Adam: I mean, you know, I I was frankly lucky and smart at the beginning. I have pictures of all of my prop making going back to 1993. I even took film. I have film. I have slides of original stuff that I built for Jamie in the early 90s.
+[00:34:22] Adam: I mean, you know, I I was frankly lucky and smart at the beginning. I have pictures of all of my prop making going back to 1993. I even took film. I have film. I have slides of original stuff that I built for Jamie in the early '90s.
 
 [00:34:38] Will: Don't let him know that.
 
@@ -748,4 +748,4 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:39:08] Norm: Bye.
 
-[00:39:08] Will: Hello, still untitled listeners. I have a brief request for you guys. We are still collecting survey data from you, the listeners of Still Untitled, the Adam Savage Project. If you have five minutes and would love to help the podcast, would really help us a ton if you will go to podsurvey.com/untitled and fill out. Again, it's a short, less than five minute survey. It helps us connect advertisers that want to advertise to you with you guys. So we'll have ads on the podcast that make sense, you know, given who you are and what you're into. Again, it's just five minutes. It's podsurvey.com/untitled, and if you give them your email address, you'll be entered into a recurring drawing to win a hundred dollar Amazon gift certificate. Which you could use to buy things like the complete run of Pee Wee's Playhouse. It's out on Blu-ray. It's restored from film. It looks really, really good, and it costs almost exactly one hundred dollars. Thanks for listening and supporting. Still Untitled. We'll see you guys next week. Bye.
+[00:39:08] Will: Hello, still untitled listeners. I have a brief request for you guys. We are still collecting survey data from you, the listeners of Still Untitled, the Adam Savage Project. If you have five minutes and would love to help the podcast, would really help us a ton if you will go to podsurvey.com/untitled and fill out. Again, it's a short, less than five minute survey. It helps us connect advertisers that want to advertise to you with you guys. So we'll have ads on the podcast that make sense, you know, given who you are and what you're into. Again, it's just five minutes. It's podsurvey.com/untitled, and if you give them your email address, you'll be entered into a recurring drawing to win a hundred dollar Amazon gift certificate. Which you could use to buy things like the complete run of Pee Wee's Playhouse. It's out on Blu-ray. It's restored from film. It looks really, really good, and it costs almost exactly 100 dollars. Thanks for listening and supporting. Still Untitled. We'll see you guys next week. Bye.

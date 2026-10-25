@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:03:37] Adam: Oh yeah,
 
-[00:03:38] Will: because clearly, like that was done in like nineteen sixty three, and then nobody's ever touched it because the FAA approves, everybody's cool with it. Nobody would talk about it.
+[00:03:38] Will: because clearly, like that was done in like 1963, and then nobody's ever touched it because the FAA approves, everybody's cool with it. Nobody would talk about it.
 
 [00:03:48] Adam: Really?
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:10:06] Adam: right?
 
-[00:10:06] Norm: And Boing Boing actually had a really wonderful article in twenty fourteen. They retired one of the cars, the Parlor car,
+[00:10:06] Norm: And Boing Boing actually had a really wonderful article in 2014. They retired one of the cars, the Parlor car,
 
 [00:10:15] Adam: right,
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:15:46] Adam: I have heard this, and it has occurred to me just as a future thing in my life to see how much that would cost and bring a whole bunch of friends on a trip to like Aspen.
 
-[00:15:56] Norm: As of twenty fourteen, it was ten thousand dollars. Ten thousand dollars for a whole car.
+[00:15:56] Norm: As of 2014, it was 10,000 dollars. 10,000 dollars for a whole car.
 
 [00:16:01] Will: Yeah,
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:16:02] Will: How many people?
 
-[00:16:03] Adam: Across twenty people, that's five hundred bucks.
+[00:16:03] Adam: Across twenty people, that's 500 bucks.
 
 [00:16:05] Norm: They do tour groups and charter groups. I think they can. Pack like seventy people on on a car.
 
@@ -566,7 +566,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:19:38] Norm: That did happen this weekend. And in terms of the media world, very interesting. There were the commercials, of course. Yeah,
 
-[00:19:46] Will: yeah. Netflix ran a five million dollar ad for a direct to video movie.
+[00:19:46] Will: yeah. Netflix ran a 5,000,000 dollar ad for a direct to video movie.
 
 [00:19:50] Norm: That's right. That was a crazy thing.
 

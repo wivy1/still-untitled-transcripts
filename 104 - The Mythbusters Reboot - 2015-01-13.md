@@ -24,9 +24,9 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:00:35] Norm: It is. Um, those glasses and technology for that, you can see a few years down the line how amazing that's going to be. The cameras are going to get better. The cameras right now they're using are basically security cameras because that's where you get low latency.
 
-[00:00:48] Will: Like five gigahertz analog.
+[00:00:48] Will: Like 5 gigahertz analog.
 
-[00:00:49] Norm: Five point eight gigahertz, or they do two point four. Um, but the exposure is not perfect on those. Well, and so. The people who do the races right now, they fly both indoor and outdoor. Some of them will go in warehouses and then out windows.
+[00:00:49] Norm: 5.8 gigahertz, or they do 2.4. Um, but the exposure is not perfect on those. Well, and so. The people who do the races right now, they fly both indoor and outdoor. Some of them will go in warehouses and then out windows.
 
 [00:00:49] Adam: Dude,
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:01:48] Norm: Yeah, with shadows, yeah,
 
-[00:01:49] Will: it was. It was basically just the thing is in the moment you're going so fast and you're focused so hard on. A not crashing somebody else's thirteen hundred dollar quad, but B winning.
+[00:01:49] Will: it was. It was basically just the thing is in the moment you're going so fast and you're focused so hard on. A not crashing somebody else's 1,300 dollar quad, but B winning.
 
 [00:01:49] Adam: Yeah,
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:05:17] Will: It's like any other tool of of film, right? Like it took it took ten years before we learned how to use the crash zoom and and you know stuff like that.
 
-[00:05:25] Adam: And it's it's one of the things Duncan and I were talking about. He said he wanted to make one that was that was that had a payload large enough to be able to handle a red camera. And I thought about that overnight. I thought, well, first I thought that's really cool because you know red is a cinema cinema quality ready camera. Then I realized you don't need to put a red on that. You you don't need to make it any heavier, any more of a payload than can hold a Blackmagic with a nice prime lens on it. First of all, because you're almost Ninety-nine percent of what you're going to do is in daylight. Second of all, if you're if it's a flying shot, it's a master shot, which means you're not going to use more than four or five seconds of it at the most. Right. So with the Blackmagic at daylight, that's where it shines.
+[00:05:25] Adam: And it's it's one of the things Duncan and I were talking about. He said he wanted to make one that was that was that had a payload large enough to be able to handle a red camera. And I thought about that overnight. I thought, well, first I thought that's really cool because you know red is a cinema cinema quality ready camera. Then I realized you don't need to put a red on that. You you don't need to make it any heavier, any more of a payload than can hold a Blackmagic with a nice prime lens on it. First of all, because you're almost 99% of what you're going to do is in daylight. Second of all, if you're if it's a flying shot, it's a master shot, which means you're not going to use more than four or five seconds of it at the most. Right. So with the Blackmagic at daylight, that's where it shines.
 
 [00:06:07] Norm: And you shoot in ProRes?
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:09:24] Will: but not so much.
 
-[00:09:30] Adam: No, um, and that's been really, really entertaining because we have the time to go in and talk about that stuff and do that, and then also, as we've said in every interview we've done about this season, um, because Jamie and I are providing a hundred percent of all the content, uh, there's space again for the process for building stuff, and that was very apparent in the early episodes of MythBusters, and as we've gotten, the only reason that's disappeared from the Episodes we've made since then is because we tell more complicated stories. There's more narrative beats to hit. There's not enough time to show how Jamie built a cool table saw rig to make this thing, or how Adam problem solved the pneumatics three different times and kept screwing it up.
+[00:09:30] Adam: No, um, and that's been really, really entertaining because we have the time to go in and talk about that stuff and do that, and then also, as we've said in every interview we've done about this season, um, because Jamie and I are providing 100% of all the content, uh, there's space again for the process for building stuff, and that was very apparent in the early episodes of MythBusters, and as we've gotten, the only reason that's disappeared from the Episodes we've made since then is because we tell more complicated stories. There's more narrative beats to hit. There's not enough time to show how Jamie built a cool table saw rig to make this thing, or how Adam problem solved the pneumatics three different times and kept screwing it up.
 
 [00:10:17] Will: Well, you showed Jamie, Jamie's giant ridiculous drill hole, having a spherical hole driller.
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:14:17] Will: So Norm alluded to you. You guys, you've changed the way you're shooting the show. You're showing a
 
-[00:14:22] Adam: oh right sorry so that's when we talked about the camera crew. One of the things that we we went to them and said you know what what kind of things could we do to get a different look, and understand if camera is your passion, you're reading and inculcating yourself with your favorite cameraman, your favorite movies. So they wanted and we wanted to give the show a different look, and the look was much more cinematic. And by that I mean specifically more bokeh, more depth of field, and that means where the foreground elements are in focus and the background isn't. Now that's anathema to standard reality television, where those Sony cameras those guys wear over their hold on their shoulders. The lens is more expensive than the camera. It's like a fifty thousand dollar lens, and it's that expensive because it's incredibly good in low light, fast focus, fast iris change, and you want that. You don't want something to happen in the background, and then you've got to zoom in, focus, and iris to get it right. It automates stuff like that for you. But on MythBusters, where we're setting up shots of the car driving by, we don't have to use infinite focus GoPros and those a cameras. We can use Blackmagics with primes. We can use much more.
+[00:14:22] Adam: oh right sorry so that's when we talked about the camera crew. One of the things that we we went to them and said you know what what kind of things could we do to get a different look, and understand if camera is your passion, you're reading and inculcating yourself with your favorite cameraman, your favorite movies. So they wanted and we wanted to give the show a different look, and the look was much more cinematic. And by that I mean specifically more bokeh, more depth of field, and that means where the foreground elements are in focus and the background isn't. Now that's anathema to standard reality television, where those Sony cameras those guys wear over their hold on their shoulders. The lens is more expensive than the camera. It's like a 50,000 dollar lens, and it's that expensive because it's incredibly good in low light, fast focus, fast iris change, and you want that. You don't want something to happen in the background, and then you've got to zoom in, focus, and iris to get it right. It automates stuff like that for you. But on MythBusters, where we're setting up shots of the car driving by, we don't have to use infinite focus GoPros and those a cameras. We can use Blackmagics with primes. We can use much more.
 
 [00:15:32] Will: FS700 or
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:26:44] Will: non-lethal weapon, of course.
 
-[00:26:46] Adam: Non-lethal, yes, right. So we built that weapon, and then we realized, okay, you know, it's it's 80s television. Like, there's very little basis in reality for almost everything that they make. But what if Jamie and I were stranded in a lumberyard with the exact same materials? What would we do? So that's what we did, and we steadfastly did not engage with the material of what we had at our disposal, or really talking to each other about what design of machine we would build until the cameras are rolling.
+[00:26:46] Adam: Non-lethal, yes, right. So we built that weapon, and then we realized, okay, you know, it's it's '80s television. Like, there's very little basis in reality for almost everything that they make. But what if Jamie and I were stranded in a lumberyard with the exact same materials? What would we do? So that's what we did, and we steadfastly did not engage with the material of what we had at our disposal, or really talking to each other about what design of machine we would build until the cameras are rolling.
 
 [00:26:46] Will: Oh, that's awesome!
 
@@ -566,7 +566,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:29:10] Will: And it's always two-ish.
 
-[00:29:11] Adam: It's always two-ish, and it might be two point three. You know, a smaller, a small, small story, but for the most part, we have trouble making small stories. We tend to get interested, and things get fat really quickly. But that extra time to tell the story has has felt a little like a luxury because, again, that story can get deeper and deeper.
+[00:29:11] Adam: It's always two-ish, and it might be 2.3. You know, a smaller, a small, small story, but for the most part, we have trouble making small stories. We tend to get interested, and things get fat really quickly. But that extra time to tell the story has has felt a little like a luxury because, again, that story can get deeper and deeper.
 
 [00:29:29] Will: I I was really surprised by the Simpsons episode, like the by the by the outcome of the Homer.
 

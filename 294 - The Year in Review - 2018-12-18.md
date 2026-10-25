@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:11:34] Kayte: Right.
 
-[00:11:34] Adam: They exposed for it on the real one, and then the actual advertising screens back in the the late seventies, early eighties, they didn't have such a thing, so they were projecting that that footage frame by frame on a reflective surface. On the this is my best guess. I haven't actually read the Cinefex article on Blade Runner in a long time, but probably frame by frame on it as it was going past.
+[00:11:34] Adam: They exposed for it on the real one, and then the actual advertising screens back in the the late '70s, early '80s, they didn't have such a thing, so they were projecting that that footage frame by frame on a reflective surface. On the this is my best guess. I haven't actually read the Cinefex article on Blade Runner in a long time, but probably frame by frame on it as it was going past.
 
 [00:11:57] Norm: Oh, you think it was like a like a stop sign? That perfect reflection.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:19:44] Norm: Yep. And then and then went back to to chat with Peter Jackson about Mortal Engines. It's I mean, like I don’t think because I mean I don’t think I think I'm putting you in spot a little bit, but like going back, I think if you look at photos of the cave. At the beginning of the year, like these spacesuits weren't here.
 
-[00:19:57] Adam: No, no, it became a much. So I knew this at the beginning of eighteen that spacesuits were going to become more prominent because we're entering two thousand nineteen, the fiftieth anniversary of Apollo eleven. NASA is very near and dear to my heart. First man came out this year. Ryan Nagata and his incredible work are showcased in that film, as well as Chris Gilman from Global Effects, and I have some of their pieces here. We also went to three cons. We did Silicon Valley Comic Con, San Diego Comic Con, and New York Comic Con. All three really unique cons with different cultures. It's it it has been a terrific from a tested standpoint. It has been a terrific year on the politics front. It's been an absolute shit show. It's it's stressful for everyone. I don't care what side of the aisle you are on. It's been a stressful year for us. But like the making aspect of of of you know reaching out, encouraging people to make has felt really like it's been a great saturated year for that.
+[00:19:57] Adam: No, no, it became a much. So I knew this at the beginning of eighteen that spacesuits were going to become more prominent because we're entering 2019, the fiftieth anniversary of Apollo 11. NASA is very near and dear to my heart. First man came out this year. Ryan Nagata and his incredible work are showcased in that film, as well as Chris Gilman from Global Effects, and I have some of their pieces here. We also went to three cons. We did Silicon Valley Comic Con, San Diego Comic Con, and New York Comic Con. All three really unique cons with different cultures. It's it it has been a terrific from a tested standpoint. It has been a terrific year on the politics front. It's been an absolute shit show. It's it's stressful for everyone. I don't care what side of the aisle you are on. It's been a stressful year for us. But like the making aspect of of of you know reaching out, encouraging people to make has felt really like it's been a great saturated year for that.
 
 [00:20:56] Norm: And meeting new people and you know building that community of of people that you can reach out to and collaborate with.
 
@@ -412,10 +412,10 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:28:13] Kayte: Thanks for having me.
 
-[00:28:14] Adam: Thank you for all the joining that you've done on the podcast this year. Happy holidays, happy Kwanzaa, Hanukkah, Christmas, whatever holiday you feel like celebrating. Happy New Year! It'll be really nice to put a period on the end of twenty eighteen. It has been an intense and awesome year, both at the same time.
+[00:28:14] Adam: Thank you for all the joining that you've done on the podcast this year. Happy holidays, happy Kwanzaa, Hanukkah, Christmas, whatever holiday you feel like celebrating. Happy New Year! It'll be really nice to put a period on the end of 2018. It has been an intense and awesome year, both at the same time.
 
 [00:28:33] Kayte: Yes,
 
-[00:28:34] Norm: we'll see you in twenty nineteen.
+[00:28:34] Norm: we'll see you in 2019.
 
-[00:28:35] Adam: See you in twenty nineteen. Bye, guys.
+[00:28:35] Adam: See you in 2019. Bye, guys.

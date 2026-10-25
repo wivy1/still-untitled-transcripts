@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:18:18] Adam: Oh, nice. Kind of. Okay. All right.
 
-[00:18:19] Will: Like, it's completely different topics. Completely different things. It's about Seti and the Cultural Revolution, and it gave me a much better understanding of what the Cultural Revolution meant to China and and how when Deng Xiaoping had the cultural reforms in I guess the 80s or 90s is that right? That that basically the reason Three Body Problem is interesting right now, I think, is that we're in a we're in a place where a significant portion of the of our country and our leaders are being willfully ignorant about science, technology, things that are that are well established, and there's parallels
+[00:18:19] Will: Like, it's completely different topics. Completely different things. It's about Seti and the Cultural Revolution, and it gave me a much better understanding of what the Cultural Revolution meant to China and and how when Deng Xiaoping had the cultural reforms in I guess the '80s or '90s is that right? That that basically the reason Three Body Problem is interesting right now, I think, is that we're in a we're in a place where a significant portion of the of our country and our leaders are being willfully ignorant about science, technology, things that are that are well established, and there's parallels
 
 [00:18:56] Adam: politicizing facts.
 

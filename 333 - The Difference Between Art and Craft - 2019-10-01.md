@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:05:29] Adam: policy problem.
 
-[00:05:31] Will: Yeah, well, it's a, yeah, yeah, it's a combination. Yes, we don't build enough houses for the number of people who live here, so a single room, what, one bedroom apartment costs four thousand dollars a month,
+[00:05:31] Will: Yeah, well, it's a, yeah, yeah, it's a combination. Yes, we don't build enough houses for the number of people who live here, so a single room, what, one bedroom apartment costs 4,000 dollars a month,
 
 [00:05:40] Adam: yeah,
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:14:10] Will: Well, and when you see a situation with a game like Overwatch, when they release a new character or or respawn, when they release a new character for Apex Legends, they show enough of those characters before they're even released in the game that people can start working on costumes and have reference. And some of them even release like like models and the whole thing, so they can take it apart and digitally and like have assets.
 
-[00:14:32] Adam: There was a there was a mind blowing like eight and a half foot tall Nuka-Cola costume on stilts, and the entire thing was three D printed. Apparently, the guy had four three D printers running simultaneously for weeks.
+[00:14:32] Adam: There was a there was a mind blowing like eight and a half foot tall Nuka-Cola costume on stilts, and the entire thing was 3D printed. Apparently, the guy had four 3D printers running simultaneously for weeks.
 
 [00:14:45] Will: Well, it's it's funny because it's like even as even when we started Tested, I remember the first time you brought Harrison in for a live show when he brought I think Daft Punk helmets and maybe
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:15:26] Adam: and she had made the rock she lay upon, and she had armor on, and Harrison pointed out that she had armor made in some places out of silicone, in some places it was made out of urethane, and in some places it was 3D printed, and the color matched on all three of them. And he's like, that's really hard. And the thing is, is that before cosplay. Only a very small subset of people in the film industry and perhaps some other industries knew no weird esoteric things like that. Like multiple different textures and materials are hard to color match to each other, but you end up with this community that's beautifully supporting each other by transferring and trading this kind of information.
 
-[00:16:08] Will: Well, and the thing that makes me happy, and the thing that we always said when we were when you were doing cosplay photos at Maximum PC in two thousand nine, two thousand and earlier, is that like the cosplay we said this before here, it has to hold up to a much higher level of scrutiny than a lot of film props because you're looking at it from two feet away with your eyes instead of looking at it with a fifty millimeter lens from thirty feet away.
+[00:16:08] Will: Well, and the thing that makes me happy, and the thing that we always said when we were when you were doing cosplay photos at Maximum PC in 2009, 2000 and earlier, is that like the cosplay we said this before here, it has to hold up to a much higher level of scrutiny than a lot of film props because you're looking at it from two feet away with your eyes instead of looking at it with a fifty millimeter lens from thirty feet away.
 
 [00:16:29] Norm: And you have zero control of the lighting.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:17:28] Will: Yeah,
 
-[00:17:28] Adam: exactly. That's perfect. So TwitchCon was lovely. San Diego was a fabulous, like seventy-three degrees and sunny
+[00:17:28] Adam: exactly. That's perfect. So TwitchCon was lovely. San Diego was a fabulous, like 73 degrees and sunny
 
 [00:17:37] Will: weather. So good, it's bad for your soul.
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:18:47] Will: okay,
 
-[00:18:47] Adam: Uh, and so it had. I think if I remember correctly, it was built in the 70s, Uh, and it was a teaching ship for a couple decades. When Peter Weir's production bought it, I actually got reached out to by one of the art department from the film who had told me some wonderful stories via Twitter DMs of of working on the film uh, and some of the props that they built.
+[00:18:47] Adam: Uh, and so it had. I think if I remember correctly, it was built in the '70s, Uh, and it was a teaching ship for a couple decades. When Peter Weir's production bought it, I actually got reached out to by one of the art department from the film who had told me some wonderful stories via Twitter DMs of of working on the film uh, and some of the props that they built.
 
 [00:19:06] Will: And is it's a partial scale or is it a full scale? Because I know like—
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:19:10] Will: Okay, because the Pirates of the Caribbean ships were all like two thirds or something. They're small. Yeah,
 
-[00:19:15] Adam: it's a good question. I'm not a hundred percent positive. It's a big boat, and it's also smaller than you think.
+[00:19:15] Adam: it's a good question. I'm not 100% positive. It's a big boat, and it's also smaller than you think.
 
 [00:19:20] Will: Yeah.
 
@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:28:18] Adam: underground railroad that's secret and has been built by slaves to get each other out of the south.
 
-[00:28:24] Will: This is historical fiction set during the late [unclear: nineteenth / eighteenth] century,
+[00:28:24] Will: This is historical fiction set during the late [unclear: 19th / 18th] century,
 
 [00:28:27] Adam: during the slavery. Yeah, and it's horrifying. It's difficult to read and so beautiful and really, really moving. I I was on my I was finishing on an airplane and was like trying not to openly weep.
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:33:35] Adam: Yeah, no, they're very straight. Coming out of one of those is very like, [unclear: bling, bling / boink, boink].
 
-[00:33:38] Will: Yeah, it's like I am good, ready for dinner now. Oh, it's eleven thirty. Um, so probably no podcast next week then, because you are going straight from Comic Con on.
+[00:33:38] Will: Yeah, it's like I am good, ready for dinner now. Oh, it's 11:30. Um, so probably no podcast next week then, because you are going straight from Comic Con on.
 
 [00:33:46] Norm: We'll try.
 

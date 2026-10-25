@@ -270,13 +270,13 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:08:56] Will: I saw I saw two towers. I think that might have been the day the day after Christmas.
 
-[00:09:01] Adam: I saw two towers. When did that come out? Two thousand and three,
+[00:09:01] Adam: I saw two towers. When did that come out? 2003,
 
 [00:09:05] Will: something like that.
 
 [00:09:06] Norm: No, no two.
 
-[00:09:08] Adam: Which one came out in oh three? That was Return of the King.
+[00:09:08] Adam: Which one came out in '03? That was Return of the King.
 
 [00:09:12] Norm: Whoa!
 
@@ -738,7 +738,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:21:31] Adam: Oh, that's awful.
 
-[00:21:31] Will: And yeah, and they would roll in at like six thirty after dark and be like, " Hey, can you help me cut a tree?" It. You are like you don't want to be the Grinch and say no. I am not going to help you cut a damn. Come back right.
+[00:21:31] Will: And yeah, and they would roll in at like 6:30 after dark and be like, " Hey, can you help me cut a tree?" It. You are like you don't want to be the Grinch and say no. I am not going to help you cut a damn. Come back right.
 
 [00:21:51] Unknown speaker: Oh my God!
 
@@ -806,7 +806,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:22:41] Will: Yep.
 
-[00:22:45] Adam: on Route Nine in in New York, and then somebody once left left a magazine in the in the bathroom at the public library I worked at.
+[00:22:45] Adam: on Route 9 in in New York, and then somebody once left left a magazine in the in the bathroom at the public library I worked at.
 
 [00:22:45] Will: Nice.
 

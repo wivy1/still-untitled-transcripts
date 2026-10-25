@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:01:42] Adam: Well, at any rate, it was like eighty degrees Fahrenheit, and everyone in Wellington was losing their minds, and they were like apologizing, " We're really sorry for this crazy, debilitating heat." And I'm like, " That is so cute that you guys think this is debilitating heat.
 
-[00:01:55] Will: " There was a point last summer here one time when it was a hundred and Eleven degrees when I got in the car, and my my office was ninety six degrees Fahrenheit inside with the fan blowing.
+[00:01:55] Will: " There was a point last summer here one time when it was 111 degrees when I got in the car, and my my office was 96 degrees Fahrenheit inside with the fan blowing.
 
 [00:01:55] Adam: Yes,
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:11:34] Will: a tiny boat,
 
-[00:11:35] Norm: a tiny boat, a six foot long boat that is all made of parts, ninety percent made of parts that he laser cut either laser cut in his own hundred watt laser cutter in his home slash shop or three D printed.
+[00:11:35] Norm: a tiny boat, a six foot long boat that is all made of parts, 90% made of parts that he laser cut either laser cut in his own hundred watt laser cutter in his home slash shop or 3D printed.
 
 [00:11:49] Will: And you rode in one of these boats.
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:14:02] Will: Well, that’s interesting.
 
-[00:14:22] Norm: ingenuity of designing something so that could be made with the tools he had on hand—in this case, cutting quarter-inch ply and three D printing parts the volume about the size of that bottle, right?
+[00:14:22] Norm: ingenuity of designing something so that could be made with the tools he had on hand—in this case, cutting quarter-inch ply and 3D printing parts the volume about the size of that bottle, right?
 
 [00:14:22] Adam: Yeah.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:17:18] Will: Oh my God, that's one less pair of those in the world.
 
-[00:17:20] Adam: [unclear speaker: Adam or Will] God. Ah, and then of course it flashed up Tom Sachs Nike X Mars Yard shoes, two hundred dollars.
+[00:17:20] Adam: [unclear speaker: Adam or Will] God. Ah, and then of course it flashed up Tom Sachs Nike X Mars Yard shoes, 200 dollars.
 
 [00:17:20] Unknown speaker (Norm or Adam): What?
 
@@ -626,9 +626,9 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:24:26] Adam: Oh,
 
-[00:24:32] Adam: the comedian, the fifties comedian.
+[00:24:32] Adam: the comedian, the '50s comedian.
 
-[00:24:34] Norm: Yes, it is. It's fifties, not like Mad Men at all.
+[00:24:34] Norm: Yes, it is. It's '50s, not like Mad Men at all.
 
 [00:24:34] Adam: Yeah,
 

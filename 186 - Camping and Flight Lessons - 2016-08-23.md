@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:10:54] Norm: That's all you can hope for.
 
-[00:10:56] Adam: Yeah, because I mean, on some of these modern cars, you could dent the front fender, which is somehow contiguous with the back fender, and then it's like you got to replace this unibody fiberglass thing that's like eight thousand dollars.
+[00:10:56] Adam: Yeah, because I mean, on some of these modern cars, you could dent the front fender, which is somehow contiguous with the back fender, and then it's like you got to replace this unibody fiberglass thing that's like 8,000 dollars.
 
 [00:11:06] Norm: Yeah, I gotta imagine the the people who key cars research like, okay,
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:21:20] Rebecca: at any point.
 
-[00:21:20] Adam: At any point, it could be any one of them. Yeah. I mean, I've been doored. Before I used to ride a bicycle in Manhattan in the eighties, so I definitely have hit my share of car doors.
+[00:21:20] Adam: At any point, it could be any one of them. Yeah. I mean, I've been doored. Before I used to ride a bicycle in Manhattan in the '80s, so I definitely have hit my share of car doors.
 
 [00:21:30] Rebecca: Yeah, I was doored in Boston. I've been hit by cars several times.
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:21:37] Adam: I once was on a bike that got run over by a car while I was riding it, and I was fine. But literally, both tires bent at an angle like that. The guy got out of the car and he was like, " You're amazing."
 
-[00:21:47] Rebecca: I got T-boned by an SUV once, and other people called nine one one and the ambulance. And so I'm like, " Okay, I guess I'll wait around and make a report." And the ambulance shows up, and they're like, " Where's this cyclist?" I was like, " Hey," and they're like, " We were here to pick up a corpse." I was like, " Oh no, I'm fine." Wow. And like they check me, I had like a big bruise along my leg.
+[00:21:47] Rebecca: I got T-boned by an SUV once, and other people called 911 and the ambulance. And so I'm like, " Okay, I guess I'll wait around and make a report." And the ambulance shows up, and they're like, " Where's this cyclist?" I was like, " Hey," and they're like, " We were here to pick up a corpse." I was like, " Oh no, I'm fine." Wow. And like they check me, I had like a big bruise along my leg.
 
 [00:22:09] Adam: It turns out you're still dead, Rebecca.
 

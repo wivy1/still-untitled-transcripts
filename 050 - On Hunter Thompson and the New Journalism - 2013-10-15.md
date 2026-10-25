@@ -268,13 +268,13 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:07:11] Adam: I know, no.
 
-[00:07:11] Will: I can't believe we're talking about the esoterica of early seventies politics
+[00:07:11] Will: I can't believe we're talking about the esoterica of early '70s politics
 
 [00:07:16] Adam: sorry
 
 [00:07:16] Will: but um but no I mean his the descriptions of politicians and his unflinching way of calling bullshit on things that he thought were bullshit made him I mean at the time it was revolutionary now now everything that's come since has kind of reflected that I think
 
-[00:07:33] Adam: well and and we should be clear that along with Tom Wolfe Hunter Thompson the two of them are absolutely described the two poles of what was in the mid sixties and early seventies referred to as the new journalism
+[00:07:33] Adam: well and and we should be clear that along with Tom Wolfe Hunter Thompson the two of them are absolutely described the two poles of what was in the mid '60s and early '70s referred to as the new journalism
 
 [00:07:46] Will: right
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:08:11] Adam: I did not realize that
 
-[00:08:12] Will: because Ken Kesey's Merry Pranksters, who are on the hip of the yeah on the peak of the acid revolution of the sixties in San Francisco, cross paths with the Hell's Angels, who were really into drug distribution
+[00:08:12] Will: because Ken Kesey's Merry Pranksters, who are on the hip of the yeah on the peak of the acid revolution of the '60s in San Francisco, cross paths with the Hell's Angels, who were really into drug distribution
 
 [00:08:23] Adam: I forgot about that.
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:10:51] Adam: If I remember correctly, he he wanted it to be a much more surrealistic journey. And I think he was looking. I can't even remember what he said. He was originally attempting to capture, but he didn't get it. But I mean, by any metric, Fear and Loathing is is. I think it's his best book.
 
-[00:11:10] Will: It's one of the great books of the twentieth century.
+[00:11:10] Will: It's one of the great books of the 20th century.
 
 [00:11:11] Adam: Totally, I you laugh all the way through it is horrifying and amazing and just it's brilliantly written. The other one I remember and this stuck with me forever was he was reviewing newspaper writing in general, which he had very little patience for, and he said,
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:12:36] Adam: Absolutely.
 
-[00:12:36] Will: In that, the core tenet is: Hey, you can't. You Heisenberg's uncertainty principle, not not the Breaking Bad Heisenberg, but the original, is that you can't look at something without changing it fundamentally. And they both took that information and this kind of new world of physics and science. That were rising in the 40s and 50s and early 60s, and they went completely different ways. With it, so anyway, sorry.
+[00:12:36] Will: In that, the core tenet is: Hey, you can't. You Heisenberg's uncertainty principle, not not the Breaking Bad Heisenberg, but the original, is that you can't look at something without changing it fundamentally. And they both took that information and this kind of new world of physics and science. That were rising in the '40s and '50s and early '60s, and they went completely different ways. With it, so anyway, sorry.
 
 [00:13:02] Adam: No, now I'm remembering. My favorite bit from one of the compilations was the he managed to snake a late night interview with Muhammad Ali. Do you remember this story?
 
@@ -372,9 +372,9 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:13:13] Adam: So he,
 
-[00:13:16] Will: and this is in the 60s. Is he Muhammad Ali?
+[00:13:16] Will: and this is in the '60s. Is he Muhammad Ali?
 
-[00:13:19] Adam: This is I think in the early 70s. Okay, Muhammad Ali is at his peak, and he is Muhammad Ali. He's no longer Cassius Clay. He's a clean living Muslim man, and he's got his entourage, and his entourage doesn't want him to have anything to do with filthy drug add drug-addled Hunter Thompson. Yeah, and he's in town, and he somehow manages to arrange a late night interview while Ali's manager isn't there.
+[00:13:19] Adam: This is I think in the early '70s. Okay, Muhammad Ali is at his peak, and he is Muhammad Ali. He's no longer Cassius Clay. He's a clean living Muslim man, and he's got his entourage, and his entourage doesn't want him to have anything to do with filthy drug add drug-addled Hunter Thompson. Yeah, and he's in town, and he somehow manages to arrange a late night interview while Ali's manager isn't there.
 
 [00:13:45] Will: That's that's gold,
 

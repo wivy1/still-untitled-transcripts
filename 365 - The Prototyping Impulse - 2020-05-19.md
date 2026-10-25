@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:00:16] Will: I mean, I've seen those bins before, and if she's been doing those the entire time she's been there, she's probably what like a quarter or half of the way through now, maybe.
 
-[00:00:24] Adam: Um, we now have ninety-five percent of all the Lego technics sifted out of all the colors.
+[00:00:24] Adam: Um, we now have 95% of all the Lego technics sifted out of all the colors.
 
 [00:00:37] Will: Okay.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:04:26] Norm: Yeah.
 
-[00:04:26] Will: Gina and I were talking about this the other day, and I realized that the last the last time I was in a building other than my house was at Tested when we recorded on the fourth of March, I think.
+[00:04:26] Will: Gina and I were talking about this the other day, and I realized that the last the last time I was in a building other than my house was at Tested when we recorded on the 4th of March, I think.
 
 [00:04:38] Norm: Wow.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:05:55] Will: Yeah.
 
-[00:05:55] Adam: And then you bring your oil to fairly hot, like four hundred, I think. And if I remember correctly, it's like five minutes exactly in four hundred degree oil makes the most perfect, soft inside, crispy outside sweet potato fries.
+[00:05:55] Adam: And then you bring your oil to fairly hot, like four hundred, I think. And if I remember correctly, it's like five minutes exactly in 400 degree oil makes the most perfect, soft inside, crispy outside sweet potato fries.
 
 [00:06:11] Will: So let's see. These you parboiled just to cook the potato, right? Get them a little fluffy. Then you you wanted to make sure you didn't do that so fast so far that they broke down. We got a little bit far on that because it's it's a little tricky.
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:12:35] Norm: yeah,
 
-[00:12:35] Adam: that's where it all started. So it felt to me like a kind of a a great like arc between nineteen seventy five and he starts going into pre production on Star Wars and now, and they're they're doing this in ways that haven't been tried before. The volume, I mean, I need to see hours and hours and hours of footage of just how they use the Unreal Engine and the volume because it's so remarkable.
+[00:12:35] Adam: that's where it all started. So it felt to me like a kind of a a great like arc between 1975 and he starts going into pre production on Star Wars and now, and they're they're doing this in ways that haven't been tried before. The volume, I mean, I need to see hours and hours and hours of footage of just how they use the Unreal Engine and the volume because it's so remarkable.
 
 [00:12:57] Will: That whole the sequence, I think, was at the start of the second episode, but I can't remember where they show the Mandalorian in the cockpit of his ship with the puppet, and they're showing this space fight sequence, and they're showing how they're maneuvering the starfield behind him on the wall, and and I and shaking the cameras, shaking the prop, shaking the whole thing, like that stuff. I so last week, Unreal released a tech demo video of the next version of their engine, which shows them basically taking incredibly incredibly detailed photogrammetry scenes with billions of polys, so that each pixel on the screen is one one triangle in a lot of instances. And bringing that into a real-time engine in games, and I have to imagine that these two things are not unrelated. In in you know, Epic's the people make the Unreal engines. mind.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:34:32] Norm: yeah.
 
-[00:34:33] Adam: Oh, and my mom, by the way my my mom has told me that she hasn't seen Raiders since it came out in eighty one. So we have a plan to watch that together.
+[00:34:33] Adam: Oh, and my mom, by the way my my mom has told me that she hasn't seen Raiders since it came out in '81. So we have a plan to watch that together.
 
 [00:34:41] Will: Oh man, I haven't watched Raiders in a really long time.
 

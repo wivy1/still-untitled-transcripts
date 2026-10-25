@@ -34,7 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:01:43] Adam: Right.
 
-[00:01:43] Norm: And the small CCDs that were able to and and the way TV shows were shot in kind of the mid '90s and the early very earliest of aughts before better sensors and before HD became a standard, they're kind of like in this weird intermediate period, this limbo period where There's not anything you can do with that footage. That footage is what it is, and you know now that you know we have 4K and 8K cameras, you know it's it's approaching film. We're back to that original quality, but it's a dip in the way people are shot.
+[00:01:43] Norm: And the small CCDs that were able to and and the way TV shows were shot in kind of the mid '90s and the early very earliest of 2000s before better sensors and before HD became a standard, they're kind of like in this weird intermediate period, this limbo period where There's not anything you can do with that footage. That footage is what it is, and you know now that you know we have 4K and 8K cameras, you know it's it's approaching film. We're back to that original quality, but it's a dip in the way people are shot.
 
 [00:02:18] Adam: Oh, interesting. Yeah, yeah. Um,
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:15:26] Will: Is it like benchtop or small? It's it's a mini.
 
-[00:15:29] Adam: So Sherline is probably about like this long, like eighteen inches. This one is more like probably twenty six inches, and with the with the mill combo, it's you know good two feet high, but still it's very desk friendly.
+[00:15:29] Adam: So Sherline is probably about like this long, like eighteen inches. This one is more like probably 26 inches, and with the with the mill combo, it's you know good two feet high, but still it's very desk friendly.
 
 [00:15:42] Norm: Yeah,
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:16:19] Unknown speaker: Yeah.
 
-[00:16:22] Adam: Well, but so the Emco is strictly a machine tool company, from what I understand. And I I had the system way back in the day, and like I said, it was super precise right out of the gate. I loved that thing. It was it was terrific. I I I had an Enco bench top, which is more so Enco E N C O is another company, and they make a kind of a five hundred pound. Uh, like four foot tall mill. That was my first mill that I had in this in this space. Well, the very first tiny mill.
+[00:16:22] Adam: Well, but so the Emco is strictly a machine tool company, from what I understand. And I I had the system way back in the day, and like I said, it was super precise right out of the gate. I loved that thing. It was it was terrific. I I I had an Enco bench top, which is more so Enco E N C O is another company, and they make a kind of a 500 pound. Uh, like four foot tall mill. That was my first mill that I had in this in this space. Well, the very first tiny mill.
 
 [00:16:59] Will: Yeah, that the yeah, I remember that one.
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:31:24] Adam: Absolutely.
 
-[00:31:25] Norm: In addition to Westworld, I've been watching a lot of the Criterion Collection and going back to the old 40s and late 30s movies, and I watch both Philadelphia Story. And His Girl Friday.
+[00:31:25] Norm: In addition to Westworld, I've been watching a lot of the Criterion Collection and going back to the old '40s and late '30s movies, and I watch both Philadelphia Story. And His Girl Friday.
 
 [00:31:38] Adam: Perfect movies.
 

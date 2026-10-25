@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:00:41] Will: Something about making a TV, Somebody's making a TV show and their schedule's real bad. I don't know.
 
-[00:00:45] Norm: I'm getting PTSD from like two thousand thirteen.
+[00:00:45] Norm: I'm getting PTSD from like 2013.
 
 [00:00:48] Will: Yeah, remember that? I'm going to be on tour. I'm going to shoot twenty episodes of MythBusters this year. We work like ten hours a day.
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:07:00] Will: So you did a series of videos. In different makerspaces and schools and stuff like that.
 
-[00:07:04] Adam: That was sponsored by Chevron. Yeah twenty twenty sixteen and twenty seventeen.
+[00:07:04] Adam: That was sponsored by Chevron. Yeah twenty 2016 and 2017.
 
 [00:07:04] Will: Okay.
 
@@ -236,7 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:07:04] Will: Okay.
 
-[00:07:04] Adam: And then also out of that same initiative to to galvanize making into the next stage and to really train a new generation of digital natives on this equipment, three D printing, rapid prototyping, nation of makers grew.
+[00:07:04] Adam: And then also out of that same initiative to to galvanize making into the next stage and to really train a new generation of digital natives on this equipment, 3D printing, rapid prototyping, nation of makers grew.
 
 [00:07:28] Norm: And not just the people who go to makerspaces, but specifically people who run makerspaces.
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:17:35] Will: Yeah, I mean, make.
 
-[00:17:35] Adam: Yeah, no, Make came around in two thousand and four.
+[00:17:35] Adam: Yeah, no, Make came around in 2004.
 
 [00:17:38] Will: Yeah, so we're we're coming up on on on sixteen, fourteen, fifteen years next year. I guess
 
@@ -550,7 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:22:51] Will: I was going to say it had to be incredibly heavy.
 
-[00:22:52] Adam: My bronze bird is twenty nine pounds.
+[00:22:52] Adam: My bronze bird is 29 pounds.
 
 [00:22:55] Will: It is shocking,
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:22:56] Unknown speaker: Okay.
 
-[00:22:56] Adam: But it's a resin bird, and I start. I did a bunch of research into resins from the '40s. They'd be what they would have used, and even whether they were using polyester or epoxies, the shrinkage would have been somewhere between like ten and between like seven and twelve percent
+[00:22:56] Adam: But it's a resin bird, and I start. I did a bunch of research into resins from the '40s. They'd be what they would have used, and even whether they were using polyester or epoxies, the shrinkage would have been somewhere between like ten and between like 7 and 12%
 
 [00:23:48] Will: because it cures.
 
@@ -984,13 +984,13 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:36:06] Will: Right. Like
 
-[00:36:06] Adam: so, my dad was in that era, and my dad, I remember him telling me about getting hired in the mid to late fifties for I think N. W. Ayer as a quote television art director, and just like Harry. Is on the show. It's super accurate. My dad was like, " They hired me with that job title, and no one knew what that was or what I was supposed to do."
+[00:36:06] Adam: so, my dad was in that era, and my dad, I remember him telling me about getting hired in the mid to late '50s for I think N. W. Ayer as a quote television art director, and just like Harry. Is on the show. It's super accurate. My dad was like, " They hired me with that job title, and no one knew what that was or what I was supposed to do."
 
 [00:36:28] Will: Yeah,
 
 [00:36:29] Adam: because television was nascent. We were all sort of figuring it out as we went along. I was like, " Do I have an office?" And they're like, " Maybe." And he's like, " I went in and found an office. Like, this is my office." And they're like, " Great!"
 
-[00:36:38] Norm: It's like being a webmaster in the late nineties,
+[00:36:38] Norm: It's like being a webmaster in the late '90s,
 
 [00:36:38] Adam: right? Exactly.
 
@@ -1026,9 +1026,9 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:37:17] Adam: Oh, I watch it at least every couple of years.
 
-[00:37:19] Will: No, no, you're talking about the one, the the fifties one.
+[00:37:19] Will: No, no, you're talking about the one, the the '50s one.
 
-[00:37:22] Norm: Sixty, nineteen sixty.
+[00:37:22] Norm: Sixty, 1960.
 
 [00:37:23] Adam: Oh, oh, the Sinatra,
 
@@ -1164,7 +1164,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:41:16] Adam: Oh no, it is incredible.
 
-[00:41:27] Will: Oh, oh, let's take this thing that's so difficult that only like ten percent of people even get to the end, and then make it even harder. Great.
+[00:41:27] Will: Oh, oh, let's take this thing that's so difficult that only like 10% of people even get to the end, and then make it even harder. Great.
 
 [00:41:34] Adam: Anything coming up on the site this week?
 
@@ -1182,7 +1182,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:42:00] Norm: Wow.
 
-[00:42:00] Adam: I will tell you that I have not yet found its limit in San Francisco. The first weekend I had it, I rode it from the Mission to Ocean Beach and back through the park, and I still had twenty-six percent power left. Four days ago, I took it up and over Polk Street, down to Crissy, across Fort Mason, down to Crissy Field, back up through the Presidio, and home again. And that I had thirty-five percent power left after that trip. This thing is—I wear out before it does.
+[00:42:00] Adam: I will tell you that I have not yet found its limit in San Francisco. The first weekend I had it, I rode it from the Mission to Ocean Beach and back through the park, and I still had 26% power left. Four days ago, I took it up and over Polk Street, down to Crissy, across Fort Mason, down to Crissy Field, back up through the Presidio, and home again. And that I had 35% power left after that trip. This thing is—I wear out before it does.
 
 [00:42:34] Will: I was going to say, like riding a skateboard across San Francisco, like that would be exhausting.
 

@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ky7Qz9Mt_o
 
 [00:04:59] Will: Did you ever?
 
-[00:05:01] Adam: Uh, not that I so no, not that I can remember. I started doing public speaking. I mean, first I was an actor. I, I spent time as an actor as a kid and as a, in my late teens. Um, when I was working at Industrial Light and Magic in ninety eight ninety nine, I realized that sometimes they sent employees out to do public speaking events, and I threw my hat into that ring and actually got several gigs from them, including going to the [unclear: Broadway]— I went to the Breckenridge Film Festival in Colorado and representing ILM for a two hour talk.
+[00:05:01] Adam: Uh, not that I so no, not that I can remember. I started doing public speaking. I mean, first I was an actor. I, I spent time as an actor as a kid and as a, in my late teens. Um, when I was working at Industrial Light and Magic in '98 '99, I realized that sometimes they sent employees out to do public speaking events, and I threw my hat into that ring and actually got several gigs from them, including going to the [unclear: Broadway]— I went to the Breckenridge Film Festival in Colorado and representing ILM for a two hour talk.
 
 [00:05:32] Will: So, what are those? Are those talks like? Are those like, uh, sharing expertise and techniques and stuff like that, or is it?
 

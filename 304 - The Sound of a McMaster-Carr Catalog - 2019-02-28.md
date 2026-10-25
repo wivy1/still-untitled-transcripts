@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:03:52] Norm: I think the difference was that when we were in the Arctic, we were surrounded by ice, like ice. Here is a city, like, and we're both from the West Coast, so our familiarity with snow extends to, you know, skiing Tahoe, right?
 
-[00:04:06] Adam: I I tend to think, having worked on MythBusters, a temperature spread from forty below zero to a hundred and twenty degrees Fahrenheit. That all of the temperature extreme is about giving over to it and proper preparation. Sure. So if I'm ever going somewhere super cold, I'm wearing wool socks because as long as my feet are warm, I can kind of I can endure almost any other suffering. And I know that about myself, you know. And so when you go to some place where you know it's going to be cold, you prepare. You're wearing a couple of layers. You're able to attenuate. But when you're not prepared and you're just wearing San Francisco street clothes and you step off a plane and in at Kennedy and you're like, Holy cow!
+[00:04:06] Adam: I I tend to think, having worked on MythBusters, a temperature spread from forty below zero to 120 degrees Fahrenheit. That all of the temperature extreme is about giving over to it and proper preparation. Sure. So if I'm ever going somewhere super cold, I'm wearing wool socks because as long as my feet are warm, I can kind of I can endure almost any other suffering. And I know that about myself, you know. And so when you go to some place where you know it's going to be cold, you prepare. You're wearing a couple of layers. You're able to attenuate. But when you're not prepared and you're just wearing San Francisco street clothes and you step off a plane and in at Kennedy and you're like, Holy cow!
 
 [00:04:45] Norm: Literally, I think that is what happened. That is Joey arrived. We in
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:15:31] Norm: Well, the different and representation, yeah, and what it means and for and how representation has many forms.
 
-[00:15:38] Adam: So, in this current political climate, which, if you follow me on Twitter, you know I'm taking very seriously, and I find it very emotionally difficult to navigate the news every day. I found myself in a in a lovely safe space. I've been saying a lot over the past few months that I love ninety nine percent invisible because it's like not politics, and I love Roman and the stories that his team tells. But yesterday, I spent several hours listening to back episodes of one of the best NPR shows on all of NPR Radio, which is on the media.
+[00:15:38] Adam: So, in this current political climate, which, if you follow me on Twitter, you know I'm taking very seriously, and I find it very emotionally difficult to navigate the news every day. I found myself in a in a lovely safe space. I've been saying a lot over the past few months that I love 99% invisible because it's like not politics, and I love Roman and the stories that his team tells. But yesterday, I spent several hours listening to back episodes of one of the best NPR shows on all of NPR Radio, which is on the media.
 
 [00:16:11] Norm: Yes, yes, Brooke Gladstone,
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:23:43] Norm: Yes,
 
-[00:23:44] Adam: I first met him dressed as a in a perfect. I mean, perfect down to the painted eyebrows. Nineteen sixties Batman costume.
+[00:23:44] Adam: I first met him dressed as a in a perfect. I mean, perfect down to the painted eyebrows. 1960s Batman costume.
 
 [00:23:53] Norm: I think he has four cowl's, and Rick will correct me. Maybe it's more, but I spotted.
 
@@ -516,9 +516,9 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:27:55] Adam: Really cool.
 
-[00:27:55] Norm: Their warehouse and just see basically a museum of old prototype wax sculptures of toys, paint prototypes, original artwork that was shrunken down for the. Boxes of of you know eighties and nineties toys, and then a toy photographer came by, and we did some shoots with him where he demonstrated some effects like putting fireworks in the in the background and creating some really beautiful small scale eight scale kind of portraits of these collectibles.
+[00:27:55] Norm: Their warehouse and just see basically a museum of old prototype wax sculptures of toys, paint prototypes, original artwork that was shrunken down for the. Boxes of of you know '80s and '90s toys, and then a toy photographer came by, and we did some shoots with him where he demonstrated some effects like putting fireworks in the in the background and creating some really beautiful small scale eight scale kind of portraits of these collectibles.
 
-[00:28:48] Adam: Many years ago, when I was doing toy prot, when I was a model maker, I often took extra freelance work, and one of the things I did for a while was toy prototyping for Galoob. So I did prototypes of four Star Wars ships for Galoob back in around two thousand two thousand one, and they asked me to if I would do some test photographs of them in situ, and so I I took some of Galoob's toys and photographed them in miniature sets that looked like Naboo or Beggars Canyon.
+[00:28:48] Adam: Many years ago, when I was doing toy prot, when I was a model maker, I often took extra freelance work, and one of the things I did for a while was toy prototyping for Galoob. So I did prototypes of four Star Wars ships for Galoob back in around 2000 2001, and they asked me to if I would do some test photographs of them in situ, and so I I took some of Galoob's toys and photographed them in miniature sets that looked like Naboo or Beggars Canyon.
 
 [00:29:18] Norm: Yeah, yeah,
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:29:44] Unknown speaker (Adam or Joey): guys.
 
-[00:29:51] Adam: Safe travels. I trust there won't be any delays, and that you'll be home and in bed by ten thirty tonight.
+[00:29:51] Adam: Safe travels. I trust there won't be any delays, and that you'll be home and in bed by 10:30 tonight.
 
 [00:29:56] Joey: I hope so.
 

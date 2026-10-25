@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:02:45] Norm: and we'll have photos and video and stuff of the event. So let's describe the event. What was it?
 
-[00:02:54] Will: So well, the thing we started out when we wanted to have a comic con party is like Norm and I have a long history of not getting into comic con parties. That changed when we met you to a certain small extent, but you know, still. So we wanted we wanted to have a something for people that that are have supported tested. We had people there. Always be clothing on the forum was there. It's the first time I think I met him in person, but he was probably the first guy on the forums whose username I recognized because he was when we launched tested in twenty ten. He was he was all in immediately. It was like this is awesome. I love what you guys are doing. We're in. So it was wonderful to to get to meet some of those guys. Sorry, Norm, but but we wanted to have a party that everybody could come to, and we wanted to showcase like what you've done at at Comic Con, Dragon Con, other places you've done cosplay.
+[00:02:54] Will: So well, the thing we started out when we wanted to have a comic con party is like Norm and I have a long history of not getting into comic con parties. That changed when we met you to a certain small extent, but you know, still. So we wanted we wanted to have a something for people that that are have supported tested. We had people there. Always be clothing on the forum was there. It's the first time I think I met him in person, but he was probably the first guy on the forums whose username I recognized because he was when we launched tested in 2010. He was he was all in immediately. It was like this is awesome. I love what you guys are doing. We're in. So it was wonderful to to get to meet some of those guys. Sorry, Norm, but but we wanted to have a party that everybody could come to, and we wanted to showcase like what you've done at at Comic Con, Dragon Con, other places you've done cosplay.
 
 [00:03:41] Adam: Well, also I will point out that the first time I came to Comic Con, I got turned away from the big Saturday night party.
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:09:54] Will: Oh, and it was his wife and the
 
-[00:10:06] Adam: his wife was Wilma Deering from Buck Rogers in the 30s.
+[00:10:06] Adam: his wife was Wilma Deering from Buck Rogers in the '30s.
 
 [00:10:10] Will: So good. She had such an awesome jetpack.
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:12:06] Norm: Oh my god!
 
-[00:12:06] Adam: Oh, and she she did she designed Indiana Jones' outfit. She did the costumes for nineteen forty one. She designed Michael Jackson's Thriller.
+[00:12:06] Adam: Oh, and she she did she designed Indiana Jones' outfit. She did the costumes for 1941. She designed Michael Jackson's Thriller.
 
 [00:12:06] Will: Are you kidding? I didn't know that.
 
@@ -536,9 +536,9 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:23:42] Adam: communal,
 
-[00:23:42] Will: yeah, it's a perfect overlap. I I talked to Mike McMasters about this last night, and he was like, " Look, the R two guys have been on this early because we realize that if one guy learns something about building an R two and we share it with everyone else, then the fourteen thousand people that are in the R two Builders Club get stronger as a whole, and and at At the most selfish level, like that's that's motivation to to share and share alike.
+[00:23:42] Will: yeah, it's a perfect overlap. I I talked to Mike McMasters about this last night, and he was like, " Look, the R2 guys have been on this early because we realize that if one guy learns something about building an R2 and we share it with everyone else, then the fourteen thousand people that are in the R2 Builders Club get stronger as a whole, and and at At the most selfish level, like that's that's motivation to to share and share alike.
 
-[00:24:06] Adam: Well, and here's here's another that I'm going to say because surprisingly they are not horn tooters, but the 501st, right? The group of guys that dress up as as stormtroopers and Darth Vader, and then their sister sister the Rebel Legion, which dresses up as the good guys from Star Wars. Those are all they do all that stuff for charity. None of them get paid. If you bring them to your event, and we've had them come to our events, they refuse payment. They do not want it. They go to hospitals. They go to birthday parties. They help out kids in cancer wards, and they go to fundraisers. I mean, that is absolutely again like the R two group, the early adopters of the recognition that that kind of passion can be used for a certain awesome kind of activism.
+[00:24:06] Adam: Well, and here's here's another that I'm going to say because surprisingly they are not horn tooters, but the 501st, right? The group of guys that dress up as as stormtroopers and Darth Vader, and then their sister sister the Rebel Legion, which dresses up as the good guys from Star Wars. Those are all they do all that stuff for charity. None of them get paid. If you bring them to your event, and we've had them come to our events, they refuse payment. They do not want it. They go to hospitals. They go to birthday parties. They help out kids in cancer wards, and they go to fundraisers. I mean, that is absolutely again like the R2 group, the early adopters of the recognition that that kind of passion can be used for a certain awesome kind of activism.
 
 [00:24:48] Will: Well, and they they also are sharing information about how to make armor and where to get it. Do they do parts runs and the whole thing?
 

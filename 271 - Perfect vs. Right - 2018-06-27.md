@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:04:16] Kishore: yeah. Oh yeah, that came true.
 
-[00:04:18] Adam: It is so. I remember seeing. I remember seeing Raiders when it came out, eighty-one. Right, same year as Octopussy, and that was the summer. So we were up at the summer. We go. We have a summer house in Cape Cod, and I was there with my cousins. And we had been seeing. Look up a list of the movies that came out in nineteen eighty-one. It will blow your freaking mind. Actually, you know what? Sorry, this is this is worth doing. And maybe if you have,
+[00:04:18] Adam: It is so. I remember seeing. I remember seeing Raiders when it came out, '81. Right, same year as Octopussy, and that was the summer. So we were up at the summer. We go. We have a summer house in Cape Cod, and I was there with my cousins. And we had been seeing. Look up a list of the movies that came out in 1981. It will blow your freaking mind. Actually, you know what? Sorry, this is this is worth doing. And maybe if you have,
 
 [00:04:41] Norm: yeah, yeah, no, that's okay. Adam's going. While he mentions that. The reason I brought it up is because when when we talked about it last, Will was here and he was saying that every time you watch Raiders, you see something new because there's something new to discover. And I wasn't at that screening, so I hadn't seen it for a while. But I went to my my copy of it last night and revisited because there was a Twitter thread revealing some things that I did not know were goofs and gaffes and and things.
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:21:21] Adam: British magician,
 
-[00:21:22] Norm: mentalist. Yes, exactly, and he does a show called Miracle. I guess he did in London twenty fifteen twenty sixteen. That's now on Netflix. And watching it, I am like, do I want to watch a magic show on on the television? Because yeah, when you are an audience, and he does it for audience of two thousand people, like you have a buy in. Already, you have a suspicion that you are you are the energy of the room. The reality distortion field is there.
+[00:21:22] Norm: mentalist. Yes, exactly, and he does a show called Miracle. I guess he did in London 2015 2016. That's now on Netflix. And watching it, I am like, do I want to watch a magic show on on the television? Because yeah, when you are an audience, and he does it for audience of two thousand people, like you have a buy in. Already, you have a suspicion that you are you are the energy of the room. The reality distortion field is there.
 
 [00:21:45] Adam: Yeah.
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:35:55] Kishore: Dave Goldberg, yeah.
 
-[00:35:55] Adam: Sorry, Dave Goldberg, and I accidentally called him Ken Goldberg, who's a friend of mine that runs part of the robotics department at Cal. And I met Ken through my friend Michael Joaquin Grey, who's the creator of Zoob, a toy company that I was director of R and D of in the nineties. And Michael, in the late eighties, made a a perfect replica of Sputnik. And this was before the wall came down. He found engineers from Russia to help him replicate the radio. And Sputnik was a pressurized canister, and he literally every nut and bolt he replicated and displayed it with its long antenna. In a gallery, on a long strip of, I think, black velvet, and the sculpture's title was " My Sputnik," and the moment I saw that, I was like, " I know, I know, I get it, I got it, I got it." And so, when I was first working on the Maltese Falcon talk, which was the first big talk that went up on the TED site that got me attention, I my guiding principle in that was my Maltese Falcon, and that was part of a rhetorical flourish that I ended up removing from that talk because it was unnecessary. But yeah, it is exactly that. It's my Maltese Falcon, not the Maltese Falcon. All this, I am sure, to some folks, this is like this is a level of specificity that is completely unnecessary and ridiculous, and I totally agree with that.
+[00:35:55] Adam: Sorry, Dave Goldberg, and I accidentally called him Ken Goldberg, who's a friend of mine that runs part of the robotics department at Cal. And I met Ken through my friend Michael Joaquin Grey, who's the creator of Zoob, a toy company that I was director of R and D of in the '90s. And Michael, in the late '80s, made a a perfect replica of Sputnik. And this was before the wall came down. He found engineers from Russia to help him replicate the radio. And Sputnik was a pressurized canister, and he literally every nut and bolt he replicated and displayed it with its long antenna. In a gallery, on a long strip of, I think, black velvet, and the sculpture's title was " My Sputnik," and the moment I saw that, I was like, " I know, I know, I get it, I got it, I got it." And so, when I was first working on the Maltese Falcon talk, which was the first big talk that went up on the TED site that got me attention, I my guiding principle in that was my Maltese Falcon, and that was part of a rhetorical flourish that I ended up removing from that talk because it was unnecessary. But yeah, it is exactly that. It's my Maltese Falcon, not the Maltese Falcon. All this, I am sure, to some folks, this is like this is a level of specificity that is completely unnecessary and ridiculous, and I totally agree with that.
 
 [00:37:24] Kishore: But that's why they come to this podcast.
 
@@ -658,7 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:38:16] Adam: Right, exactly,
 
-[00:38:16] Norm: exactly. Thirty-five pounds. Wow, that's that's gonna be that's gonna that's gonna be the weight limit. The whole thing
+[00:38:16] Norm: exactly. 35 pounds. Wow, that's that's gonna be that's gonna that's gonna be the weight limit. The whole thing
 
 [00:38:21] Adam: for a carry-on
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:38:34] Adam: They don't like suitcases that are small. This was literally this was the problem. I had it in a briefcase that was small, and thus, when they emptied out the plane of the luggage, they missed it, and it like went on to Chicago and came back again.
 
-[00:38:48] Norm: Thankfully, thirty-five pounds, a little more difficult,
+[00:38:48] Norm: Thankfully, 35 pounds, a little more difficult,
 
 [00:38:51] Adam: A little more difficult to lose.
 

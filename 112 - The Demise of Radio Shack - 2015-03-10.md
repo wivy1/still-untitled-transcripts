@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:04:37] Will: Yep.
 
-[00:04:37] Adam: Okay. So I've been, I, I've been regularly going to Radio Shack for thirty some odd years. Um. There wasn't a Radio Shack in my hometown of Tarrytown, New York, so I didn't really go to one in high school. Occasionally I would go to the one at the mall at the Galleria. It was much more after I got to San Francisco in nineteen ninety that I began to frequent Radio Shacks, because there used to be a couple of other electronics stores in San Francisco, and they both promptly disappeared in the early nineties. Radio Shack was it. There is all electronics in Berkeley, and there is another wonderful electronics place up in Marin and San Rafael, and then there is Fry's Electronics down in Sunnyvale, but in Palo Alto.
+[00:04:37] Adam: Okay. So I've been, I, I've been regularly going to Radio Shack for thirty some odd years. Um. There wasn't a Radio Shack in my hometown of Tarrytown, New York, so I didn't really go to one in high school. Occasionally I would go to the one at the mall at the Galleria. It was much more after I got to San Francisco in 1990 that I began to frequent Radio Shacks, because there used to be a couple of other electronics stores in San Francisco, and they both promptly disappeared in the early '90s. Radio Shack was it. There is all electronics in Berkeley, and there is another wonderful electronics place up in Marin and San Rafael, and then there is Fry's Electronics down in Sunnyvale, but in Palo Alto.
 
 [00:05:18] Will: But Fry's isn't exactly the same.
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:11:59] Adam: And frankly, I will tell you, I I like Best Buy. The Best Buy we have here in San Francisco is staffed by a bunch of great people. They genuinely know where stuff is, and in general, they're they're the for the most part, I think they're they're knowledgeable and all and sweet.
 
-[00:12:15] Will: When I was in Chicago a few weeks ago, I needed to get a DVI to HDMI adapter, and the people at Best Buy not only knew exactly where it was, they were happy to direct me to it. It was only thirty dollars. I'm serious. It was a twenty nine dollar ninety seven cents thing that usually comes with your video card for free,
+[00:12:15] Will: When I was in Chicago a few weeks ago, I needed to get a DVI to HDMI adapter, and the people at Best Buy not only knew exactly where it was, they were happy to direct me to it. It was only thirty dollars. I'm serious. It was a 29 dollar 97 cents thing that usually comes with your video card for free,
 
 [00:12:31] Adam: right?
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:13:47] Adam: Absolutely.
 
-[00:13:47] Will: Like ninety percent of the time.
+[00:13:47] Will: Like 90% of the time.
 
 [00:13:48] Adam: Impossible to compete with.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:21:59] Will: yes,
 
-[00:21:59] Adam: I'm into it. Yeah, I'm sad that Radio Shack is going, but I've been sad about. Here's my Radio Shack apocryphal tale. Now, this isn't a story about Radio Shack. It's about one employee who didn't know what he was doing. Nineteen ninety three, nineteen ninety three, ninety four. I go into the Radio Shack right, actually, over here on Mission Street, and the counter guy is occupied because there's this old couple there, and they've brought in their Polaroid Instamatic camera.
+[00:21:59] Adam: I'm into it. Yeah, I'm sad that Radio Shack is going, but I've been sad about. Here's my Radio Shack apocryphal tale. Now, this isn't a story about Radio Shack. It's about one employee who didn't know what he was doing. 1993, 1993, ninety four. I go into the Radio Shack right, actually, over here on Mission Street, and the counter guy is occupied because there's this old couple there, and they've brought in their Polaroid Instamatic camera.
 
 [00:22:29] Will: Oh, great!
 

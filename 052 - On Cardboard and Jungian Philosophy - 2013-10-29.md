@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:09:27] Will: A lot of cardboard,
 
-[00:09:28] Adam: just a big fat stack. And I got so inspired, I built like I started out with the MTV logo. This would be nineteen eighty-four when MTV's absolutely the only thing worth watching on TV.
+[00:09:28] Adam: just a big fat stack. And I got so inspired, I built like I started out with the MTV logo. This would be 1984 when MTV's absolutely the only thing worth watching on TV.
 
 [00:09:40] Will: They still had music.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:15:11] Adam: right,
 
-[00:15:12] Adam: right, right. That is a text from my kid's school about the fire on Mission and Twenty Fifth, causing difficulty at the actual school, which is on Twenty Fifth and Valencia.
+[00:15:12] Adam: right, right. That is a text from my kid's school about the fire on Mission and 25th, causing difficulty at the actual school, which is on 25th and Valencia.
 
 [00:15:20] Will: There's a fire in San Francisco. We're recording this the day before it goes up, which is actually kind of unusual.
 

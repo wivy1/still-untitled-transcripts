@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:13:30] Norm: There's a flowchart of of possibilities that all those paths can tell a good story.
 
-[00:13:37] Adam: Right. But in and thirteen years of MythBusters has taught me to smell out the things that will not let you have an episode if it doesn't go right. And if for some reason our electronics are a hundred percent not working when we get to New Zealand, that's there's no other option. What are we going to shoot dart guns at each other?
+[00:13:37] Adam: Right. But in and thirteen years of MythBusters has taught me to smell out the things that will not let you have an episode if it doesn't go right. And if for some reason our electronics are 100% not working when we get to New Zealand, that's there's no other option. What are we going to shoot dart guns at each other?
 
 [00:13:57] Zach: Right. That was so my fear for three weeks. Actually, like I was up all night worrying about that. So yeah.
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:19:39] Adam: Right.
 
-[00:19:39] Zach: But you guys came back and just were laughing, and it was just such a like like a 80s movie moment where like everybody's like, " Yes, it works! Oh my gosh!
+[00:19:39] Zach: But you guys came back and just were laughing, and it was just such a like like a '80s movie moment where like everybody's like, " Yes, it works! Oh my gosh!
 
 [00:20:12] Adam: It was. So exactly like that, and not only that. That, like you said, the golden hour was that like sunlight was dappling through the late afternoon clouds and creating this patchwork of sunlight on the landscape. And part of so part of my producer brain was going, " This is so beautiful." And the other part was going, " There's no way tomorrow's flights are going to match this. We won't be able to intercut." And amazingly, they did.
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:30:41] Zach: I don't know if I want to go back because it's going to pale in comparison to that trip.
 
-[00:30:44] Adam: Well, the next so the next thing that I want to do with you guys is low is more in the United States, and I I don't know if Savage Builds will be picked up for a second season. If it is, this is the first episode I'm pitching them, uh, because it's a it's basically it would be, and this is the only hint I'm giving. It would be replicating a machine that was built, uh, extensively in the 30s and the 40s. That is super unstable, and we'd be making a new version, a stable version of said machine.
+[00:30:44] Adam: Well, the next so the next thing that I want to do with you guys is low is more in the United States, and I I don't know if Savage Builds will be picked up for a second season. If it is, this is the first episode I'm pitching them, uh, because it's a it's basically it would be, and this is the only hint I'm giving. It would be replicating a machine that was built, uh, extensively in the '30s and the '40s. That is super unstable, and we'd be making a new version, a stable version of said machine.
 
 [00:31:13] Zach: Hopefully stable
 

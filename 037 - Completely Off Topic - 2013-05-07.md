@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:15:33] Adam: And I watched Ghostbusters in the last year and it's still fantastic.
 
-[00:15:37] Norm: It's one of those movies like Back to the Future, like Indiana Jones, that of that late eighties, early nineties era, it's kind of perfect.
+[00:15:37] Norm: It's one of those movies like Back to the Future, like Indiana Jones, that of that late '80s, early '90s era, it's kind of perfect.
 
 [00:15:44] Adam: Yeah, totally.
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:17:39] Will: Oh, yeah.
 
-[00:17:40] Adam: Right, like a lot of times in, in literature and other stuff about movies, you have to read between the lines to realize, like, "Oh wow, that must have been shitty, shitty, shitty." Like in the, uh, Cinefex about Titanic, which I know for many of the people who worked on it was one of the hardest movies to work on ever. And there's one point in Cinefex, they're like, "Yeah, we needed a forty-five-foot-long Titanic, and we built it in sixty days with a hundred model makers." And I think that sounds like a Dantean terror.
+[00:17:40] Adam: Right, like a lot of times in, in literature and other stuff about movies, you have to read between the lines to realize, like, "Oh wow, that must have been shitty, shitty, shitty." Like in the, uh, Cinefex about Titanic, which I know for many of the people who worked on it was one of the hardest movies to work on ever. And there's one point in Cinefex, they're like, "Yeah, we needed a 45-foot-long Titanic, and we built it in sixty days with a hundred model makers." And I think that sounds like a Dantean terror.
 
 [00:18:13] Will: Wow.
 

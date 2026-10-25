@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:04:48] Norm: they probably buy it at in bulk, yeah, at a cheaper rate than you could buy individually.
 
-[00:04:52] Adam: And usually a manufacturer is buying things in sheet form or large amounts of it, and they don't need the scraps that are the cutoffs. So I also got, when I was in my early 20s here in San Francisco in the early 90s, I got tons of stuff by going to like a sheet metal fabrication place and asking for scraps, and they would just sell them to me for like, you know what, a dollar a pound or something like that.
+[00:04:52] Adam: And usually a manufacturer is buying things in sheet form or large amounts of it, and they don't need the scraps that are the cutoffs. So I also got, when I was in my early 20s here in San Francisco in the early '90s, I got tons of stuff by going to like a sheet metal fabrication place and asking for scraps, and they would just sell them to me for like, you know what, a dollar a pound or something like that.
 
 [00:05:13] Unknown speaker: Yeah.
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:11:05] Will: Yeah.
 
-[00:11:05] Adam: Um, uh, this lamp I bought there. I don't know what a computer refurbisher was doing with this lamp, but they sold it to me for like seventy-five bucks.
+[00:11:05] Adam: Um, uh, this lamp I bought there. I don't know what a computer refurbisher was doing with this lamp, but they sold it to me for like 75 bucks.
 
 [00:11:14] Will: Well, and so yeah, like look for places that buy scrap, broken appliances, stuff like that. Call those people because the guy who buy, who buys the broken dishwasher from the people at Lowe's that come and haul your old dishwasher away when they put the new one in,
 

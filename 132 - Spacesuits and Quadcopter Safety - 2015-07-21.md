@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:04:16] Will: That basically they they couldn't they had they had to call off the flame retardant drops because there was a quad in there.
 
-[00:04:29] Adam: And let's be clear, that quad was was a couple of thousand feet in the air. If not, I think remember I remember it was four thousand feet. Now,
+[00:04:29] Adam: And let's be clear, that quad was was a couple of thousand feet in the air. If not, I think remember I remember it was 4,000 feet. Now,
 
 [00:04:38] Norm: these
 
@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:06:36] Adam: yeah. Yeah, Fon Davis started this group of enthusiasts who bought cheap foam RC planes, and we'd go into one of the empty rooms, which is this is an empty room that was eighty thousand square feet. Right, this is where they used to build P fifty ones during World War II, and everyone would fly their planes, and the goal is fly them into each other, which is actually really difficult. It's it's less a dogfight than a coordination exercise to try and smash your planes into others.
 
-[00:07:03] Will: We're not built for three D space.
+[00:07:03] Will: We're not built for 3D space.
 
 [00:07:03] Adam: No, no.
 
@@ -378,9 +378,9 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:16:29] Will: Oh, that's nice.
 
-[00:16:30] Adam: They were it's all a bunch of friends of ours. But we got back. I was back for twenty four hours, and then I had to fly to Oregon because we had a shoot up in Eastern Oregon in the high desert all week long on MythBusters. So I didn't get any time to recover. It was twelve hour days back to back all week in ninety five degree heat.
+[00:16:30] Adam: They were it's all a bunch of friends of ours. But we got back. I was back for twenty four hours, and then I had to fly to Oregon because we had a shoot up in Eastern Oregon in the high desert all week long on MythBusters. So I didn't get any time to recover. It was twelve hour days back to back all week in 95 degree heat.
 
-[00:16:48] Will: Oh, I sounded like a fifties starlet until about Wednesday.
+[00:16:48] Will: Oh, I sounded like a '50s starlet until about Wednesday.
 
 [00:16:51] Adam: I woke up with a movie voice every summer.
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:19:40] Adam: they didn't want to pay the full budget for a giant budget, you know, right?
 
-[00:19:43] Will: Two hundred million dollars, hundred and fifty film. Yeah, I mean, but the thing that happens is you end up seeing things like Ex Machina that are really, really low budget that that retain the R's,
+[00:19:43] Will: 200,000,000 dollars, hundred and fifty film. Yeah, I mean, but the thing that happens is you end up seeing things like Ex Machina that are really, really low budget that that retain the R's,
 
 [00:19:43] Adam: Yes.
 
@@ -636,7 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:27:05] Will: Really.
 
-[00:27:06] Adam: Yeah. So they're and they're fiberglass. They're just really real, real works of art. He did the sewing for the all the all the sewing and assembly for the soft part, and he did the front pack. Um, my contribution was all the machining and construction and mold making for the backpack. Um, and the and the coolant internals. Uh, but Mike did the did the rest. I'd say ninety percent. It's just beautiful work.
+[00:27:06] Adam: Yeah. So they're and they're fiberglass. They're just really real, real works of art. He did the sewing for the all the all the sewing and assembly for the soft part, and he did the front pack. Um, my contribution was all the machining and construction and mold making for the backpack. Um, and the and the coolant internals. Uh, but Mike did the did the rest. I'd say 90%. It's just beautiful work.
 
 [00:27:31] Will: It's the the helmet. Like I think you talked about this in the video. I can't remember if I made the cut or not. But when you put the helmet on and you start breathing, you realize that the sound of Dave Bowman breathing at the end of the movie in the spacesuit is literally just a person in the spacesuit mic'd, because it it sounds exactly the same.
 
@@ -920,7 +920,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:42:10] Will: maintained versus versus found.
 
-[00:42:13] Adam: Right, utopian versus modded car culture from the fifties.
+[00:42:13] Adam: Right, utopian versus modded car culture from the '50s.
 
 [00:42:18] Will: That's I hadn't I had never even considered it from that level. But so what happened with the prequels, man? I don't know. Okay.
 
@@ -952,9 +952,9 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:43:23] Adam: totally
 
-[00:43:23] Will: brought their R two units. Like
+[00:43:23] Will: brought their R2 units. Like
 
-[00:43:28] Adam: I never got a chance to spend some up close time with that R two unit. I was a little sad. It looked much better than mine.
+[00:43:28] Adam: I never got a chance to spend some up close time with that R2 unit. I was a little sad. It looked much better than mine.
 
 [00:43:35] Will: Well, it was. He just he just finished it about six months ago or a year ago, and um, still working on it. But I had a nice chat. I had a nice chat with him. Um, yeah, it's it's amazing, and a lot of people ask how we hung the Han Solo from with carbonite from the ceiling. The answer is very, very carefully.
 

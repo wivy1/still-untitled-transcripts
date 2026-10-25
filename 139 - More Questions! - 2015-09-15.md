@@ -454,17 +454,17 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:21:08] Will: I've stayed in hotels that cost less than that for a month.
 
-[00:21:10] Adam: Wait, so just to be clear, that's a mortgage on a four hundred thousand dollars house?
+[00:21:10] Adam: Wait, so just to be clear, that's a mortgage on a 400,000 dollars house?
 
 [00:21:16] Will: More than that, six hundred probably.
 
 [00:21:18] Adam: Six hundred thousand.
 
-[00:21:19] Will: Assuming you like, that's that is that is a mortgage on a if you have if you have two hundred if you have twenty five percent down, like you are supposed to, that's probably a mortgage on a seven hundred fifty thousand dollars house.
+[00:21:19] Will: Assuming you like, that's that is that is a mortgage on a if you have if you have two hundred if you have 25% down, like you are supposed to, that's probably a mortgage on a 750,000 dollars house.
 
 [00:21:28] Adam: That's ridiculous.
 
-[00:21:29] Will: But the problem is, you can't get a seven hundred fifty thousand dollars house.
+[00:21:29] Will: But the problem is, you can't get a 750,000 dollars house.
 
 [00:21:32] Adam: No,
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:23:07] Will: Growing potatoes, not mining.
 
-[00:23:08] Adam: I love the. I love the universe. I really, I gravitate immediately towards my my favorite writer, Raymond Chandler, and want to be in nineteen fifties Philip Marlowe's Los Angeles.
+[00:23:08] Adam: I love the. I love the universe. I really, I gravitate immediately towards my my favorite writer, Raymond Chandler, and want to be in 1950s Philip Marlowe's Los Angeles.
 
 [00:23:18] Will: See, I got to go with Hitchhiker's Guide. Oh, yeah. I would be really a Ford Prefect. Yeah, a stringer for the guide.
 
@@ -642,7 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:27:00] Adam: Oh, how is it?
 
-[00:27:00] Will: The seventies Muppet Show.
+[00:27:00] Will: The '70s Muppet Show.
 
 [00:27:02] Adam: Oh, the original.
 

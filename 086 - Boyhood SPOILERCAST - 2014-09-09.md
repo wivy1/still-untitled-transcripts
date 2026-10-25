@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:06:34] Will: Oh, yeah.
 
-[00:06:34] Adam: negative three seconds. And the posters are on eBay. They're expensive. They're about six hundred bucks.
+[00:06:34] Adam: negative three seconds. And the posters are on eBay. They're expensive. They're about 600 bucks.
 
 [00:06:34] Norm: You have it, Tyler Stout.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:08:28] Will: It’s the green Mustang. He's kind of walking away from it, right?
 
-[00:08:28] Adam: No, no, no. This is that one really weird one of him like standing in his jacket with his turtleneck, and it's like there's not a just copy, and it's nineteen seventies. There's not a lot of cops like Frank Bullitt around. You all, you need to do is see the turtleneck and the jacket to know he's up for trade. And I was like, " What is? I don't even know what that means."
+[00:08:28] Adam: No, no, no. This is that one really weird one of him like standing in his jacket with his turtleneck, and it's like there's not a just copy, and it's 1970s. There's not a lot of cops like Frank Bullitt around. You all, you need to do is see the turtleneck and the jacket to know he's up for trade. And I was like, " What is? I don't even know what that means."
 
 [00:09:06] Will: What? Yeah, what does that that mean? Is that a drug thing?
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:11:02] Will: It’s like choosing children. Yeah, I mean, we all have a favorite child.
 
-[00:11:16] Adam: I mean, Pulp Fiction list. Pulp Fiction sits at the top of you know within the top ten twentieth century films as far as I'm concerned.
+[00:11:16] Adam: I mean, Pulp Fiction list. Pulp Fiction sits at the top of you know within the top ten 20th century films as far as I'm concerned.
 
 [00:11:25] Will: Absolutely, but but for me, Kill Bill, it's one of those. If I'm flipping through the channels and I see Kill Bills on, that's three hours gone.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:13:41] Will: Yeah.
 
-[00:13:37] Adam: It's called Boyhood. He started making it in two thousand and three,
+[00:13:37] Adam: It's called Boyhood. He started making it in 2003,
 
 [00:13:46] Will: I think so, ten years ago.
 
@@ -422,11 +422,11 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:13:47] Norm: twelve years ago,
 
-[00:13:47] Adam: two thousand and one, because he spent twelve years making it.
+[00:13:47] Adam: 2001, because he spent twelve years making it.
 
 [00:13:47] Will: Okay,
 
-[00:13:47] Adam: and it's just come out. So, somewhere two thousand one, two thousand two, he started making it. He cast a. I mean, most people must know this story, but he cast a six-year-old boy as the lead, and it was the film was about him growing up. And so they got together every year for a couple of weeks with a cast that includes Patricia Arquette, Ethan Hawke. And Lorelei Linklater, Richard Linklater's daughter.
+[00:13:47] Adam: and it's just come out. So, somewhere 2001, 2002, he started making it. He cast a. I mean, most people must know this story, but he cast a six-year-old boy as the lead, and it was the film was about him growing up. And so they got together every year for a couple of weeks with a cast that includes Patricia Arquette, Ethan Hawke. And Lorelei Linklater, Richard Linklater's daughter.
 
 [00:14:15] Norm: Oh my! What a revelation!
 
@@ -446,13 +446,13 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:14:35] Adam: This is a spoiler cast. We're going to talk about the pieces of it. Yeah,
 
-[00:14:38] Norm: people never really. I mean, they didn't promote it at all. IFC paid for it. They paid. It cost them two hundred thousand dollars a year. Ethan Hawke had kind of. He was probably the highest profile. You saw his career go up and down throughout the making of this movie.
+[00:14:38] Norm: people never really. I mean, they didn't promote it at all. IFC paid for it. They paid. It cost them 200,000 dollars a year. Ethan Hawke had kind of. He was probably the highest profile. You saw his career go up and down throughout the making of this movie.
 
 [00:14:52] Will: When he started this, he was coming off of Gattaca, probably right.
 
 [00:14:52] Adam: Yeah, yeah, oh yeah. [unclear: It’s earlier. I think later.]
 
-[00:14:52] Will: Gattaca was late nineties, but this was this wasn't too far off of like peak Ethan Hawke,
+[00:14:52] Will: Gattaca was late '90s, but this was this wasn't too far off of like peak Ethan Hawke,
 
 [00:14:52] Norm: right? And they would say, " Oh, we're we're making a movie. You know, once a year, my buddies and I, we make a short film. " Is how they would describe it.
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:26:08] Norm: of the of the aughts,
 
-[00:26:08] Unknown speaker: Eighties?
+[00:26:08] Unknown speaker: '80s?
 
 [00:26:08] Adam: God, don’t call it the noughties.
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:27:39] Will: Yeah,
 
-[00:27:39] Adam: they used the same crew. They shot on thirty-five millimeter film, which for most of the crew was the only with for the last five years was the only time anyone was using thirty-five millimeter film. Um, it was all the same grips and everybody, and on the the the the last two scenes take place about eight hours apart in Texas, and so they they piled the entire crew into a bus and drove them to the last location for the last scene.
+[00:27:39] Adam: they used the same crew. They shot on 35 millimeter film, which for most of the crew was the only with for the last five years was the only time anyone was using 35 millimeter film. Um, it was all the same grips and everybody, and on the the the the last two scenes take place about eight hours apart in Texas, and so they they piled the entire crew into a bus and drove them to the last location for the last scene.
 
 [00:28:14] Will: They shoot it contiguously. I mean, I know obviously they shot the years.
 

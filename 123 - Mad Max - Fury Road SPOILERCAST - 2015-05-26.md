@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:03:34] Norm: there's it's not inflated at all. No. When you say three to five,
 
-[00:03:37] Adam: I've had capsaicin injected under my skin. Yeah. This was twenty percent, not as bad as that.
+[00:03:37] Adam: I've had capsaicin injected under my skin. Yeah. This was 20%, not as bad as that.
 
 [00:03:44] Norm: Right. Some people.
 
@@ -346,9 +346,9 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:14:03] Norm: even it's just he's just a point of view. Star Wars is Princess Leia's story,
 
-[00:14:08] Will: or R two D two.
+[00:14:08] Will: or R2-D2.
 
-[00:14:09] Norm: Well, no, R two D two and C three P O are the lens.
+[00:14:09] Norm: Well, no, R2-D2 and C-3PO are the lens.
 
 [00:14:11] Will: are the cameras. Yeah, yeah.
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:22:30] Adam: There are almost no gratuitous murders in this film,
 
-[00:22:35] Will: which is un which is not from the past. The past movies had tons of gratuitous murders. Eighties style.
+[00:22:35] Will: which is un which is not from the past. The past movies had tons of gratuitous murders. '80s style.
 
 [00:22:40] Adam: Many. And in fact, one of the few times you one of the few Really gruesome murders happens completely off screen.
 
@@ -748,13 +748,13 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:29:48] Will: Please
 
-[00:29:48] Adam: Fury Road. It deserves it deserves your ten bucks. Go see. I wasn't a big fan of it in three D. Frankly,
+[00:29:48] Adam: Fury Road. It deserves it deserves your ten bucks. Go see. I wasn't a big fan of it in 3D. Frankly,
 
-[00:29:55] Norm: I didn't watch it in three D.
+[00:29:55] Norm: I didn't watch it in 3D.
 
-[00:29:55] Will: I saw it in three D and I was—.
+[00:29:55] Will: I saw it in 3D and I was—.
 
-[00:29:56] Adam: I had to see it in three D because that's the ticket I could get, and it wasn't that. I I want to go see it again in two D.
+[00:29:56] Adam: I had to see it in 3D because that's the ticket I could get, and it wasn't that. I I want to go see it again in 2D.
 
 [00:30:01] Norm: It's some of the best best best stunts, best cinematography for for car chase. I mean,
 

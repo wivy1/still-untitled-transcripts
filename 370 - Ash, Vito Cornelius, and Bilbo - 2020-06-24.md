@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:05:11] Adam: And it's Leone's best. It's in my opinion, it's Leone's best score.
 
-[00:05:16] Norm: Oh yeah, yeah, yeah, yeah. One hundred percent.
+[00:05:16] Norm: Oh yeah, yeah, yeah, yeah. 100%.
 
 [00:05:19] Adam: The way all the the way all the characters' themes combine because he uses totally different orchestral sections for characters, let alone just tunes.
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:16:26] Norm: Yes.
 
-[00:16:26] Will: Look, when you go back and so taking over Batman from Tim Burton, you know, after Tim Burton like got a bazillion dollars to make Edward Scissorhands or whatever, and moved on to make so so he would do Batman Returns, taking over a dark, gritty version of Batman. I think Batman Forever is okay. I I I like Batman Forever. It's like it's like a flashback to the sixties Batman. It's it's all campy and bright and colorful and fun and silly and goofy and all the things that the Tim Burton one wasn't.
+[00:16:26] Will: Look, when you go back and so taking over Batman from Tim Burton, you know, after Tim Burton like got a bazillion dollars to make Edward Scissorhands or whatever, and moved on to make so so he would do Batman Returns, taking over a dark, gritty version of Batman. I think Batman Forever is okay. I I I like Batman Forever. It's like it's like a flashback to the '60s Batman. It's it's all campy and bright and colorful and fun and silly and goofy and all the things that the Tim Burton one wasn't.
 
 [00:17:01] Adam: I get that. I just can't watch it, but I also like. I also like. Schumacher's two Batman films are famous. There are a lot of what gets talked about when he gets brought up, and he's so much deeper and more important of a filmmaker than those two films.
 
@@ -518,9 +518,9 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:23:18] Norm: Darker, grittier.
 
-[00:23:19] Will: It's set in like the 30s, right?
+[00:23:19] Will: It's set in like the '30s, right?
 
-[00:23:21] Norm: Set in the early 30s, right? I think 31 to 32, and really funny. If you're like, like we see a lot of you know stuff out of the 20s. We obviously see a lot of stuff out of the 40s, but having recently been on a like 30s movie kick with like a you know Cary Grant movies, it's wonderful to see that era Los Angeles portrayed. And they have their analogs in the big studios. They have you know their their Fatty Arbuckle analog in a character, and and Matthew Rhys is always great. And then also
+[00:23:21] Norm: Set in the early '30s, right? I think 31 to 32, and really funny. If you're like, like we see a lot of you know stuff out of the '20s. We obviously see a lot of stuff out of the '40s, but having recently been on a like '30s movie kick with like a you know Cary Grant movies, it's wonderful to see that era Los Angeles portrayed. And they have their analogs in the big studios. They have you know their their Fatty Arbuckle analog in a character, and and Matthew Rhys is always great. And then also
 
 [00:23:51] Adam: he's always great.
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:25:17] Will: Put it under the subfloor.
 
-[00:25:18] Adam: Yeah, and I. I used that stuff endlessly in the nineties for theater props and film props and sets and all sorts of stuff. And I wanted to. I've been wanting to do a one-day build with it for a while. And I went out recently to the lumberyard to find out that not only does nobody sell it anymore, except for Home Depot, but that Home that they don't even make it in the two-inch thick anymore, and it's way more expensive than it used to be. So I ended up buying it, but I paid way too much money for it for this for this one-day build I did. And I'm hoping that people online could point me towards other potential products that are similar, because I don't like the thing about foam construction is it's incredibly easy and usually really cheap because foam's cheap. But the white bead foam, the expanded polystyrene foam, it's just too rough as a. It gets everywhere.
+[00:25:18] Adam: Yeah, and I. I used that stuff endlessly in the '90s for theater props and film props and sets and all sorts of stuff. And I wanted to. I've been wanting to do a one-day build with it for a while. And I went out recently to the lumberyard to find out that not only does nobody sell it anymore, except for Home Depot, but that Home that they don't even make it in the two-inch thick anymore, and it's way more expensive than it used to be. So I ended up buying it, but I paid way too much money for it for this for this one-day build I did. And I'm hoping that people online could point me towards other potential products that are similar, because I don't like the thing about foam construction is it's incredibly easy and usually really cheap because foam's cheap. But the white bead foam, the expanded polystyrene foam, it's just too rough as a. It gets everywhere.
 
 [00:26:09] Will: Yeah.
 

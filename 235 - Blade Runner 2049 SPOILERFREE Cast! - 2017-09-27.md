@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:02:36] Mark: Do tell.
 
-[00:02:37] Adam: I was lucky enough to be among the early people to see a screening of Denis Villeneuve's new sequel to Blade Runner, Blade Runner to twenty forty nine.
+[00:02:37] Adam: I was lucky enough to be among the early people to see a screening of Denis Villeneuve's new sequel to Blade Runner, Blade Runner to 2049.
 
 [00:02:48] Unknown speaker (Norm or Mark): Oh my goodness!
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:05:38] Mark: which is fantastic. But I mean, after I saw Sicario, I knew it was going to be in good hands because he could go to some very, very dark places, and that's what this film needed.
 
-[00:05:47] Adam: And this is what excited me because when I looked at some of those beautiful overhead shots of Juarez in Sicario, I thought, knowing that he was in pre-production on Blade Runner twenty forty nine, I was like, that is the. That is. This is the kind of approach to a city and to making cityscape shots being part of the process. Now, one of the problems I had with so a lot of films have had Blade Runner baked into their DNA from the from the completely comically terrible like the reboot of Total Recall.
+[00:05:47] Adam: And this is what excited me because when I looked at some of those beautiful overhead shots of Juarez in Sicario, I thought, knowing that he was in pre-production on Blade Runner 2049, I was like, that is the. That is. This is the kind of approach to a city and to making cityscape shots being part of the process. Now, one of the problems I had with so a lot of films have had Blade Runner baked into their DNA from the from the completely comically terrible like the reboot of Total Recall.
 
 [00:06:21] Norm: I knew you were going to say Total Recall.
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:11:52] Mark: I may have two films in my top three.
 
-[00:11:55] Adam: You know, it. This movie, I've seen the original Blade Runner probably seventy-five times. I've seen it in in theaters at least a dozen times, starting at the Thalia and the Waverly Place Theater, and even at midnight shows at the Eighth Street Playhouse, where I was a projectionist. Somewhere in here, I have a single frame of Blade Runner that was cut out of one of the release prints for me by my friend back in nineteen eighty-five.
+[00:11:55] Adam: You know, it. This movie, I've seen the original Blade Runner probably seventy-five times. I've seen it in in theaters at least a dozen times, starting at the Thalia and the Waverly Place Theater, and even at midnight shows at the Eighth Street Playhouse, where I was a projectionist. Somewhere in here, I have a single frame of Blade Runner that was cut out of one of the release prints for me by my friend back in 1985.
 
 [00:12:23] Mark: I may have seen. I think I've seen it about a hundred and thirty times. You know, but it's and I will count the fact that you know, as an artist, sometimes you'll put it on in the background, and then during the quiet periods, you kind of you you play the imagery in your head, even though you just hear it, and then when the stuff comes up that you really, really want to look at, you just kind of like turn to it, and so and I know a lot of people have films like that, like Ghostbusters, is one of those films people just put on in the background, future, yeah, definitely.
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:19:57] Adam: No, oh no.
 
-[00:19:59] Norm: So you know, the film they have to make, Twenty Forty Nine, has to appease. You guys, the the hardcore fan, the hardest of the hardcore, the the film, which the film, the original film, means so many different things to the people who've seen it to varying different degrees, but also has to be a satisfactory film on its own. So, can you say what can you say about how the the film satisfies?
+[00:19:59] Norm: So you know, the film they have to make, 2049, has to appease. You guys, the the hardcore fan, the hardest of the hardcore, the the film, which the film, the original film, means so many different things to the people who've seen it to varying different degrees, but also has to be a satisfactory film on its own. So, can you say what can you say about how the the film satisfies?
 
 [00:20:23] Adam: Oh, I'm still not ready to go there yet. We're going to still talk about the Sapper film just for another minute or two. One thing I wanted to say is I'm back there behind the man mountain known as Dave Bautista, and I'm doing my thing, and what they told me to do is hold out these things and go Sultan, Sultan, Sultan, and just be annoying. And the background players are all excellent; like everyone was really invested and really good. And Bautista is there doing his scene, and after about thirty minutes, he turns to me and he recognizes me from something, but he can't quite tell because I don't have my glasses on because there's no eyeglasses in the future. And he goes, " Are you a writer or something? Have we met?" And I said, " I I hosted Mythbusters, and he did this very sort of sweet, humble smile, and then stuck out this bunch of bananas he calls a hand, and shook my hand and said, " I am a huge fan. My wife is a big geek, and we love your show." And like, I a nicer human being than Dave Bautista I have rarely met. He was incredibly gracious, and also a super wonderful actor to watch work. In that sequence in the film, he kicks the shit out of five guys. I believe those are key members of his stunt team, and I got to watch them film that fight from about as far away as the camera is. They actually made me a background player, just like stuck in the corner. And I mean, if I remember correctly, I think it was Luke Scott that was like, " You just watch this stand right here, and you won't be in the frame, just but you get to see it." And watching Bautista, who is like he comes from pro wrestling, he's a terrific physical actor and a physical performer, and a Genuine stunt person. He's working with a great stunt crew. Watching him do that fight sequence right in front of me was astounding. A level of physical prowess I have not been privy to on a on a movie set. I haven't seen fight scenes right in front of me on a movie set. I felt like I was looking at the gold standard.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:23:56] Mark: Oh, lovely, great.
 
-[00:23:57] Adam: Um, so Blade Runner twenty forty nine. All right,
+[00:23:57] Adam: Um, so Blade Runner 2049. All right,
 
 [00:23:57] Mark: okay,
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:38:49] Norm: All right.
 
-[00:38:49] Adam: I I I can't wait for the next, not the next podcast, but when next we speak about Blade Runner twenty forty nine on the podcast, it will be half of a response for Norm and then a full goddamn spoiler cast, man. We're gonna we're gonna unpack this thing. We're gonna figure it out.
+[00:38:49] Adam: I I I can't wait for the next, not the next podcast, but when next we speak about Blade Runner 2049 on the podcast, it will be half of a response for Norm and then a full goddamn spoiler cast, man. We're gonna we're gonna unpack this thing. We're gonna figure it out.
 
 [00:39:08] Mark: Can't wait.
 

@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:11:40] Will: So you won't have two, three prime numbers, right? In a row.
 
-[00:11:45] Adam: But more than that, there also turn out to be certain prime numbers that prefer by like a sixty-five percent margin having another number follow it. So, a prime number might end in nine, and if it ends in nine, it's like a sixty-five percent chance that the next prime number ends in one.
+[00:11:45] Adam: But more than that, there also turn out to be certain prime numbers that prefer by like a 65% margin having another number follow it. So, a prime number might end in nine, and if it ends in nine, it's like a 65% chance that the next prime number ends in one.
 
 [00:11:59] Norm: The fact that we can calculate this not by a sample size, but just do math.
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:12:32] Adam: sure.
 
-[00:12:42] Norm: Three point one four one five nine two six five two something.
+[00:12:42] Norm: 3.141592652 something.
 
 [00:12:45] Adam: Right, so thirty nine places is accurate enough to calculate the circumference of the known universe to the width of an atom.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:19:17] Will: Well, this is one of the lessons that you and I learned early on with Tested, right? When we started out doing this, it's weird. It was at the time weird to have a tech site where you were talking informally about products that you were in the middle of testing and things like that. And it's a you have to have a different standard when it's a public conversation, right?
 
-[00:19:34] Adam: You do have to have a different standard when it's a public conversation. I, a hundred percent, I think we can all agree on that. And I'm going to state right now: is there's no way we're going to come to some conclusion in this discussion about whether Neil was right or wrong?
+[00:19:34] Adam: You do have to have a different standard when it's a public conversation. I, 100%, I think we can all agree on that. And I'm going to state right now: is there's no way we're going to come to some conclusion in this discussion about whether Neil was right or wrong?
 
 [00:19:47] Will: Oh, oh, never mind. Okay,
 
@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:22:40] Norm: right?
 
-[00:22:23] Will: So, so this is a problem that literally when Carl Sagan was doing the same thing in the seventies and early eighties, there was no. This wasn't an issue for him because there was no venue for this kind of communication.
+[00:22:23] Will: So, so this is a problem that literally when Carl Sagan was doing the same thing in the '70s and early '80s, there was no. This wasn't an issue for him because there was no venue for this kind of communication.
 
 [00:22:51] Adam: No, but he was yeah, he was very considered. Um, you know, this is the most shit I ever got for a single tweet was when I tweeted I thought uncontroversially about the how ghosts were fictional.
 

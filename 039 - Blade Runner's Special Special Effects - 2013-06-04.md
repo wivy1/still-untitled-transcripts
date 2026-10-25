@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:04:49] Will: Yeah.
 
-[00:04:49] Adam: Um, and you know, I, I was—I worked on A.I. I was—I got to work on A.I., and I had actually been following A.I. since the early nineties. I had heard the first rumors that Kubrick was working on another science fiction film—
+[00:04:49] Adam: Um, and you know, I, I was—I worked on A.I. I was—I got to work on A.I., and I had actually been following A.I. since the early '90s. I had heard the first rumors that Kubrick was working on another science fiction film—
 
 [00:05:03] Will: And it came out in what, like 96?
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:13:44] Adam: So, sorry to get back to our terms: in-camera effects like a glass matte or a model shot, composite shots where you do a blue screen and you later in add in your background or your foreground.
 
-[00:13:56] Will: And we've had blue screen stuff since the 70s pretty much, right?
+[00:13:56] Will: And we've had blue screen stuff since the '70s pretty much, right?
 
 [00:13:58] Adam: Absolutely, for, for a long—even longer than that. And Star Wars made extensive use of blue screen for the spaceship stuff. And the thing is, is that it's just a fact that if you can expose everything at once in camera. It's going to look better. It's really going to look better. It's going to look deeper. It's going to look crisper. It's going to have more texture to it. And Blade Runner is one of the very few science fiction films in which almost all of the shots in Blade Runner are in-camera effects.
 
@@ -368,9 +368,9 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:18:16] Adam: Yeah.
 
-[00:18:16] Will: It has aged better than anything that happened between the mid-eighties and say, let's say, you know. Post Jurassic Park, maybe—
+[00:18:16] Will: It has aged better than anything that happened between the mid-'80s and say, let's say, you know. Post Jurassic Park, maybe—
 
-[00:18:25] Adam: It's shocking. It's shocking how beautiful the film is, and the—that to give you another example of in-camera effects versus composites, I will point out. I will point you to another movie that came out close to that time. I think in 85, 86, a pair of movies, Brazil and Batman.
+[00:18:25] Adam: It's shocking. It's shocking how beautiful the film is, and the—that to give you another example of in-camera effects versus composites, I will point out. I will point you to another movie that came out close to that time. I think in '85, '86, a pair of movies, Brazil and Batman.
 
 [00:18:46] Will: Oh, Batman was in-camera as well.
 

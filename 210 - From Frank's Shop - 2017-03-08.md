@@ -112,11 +112,11 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:06:34] Norm: Yes, that’s what I was gonna ask, yeah.
 
-[00:06:36] Adam: Yes, we would, and they've got they've got a it's called Photo Antiques, a museum dedicated to norm nineteenth century photography.
+[00:06:36] Adam: Yes, we would, and they've got they've got a it's called Photo Antiques, a museum dedicated to norm 19th century photography.
 
 [00:06:36] Norm: Wow!
 
-[00:06:36] Adam: So everything they have, and it's thousands and thousands of stuff, is devoted to pre nineteen hundred photography. They've got some of they've got stuff dating back to the eighteen Forties,
+[00:06:36] Adam: So everything they have, and it's thousands and thousands of stuff, is devoted to pre 1900 photography. They've got some of they've got stuff dating back to the 1840s,
 
 [00:06:36] Unknown speaker: Whoa.
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:07:26] Norm: That's and this is just above their store. Most people don't know about it. Yeah. People walk in to buy their lenses, buy their film, and that's upstairs. That's the best kind of museum—the hidden, the pet project because they have the building, and yeah, that's amazing.
 
-[00:07:42] Adam: Do you know? Did you know, for instance, you know how Kodak invented the little brownie cameras, the little home cameras? Did you know that when they were first releasing them, or when they were releasing them in the at the time, they were women were more of the photographers because men were working. So they made the cameras in all sorts of different colors, like blue and red and brown, specifically to appeal to the female market. This is early twentieth-century marketing mind. But I didn't realize that photography was geared towards women for for decades.
+[00:07:42] Adam: Do you know? Did you know, for instance, you know how Kodak invented the little brownie cameras, the little home cameras? Did you know that when they were first releasing them, or when they were releasing them in the at the time, they were women were more of the photographers because men were working. So they made the cameras in all sorts of different colors, like blue and red and brown, specifically to appeal to the female market. This is early 20th-century marketing mind. But I didn't realize that photography was geared towards women for for decades.
 
 [00:08:15] Norm: Wow. Yeah, I guess they didn't want to be the subjects, or the men wanted to be the subjects. Did they have those cameras actually in the museum as well, and all on display in addition to the photos?
 

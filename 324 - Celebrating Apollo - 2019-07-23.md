@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:10:25] Adam: connection. Yeah, but then they started showing this performance that they'd written of the rocket taking off, of the full moon landing using the spire as a singular linear canvas, and there were times when you forgot you were staring at a monument with projections, and you were just watching the command capsule coming through the atmosphere slowly.
 
-[00:10:48] Norm: So that that was the thing I didn't realize because I I thought that I knew it would take off and like the Saturn Five is. But six hundred feet,
+[00:10:48] Norm: So that that was the thing I didn't realize because I I thought that I knew it would take off and like the Saturn Five is. But 600 feet,
 
 [00:10:55] Will: three hundred and sixty-three. I think.
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:10:56] Will: Memorial’s like 551 or something like that.
 
-[00:11:00] Adam: you, it's two thirds the size, but then you add forty-three feet for the for the walker for the the traveler,
+[00:11:00] Adam: you, it's two thirds the size, but then you add 43 feet for the for the walker for the the traveler,
 
 [00:11:06] Norm: right? And and and so I didn't know if it was going to go take off and then you'd not see it, but they, it's like as if a camera was on it and tracking it, and you would see it slowly, go up.
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:11:37] Norm: no,
 
-[00:11:38] Adam: they did a tremendous job at building a really exciting narrative about the whole history of the Apollo space program using countdown clocks and archival footage and all the supporting material on side projections that were on, plus an incredible sound system. So at the end of the gala on Friday night, there were performances at nine thirty, ten thirty, eleven thirty. Uh, and I think twelve thirty. Yes, as well. So we saw the ten thirty, eleven thirty, twelve thirty. So I had to leave the gala in my full tux, meet up with the tested crew, who had my spacesuit, and I didn't have anything interim. All I had was the tux or the A seven L. And I'm all, you know, so I'm sitting in the in the in the in the bleachers, watching the performance in my tux, and everyone's like, and you know, sometimes if you don't move too, if you don't start sweating, yeah, you can kind of maintain, yeah. So I'm in the tux. I'm moving sort of slowly, and after about half an hour, I saw Michael Giacchino, and he was like, " Aren't you sweating balls in that thing?" And I'm like, " Actually, no." And I'm kind of like getting off on looking this good in this heat, just wearing the full tux. Uh, one of the uh uh Nick, one of the organizers of this entire event went and found me a Apollo fiftieth t shirt, so I was able to wear that under the spacesuit, and we got some pictures of me. Right up next to the rocket, down there on the mall. That was just—I mean, we were up until like one-thirty in the morning, two in the morning.
+[00:11:38] Adam: they did a tremendous job at building a really exciting narrative about the whole history of the Apollo space program using countdown clocks and archival footage and all the supporting material on side projections that were on, plus an incredible sound system. So at the end of the gala on Friday night, there were performances at 9:30, 10:30, 11:30. Uh, and I think 12:30. Yes, as well. So we saw the 10:30, 11:30, 12:30. So I had to leave the gala in my full tux, meet up with the tested crew, who had my spacesuit, and I didn't have anything interim. All I had was the tux or the A seven L. And I'm all, you know, so I'm sitting in the in the in the in the bleachers, watching the performance in my tux, and everyone's like, and you know, sometimes if you don't move too, if you don't start sweating, yeah, you can kind of maintain, yeah. So I'm in the tux. I'm moving sort of slowly, and after about half an hour, I saw Michael Giacchino, and he was like, " Aren't you sweating balls in that thing?" And I'm like, " Actually, no." And I'm kind of like getting off on looking this good in this heat, just wearing the full tux. Uh, one of the uh uh Nick, one of the organizers of this entire event went and found me a Apollo fiftieth t shirt, so I was able to wear that under the spacesuit, and we got some pictures of me. Right up next to the rocket, down there on the mall. That was just—I mean, we were up until like 1:30 in the morning, two in the morning.
 
 [00:13:05] Will: How long did the show? The show ran for a couple hours, right?
 
@@ -482,7 +482,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:27:35] Will: Yeah, it's one of those situations where you yelling at people isn't going to make anything any better. It's just going to make everything worse.
 
-[00:27:40] Adam: Problem is the whole thing goes out. Funnily enough, there was a I ran into a neighbor of mine in the hotel at one thirty in the morning. Yeah, my name my neighbor Anthony, who lives like a block from here, is was in a dance show right next door to our theater on the night that we were doing it. So I'm I'm I'm like I'm back at my room. It's one thirty in the morning on Friday night, and I'm I've pushed the number on. I'm sitting there holding everything, my spacesuit, everything. I'm really tired, and I hear somebody go. Hold on, I gotta go talk to this guy. And I think, okay, here comes a fan interaction. I'm really, really tired, and I turn and it's my neighbor Anthony. He's just messing with me.
+[00:27:40] Adam: Problem is the whole thing goes out. Funnily enough, there was a I ran into a neighbor of mine in the hotel at 1:30 in the morning. Yeah, my name my neighbor Anthony, who lives like a block from here, is was in a dance show right next door to our theater on the night that we were doing it. So I'm I'm I'm like I'm back at my room. It's 1:30 in the morning on Friday night, and I'm I've pushed the number on. I'm sitting there holding everything, my spacesuit, everything. I'm really tired, and I hear somebody go. Hold on, I gotta go talk to this guy. And I think, okay, here comes a fan interaction. I'm really, really tired, and I turn and it's my neighbor Anthony. He's just messing with me.
 
 [00:28:18] Will: Oh, that's really funny. I mean, anything else? I feel like I feel like there's an infinite number of things.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:30:07] Adam: No.
 
-[00:30:08] Norm: Comic Con fiftieth Comic Con. Fiftieth anniversary of Apollo Eleven.
+[00:30:08] Norm: Comic Con fiftieth Comic Con. Fiftieth anniversary of Apollo 11.
 
 [00:30:12] Will: What was the first? The first Comic Con was probably like twenty guys in the basement of the Sheraton or something, right?
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:32:00] Adam: Yeah, no, not bad. It's not a bad skill to have in a pinch. I have I have rescued several situations by being able to pick locks.
 
-[00:32:08] Will: It turns out, yeah, if you have that credit card lockpick set in your in your in your wallet. You can save somebody three hundred bucks, no problem.
+[00:32:08] Will: It turns out, yeah, if you have that credit card lockpick set in your in your in your wallet. You can save somebody 300 bucks, no problem.
 
 [00:32:15] Adam: Yeah, if you ever meet, if you ever run into Kevin Mitnick, ask him for one of his business cards.
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:33:04] Adam: I heard about this. I heard about this.
 
-[00:33:06] Unknown speaker: One hundred percent.
+[00:33:06] Unknown speaker: 100%.
 
 [00:33:06] Adam: They just have a family.
 
@@ -636,7 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:33:33] Will: that movie's. I thoroughly enjoyed it.
 
-[00:33:36] Adam: Awesome! I cannot wait. I cannot wait. Oh, also, four of my spacesuits for the San Francisco listeners. Four of my spacesuits are on display at the San Francisco Museum of Modern Art as part of Joseph Becker's, the curator there, a wonderful art installation called Far Out about space habitats and the the future thinking, the ways in which we posited how to live in space. It's a beautiful exhibit, and they they custom dressed my brand new EVA, which we haven't even done a tested video on my two thousand one my Mercury and. Which the fourth one?
+[00:33:36] Adam: Awesome! I cannot wait. I cannot wait. Oh, also, four of my spacesuits for the San Francisco listeners. Four of my spacesuits are on display at the San Francisco Museum of Modern Art as part of Joseph Becker's, the curator there, a wonderful art installation called Far Out about space habitats and the the future thinking, the ways in which we posited how to live in space. It's a beautiful exhibit, and they they custom dressed my brand new EVA, which we haven't even done a tested video on my 2001 my Mercury and. Which the fourth one?
 
 [00:33:36] Norm: Aces,
 
@@ -732,13 +732,13 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:37:57] Will: Did you watch any Apollo movies as you were traveling?
 
-[00:37:59] Adam: I watched Apollo Eleven again in my hotel room and again wept like a baby. And the filmmaker was in the bar at the end of Saturday night.
+[00:37:59] Adam: I watched Apollo 11 again in my hotel room and again wept like a baby. And the filmmaker was in the bar at the end of Saturday night.
 
 [00:38:05] Norm: First Man or Apollo?
 
-[00:38:07] Adam: No, Apollo Eleven.
+[00:38:07] Adam: No, Apollo 11.
 
-[00:38:07] Will: Apollo Eleven. Oh yeah, yeah. We got met with him.
+[00:38:07] Will: Apollo 11. Oh yeah, yeah. We got met with him.
 
 [00:38:09] Adam: Yeah, we spent we spent about half an hour talking to each other, and I met the guy at the archives. Who found all that original footage?
 

@@ -778,9 +778,9 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:27:28] Norm: But yeah, the look of the film is is textured for sure. It's 1960s, early 1960s,
 
-[00:27:28] Adam: sixty-two.
+[00:27:28] Adam: '62.
 
-[00:27:28] Norm: Sixty-two. It's definitely in that post-war, but right before like Camelot Falls, or right before, right before
+[00:27:28] Norm: '62. It's definitely in that post-war, but right before like Camelot Falls, or right before, right before
 
 [00:27:46] Adam: The men are all still in suits, they still wear hats,
 

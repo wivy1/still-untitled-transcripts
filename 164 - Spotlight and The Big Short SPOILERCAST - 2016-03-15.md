@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:09:40] Adam: And this was like my best friend in high school, and I. That's like we always did that. We just call each other up and yell that into the phone, and then hang up.
 
-[00:09:47] Will: If you've never seen All the President's Men, yeah, by the way, it's totally one of the great films of the twentieth century, absolutely,
+[00:09:47] Will: If you've never seen All the President's Men, yeah, by the way, it's totally one of the great films of the 20th century, absolutely,
 
 [00:09:53] Norm: and an important film and for U.S. history. Also, John Slattery, it's a little bit Roger Sterling, also.
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:12:45] Will: the pivots, right?
 
-[00:12:46] Norm: And when we're talking about a movie like The Big Short, this is a movie that does that and really excels in making a piece of entertainment because it too is telling a series of events, historical events in from two thousand five to two thousand eight. Eight in the financial crisis and the mortgage crisis. And one, like I mentioned earlier, they have to explain these incredibly complex ideas in finance, and then they do it elegantly
+[00:12:46] Norm: And when we're talking about a movie like The Big Short, this is a movie that does that and really excels in making a piece of entertainment because it too is telling a series of events, historical events in from 2005 to 2008. Eight in the financial crisis and the mortgage crisis. And one, like I mentioned earlier, they have to explain these incredibly complex ideas in finance, and then they do it elegantly
 
 [00:13:10] Adam: about what credit default. They do it. I don't say that that's elegant. I say it's informational and wonderful because they have to communicate these really complicated things. So they're like, " Here's Margot Robbie in a bathtub telling you about credit default swaps."
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:17:59] Norm: Interesting.
 
-[00:18:00] Adam: It's about rave and DJ culture in Manchester in the eighties.
+[00:18:00] Adam: It's about rave and DJ culture in Manchester in the '80s.
 
 [00:18:04] Will: It's on Hulu.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:21:11] Norm: The showrunner is created by the guy who did Boardwalk Empire and has some of the same cast. And it's about these
 
-[00:21:19] Will: American Century Records, the late 70s or early, I guess, early 70s disco era for sure. Nehru jackets, the vinyl leisure suits, the whole thing.
+[00:21:19] Will: American Century Records, the late '70s or early, I guess, early '70s disco era for sure. Nehru jackets, the vinyl leisure suits, the whole thing.
 
 [00:21:28] Adam: I love Nehru jackets.
 
