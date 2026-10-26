@@ -899,5 +899,3 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 [00:39:26] Adam: Bye, guys.
 
 [00:39:27] Norm: Bye.
-
-[00:39:29] Norm: Thanks for listening, everyone. We'll see you next week.
