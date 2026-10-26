@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:04:24] Simone: of your like hamster cage.
 
-[00:04:25] Adam: Exactly. Yeah. Well, and out in that shop, like that's exactly. Even if you gave me another five thousand square feet, which by the way I would love, so I could pull my Land Cruiser in and work on it indoors. But I'd still have my tools arranged pretty much how they're arranged, so that I don't have to walk too far to get to anything.
+[00:04:25] Adam: Exactly. Yeah. Well, and out in that shop, like that's exactly. Even if you gave me another 5,000 square feet, which by the way I would love, so I could pull my Land Cruiser in and work on it indoors. But I'd still have my tools arranged pretty much how they're arranged, so that I don't have to walk too far to get to anything.
 
 [00:04:41] Norm: Right, right, and most of it would otherwise would be storage, but you don't want to have to traverse long distance.
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:05:36] Adam: like a couple of blocks from here.
 
-[00:05:37] Simone: A couple of blocks, yeah. I was right in the Mission, and I was working at a hardware company. So I am not. I mean, I my my specialty has become building shitty robots, and I started working with hardware or like just building stuff with hardware about two and a half years ago. I just got an Arduino board, and it was like love at first blink. I just loved it, so I started teaching myself about it, and then after about six months, I got a A job as like a maker in residence at a company here in San Francisco. So I moved here from Sweden, and then I moved back after a year. And I was just like, I don't know what to do with my life. I was so I just a typical, typical like twenty-five year old. What am I supposed to do? How do I find purpose? And I moved back home to Sweden, and I try to cut back on all of my costs so I could free up as much time as possible to spend on the things I found interesting. And that was when like the Queen of Shitty Robots was born because I just started building useless machines because I thought it was a lot of fun. It was a good learning process, and I think like when you take out the necessity of having to build something useful, you just have a lot more freedom. Like if you set out to do something shitty or something useless, you can't really fail, or like failing is accidentally building something useful.
+[00:05:37] Simone: A couple of blocks, yeah. I was right in the Mission, and I was working at a hardware company. So I am not. I mean, I my my specialty has become building shitty robots, and I started working with hardware or like just building stuff with hardware about two and a half years ago. I just got an Arduino board, and it was like love at first blink. I just loved it, so I started teaching myself about it, and then after about six months, I got a A job as like a maker in residence at a company here in San Francisco. So I moved here from Sweden, and then I moved back after a year. And I was just like, I don't know what to do with my life. I was so I just a typical, typical like 25 year old. What am I supposed to do? How do I find purpose? And I moved back home to Sweden, and I try to cut back on all of my costs so I could free up as much time as possible to spend on the things I found interesting. And that was when like the Queen of Shitty Robots was born because I just started building useless machines because I thought it was a lot of fun. It was a good learning process, and I think like when you take out the necessity of having to build something useful, you just have a lot more freedom. Like if you set out to do something shitty or something useless, you can't really fail, or like failing is accidentally building something useful.
 
 [00:06:48] Adam: Well, but what you're also doing, I feel like, is you're telling an elaborate joke, and and it's like a it's a it's a special form of comedy because it's a long form joke that exists on more than a verbal level.
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:11:08] Simone: Yeah, but it's like hipster burrito.
 
-[00:11:10] Adam: It is, except that they're. I I get what you mean, and it's funny because I've lived in the Mission since long before Papalote, so I still think of them as that new burrito place, even though they've been there for eighteen years.
+[00:11:10] Adam: It is, except that they're. I I get what you mean, and it's funny because I've lived in the Mission since long before Papalote, so I still think of them as that new burrito place, even though they've been there for 18 years.
 
 [00:11:20] Simone: Oh wow!
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:12:54] Simone: It's the
 
-[00:12:54] Adam: textural art, it's always absolutely. And Shizen is like you could serve it to full meat eaters, and it would be like fifteen minutes before they realized something was like, " What's going? Wait a minute! Wait,
+[00:12:54] Adam: textural art, it's always absolutely. And Shizen is like you could serve it to full meat eaters, and it would be like 15 minutes before they realized something was like, " What's going? Wait a minute! Wait,
 
 [00:13:06] Simone: yeah."
 
@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:14:17] Adam: Aren't Colbert's people just the nicest group.
 
-[00:14:19] Simone: They were so nice. Like I was just, can I just befriend all of you? Because they were, yeah, and they were like really making sure. I mean, it is a kind of nerve-wracking experience, and I was there for a full ten hours. So I flew over. I did the red eye. I learned that it was called. I didn't know that before. And yeah, so I flew in overnight from Vancouver to New York. I landed six a.m. I went to the studio at ten a.m. and then I was there until eight p.m.
+[00:14:19] Simone: They were so nice. Like I was just, can I just befriend all of you? Because they were, yeah, and they were like really making sure. I mean, it is a kind of nerve-wracking experience, and I was there for a full 10 hours. So I flew over. I did the red eye. I learned that it was called. I didn't know that before. And yeah, so I flew in overnight from Vancouver to New York. I landed six a.m. I went to the studio at ten a.m. and then I was there until eight p.m.
 
 [00:14:44] Adam: Yeah, that's
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:29:08] Simone: right? Right. Right.
 
-[00:29:08] Adam: And apparently went back and visited Norway in his in his middle age, so this would be the 1940s or '50s. And apparently, discovered at that point he was like speaking Norwegian because he grew up speaking Norwegian, and he's like going around Norway speaking to everybody like what he remembers from when he was ten years old, and he's very proud that he can speak the language. It turns out a day and a half in that actually he speaks Swedish.
+[00:29:08] Adam: And apparently went back and visited Norway in his in his middle age, so this would be the 1940s or '50s. And apparently, discovered at that point he was like speaking Norwegian because he grew up speaking Norwegian, and he's like going around Norway speaking to everybody like what he remembers from when he was 10 years old, and he's very proud that he can speak the language. It turns out a day and a half in that actually he speaks Swedish.
 
 [00:29:37] Simone: No.
 
@@ -664,7 +664,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:30:40] Simone: to have a child to
 
-[00:30:41] Adam: hearing about his first grandchild being born. But but my mom remembers going with him to the hospital when she was like nine or ten and discovering that my grandfather had this tremendously awesome bedside manner, super great with people and charismatic, and all of this side of him she had never seen. It's just not at home. She was absolutely livid. How did we get on this subject?
+[00:30:41] Adam: hearing about his first grandchild being born. But but my mom remembers going with him to the hospital when she was like 9 or 10 and discovering that my grandfather had this tremendously awesome bedside manner, super great with people and charismatic, and all of this side of him she had never seen. It's just not at home. She was absolutely livid. How did we get on this subject?
 
 [00:31:03] Norm: I don't know. You had a story.
 

@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:11:07] Will: I know because Mike Mcmasters was like, Frank knows more about materials than I've ever. Like, he's like, I figure it out eventually, but, but yeah. So like, everywhere that was happening on both sides, actually,
 
-[00:11:17] Norm: like I'm building a giant, you know, alien style Gatling gun, right? What I'm using smooth cast sixty five, but it's too heavy. What's something like, you know, that's a little lighter?
+[00:11:17] Norm: like I'm building a giant, you know, alien style Gatling gun, right? What I'm using smooth cast 65, but it's too heavy. What's something like, you know, that's a little lighter?
 
 [00:11:17] Adam: It’s just great. It's so much fun. I mean, I petered out around one a.m. and just have been glowing all all night and all day.
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:19:23] Will: mission accomplished, guys.
 
-[00:19:24] Adam: Man, that thing has four hundred separate parts.
+[00:19:24] Adam: Man, that thing has 400 separate parts.
 
 [00:19:27] Norm: Wow, there's yeah, some really cool prop store was there, and we have a video with that.
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:23:42] Adam: communal,
 
-[00:23:42] Will: yeah, it's a perfect overlap. I I talked to Mike McMasters about this last night, and he was like, " Look, the R2 guys have been on this early because we realize that if one guy learns something about building an R2 and we share it with everyone else, then the fourteen thousand people that are in the R2 Builders Club get stronger as a whole, and and at At the most selfish level, like that's that's motivation to to share and share alike.
+[00:23:42] Will: yeah, it's a perfect overlap. I I talked to Mike McMasters about this last night, and he was like, " Look, the R2 guys have been on this early because we realize that if one guy learns something about building an R2 and we share it with everyone else, then the 14,000 people that are in the R2 Builders Club get stronger as a whole, and and at At the most selfish level, like that's that's motivation to to share and share alike.
 
 [00:24:06] Adam: Well, and here's here's another that I'm going to say because surprisingly they are not horn tooters, but the 501st, right? The group of guys that dress up as as stormtroopers and Darth Vader, and then their sister sister the Rebel Legion, which dresses up as the good guys from Star Wars. Those are all they do all that stuff for charity. None of them get paid. If you bring them to your event, and we've had them come to our events, they refuse payment. They do not want it. They go to hospitals. They go to birthday parties. They help out kids in cancer wards, and they go to fundraisers. I mean, that is absolutely again like the R2 group, the early adopters of the recognition that that kind of passion can be used for a certain awesome kind of activism.
 

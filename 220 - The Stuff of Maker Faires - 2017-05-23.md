@@ -38,7 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:02:13] Adam: who's giving them hundreds of acres in the middle of the city to develop sustainable housing that's being built by its residents?
 
-[00:02:49] Will: That, that's amazing. Uh, you need to go to NYC Resistor sometime, Adam. Because Norm and I went there years. It was one of the first you know makerspaces we went to, and it it is. Trust me, you'll feel right at home. It's, it is, uh, dense and rich, and like it has the detritus of a thousand in-progress projects, kind of, kind of strewn throughout.
+[00:02:49] Will: That, that's amazing. Uh, you need to go to NYC Resistor sometime, Adam. Because Norm and I went there years. It was one of the first you know makerspaces we went to, and it it is. Trust me, you'll feel right at home. It's, it is, uh, dense and rich, and like it has the detritus of 1,000 in-progress projects, kind of, kind of strewn throughout.
 
 [00:03:10] Ian: Yeah. And I think a lot of times the the amount of stuff on the wall is also often, um, related to how long the space has been together.
 
@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:03:49] Unknown speaker: Right, right, right.
 
-[00:03:58] Norm: Yeah, and it's not only reflective of the people who've come and gone in history, but also the all the tools have changed. You can say things ten years ago were mostly not made with, you know, the CNC machines we have now and laser cutters and the rapid prototyping machines.
+[00:03:58] Norm: Yeah, and it's not only reflective of the people who've come and gone in history, but also the all the tools have changed. You can say things 10 years ago were mostly not made with, you know, the CNC machines we have now and laser cutters and the rapid prototyping machines.
 
 [00:04:11] Ian: You know, so so kind of riffing off that idea of bringing the photo. The photo is neat, but what if you sort of carried a number of small, very strange parts?
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:06:09] Will: Yeah, it was good. Preaching the makers. What did you ride out? I, I, I discovered this year that the best time to see the the crowded parts of Maker Faire are when you're talking. Because we were walking around yesterday, my wife was like, " Where the hell did everybody go? It's there's nobody in the dark room. There's nobody in the yeah." So, so
 
-[00:06:25] Adam: along those lines, I ran into Rodney Brooks last year from MIT, and he said, " You, I can't do his accent, but his charming Australian accent." And he said, " You gave me the worst public experience, public speaking experience I've ever had." And I was like, " Why?" And he's like, " I followed you at Maker Faire years ago and watched this room empty out." I'm sorry, Rodney. Um, yeah, so I gave a sermon yesterday, and I rode out. Have you ever seen that giant the the French group that makes the giant puppets, the marionette little girl that's like. Thirty feet high and operated from cranes,
+[00:06:25] Adam: along those lines, I ran into Rodney Brooks last year from MIT, and he said, " You, I can't do his accent, but his charming Australian accent." And he said, " You gave me the worst public experience, public speaking experience I've ever had." And I was like, " Why?" And he's like, " I followed you at Maker Faire years ago and watched this room empty out." I'm sorry, Rodney. Um, yeah, so I gave a sermon yesterday, and I rode out. Have you ever seen that giant the the French group that makes the giant puppets, the marionette little girl that's like. 30 feet high and operated from cranes,
 
 [00:06:56] Norm: spiders, the elephants.
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:12:55] Ian: But they're they've got to be what
 
-[00:13:11] Will: they were thirty feet high.
+[00:13:11] Will: they were 30 feet high.
 
 [00:13:12] Ian: Yeah, they're massive.
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:15:43] Adam: That had all the yeah. That that stuff just I I want it. I want to eat it. It's just like it's so exciting.
 
-[00:15:54] Norm: It's like growing up, and you see the you get the cutaway models that you can buy and put together. But this is a functional version that you can download a file for free and print at home. And with an FDM printer, you get for 400 bucks, you have the tolerances to make something work.
+[00:15:54] Norm: It's like growing up, and you see the you get the cutaway models that you can buy and put together. But this is a functional version that you can download a file for free and print at home. And with an FDM printer, you get for $400, you have the tolerances to make something work.
 
 [00:16:06] Will: That's incredible. Um, I spent some time with the new version of the Open ROV.
 
@@ -314,11 +314,11 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:16:39] Norm: So they have it now tethered to a buoy, so you get wireless signal from yeah the buoy to your controller.
 
-[00:16:44] Will: Still a hundred meters depth, but it it looked it looked it was really nice. I was really really shocked at the video quality they were getting out of it and and stuff like that. It's really cool.
+[00:16:44] Will: Still 100 meters depth, but it it looked it looked it was really nice. I was really really shocked at the video quality they were getting out of it and and stuff like that. It's really cool.
 
 [00:16:52] Ian: Did you see the, um, the Maslow CNC?
 
-[00:16:54] Norm: Yes. So we actually had them here. They were set up in, um, our studio last week. Uh, these, uh, small company, um, uh, Bar Smith over in Portland designed a CNC which the, he got the idea from going to Maker Faire, just chatting with someone, and someone said, " Why, why can't I do an upright CNC?" And he said, oh, I think I could probably do that. His first project was a desktop one, and so he has a kit you can buy for 350 dollars.
+[00:16:54] Norm: Yes. So we actually had them here. They were set up in, um, our studio last week. Uh, these, uh, small company, um, uh, Bar Smith over in Portland designed a CNC which the, he got the idea from going to Maker Faire, just chatting with someone, and someone said, " Why, why can't I do an upright CNC?" And he said, oh, I think I could probably do that. His first project was a desktop one, and so he has a kit you can buy for $350.
 
 [00:17:18] Will: What is it?
 
@@ -360,13 +360,13 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:19:15] Norm: yeah.
 
-[00:19:15] Adam: But it was curious to me on those on that regard to compare Maker Faires to Comic Cons. We were thinking along same lines, I guess, because San Diego Comic Con, where we've been going for ten years now, is amazing. But when we went to New York Comic Con last year for the very first time, I was astonished at the level of diversity of the New York Comic Con. Put every other con I've ever been to shame, and I real and talking to one of the organizers, they're like, because most of the New York Comic Con is coming from the five boroughs. It's coming from one of the most diverse cities in the world, right? So this is they have the large number of locals to draw from, and that's great that New York pulls that, but it's quite a unique. Neat place and yeah, I'm I, you know, I was looking around the crowd and thinking about how far and wide this group had come from.
+[00:19:15] Adam: But it was curious to me on those on that regard to compare Maker Faires to Comic Cons. We were thinking along same lines, I guess, because San Diego Comic Con, where we've been going for 10 years now, is amazing. But when we went to New York Comic Con last year for the very first time, I was astonished at the level of diversity of the New York Comic Con. Put every other con I've ever been to shame, and I real and talking to one of the organizers, they're like, because most of the New York Comic Con is coming from the five boroughs. It's coming from one of the most diverse cities in the world, right? So this is they have the large number of locals to draw from, and that's great that New York pulls that, but it's quite a unique. Neat place and yeah, I'm I, you know, I was looking around the crowd and thinking about how far and wide this group had come from.
 
 [00:20:07] Will: We we had the same response when we went to New York Maker Faire the first time. I remember walking around thinking, oh, right, clearly there's a lot more robots here because the the East Coast tech schools are all around and people bring their projects and you know the the the high schools have programs that associate with those schools and yeah.
 
 [00:20:23] Ian: I went to Kansas City a few years ago, and one of the things I remember most was they had a a local car club that does the sort of hydraulic you know bouncing cars all behind you know. There's Maker Faire and there's this row of cars going up and down, and my you know my sons and I were like, hydraulics, how does this work? Let's go learn. And so that regional flavor that you get, you don't necessarily get that at Bay Area and New York as much because so many people travel. But when you get down to the smaller featured Maker Faires and and the mini Maker Faires, you get you get kind of a lot more sense of what that region makes.
 
-[00:20:56] Adam: So I I I I did my usual shtick. This year, as I gave a my Sunday talk at around noon, and I signed autographs for a couple of hours. Um, and it was wonderful. But I there was a trend this time. Well, I started a thing where I started asking everyone, " What are you making? What are you working on?" And you know, whether you're eight or eighty, I didn't. The answers were always really interesting.
+[00:20:56] Adam: So I I I I did my usual shtick. This year, as I gave a my Sunday talk at around noon, and I signed autographs for a couple of hours. Um, and it was wonderful. But I there was a trend this time. Well, I started a thing where I started asking everyone, " What are you making? What are you working on?" And you know, whether you're 8 or 80, I didn't. The answers were always really interesting.
 
 [00:21:18] Will: It's always interesting,
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:27:33] Will: No,
 
-[00:27:33] Ian: that's the sort of humorous part is there's this definition of mini Maker Faire, but it's only mini because you're comparing against Bay Area, which is a hundred plus thousand people,
+[00:27:33] Ian: that's the sort of humorous part is there's this definition of mini Maker Faire, but it's only mini because you're comparing against Bay Area, which is 100 plus thousand people,
 
 [00:27:44] Adam: and it's not small and it's not small in scope either. You're still also going to see mind blowing constructions that people made one of
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:28:09] Ian: And if you, you know, if you make something amazing, consider taking that thing on vacation with you and take it to another place where you haven't been, because we love seeing people from other parts of the country as well.
 
-[00:28:20] Adam: Uh, when I was a younger maker in the early '90s, and I wanted to take stuff out, and we were looking for opportunities, showing in group shows and building galleries to show your work. One of the strangest, most rewarding experiences I had was taking this giant gun I'd built, whose title is literally a work of fiction. Like it's like a thousand-word work of fiction is the title of this piece. I'll, I'll put it up on the site at some point. Um, and I won second prize at the California State Fair with it.
+[00:28:20] Adam: Uh, when I was a younger maker in the early '90s, and I wanted to take stuff out, and we were looking for opportunities, showing in group shows and building galleries to show your work. One of the strangest, most rewarding experiences I had was taking this giant gun I'd built, whose title is literally a work of fiction. Like it's like a 1,000-word work of fiction is the title of this piece. I'll, I'll put it up on the site at some point. Um, and I won second prize at the California State Fair with it.
 
 [00:28:20] Ian: Nice.
 

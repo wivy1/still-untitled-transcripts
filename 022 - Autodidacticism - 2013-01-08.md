@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:05:20] Will: And you know, would you buy? So if you're buying, if you want to do so, if you know you want something that's finished at a certain level, do you buy the same just enough to do three of the high quality one, or do you kind of do a rough one and then kind of figure it out? Or—
 
-[00:05:31] Adam: That depends. But like, if I was going to build some specific shelves out of a certain kind of wood, I'd certainly, and I knew I needed like twenty board feet, I'd buy sixty.
+[00:05:31] Adam: That depends. But like, if I was going to build some specific shelves out of a certain kind of wood, I'd certainly, and I knew I needed like 20 board feet, I'd buy 60.
 
 [00:05:40] Will: Okay.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:05:54] Will: Well, I was just going to say my my wife might disagree, but you know—
 
-[00:05:57] Adam: I just, I— there's a key moment that happened between Jamie and I at one point. We're out on a site, and he's like, "Oh, I need to screw this little thing in. Can you get me six eight-thirty-two machine screws with a round head?" And the assistant runs away, and I said, "Get eight." And Jamie goes, "No, no, no, get six." And he had six holes to fill, and the assistant brought them back, and he good and immediately dropped one.
+[00:05:57] Adam: I just, I— there's a key moment that happened between Jamie and I at one point. We're out on a site, and he's like, "Oh, I need to screw this little thing in. Can you get me six 8-32 machine screws with a round head?" And the assistant runs away, and I said, "Get eight." And Jamie goes, "No, no, no, get six." And he had six holes to fill, and the assistant brought them back, and he good and immediately dropped one.
 
 [00:06:21] Will: And it's gone.
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:07:38] Will: Yeah.
 
-[00:07:38] Adam: And you know, I've even I've spoken in front of you know, I spoke for a quarter of a million people on the Mall in Washington with with Stephen Colbert and Jon Stewart, and that that stuff doesn't make me nervous.
+[00:07:38] Adam: And you know, I've even I've spoken in front of you know, I spoke for 250,000 people on the Mall in Washington with with Stephen Colbert and Jon Stewart, and that that stuff doesn't make me nervous.
 
 [00:07:49] Will: Yeah.
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:08:30] Unknown speaker: Mm-hmm.
 
-[00:08:31] Adam: And you know, many of the stand-up comedians I know are among the most introspective people I've ever met. And when Chris Hardwick gave me the chance to do it on the Nerdist podcast a couple of years ago, it was it was a really great opportunity. It was a great audience. In a way, I was cheating because I'm going with an audience that I know really likes me. I'm not going cold. I I have done a cold twenty minutes at Cobb's Comedy Club here in San Francisco. Very, very different experience.
+[00:08:31] Adam: And you know, many of the stand-up comedians I know are among the most introspective people I've ever met. And when Chris Hardwick gave me the chance to do it on the Nerdist podcast a couple of years ago, it was it was a really great opportunity. It was a great audience. In a way, I was cheating because I'm going with an audience that I know really likes me. I'm not going cold. I I have done a cold 20 minutes at Cobb's Comedy Club here in San Francisco. Very, very different experience.
 
 [00:08:58] Will: It's got to be terrifying.
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:14:56] Will: Frequently, what seems right is the right answer.
 
-[00:14:58] Adam: Exactly, exactly. And so then, I, with the advice from him, I made the twelve-plait, two-belly kangaroo-hide bolster whip, and I'm really, really pleased with it. I'm not a whip maker. I don't want to be a whip maker. It's the guys that do it for real do beautiful, beautiful work. And you know, my Raiders whip is a is a nice piece, but any whip maker would look at it and see the sloppy things about it and the ways in which it could totally be improved. And so can I. But—
+[00:14:58] Adam: Exactly, exactly. And so then, I, with the advice from him, I made the 12-plait, two-belly kangaroo-hide bolster whip, and I'm really, really pleased with it. I'm not a whip maker. I don't want to be a whip maker. It's the guys that do it for real do beautiful, beautiful work. And you know, my Raiders whip is a is a nice piece, but any whip maker would look at it and see the sloppy things about it and the ways in which it could totally be improved. And so can I. But—
 
 [00:15:29] Will: But it's the whip you wanted.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:17:49] Will: So I think that's probably my my saving grace. But um—
 
-[00:17:52] Adam: Sanding is something that um I was surprised when I taught at the Academy of Art. I taught advanced model making over there, and one of the courses I had, among the courses I had, people had assignments to do for other classes, and they would do them in my class. So my main job was just putting out fires and suggesting more efficient ways to do things. That was a fantastic lesson in something I didn't know, other people didn't know, which is uh sanding is a great one because most people will take a piece of hundred-grit sandpaper and just work at something and work at something and work at something, and after like really eight minutes, that piece of sandpaper is smooth.
+[00:17:52] Adam: Sanding is something that um I was surprised when I taught at the Academy of Art. I taught advanced model making over there, and one of the courses I had, among the courses I had, people had assignments to do for other classes, and they would do them in my class. So my main job was just putting out fires and suggesting more efficient ways to do things. That was a fantastic lesson in something I didn't know, other people didn't know, which is uh sanding is a great one because most people will take a piece of 100-grit sandpaper and just work at something and work at something and work at something, and after like really eight minutes, that piece of sandpaper is smooth.
 
 [00:18:32] Will: Yeah.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:18:59] Adam: Oh, that makes lots of dust. Oh, don't you have a vacuum attachment for that orbital sander?
 
-[00:19:02] Will: Yeah, you know, I didn't buy the adapter because it was an extra five dollars. Oops. Um. The the, uh, and now it's a, you know, the sander's ten years old, so I don't think I can get the right adapter anymore. And then I have to go out and buy a new sander. At this point, it's just easier to move the whole thing outside and do it in the backyard. Um, but but yeah, I mean, it it made me realize the first batch of sandpaper I bought, I bought the four sheets because I was like, this is a little bit cheaper. I can cut—
+[00:19:02] Will: Yeah, you know, I didn't buy the adapter because it was an extra $5. Oops. Um. The the, uh, and now it's a, you know, the sander's 10 years old, so I don't think I can get the right adapter anymore. And then I have to go out and buy a new sander. At this point, it's just easier to move the whole thing outside and do it in the backyard. Um, but but yeah, I mean, it it made me realize the first batch of sandpaper I bought, I bought the four sheets because I was like, this is a little bit cheaper. I can cut—
 
 [00:19:26] Adam: Right.
 
@@ -302,11 +302,11 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:20:10] Unknown speaker: Mm-hmm.
 
-[00:20:12] Adam: I about once a year I head over to a beauty supply store and buy like sixty finger sanders of every grit that there is, and I also invest in really good sandpaper which lasts longer, doesn't give up its grit as quickly, and gives me a lot more bang for my buck over the time.
+[00:20:12] Adam: I about once a year I head over to a beauty supply store and buy like 60 finger sanders of every grit that there is, and I also invest in really good sandpaper which lasts longer, doesn't give up its grit as quickly, and gives me a lot more bang for my buck over the time.
 
 [00:20:34] Will: Fantastic. Anything else we should talk about? On I think we've I think we've covered high points pretty well here.
 
-[00:20:39] Adam: You know I I I think the the DIY world is is replete with lots and lots of instruction. The main thing is that lots of people want to learn something, and lots of people have in their mind. Everyone has in their mind something they want to learn. The real trick is you've got to learn from a project. My kids are both at thirteen, quite accomplished musicians, and it's all from School of Rock.
+[00:20:39] Adam: You know I I I think the the DIY world is is replete with lots and lots of instruction. The main thing is that lots of people want to learn something, and lots of people have in their mind. Everyone has in their mind something they want to learn. The real trick is you've got to learn from a project. My kids are both at 13, quite accomplished musicians, and it's all from School of Rock.
 
 [00:21:09] Unknown speaker: Mm-hmm.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=nwE8f6ZSXlM
 
 [00:24:40] Unknown speaker: Yeah. Yeah.
 
-[00:24:42] Adam: With a standard issue, you know, 700-dollar MIG welder is genuinely easy.
+[00:24:42] Adam: With a standard issue, you know, $700 MIG welder is genuinely easy.
 
 [00:24:46] Will: Well, and if you're worried about safety on stuff like that, then you can go to pretty much any. If there is a shared workspace, like a TechShop or something like that, you can go there and they'll teach you a safety class.
 

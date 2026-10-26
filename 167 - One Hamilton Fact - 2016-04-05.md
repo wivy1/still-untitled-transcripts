@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:03:54] Norm: many, so many.
 
-[00:03:55] Will: We're all hypocrites. Just just to wrap up, I went and saw Ten Cloverfield.
+[00:03:55] Will: We're all hypocrites. Just just to wrap up, I went and saw 10 Cloverfield.
 
 [00:03:59] Adam: Yeah, is it good?
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:05:58] Adam: that's like when the that's when the White House. Puts out its worst.
 
-[00:06:02] Will: Yeah, that's when that's when you that's when you release the. Oh, we accidentally killed a few thousand people by it was the wrong people. The AI targeted the wrong guys. Oops. Yeah, it's when Microsoft releases the. Yeah, we there there are thirty five million infected Windows PCs report.
+[00:06:02] Will: Yeah, that's when that's when you that's when you release the. Oh, we accidentally killed a few thousand people by it was the wrong people. The AI targeted the wrong guys. Oops. Yeah, it's when Microsoft releases the. Yeah, we there there are 35 million infected Windows PCs report.
 
 [00:06:20] Norm: Well, it turns out for a lot of people, we're on the computer all the time. The weekend's a great time to start downloading and trying new things.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:06:57] Adam: That's fantastic.
 
-[00:06:57] Will: So, what what we built, what we're building, is a framework for creating. Lightly interactive television like content that that lives in VR. It's 3D rendered that you can interact with. There’s video, people have captured some videos, so you can go look at them. But the first show is the Foo Show. It's featuring me, and I interview people who make cool things, as we have in the past. And the first people I talked to are these guys, Jake Rodkin and Sean Vanaman from Campo Santo. They made a little adventure game. It's not they made an indie adventure game called Firewatch. And in Firewatch, you are this guy who's kind of running away from problems in his life, and he goes to be a fire watch guy in the Wyoming woods in the late '80s. So, so like you spend a lot of time in this watchtower that's a little fourteen by fourteen foot box on the top of a really high stilts, and you walk around this environment. You it's basically you walk in the woods, and then sometimes mysterious stuff happens in the woods.
+[00:06:57] Will: So, what what we built, what we're building, is a framework for creating. Lightly interactive television like content that that lives in VR. It's 3D rendered that you can interact with. There’s video, people have captured some videos, so you can go look at them. But the first show is the Foo Show. It's featuring me, and I interview people who make cool things, as we have in the past. And the first people I talked to are these guys, Jake Rodkin and Sean Vanaman from Campo Santo. They made a little adventure game. It's not they made an indie adventure game called Firewatch. And in Firewatch, you are this guy who's kind of running away from problems in his life, and he goes to be a fire watch guy in the Wyoming woods in the late '80s. So, so like you spend a lot of time in this watchtower that's a little 14 by 14 foot box on the top of a really high stilts, and you walk around this environment. You it's basically you walk in the woods, and then sometimes mysterious stuff happens in the woods.
 
 [00:07:52] Adam: I heard about this game. It sounds fascinating.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:11:12] Adam: Yeah.
 
-[00:11:12] Will: But when you're in a room with 3D modeled avatars that that move and behave like an actual human, you know, when you it turns out it doesn't take that much body language to make something read as human. When Norm and I saw Oculus Touch, which just showed a wireframe head and wireframe frame hands, I realized within like twenty thirty seconds of being in there that my brain was treating that wireframe as if it was a person,
+[00:11:12] Will: But when you're in a room with 3D modeled avatars that that move and behave like an actual human, you know, when you it turns out it doesn't take that much body language to make something read as human. When Norm and I saw Oculus Touch, which just showed a wireframe head and wireframe frame hands, I realized within like 20 30 seconds of being in there that my brain was treating that wireframe as if it was a person,
 
 [00:11:32] Adam: right?
 
@@ -594,7 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:26:07] Adam: Yeah,
 
-[00:26:07] Norm: it's there is a whole range of music, but the story, his story. And of a of a historical figure who before this we knew as the guy on the ten dollar bill or the guy in the got milk commercial, right? Directed by Michael Bay, also.
+[00:26:07] Norm: it's there is a whole range of music, but the story, his story. And of a of a historical figure who before this we knew as the guy on the $10 bill or the guy in the got milk commercial, right? Directed by Michael Bay, also.
 
 [00:26:21] Adam: Oh, really?
 
@@ -654,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:29:45] Unknown speaker: Oh, yeah, you're right.
 
-[00:29:45] Will: I'm sure there's a spike for the Isaacson biography like ten years ago, and then there's the little spike for the one that came out three years, three or four years ago, right? And then then there's one that is like to the floor,
+[00:29:45] Will: I'm sure there's a spike for the Isaacson biography like 10 years ago, and then there's the little spike for the one that came out three years, three or four years ago, right? And then then there's one that is like to the floor,
 
 [00:29:57] Adam: yeah, for the music for
 

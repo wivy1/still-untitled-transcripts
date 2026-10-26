@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:02:42] Adam: yeah
 
-[00:02:42] Norm: one how weird it was I stayed one extra day like it goes went till Labor Day DragonCon is Labor Day every weekend Friday to Monday everyone's gone Monday and because DragonCon is such a nonstop seventy two hour party
+[00:02:42] Norm: one how weird it was I stayed one extra day like it goes went till Labor Day DragonCon is Labor Day every weekend Friday to Monday everyone's gone Monday and because DragonCon is such a nonstop 72 hour party
 
 [00:02:57] Adam: yeah
 
@@ -224,11 +224,11 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:07:27] Adam: No way!
 
-[00:07:27] Norm: I don't want to go into too many details. It was related to that party that you mentioned, like the Aaron Douglas party. Yeah. Yeah. But it did make me realize that these people who were cast members for a TV show, ten years later, are still very much very close.
+[00:07:27] Norm: I don't want to go into too many details. It was related to that party that you mentioned, like the Aaron Douglas party. Yeah. Yeah. But it did make me realize that these people who were cast members for a TV show, 10 years later, are still very much very close.
 
 [00:07:41] Adam: They're bonded
 
-[00:07:41] Norm: and bonded. And it was something that made me think about the difference of how I feel about the Star Trek movie. You have Star Trek's fiftieth anniversary coming up, and they've been filming the new movie. And if you think about all the Star Trek shows, something that like you know Patrick Stewart and and you know LeVar Burton, the Next Generation era, and even the original cast talk about when you're filming for five years or seven years on this show that is a cultural touchstone and has an intense fan base. There's a bond you get that we actually don't get. When you just have the movie reboots, and I'm sure the cast of Star Trek and Into Darkness and the new one and Beyond are close, but it's not the same.
+[00:07:41] Norm: and bonded. And it was something that made me think about the difference of how I feel about the Star Trek movie. You have Star Trek's 50th anniversary coming up, and they've been filming the new movie. And if you think about all the Star Trek shows, something that like you know Patrick Stewart and and you know LeVar Burton, the Next Generation era, and even the original cast talk about when you're filming for five years or seven years on this show that is a cultural touchstone and has an intense fan base. There's a bond you get that we actually don't get. When you just have the movie reboots, and I'm sure the cast of Star Trek and Into Darkness and the new one and Beyond are close, but it's not the same.
 
 [00:08:20] Adam: Yeah,
 
@@ -252,15 +252,15 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:10:27] Will: And I I have to imagine. I mean, I've worked in some intense work environments before. Um, nothing. I think probably like a TV production that goes on for five years. But you know, when you work with the same group of people for a long period of time, you know, even if you don't socialize outside of work, you develop this intense relationship that carry that you carry with you for a long time.
 
-[00:10:49] Adam: On MythBusters, yeah, we've been going for thirteen years. Some of our cast members, some of our cast members, our crew and cast members have been with us for eleven, eleven. I think the longest running has been with us for eleven and a half of those thirteen years. Um, but you know, even the shortest is six or seven years. So yeah, we've seen each other. There's this thing that happens when you see each other at both your best and your worst. It is. It becomes a family type situation with all of the, you know, great things and pitfalls of family situations. You can get cranky with each other in really unique ways
+[00:10:49] Adam: On MythBusters, yeah, we've been going for 13 years. Some of our cast members, some of our cast members, our crew and cast members have been with us for 11, 11. I think the longest running has been with us for 11.5 of those 13 years. Um, but you know, even the shortest is six or seven years. So yeah, we've seen each other. There's this thing that happens when you see each other at both your best and your worst. It is. It becomes a family type situation with all of the, you know, great things and pitfalls of family situations. You can get cranky with each other in really unique ways
 
 [00:11:28] Unknown speaker: Exactly.
 
 [00:11:28] Adam: that don't happen in normal workplaces.
 
-[00:11:34] Will: I mean, yeah, that that the cranky the cranky is a thing. You gotta be you gotta be careful of the cranky. So I saw this weekend. I went this weekend and took my daughter because it was ninety degrees in San Francisco and we needed to get out of the house.
+[00:11:34] Will: I mean, yeah, that that the cranky the cranky is a thing. You gotta be you gotta be careful of the cranky. So I saw this weekend. I went this weekend and took my daughter because it was 90 degrees in San Francisco and we needed to get out of the house.
 
-[00:11:47] Adam: It was hundred in the Mission on Sunday.
+[00:11:47] Adam: It was 100 in the Mission on Sunday.
 
 [00:11:49] Will: It was. This was the hottest I've ever been in San Francisco.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:11:58] Will: Even like $10 million houses don't have air conditioning.
 
-[00:12:00] Adam: I've been thinking about it, and I don't have a 10,000,000 dollar house, but I've been toying around with the idea of putting AC in.
+[00:12:00] Adam: I've been thinking about it, and I don't have a $10 million house, but I've been toying around with the idea of putting AC in.
 
 [00:12:04] Will: You know what my mistake was? We did a whole furnace system last year when the baby was born because we needed heat.
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:12:17] Adam: Yeah.
 
-[00:12:17] Will: so by six o'clock when the when the sun starts to go down, it's usually fifteen degrees cooler.
+[00:12:17] Will: so by six o'clock when the when the sun starts to go down, it's usually 15 degrees cooler.
 
 [00:12:22] Adam: Right,
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:21:19] Will: She was. She was actually like, no, sharks aren't scary, Dad. They're just fish. Are friends, and you know, now going anyway, going forward, we have to be a little more careful with the scary stuff because she kind of freaks out sometimes.
 
-[00:21:32] Adam: Yeah, it can happen. You know, the Max Landis has a very funny story. John Landis' son about obviously Max grew up inculcated with movies because there are few people in the world that that know the history of movies better than John. And Max tells a story about having a birthday party. I can't even remember what age it was, like eleven or something like that, and deciding to watch some impossibly scary movie that left every other attendee of the sleepover completely petrified. And Max was like, " What's wrong with everybody?
+[00:21:32] Adam: Yeah, it can happen. You know, the Max Landis has a very funny story. John Landis' son about obviously Max grew up inculcated with movies because there are few people in the world that that know the history of movies better than John. And Max tells a story about having a birthday party. I can't even remember what age it was, like 11 or something like that, and deciding to watch some impossibly scary movie that left every other attendee of the sleepover completely petrified. And Max was like, " What's wrong with everybody?
 
 [00:22:05] Will: It's just a movie. It's not real." I. I I I grew up watching tons of Disney movies. Like that was that was our you know I think Fox and the Hound in the theater and and from that point on
 

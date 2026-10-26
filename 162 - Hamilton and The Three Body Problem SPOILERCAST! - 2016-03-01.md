@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:03:51] Will: You're talking about Madison, Washington, and Madison, Washington, Jefferson, and Franklin to a lesser extent.
 
-[00:03:55] Adam: Yeah. Um, but then the mental giants that they were. I mean, seriously, I remember this one of the first things I remember my dad telling me about American history is the thing you have to understand is the founding fathers were were all of them geniuses. Like we're not even qualifying that. Like it's astounding, and this really sort of shows that. And Miranda read the book Hamilton Chernoff's biography of Hamilton in 2009, and he said his first thought was, " I can't believe no one's written a musical about this before." But then it turns out that Hamilton grew up grew up in in Saint Croix in the in the Caribbean, and and when he was seventeen, a hurricane destroyed his island, and he wrote a poem about it. And the poem got him a trip to America. People people on the island were like, " Oh, this kid is such an amazing writer. He's he should go to New York." And this is what Miranda says: is there is nothing more rap than a kid from the streets moving up because of his because of the power of the word?
+[00:03:55] Adam: Yeah. Um, but then the mental giants that they were. I mean, seriously, I remember this one of the first things I remember my dad telling me about American history is the thing you have to understand is the founding fathers were were all of them geniuses. Like we're not even qualifying that. Like it's astounding, and this really sort of shows that. And Miranda read the book Hamilton Chernoff's biography of Hamilton in 2009, and he said his first thought was, " I can't believe no one's written a musical about this before." But then it turns out that Hamilton grew up grew up in in Saint Croix in the in the Caribbean, and and when he was 17, a hurricane destroyed his island, and he wrote a poem about it. And the poem got him a trip to America. People people on the island were like, " Oh, this kid is such an amazing writer. He's he should go to New York." And this is what Miranda says: is there is nothing more rap than a kid from the streets moving up because of his because of the power of the word?
 
 [00:04:57] Will: Yeah.
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:07:42] Adam: And it's pretty dense,
 
-[00:07:43] Will: epic, but it's it's dense, and it jumps back and forth in in places and times. The framework story is takes place on Earth over the last sixty years or so, starting in the Chinese Cultural Revolution, which happened in the late '50s, started in the late '50s, early '60s. We've talked about it a little bit. It's interesting to me. Because it it parallels our kind of modern American rejection of science and scientific scientific study,
+[00:07:43] Will: epic, but it's it's dense, and it jumps back and forth in in places and times. The framework story is takes place on Earth over the last 60 years or so, starting in the Chinese Cultural Revolution, which happened in the late '50s, started in the late '50s, early '60s. We've talked about it a little bit. It's interesting to me. Because it it parallels our kind of modern American rejection of science and scientific scientific study,
 
 [00:08:09] Adam: such as the cultural revolution.
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:10:48] Will: and and you know what, the framework story I got it wrong. The framework story is in the '80s or modern current day.
 
-[00:10:53] Norm: The framework story is in for a little past. Modern day, so it's jumps between nineteen, late, late '70s and 2020 say forty more than forty years later.
+[00:10:53] Norm: The framework story is in for a little past. Modern day, so it's jumps between nineteen, late, late '70s and 2020 say forty more than 40 years later.
 
 [00:11:02] Adam: It sets up some things where you're like, I have no idea how they're going to explain that that happened, and then they explain how it happened, and you're like, Oh, that is so cool! Like, there's a but. There's several times reading it, I was kind of blown away and actually a little destabilized. And here's where I think we should get to spoilers here.
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:12:29] Will: any any technology sufficiently advanced is
 
-[00:12:31] Norm: this magic. This the magic technology in this book that reveals a lot of things set up in the thriller aspects of the first half of the book is that the aliens have developed a technology where they can unfold a single proton into nine eleven dimensions, and if you think about an eleventh-dimensional being, and so you can think about in terms like folding origami, right? A If something exists in three dimensions and you unfold it to two dimensions, it is bigger. In one dimension, a line, you know, it is even bigger. Something that's eleven dimensions, an eleven-dimensional proton unfolded into two dimensions, can then be encoded to be a programming computer.
+[00:12:31] Norm: this magic. This the magic technology in this book that reveals a lot of things set up in the thriller aspects of the first half of the book is that the aliens have developed a technology where they can unfold a single proton into nine 11 dimensions, and if you think about an 11th-dimensional being, and so you can think about in terms like folding origami, right? A If something exists in three dimensions and you unfold it to two dimensions, it is bigger. In one dimension, a line, you know, it is even bigger. Something that's 11 dimensions, an 11-dimensional proton unfolded into two dimensions, can then be encoded to be a programming computer.
 
 [00:13:10] Adam: And this is they go to great. If that if that sounds confusing, go ahead and still read the book because they make it very palatable.
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:14:48] Norm: And so the aliens. In their invasion of Earth, which will take 450 years, they want to stunt our growth, and they do it with these sophons.
 
-[00:14:56] Adam: They do it to put the brakes on our ability to. They look at Earth and they see that we developed flight, and then less than a hundred years later, actually fifty years later, developed an atomic bomb, and consider us an exponentially developing science culture,
+[00:14:56] Adam: They do it to put the brakes on our ability to. They look at Earth and they see that we developed flight, and then less than 100 years later, actually 50 years later, developed an atomic bomb, and consider us an exponentially developing science culture,
 
 [00:15:09] Norm: which they are not.
 
@@ -334,11 +334,11 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:17:47] Will: just to be clear.
 
-[00:17:48] Norm: And it does jump forward forty years and becomes a thriller, basically, because this man—you can envision it as a scientist whose crazy things are happening around him. He's seeing numbers in this in his vision. But and he's kind of
+[00:17:48] Norm: And it does jump forward 40 years and becomes a thriller, basically, because this man—you can envision it as a scientist whose crazy things are happening around him. He's seeing numbers in this in his vision. But and he's kind of
 
 [00:18:01] Adam: So it's very destabilizing,
 
-[00:18:02] Norm: It's very destabilizing, and he has this great and scientists are murdering and they're committing suicide. He has this very unsettling conversation with the husband or boyfriend of one of the scientists, where he has this he demonstrates what if, and this is I think the second big idea in the book. What if all the fundamental science that we know is only temporary and is only our understanding of this limited view? It's the what was it they called it the hunter farmer the shooter farmer S F the shooter farmer theory. Um, our our ten thousand years of humanity, all our our understanding of Newtonian physics and quantum physics, it's under this relatively small sample size in terms of the history of the universe. If that becomes unravel, then
+[00:18:02] Norm: It's very destabilizing, and he has this great and scientists are murdering and they're committing suicide. He has this very unsettling conversation with the husband or boyfriend of one of the scientists, where he has this he demonstrates what if, and this is I think the second big idea in the book. What if all the fundamental science that we know is only temporary and is only our understanding of this limited view? It's the what was it they called it the hunter farmer the shooter farmer S F the shooter farmer theory. Um, our our 10,000 years of humanity, all our our understanding of Newtonian physics and quantum physics, it's under this relatively small sample size in terms of the history of the universe. If that becomes unravel, then
 
 [00:18:45] Adam: what can we do?
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:25:21] Will: She killed her husband.
 
-[00:25:22] Norm: She killed her husband and her boss, and where she betrayed the human race essentially. And they say in the beginning of the the book, her last thoughts and her last thoughts, which is this is the part that actually ties back to the Cultural Revolution, is that the people in the Cultural Revolution, all the the the young, the students who rose up against the the privilege and the intellectuals, which we're seeing echo now fifty years later in America a little bit. Um,
+[00:25:22] Norm: She killed her husband and her boss, and where she betrayed the human race essentially. And they say in the beginning of the the book, her last thoughts and her last thoughts, which is this is the part that actually ties back to the Cultural Revolution, is that the people in the Cultural Revolution, all the the the young, the students who rose up against the the privilege and the intellectuals, which we're seeing echo now 50 years later in America a little bit. Um,
 
 [00:25:48] Will: at a much at a much less violent scale.
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:27:15] Will: the failures are way more interesting than the success, as is frequently the case. Yeah, so I I I thoroughly enjoyed. I'm going to read the next one, even though I I kind of I wish that it wasn't necessary.
 
-[00:27:29] Norm: There, I mean, I think it's also it's a book that you could reread and see a lot of the themes that repeat itself. Like for example, in the game, they explained in Trisolaran history, they attempted to build a computer with three million of their soldiers.
+[00:27:29] Norm: There, I mean, I think it's also it's a book that you could reread and see a lot of the themes that repeat itself. Like for example, in the game, they explained in Trisolaran history, they attempted to build a computer with 3 million of their soldiers.
 
 [00:27:42] Will: That was a amazing part that explains how how computers work.
 

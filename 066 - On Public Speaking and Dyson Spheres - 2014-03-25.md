@@ -262,13 +262,13 @@ Episode URL: https://www.youtube.com/watch?v=2Ky7Qz9Mt_o
 
 [00:07:53] Adam: I wasn't that bad, was I?
 
-[00:07:53] Norm: No, no, no, no. South by first of all, I never. Had stood in front of three thousand five hundred people.
+[00:07:53] Norm: No, no, no, no. South by first of all, I never. Had stood in front of 3,500 people.
 
 [00:08:04] Adam: Oh shit! You did great.
 
 [00:08:07] Will: You did really well.
 
-[00:08:07] Norm: And I am looking at you the whole time. So the video of the interview and your keynote is on tested right now for people who haven't seen it yet. But, uh, there were, you had an hour booked for a speech, and, uh, you, you know, it's like twenty five minute presentation. And I sit there. I am going through questions. I am looking at you the whole time because the audience does not exist.
+[00:08:07] Norm: And I am looking at you the whole time. So the video of the interview and your keynote is on tested right now for people who haven't seen it yet. But, uh, there were, you had an hour booked for a speech, and, uh, you, you know, it's like 25 minute presentation. And I sit there. I am going through questions. I am looking at you the whole time because the audience does not exist.
 
 [00:08:26] Adam: Yeah,
 
@@ -280,9 +280,9 @@ Episode URL: https://www.youtube.com/watch?v=2Ky7Qz9Mt_o
 
 [00:08:34] Norm: Right, and I had a good sense of the stuff you had questions you'd answer before, but also trying to bring it to a new audience. But you are right. I after what felt like the longest time, I looked at the timer because there was a clock running down,
 
-[00:08:34] Adam: and you still had like ten, fifteen minutes left.
+[00:08:34] Adam: and you still had like 10, 15 minutes left.
 
-[00:08:34] Norm: Thirty minutes. You can. You five minutes had gone by.
+[00:08:34] Norm: 30 minutes. You can. You five minutes had gone by.
 
 [00:08:34] Adam: Oh yeah.
 
@@ -420,13 +420,13 @@ Episode URL: https://www.youtube.com/watch?v=2Ky7Qz9Mt_o
 
 [00:17:38] Adam: I remember hearing about this?
 
-[00:17:38] Will: That was, I think, I think literally he was doing three slides a second for maybe thirty minutes. It was unbelievably like you were just getting the hint of an image.
+[00:17:38] Will: That was, I think, I think literally he was doing three slides a second for maybe 30 minutes. It was unbelievably like you were just getting the hint of an image.
 
 [00:17:38] Adam: Yeah.
 
-[00:17:38] Will: Um, and he probably blasted through a thousand slides in a twenty minute talk.
+[00:17:38] Will: Um, and he probably blasted through 1,000 slides in a 20 minute talk.
 
-[00:18:11] Adam: I love doing that. That's that's that's how I wrote the Maltese Falcon talk was something like one hundred and seventy five slides in ten minutes.
+[00:18:11] Adam: I love doing that. That's that's that's how I wrote the Maltese Falcon talk was something like 175 slides in 10 minutes.
 
 [00:18:18] Will: Well, and you just it's just it's just it's interesting because you can be talking about one thing, and it's the thing, uh, I took a class in college called Pop Pop Culture and American Politics, which basically was a comparison of Ronald Reagan and John Wayne, because the the the guy's whole point was all the lessons. You know, Ronald Reagan wanted American voters to think that he was John Wayne; that he was going to come in and save them from the communists. Anytime there was bad news, he would go to the ranch in California and ride a horse, so that the footage they would have of him from the day was him riding a Ron Reagan riding a horse, and the terrible economy news would hit. But you think, oh, Ronnie's riding a horse; everything's fine. Wow. Um,
 
@@ -570,11 +570,11 @@ Episode URL: https://www.youtube.com/watch?v=2Ky7Qz9Mt_o
 
 [00:27:04] Will: So, so hold on, I am going to go back again. Does that mean? I mean when you go in for a talk like South by, did you practice that? Were you practicing that in the hotel room? Were you practicing it before you came out, or had you just built the structure in your head and came and delivered it?
 
-[00:27:04] Adam: I had built it. No, so, uh, it it it often depends upon how comfortable and familiar I am with the material I am putting down. With South by, I had been working it for so long that I didn't do a practice run through of the material until about three hours before, and I did it about probably fifteen or twenty times.
+[00:27:04] Adam: I had built it. No, so, uh, it it it often depends upon how comfortable and familiar I am with the material I am putting down. With South by, I had been working it for so long that I didn't do a practice run through of the material until about three hours before, and I did it about probably 15 or 20 times.
 
 [00:27:33] Will: So you did that, so you know how long you were going to run and kind of find the beats on the slides?
 
-[00:27:33] Adam: yeah, and I just started. I started working through stuff, and it's mostly like polishing off the rough spots. So I am going, going, going, going, going, going, going. That transition felt weird. Okay, let me see what's wrong with that. And I go and I find pictures, or I'll find a rhythm or a cadence or a link that works, and then I okay, start from a little bit back from that. Go go go go go go go until the next one doesn't quite work. And one and then I go through it again. I start at the beginning and I do the same thing again. And you know, I take little breaks, take five minutes, ten minutes to you know watch some TV and take a bath, and then come jump back into it. And each time, I'm finding new stuff. You know, just like editing writing.
+[00:27:33] Adam: yeah, and I just started. I started working through stuff, and it's mostly like polishing off the rough spots. So I am going, going, going, going, going, going, going. That transition felt weird. Okay, let me see what's wrong with that. And I go and I find pictures, or I'll find a rhythm or a cadence or a link that works, and then I okay, start from a little bit back from that. Go go go go go go go until the next one doesn't quite work. And one and then I go through it again. I start at the beginning and I do the same thing again. And you know, I take little breaks, take five minutes, 10 minutes to you know watch some TV and take a bath, and then come jump back into it. And each time, I'm finding new stuff. You know, just like editing writing.
 
 [00:27:33] Will: Yeah.
 

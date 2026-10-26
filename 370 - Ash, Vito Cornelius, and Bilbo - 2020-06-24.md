@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:08:06] Norm: yeah. Um,
 
-[00:08:07] Adam: and and by the way Peter Fonda has been in many westerns including 310 to Yuma, oh with Russell Crowe who has acted with all of the Fondas he was with Bridget Fonda in a movie called Rough Magic. Early early Russell Crowe film and then he was with Jane Fonda in something more recently in the last like ten years but I can't remember what.
+[00:08:07] Adam: and and by the way Peter Fonda has been in many westerns including 310 to Yuma, oh with Russell Crowe who has acted with all of the Fondas he was with Bridget Fonda in a movie called Rough Magic. Early early Russell Crowe film and then he was with Jane Fonda in something more recently in the last like 10 years but I can't remember what.
 
 [00:08:32] Norm: Well you mentioned John Knoll and I wanted to to segue quickly the Mandalorian gallery behind the scenes Disney gallery behind the scenes series wrapped up this past weekend the eighth
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:15:34] Unknown speaker (Adam or Will): Oh wow!
 
-[00:15:35] Will: And it's probably been five or ten years since I saw it last. And every single time, like trying to unpack what the characters know, and it's it's the same thing with Alien, trying to unpack what the characters know about what's going on at any given moment in either of those films is a real challenge.
+[00:15:35] Will: And it's probably been 5 or 10 years since I saw it last. And every single time, like trying to unpack what the characters know, and it's it's the same thing with Alien, trying to unpack what the characters know about what's going on at any given moment in either of those films is a real challenge.
 
 [00:15:50] Norm: We also got to talk about Ian Holm in Fifth Element.
 
@@ -464,7 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:21:23] Adam: Schumacher. I think it's time Schumacher came out of Batman jail culturally, and and and I hope that I'm sad that he has passed, and he's contributed a lot to our culture, way more than just Batman.
 
-[00:21:37] Will: Absolutely. I would say Twelve, which came out a few years ago, is worth watching. It's ten years old now, I guess.
+[00:21:37] Will: Absolutely. I would say Twelve, which came out a few years ago, is worth watching. It's 10 years old now, I guess.
 
 [00:21:42] Unknown speaker (Adam or Will): Twelve?
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:21:53] Adam: I don't know about it.
 
-[00:21:53] Will: It's a it was like it was probably you're probably too old. It was pushed probably toward a young adult crowd at that point, like a PG thirteen crowd. It has like Rory Culkin and and then a bunch and a bunch of other people. Zoe
+[00:21:53] Will: It's a it was like it was probably you're probably too old. It was pushed probably toward a young adult crowd at that point, like a PG-13 crowd. It has like Rory Culkin and and then a bunch and a bunch of other people. Zoe
 
 [00:22:08] Adam: Macaulay Culkin, you mean?
 

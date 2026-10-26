@@ -232,7 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:09:01] Norm: [unclear: is nice / from PS9].
 
-[00:09:02] John Scalzi: Yes, and. And we met, and and it was just so great to meet her, and she knew my stuff, and I knew her stuff, and we're like, okay, for the first twenty minutes, wee at each other, and then we could like calm down and be like normal human beings. But you do, you have that, you know, you have that thing where you know someone, someone you admire, like I had, I had someone who was on Serenity, you know, come up and ask me to sign my book for them, and I was just like, oh, okay,
+[00:09:02] John Scalzi: Yes, and. And we met, and and it was just so great to meet her, and she knew my stuff, and I knew her stuff, and we're like, okay, for the first 20 minutes, wee at each other, and then we could like calm down and be like normal human beings. But you do, you have that, you know, you have that thing where you know someone, someone you admire, like I had, I had someone who was on Serenity, you know, come up and ask me to sign my book for them, and I was just like, oh, okay,
 
 [00:09:02] Adam: yeah,
 

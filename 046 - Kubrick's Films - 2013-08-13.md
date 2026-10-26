@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:02:06] Norm: And you told us you showed them the director's cut.
 
-[00:02:08] Adam: I showed them the director's cut, which is also, I guess, usually often referred to the European cut because it's got a bunch of extra scenes with Natalie Portman and and Jean Reno that are, um. Well, I mean, they don't they don't have sex or anything. She's twelve, and their relationship stays totally moral and reasonable.
+[00:02:08] Adam: I showed them the director's cut, which is also, I guess, usually often referred to the European cut because it's got a bunch of extra scenes with Natalie Portman and and Jean Reno that are, um. Well, I mean, they don't they don't have sex or anything. She's 12, and their relationship stays totally moral and reasonable.
 
 [00:02:27] Will: Yeah, but even for France.
 
@@ -214,9 +214,9 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:05:24] Adam: Oh wow,
 
-[00:05:24] Will: that movie is not very good without sound, and also as a twelve-year-old, a little bit disappointed.
+[00:05:24] Will: that movie is not very good without sound, and also as a 12-year-old, a little bit disappointed.
 
-[00:05:30] Adam: I, I, oh, as a twelve-year-old, yeah, I remember I saw it when it came out. I am a little older than you, and so I was like, I guess eighteen.
+[00:05:30] Adam: I, I, oh, as a 12-year-old, yeah, I remember I saw it when it came out. I am a little older than you, and so I was like, I guess 18.
 
 [00:05:38] Will: That seems about right.
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:11:59] Will: Call this number and leave a message describing yourself.
 
-[00:12:02] Adam: And he sits down at one table and he's. Just starts to talk, and the woman goes, " You're a cop," and he's like, " What?" She's like, " You got cop's eyes. I was married to a cop for ten years. You have cop's eyes." And she gets up and she leaves. And the thing is, she's totally right. Cops have a certain way of looking.
+[00:12:02] Adam: And he sits down at one table and he's. Just starts to talk, and the woman goes, " You're a cop," and he's like, " What?" She's like, " You got cop's eyes. I was married to a cop for 10 years. You have cop's eyes." And she gets up and she leaves. And the thing is, she's totally right. Cops have a certain way of looking.
 
 [00:12:18] Will: Well, they look at everybody when they come in the door. If you're sitting in a restaurant.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:14:59] Adam: Malcolm McDowell.
 
-[00:14:58] Will: At like twenty-seven, finest performance ever.
+[00:14:58] Will: At like 27, finest performance ever.
 
 [00:15:02] Norm: Yeah. Well, you get more disturbed if they say he was my favorite character.
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:20:10] Will: On two levels because there's a supernatural stuff that's scary, but the Jack Nicholson going mad is I think the the just the your dad going crazy and trying to kill you is much much scarier than it was to me when I saw that movie.
 
-[00:20:21] Adam: I had forgotten about how. So I was thinking, okay, I'll start it up for them and then I'll join about thirty minutes in because it slugs out slow. It does not start out slow. That movie gets crazy within like ten minutes.
+[00:20:21] Adam: I had forgotten about how. So I was thinking, okay, I'll start it up for them and then I'll join about 30 minutes in because it slugs out slow. It does not start out slow. That movie gets crazy within like 10 minutes.
 
 [00:20:33] Norm: And the thing, it's subconsciously crazy. So there's that documentary out called I think Room Two Three Seven about the room.
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:22:35] Norm: Right.
 
-[00:22:35] Adam: Sixty takes.
+[00:22:35] Adam: 60 takes.
 
 [00:22:35] Norm: There's a scene where Jack Nicholson is in a bedroom, and like the crew is working around him, but he's just practicing, going crazy.
 
@@ -786,7 +786,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:27:29] Adam: In and out.
 
-[00:27:30] Will: Eighty takes, man.
+[00:27:30] Will: 80 takes, man.
 
 [00:27:31] Adam: Yeah,
 
@@ -948,7 +948,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:34:45] Adam: I think it would have been a more challenging and difficult film from Kubrick.
 
-[00:34:49] Will: We we've talked about this before, and that's that is a film that is on my list of things to go back and rewatch because I haven't seen it about ten years, and I remember liking it a lot more than everybody else liked it at the time, despite some pretty serious flaws and some just generally weird stuff. But yeah, I I want to go back and revisit that.
+[00:34:49] Will: We we've talked about this before, and that's that is a film that is on my list of things to go back and rewatch because I haven't seen it about 10 years, and I remember liking it a lot more than everybody else liked it at the time, despite some pretty serious flaws and some just generally weird stuff. But yeah, I I want to go back and revisit that.
 
 [00:35:07] Adam: Maybe we should sit down and watch it and comment.
 
@@ -986,7 +986,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:35:30] Will: Perfect. Yeah.
 
-[00:35:30] Adam: Done. So, uh, wait, I wanted to go back to oh, so in addition to these script pages and these card catalogs and these the the depth of his research, there's also the fact that, and John Landis was saying this when he talked about having met and talked to Kubrick, he was nearly obsessive about saving money, and one of the reasons, from what I've been reading, is because he wanted to he wanted the freedom to shoot a hundred takes or to shoot for two hundred days if he needed to. So he was a genius at saving money and putting it into continuing to shoot or Using the insurance policy for the film to keep adding more days to the shooting schedule, and he famously owned a lot of his own camera equipment. So he owned that Mitchell that they shot Barry Lyndon on. In the exhibit are his whole collection of these beautiful Schneider lenses and Arriflex mini 35 millimeter cameras and the you know all of the pieces that he utilized because he he was a real techno geek at the same time as being this incredible [unclear: alternative]
+[00:35:30] Adam: Done. So, uh, wait, I wanted to go back to oh, so in addition to these script pages and these card catalogs and these the the depth of his research, there's also the fact that, and John Landis was saying this when he talked about having met and talked to Kubrick, he was nearly obsessive about saving money, and one of the reasons, from what I've been reading, is because he wanted to he wanted the freedom to shoot 100 takes or to shoot for 200 days if he needed to. So he was a genius at saving money and putting it into continuing to shoot or Using the insurance policy for the film to keep adding more days to the shooting schedule, and he famously owned a lot of his own camera equipment. So he owned that Mitchell that they shot Barry Lyndon on. In the exhibit are his whole collection of these beautiful Schneider lenses and Arriflex mini 35 millimeter cameras and the you know all of the pieces that he utilized because he he was a real techno geek at the same time as being this incredible [unclear: alternative]
 
 [00:36:32] Norm: fascinated by technology.
 
@@ -996,7 +996,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:36:46] Adam: He started out as a photographer for Look magazine
 
-[00:36:48] Norm: at seventeen years old.
+[00:36:48] Norm: at 17 years old.
 
 [00:36:50] Adam: Yeah,
 

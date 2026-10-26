@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:01:46] Will: Boy, are your arms tired?
 
-[00:01:47] Adam: Yes. So we raised just a shade over 70,000 dollars for our children's trust.
+[00:01:47] Adam: Yes. So we raised just a shade over $70,000 for our children's trust.
 
 [00:01:47] Norm: Wow, that's awesome.
 
@@ -88,9 +88,9 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:01:47] Adam: And it was really gorgeous.
 
-[00:02:15] Will: Because that would have eaten a lot of the seventy grand,
+[00:02:15] Will: Because that would have eaten a lot of the $70,000,
 
-[00:02:17] Adam: probably. And the the the the the the lead plaintiff Kelsey is an incredible speaker. She's twenty two, and like it's almost annoying how brilliant she is at speaking, like public speaking, just super inspirational. So it was a fantastic weekend all around.
+[00:02:17] Adam: probably. And the the the the the the lead plaintiff Kelsey is an incredible speaker. She's 22, and like it's almost annoying how brilliant she is at speaking, like public speaking, just super inspirational. So it was a fantastic weekend all around.
 
 [00:02:33] Will: Are they suing the entirety of the federal government? Are they like targeting specific places?
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:04:17] Adam: remember this.
 
-[00:04:17] Will: He looked at the minutes watched for his YouTube channel and then divided that by the number of minutes in an average seventy-two year life and realized that he'd murdered several dozen people. Nice. Like he’d wasted enough time for several whole human lives.
+[00:04:17] Will: He looked at the minutes watched for his YouTube channel and then divided that by the number of minutes in an average 72 year life and realized that he'd murdered several dozen people. Nice. Like he’d wasted enough time for several whole human lives.
 
 [00:04:32] Adam: That's great
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:11:15] Will: Then you have to trim them yourself with an exacto or something [unclear: before you get a flat ice / before you get them out / before you get it].
 
-[00:11:18] Adam: It's complicated. Like it's it's a multi-step process, but it totally works. We've done it here in the shop. It's easier for me to order it from outside. Like for me in this shop, it's the equivalent of my wife talks about this. Like there are like baking bread is great, but a loaf of bread costs like five bucks.
+[00:11:18] Adam: It's complicated. Like it's it's a multi-step process, but it totally works. We've done it here in the shop. It's easier for me to order it from outside. Like for me in this shop, it's the equivalent of my wife talks about this. Like there are like baking bread is great, but a loaf of bread costs like $5.
 
 [00:11:18] Will: Yeah.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:11:54] Will: You know you just put it in the bag and just stir the bag every once in a while. Custard's a lot easier
 
-[00:11:57] Norm: unless you're making batches of fifty.
+[00:11:57] Norm: unless you're making batches of 50.
 
 [00:11:59] Will: Yeah.
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:12:15] Will: It is very pretty.
 
-[00:12:16] Adam: That's the other part is that, and and what to be clear, because you guys have been really the the the steady line of questions from both tested premium and regular members, and on the YouTube channel, Frank has been doing the lion's share up till now of all of the little bits of problem solving on the multiple pieces of the Martian suit, and he's also got a complete full running shop with like twenty five people going full time. I think
+[00:12:16] Adam: That's the other part is that, and and what to be clear, because you guys have been really the the the steady line of questions from both tested premium and regular members, and on the YouTube channel, Frank has been doing the lion's share up till now of all of the little bits of problem solving on the multiple pieces of the Martian suit, and he's also got a complete full running shop with like 25 people going full time. I think
 
 [00:12:45] Norm: the coolest thing we didn't mention last week is as his shop grows and as he gets new toys, the tools to work with,
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:13:15] Adam: Yeah.
 
-[00:13:15] Will: And then they get that print made over like a twenty four hour. I mean, it's television twenty four hours, so who knows how long it actually takes,
+[00:13:15] Will: And then they get that print made over like a 24 hour. I mean, it's television 24 hours, so who knows how long it actually takes,
 
 [00:13:15] Adam: right?
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:22:47] Adam: This is the
 
-[00:22:47] Adam: thing: is that no one is stocking anything. So if you are looking at this world and thinking that this isn't the right direction to go. Support these small companies because this could be the future where things are bespoke and built by people who really care, and that you could go support them. That and it doesn't take much; it's an extra forty bucks on that garage kit. Go do it.
+[00:22:47] Adam: thing: is that no one is stocking anything. So if you are looking at this world and thinking that this isn't the right direction to go. Support these small companies because this could be the future where things are bespoke and built by people who really care, and that you could go support them. That and it doesn't take much; it's an extra $40 on that garage kit. Go do it.
 
 [00:23:08] Will: Yeah.
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:25:11] Unknown speaker (Adam or Will): nice.
 
-[00:25:11] Will: Yeah, I mean, like it's a fine line between hey, your work inspired me. You know, if you if you look at the people that followed, say Olly Moss, right? Olly started releasing movie posters, but about ten years ago now, almost, and he informed an entire generation of designers with this kind of minimalist, hidden silhouette stuff that that he started out doing. But if you look at what Olly's doing now versus what he was doing eight years ago, he's continued to evolve and continue to grow. So the people who are knocking off the posters that are on Norm's living room wall are are very much like they're eight years behind.
+[00:25:11] Will: Yeah, I mean, like it's a fine line between hey, your work inspired me. You know, if you if you look at the people that followed, say Olly Moss, right? Olly started releasing movie posters, but about 10 years ago now, almost, and he informed an entire generation of designers with this kind of minimalist, hidden silhouette stuff that that he started out doing. But if you look at what Olly's doing now versus what he was doing eight years ago, he's continued to evolve and continue to grow. So the people who are knocking off the posters that are on Norm's living room wall are are very much like they're eight years behind.
 
 [00:25:45] Adam: Yeah,
 
@@ -578,11 +578,11 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:25:57] Will: no there's no hard lines. I
 
-[00:25:58] Adam: also fully recognize that you know we are in this wonderful position where oftentimes small sellers will send us their kits to build, and I really appreciate that. We also abs but sorry, and I fully recognize that the difference between a hundred dollars and 160 dollars is a real difference. Like that, I get that. I exhort you to think of it not as I'm losing another sixty dollars as as much as I am supporting an independent artist executing their work at the level that they see fit. That's what that's what you should be thinking about it as.
+[00:25:58] Adam: also fully recognize that you know we are in this wonderful position where oftentimes small sellers will send us their kits to build, and I really appreciate that. We also abs but sorry, and I fully recognize that the difference between $100 and $160 is a real difference. Like that, I get that. I exhort you to think of it not as I'm losing another $60 as as much as I am supporting an independent artist executing their work at the level that they see fit. That's what that's what you should be thinking about it as.
 
 [00:26:35] Norm: It matters just as much to the person making it in their garage.
 
-[00:26:38] Adam: Exactly, that sixty bucks makes a big difference to that person as well.
+[00:26:38] Adam: Exactly, that $60 makes a big difference to that person as well.
 
 [00:26:41] Norm: That's the ability to make one or two more kits
 
@@ -836,7 +836,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:31:50] Adam: one effectively kickstarted the, not effectively, one kickstarted the MCU
 
-[00:31:56] Will: we wouldn't have twenty one of these movies if the first one wasn't
+[00:31:56] Will: we wouldn't have 21 of these movies if the first one wasn't
 
 [00:31:59] Adam: if the first one wasn't so great.
 
@@ -850,7 +850,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:32:19] Will: Yeah,
 
-[00:32:43] Will: he wasn't the executive producer on twenty one MCU films at that point or whatever it is.
+[00:32:43] Will: he wasn't the executive producer on 21 MCU films at that point or whatever it is.
 
 [00:32:43] Adam: Yeah,
 
@@ -1046,7 +1046,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:39:02] Will: Yeah.
 
-[00:39:02] Adam: So Erik Singer is really worth watching, and he's come out with a new one breaking down twenty-eight accents. And he he talks about he talks about Black Panther.
+[00:39:02] Adam: So Erik Singer is really worth watching, and he's come out with a new one breaking down 28 accents. And he he talks about he talks about Black Panther.
 
 [00:39:02] Will: Oh, cool!
 
@@ -1120,7 +1120,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:40:46] Will: Probably.
 
-[00:40:47] Norm: Maybe here's what we can do: we can each of us independently we'll have a we'll just write our top ten out of twenty. Wait,
+[00:40:47] Norm: Maybe here's what we can do: we can each of us independently we'll have a we'll just write our top 10 out of 20. Wait,
 
 [00:40:47] Adam: all right, yeah.
 
@@ -1132,7 +1132,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:40:58] Adam: Yeah, this is totally yeah the bottom half doesn't. No one cares about the bottom.
 
-[00:41:00] Norm: Yeah, so let's just pick our top ten.
+[00:41:00] Norm: Yeah, so let's just pick our top 10.
 
 [00:41:02] Will: I assure you, someone will care.
 
@@ -1140,7 +1140,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:41:04] Adam: It's the internet.
 
-[00:41:05] Norm: Yeah, and actually, right, and then right, and then next week or in a following week, we will reveal to each other our top ten list.
+[00:41:05] Norm: Yeah, and actually, right, and then right, and then next week or in a following week, we will reveal to each other our top 10 list.
 
 [00:41:13] Will: I just hand you my list. You'll look at and you'll nod or shake your head, and then we'll move on.
 
@@ -1156,7 +1156,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:41:56] Norm: Pitch this to the Academy of Motion Pictures Sciences for their upcoming cultural relevance Oscar.
 
-[00:42:00] Adam: And now the Rule Thirty Four Award for the Academy.
+[00:42:00] Adam: And now the Rule 34 Award for the Academy.
 
 [00:42:03] Norm: But you are right. That we need criteria. Like, what what is our criteria?
 

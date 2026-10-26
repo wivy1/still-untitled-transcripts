@@ -68,7 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:03:54] Tom Spina: Right. Yeah. You know, sometimes it's creature work, doing like Cantina monsters for Star Wars commercials and things like that.
 
-[00:03:59] Adam: It's one-time use. Sometimes it needs to last for fifty years.
+[00:03:59] Adam: It's one-time use. Sometimes it needs to last for 50 years.
 
 [00:04:02] Tom Spina: exactly. Yeah. So, Tom Spina Designs is the Swiss Army Knife shop.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:04:02] Tom Spina: Regal
 
-[00:04:02] Tom Spina: Robot is really focused, and that grew out of we made the Han Solo in Carbonite desk about ten years ago that went crazy viral, and kind of told us like, hey, maybe you're on to something.
+[00:04:02] Tom Spina: Robot is really focused, and that grew out of we made the Han Solo in Carbonite desk about 10 years ago that went crazy viral, and kind of told us like, hey, maybe you're on to something.
 
 [00:04:02] Adam: There's a market.
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:08:56] Adam: Yeah,
 
-[00:08:57] Tom Spina: not so great twenty thirty years later. But we've seen stuff going way back to 2001. We restored one of Stuart's apes head to toe. In fact, it was missing a foot, so head to toe on one side, head to an ankle on the other, and then we made the foot. But yeah, in some cases like that, Stuart's foam on the face for that was 90% of it felt fresh.
+[00:08:57] Tom Spina: not so great 20 30 years later. But we've seen stuff going way back to 2001. We restored one of Stuart's apes head to toe. In fact, it was missing a foot, so head to toe on one side, head to an ankle on the other, and then we made the foot. But yeah, in some cases like that, Stuart's foam on the face for that was 90% of it felt fresh.
 
 [00:08:57] Adam: Wow.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:14:07] Adam: So you're halfway done.
 
-[00:14:08] Tom Spina: I'm halfway ten.
+[00:14:08] Tom Spina: I'm halfway 10.
 
 [00:14:09] Adam: A little over
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:19:37] Tom Spina: mine were in malls,
 
-[00:19:39] Adam: but yeah, no, mine was at the Premier Theater down in Tarrytown, New York, and there was a big arcade. And I think it was like my twelfth birthday. Yeah, only a dick in middle school would have asked for this. It was my twelfth birthday. I was like,
+[00:19:39] Adam: but yeah, no, mine was at the Premier Theater down in Tarrytown, New York, and there was a big arcade. And I think it was like my 12th birthday. Yeah, only a dick in middle school would have asked for this. It was my 12th birthday. I was like,
 
 [00:19:53] Adam: all
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:20:13] Norm: that that was the experience. Yeah,
 
-[00:20:16] Tom Spina: yeah, I remember playing that laser disk so many times. I I don't think I ever played Dragon's Lair for more than about twelve seconds.
+[00:20:16] Tom Spina: yeah, I remember playing that laser disk so many times. I I don't think I ever played Dragon's Lair for more than about 12 seconds.
 
 [00:20:16] Unknown speaker: Right,
 
@@ -606,7 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:25:22] Tom Spina: Oh, yes. So I do. I do a lot of like I'll do ginger ale with pineapple juice. Don't know, a similar kind of vibe.
 
-[00:25:30] Adam: yeah. So at my birthday party, I turned fifty this year. I had a little party, and the bartender, bartender we regularly use, he's amazing, and he came up with this whole non alcoholic drink menu for me. So the punches were only alcoholic if you asked for it. So a lot of people who like would normally have like enjoyed the hell out of the punch enjoyed the hell out of a non alcoholic punch and were like, " This party was great." Yeah. But one of the drinks that he made, and they just started. I love these kind of bartenders. They just started raiding our fridge and spice drawer, so they made me this drink. He used to work at a Chinese fusion place here in the marina called Betelnut.
+[00:25:30] Adam: yeah. So at my birthday party, I turned 50 this year. I had a little party, and the bartender, bartender we regularly use, he's amazing, and he came up with this whole non alcoholic drink menu for me. So the punches were only alcoholic if you asked for it. So a lot of people who like would normally have like enjoyed the hell out of the punch enjoyed the hell out of a non alcoholic punch and were like, " This party was great." Yeah. But one of the drinks that he made, and they just started. I love these kind of bartenders. They just started raiding our fridge and spice drawer, so they made me this drink. He used to work at a Chinese fusion place here in the marina called Betelnut.
 
 [00:26:10] Tom Spina: Okay.
 
@@ -732,7 +732,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:28:38] Tom Spina: Okay. good.
 
-[00:28:39] Adam: And Millie Bobby Brown, again, I can't believe the Duffer Brothers would write something that so hinges on the acting ability of a twelve and now fourteen-year-old who turns out to be a genius.
+[00:28:39] Adam: And Millie Bobby Brown, again, I can't believe the Duffer Brothers would write something that so hinges on the acting ability of a 12 and now 14-year-old who turns out to be a genius.
 
 [00:28:39] Tom Spina: Right.
 
@@ -890,7 +890,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:32:55] Norm: Yeah. So,
 
-[00:32:56] Adam: Brain Candy Live starts a week from Wednesday, uh, in Rhode Island, uh, and then we do twenty-four cities around the country between next Wednesday and December 10, I believe, finishing up in Charlotte, North Carolina.
+[00:32:56] Adam: Brain Candy Live starts a week from Wednesday, uh, in Rhode Island, uh, and then we do 24 cities around the country between next Wednesday and December 10, I believe, finishing up in Charlotte, North Carolina.
 
 [00:33:10] Tom Spina: When you'll be very tired.
 

@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:03:13] Will: You were probably in the front of the plane too.
 
-[00:03:16] Will: They're okay with those. They have to get through another hundred people before they get to you.
+[00:03:16] Will: They're okay with those. They have to get through another 100 people before they get to you.
 
 [00:03:21] Adam: Exactly. Anyway, I arrived at 7:30 in the morning and immediately crawled into bed and slept until noon with the dogs. With the dogs,
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:09:53] Will: Do you do you still like when when you first did this and you first went out on the tour and you were in the bus and you were driving around the country? We talked about almost famous a lot, as I recall. And do you still feel kind of like a rock star when you are tooling around the country and like you get places and there is a big crowd and they're all excited to see you?
 
-[00:10:08] Adam: No, it's yeah, it's awesome. And I will also say, Michael Stevens and I have a very similar. We're quite similar in how we enjoy dealing with people, and so we used to do meet and greets for fifty people every night. But Michael Stevens and I on this tour did a hundred people every night, and it honestly felt almost shorter.
+[00:10:08] Adam: No, it's yeah, it's awesome. And I will also say, Michael Stevens and I have a very similar. We're quite similar in how we enjoy dealing with people, and so we used to do meet and greets for 50 people every night. But Michael Stevens and I on this tour did 100 people every night, and it honestly felt almost shorter.
 
 [00:10:32] Will: Well, I love I love those. Like when we do the when we did the live show, I love the getting to sit around talk to people and have people tell us what they were building and what they were excited,
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:16:13] Adam: Huh.
 
-[00:16:13] Norm: So it's it's really a mix. It's hard. It's when you walk through. I think a lot of people scoff, like, " Wow, why would you pay forty dollars for something unpainted?" One, there is a lot. It's like it's this is not something that's mass produced.
+[00:16:13] Norm: So it's it's really a mix. It's hard. It's when you walk through. I think a lot of people scoff, like, " Wow, why would you pay $40 for something unpainted?" One, there is a lot. It's like it's this is not something that's mass produced.
 
 [00:16:13] Adam: No,
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:20:23] Adam: he hadn't he hadn't read it, and he just rejected it out of hand as any kind of document of utility to his worldview.
 
-[00:20:30] Norm: Well, one of the things I found really interesting, like the book is deep, and the format of the book is it's a letter to his fifteen-year-old son. Because it was that format, listening to it, I felt I felt invasive.
+[00:20:30] Norm: Well, one of the things I found really interesting, like the book is deep, and the format of the book is it's a letter to his 15-year-old son. Because it was that format, listening to it, I felt I felt invasive.
 
 [00:20:30] Adam: Yeah.
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:21:30] Norm: yeah.
 
-[00:21:30] Will: When I was in Chicago a few months ago, I saw a standup who did a really extended bit about, um, kind of the soccer mom, the suddenly woke soccer soccer mom, that was just, it was just absolutely just devastating and brutal. It's like she's talking about me. I'm pretty sure she's talking about me. I'm not a soccer mom, but yeah, okay, and and like. But all of that stuff helps because if you if you if it makes you understand when when one of my friends says hey every time I pull get pulled over by a police officer I was thinking man how often do you get pulled I haven't been pulled over by a cop in ten years twenty years and he's like every time I do that I take my wallet out and I put on the dashboard I put my hands out the window and I was like well that's fucking crazy why would you do that and then I realized that this is just this is just I I learned about that I learned about things like the little green book there was a great episode of ninety nine pi about that and like all of these cultural institutions that have come up in in minority and especially black communities to deal with institutional racism and and yeah as survival mechanisms really
+[00:21:30] Will: When I was in Chicago a few months ago, I saw a standup who did a really extended bit about, um, kind of the soccer mom, the suddenly woke soccer soccer mom, that was just, it was just absolutely just devastating and brutal. It's like she's talking about me. I'm pretty sure she's talking about me. I'm not a soccer mom, but yeah, okay, and and like. But all of that stuff helps because if you if you if it makes you understand when when one of my friends says hey every time I pull get pulled over by a police officer I was thinking man how often do you get pulled I haven't been pulled over by a cop in 10 years 20 years and he's like every time I do that I take my wallet out and I put on the dashboard I put my hands out the window and I was like well that's fucking crazy why would you do that and then I realized that this is just this is just I I learned about that I learned about things like the little green book there was a great episode of 99 pi about that and like all of these cultural institutions that have come up in in minority and especially black communities to deal with institutional racism and and yeah as survival mechanisms really
 
 [00:22:38] Adam: right well you realize that the great migration from the south to Chicago and New York and other midwestern and northern cities in the in the earlier part of the century was also a dangerous journey to take because you might run out of gas because you couldn't find a gas station to fill up your car anyway. That's I. I didn't know there was an audio book of Coates reading it. I'm dying to listen to that now.
 
@@ -576,7 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:24:10] Adam: you know what? Yeah, there's a lot of people complaining about theaters like SHN requiring you to buy season tickets in order to get access to the Hamilton tickets. But as a friend of mine pointed out, who works in musical theater, this sort of thing lifts the boats of a generation of performers. Yeah. That we because I bought four season tickets, and we will use the crap out of them. And that's that's nothing but a positive net good for culture and for those people traveling around the country with these shows.
 
-[00:24:38] Norm: It is. It's a luxury thing. I completely understand that you can spend your hundred dollars here or there, a lot of different places. It's not cheap, but I think it's well worth it.
+[00:24:38] Norm: It is. It's a luxury thing. I completely understand that you can spend your $100 here or there, a lot of different places. It's not cheap, but I think it's well worth it.
 
 [00:24:38] Adam: Yeah.
 
@@ -694,17 +694,17 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:27:54] Norm: and.
 
-[00:27:55] Adam: Took away any look. Scarlett Johansson is different. She's not the one writing the movie, and I think she's a wonderful actress. And I, I, I think the world of her. So I'm, I'm not blaming her for taking this role. Like, how can you blame someone for taking 10,000,000 dollars and I'm not blaming— to go do something? That's, that's not the problem.
+[00:27:55] Adam: Took away any look. Scarlett Johansson is different. She's not the one writing the movie, and I think she's a wonderful actress. And I, I, I think the world of her. So I'm, I'm not blaming her for taking this role. Like, how can you blame someone for taking $10 million and I'm not blaming— to go do something? That's, that's not the problem.
 
-[00:28:12] Will: You're welcome to give me 10,000,000 dollars. You're welcome to blame me.
+[00:28:12] Will: You're welcome to give me $10 million. You're welcome to blame me.
 
 [00:28:15] Norm: You could put on the suit also.
 
 [00:28:17] Will: I, I'll wear the suit.
 
-[00:28:17] Adam: Will is willing to whitewash any cultural heritage you've got for ten million,
+[00:28:17] Adam: Will is willing to whitewash any cultural heritage you've got for 10 million,
 
-[00:28:21] Will: 10,000,000 dollars. It's all out the window.
+[00:28:21] Will: $10 million. It's all out the window.
 
 [00:28:23] Adam: But, but for all of their complaints about we really wanted to treat this right, there, the degree of which the story manhandled the whitewashing of the, of the casting was appalling.
 
@@ -916,7 +916,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:37:53] Adam: It's tanking. It's tanking.
 
-[00:37:55] Norm: But What is the studio head, or what is the person who signs the green lights the next film, going to take away? They're going to take away. Well, Scarlett Johansson, no Black Widow movie. They're going to take away. Well, no more sci-fi for next ten years. Let's not adapt these classics. Like,
+[00:37:55] Norm: But What is the studio head, or what is the person who signs the green lights the next film, going to take away? They're going to take away. Well, Scarlett Johansson, no Black Widow movie. They're going to take away. Well, no more sci-fi for next 10 years. Let's not adapt these classics. Like,
 
 [00:38:13] Adam: hey, I'm happy if they stop adapting classics and start coming up with their own stuff. I'm, you know, that's
 
@@ -978,7 +978,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:39:09] Norm: —that's all you. Those shots do.
 
-[00:39:12] Adam: And Villeneuve is maybe like the greatest master shot maker now. Oh, yeah. Filming films, and I hope that people will watch that and take that as like, oh, if I—I don't need to spend 20,000,000 dollars on my master shots. I can actually spend four million and get a lot more out of them just by making sure someone's asking at the top of this pyramid. How does this push our plot forward?
+[00:39:12] Adam: And Villeneuve is maybe like the greatest master shot maker now. Oh, yeah. Filming films, and I hope that people will watch that and take that as like, oh, if I—I don't need to spend $20 million on my master shots. I can actually spend 4 million and get a lot more out of them just by making sure someone's asking at the top of this pyramid. How does this push our plot forward?
 
 [00:39:34] Will: Like the the moment, the first moment when Amy Adams and and and what's his name
 
@@ -1036,7 +1036,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:42:11] Adam: I think pretty much this audience could tell exactly what my science fiction movie is going to look like.
 
-[00:42:16] Will: I, I, I just, I look at, I look at this stuff, and you think about the unbelievable amount of money that's spent making this film, and then you hear stories about people who can't make, you successful directors who can't get an eight or ten or twelve million dollar film made because there's literally no angle in that right now. Right, there's no way to make money on that.
+[00:42:16] Will: I, I, I just, I look at, I look at this stuff, and you think about the unbelievable amount of money that's spent making this film, and then you hear stories about people who can't make, you successful directors who can't get an $8 million or $10 million or $12 million film made because there's literally no angle in that right now. Right, there's no way to make money on that.
 
 [00:42:34] Norm: Well, also when we talk about adaptations,
 
@@ -1064,7 +1064,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:43:18] Adam: movie is so much importantly better because of that. Because of that scene, and you know, it's. I know he's talking about having to had to fight against the machine to get that in, but it's to Marvel's credit that he won, and it's to Whedon's credit, of course. But Marvel has has earned our trust for for that.
 
-[00:43:39] Will: They made like twenty movies, and of them, all of them are great, except for maybe three, and they're still okay.
+[00:43:39] Will: They made like 20 movies, and of them, all of them are great, except for maybe three, and they're still okay.
 
 [00:43:45] Adam: I don't think I can watch the original Thor though.
 

@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:01:09] Will: So, what's the haps?
 
-[00:01:10] Adam: Gosh, there's so much. I I spent ten days in beautiful Aspen, Colorado, at the incredible Anderson Ranch, which is over fifty years old. It's an incredible artists' colony school. It was really inspiring. Tom Sachs brought me there.
+[00:01:10] Adam: Gosh, there's so much. I I spent 10 days in beautiful Aspen, Colorado, at the incredible Anderson Ranch, which is over 50 years old. It's an incredible artists' colony school. It was really inspiring. Tom Sachs brought me there.
 
 [00:01:30] Will: Oh, cool!
 
@@ -36,11 +36,11 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:01:42] Will: Wow!
 
-[00:01:42] Adam: At the end of the my time there, we poured five forty plus pound bronzes.
+[00:01:42] Adam: At the end of the my time there, we poured five 40 plus pound bronzes.
 
 [00:01:48] Will: What what's so? I I know a little bit about like aluminum casting and stuff like that. What's different when you get into something like bronze? Is it just temperatures and stuff?
 
-[00:01:54] Adam: So, when you are asking what's different, the answer is I have no idea because this is my first time. This is my first rodeo for doing this. But I took the microcrystalline wax master that I'd spent about fifty hours sculpting here before I left. I added sprue to it, which is I added wax pathways for the metal to move. And it's a—I tweeted some pictures of it.
+[00:01:54] Adam: So, when you are asking what's different, the answer is I have no idea because this is my first time. This is my first rodeo for doing this. But I took the microcrystalline wax master that I'd spent about 50 hours sculpting here before I left. I added sprue to it, which is I added wax pathways for the metal to move. And it's a—I tweeted some pictures of it.
 
 [00:02:18] Norm: It looked elaborate. It looked like Barb had gone through the entire sculpture.
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:02:51] Adam: Yeah, they were they were near Basalt, which is in the Aspen Valley and my my friend Eric Mead lives there. I went to dinner at his house. I was like Eric, you know, the hill next to your house is on fire, and they were like, no. And within the next day, Eric and his family had like put all of their most important belongings in the car to ready to. They didn't have to evacuate. There were very few properties destroyed, but it shut down the Aspen airport for a long time. Yeah, it was a whole thing.
 
-[00:03:17] Will: That that part, I, I've only been to that part of Colorado once, and it was when I was probably ten or twelve years old, a family family trip. But I just remember everything being so sparse and gorgeous, and but green, unlike here.
+[00:03:17] Will: That that part, I, I've only been to that part of Colorado once, and it was when I was probably 10 or 12 years old, a family family trip. But I just remember everything being so sparse and gorgeous, and but green, unlike here.
 
 [00:03:29] Adam: So amazing, and the the the revelation of the trip was pointed out by my wife, who came out for a couple of days. She actually took the time I was up there to take the train to meet me in Aspen, and then on to Chicago to stay with some friends of ours for a few days.
 
@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:05:22] Unknown speaker, Will or Norm: Oh wow!
 
-[00:05:22] Adam: [unclear: So, uh / So drive / I love that drive.] Oh, the other part of this was that, uh, Tom Sachs and I shared a studio for the ten days that I was there.
+[00:05:22] Adam: [unclear: So, uh / So drive / I love that drive.] Oh, the other part of this was that, uh, Tom Sachs and I shared a studio for the 10 days that I was there.
 
 [00:05:29] Unknown speaker (Adam, Will or Norm): Oh, awesome!
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:12:04] Will: rather than rather than that.
 
-[00:12:06] Adam: But that's and that's actually the thing. It's actually kind of something she says within the first ten minutes of the show.
+[00:12:06] Adam: But that's and that's actually the thing. It's actually kind of something she says within the first 10 minutes of the show.
 
 [00:12:11] Norm: Well, it sounds like you know when we talk about a thing like in and of itself, it's a not a magic show. It's a one man show.
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:13:56] Adam: Well, and this is the thing: It's like, even if you don't like, but like, even Spielberg's, even the movies of Spielberg's that I don't like are masterpiece, are masterfully put together, like Soderbergh, like Michael Mann.
 
-[00:14:07] Will: Yeah. Well, and and so in this, like, they got through the first ten or fifteen minutes were the nostalgia part that was interesting on the first read of the book and insufferable on every subsequent visit through. And and I thought it was really like he got that out of the way up front, and then it was just kind of like it was there in the background if you wanted to go in and frame by frame see what all the characters were, but it wasn't. It wasn't a hey, look at my Delorean with the Knight Rider flashy lights and the R2-D2 on the back,
+[00:14:07] Will: Yeah. Well, and and so in this, like, they got through the first 10 or 15 minutes were the nostalgia part that was interesting on the first read of the book and insufferable on every subsequent visit through. And and I thought it was really like he got that out of the way up front, and then it was just kind of like it was there in the background if you wanted to go in and frame by frame see what all the characters were, but it wasn't. It wasn't a hey, look at my Delorean with the Knight Rider flashy lights and the R2-D2 on the back,
 
 [00:14:35] Norm: Right, right. It showed.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:14:51] Will: that the other day.
 
-[00:14:51] Adam: Nicholas de Monchaux is a professor at Cal. Uh, he's. I was introduced to him by Tom Sachs. He's become a friend. He's. It's an amazingly wonderful book. Um, it's written non-linearly because, as he points out in the beginning, the story of the spacesuit that NASA took to the moon is so weird you can't tell it linearly. So he decided to break the book into the twenty-one chapters, each signifying one of the twenty-one layers of the Apollo A seven suit.
+[00:14:51] Adam: Nicholas de Monchaux is a professor at Cal. Uh, he's. I was introduced to him by Tom Sachs. He's become a friend. He's. It's an amazingly wonderful book. Um, it's written non-linearly because, as he points out in the beginning, the story of the spacesuit that NASA took to the moon is so weird you can't tell it linearly. So he decided to break the book into the 21 chapters, each signifying one of the 21 layers of the Apollo A seven suit.
 
 [00:15:18] Norm: Oh, wow!
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:17:28] Adam: wow, which is just you know the nearly pornographic Muppet movie that got Peter Jackson to Cannes Film Festival. Um, and I saw, uh, and I saw Akira. We had a screening of Akira, and that was the first time I saw it. And holy hell!
 
-[00:17:43] Norm: So how was it sold to you or both of you back then? Thirty years ago, as like go watch this.
+[00:17:43] Norm: So how was it sold to you or both of you back then? 30 years ago, as like go watch this.
 
 [00:17:47] Will: Well, so one of my friends was into what at the time I think people called we didn't call it anime yet. Really, it was like just animation from Japan, or occasionally in an offensive way. Yeah, no, which is
 
@@ -530,7 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:22:39] Adam: It has. It has. And I don't want to know anymore.
 
-[00:22:42] Norm: I don't mean the the. From the movie poster or even the first ten seconds of the trailer, it is a guy who gets a telemarketing job.
+[00:22:42] Norm: I don't mean the the. From the movie poster or even the first 10 seconds of the trailer, it is a guy who gets a telemarketing job.
 
 [00:22:49] Adam: Okay.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:25:09] Adam: That's awesome.
 
-[00:25:09] Adam: This was informed by a request. Number one, when we released the EDC one, we made it as cheap as we could and still be able to manufacture it in the United States. And people said that was, you know, some people complained that it was too expensive, and I appreciate that. So we were able to make the EDC two, uh, much more efficiently. Marcos did some amazing designing to make it out of two pieces of fabric, where the original is like seven or eight. And still, someone said that back at that time, you could also release the plans so people could make their own. And I thought about it, and I really liked that idea. So I'm releasing the plans, uh, for 15 bucks. You can buy the plans for one or the other bag,
+[00:25:09] Adam: This was informed by a request. Number one, when we released the EDC one, we made it as cheap as we could and still be able to manufacture it in the United States. And people said that was, you know, some people complained that it was too expensive, and I appreciate that. So we were able to make the EDC two, uh, much more efficiently. Marcos did some amazing designing to make it out of two pieces of fabric, where the original is like seven or eight. And still, someone said that back at that time, you could also release the plans so people could make their own. And I thought about it, and I really liked that idea. So I'm releasing the plans, uh, for $15. You can buy the plans for one or the other bag,
 
 [00:25:47] Norm: and these are these are large, full size,
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:28:15] Will: totally.
 
-[00:28:15] Adam: I mean, there were cases in which people were being charged like fifty bucks to get a fifteen dollars set of plans.
+[00:28:15] Adam: I mean, there were cases in which people were being charged like $50 to get a $15 set of plans.
 
 [00:28:20] Will: Of course, you are right. Yeah,
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:29:49] Will: At least now I have a relationship with these people, and they sign up for my mailing list or whatever.
 
-[00:29:52] Adam: Right, right. Uh, okay. Second question: If I charge, I charge fifteen dollars for the plans
+[00:29:52] Adam: Right, right. Uh, okay. Second question: If I charge, I charge $15 for the plans
 
 [00:29:58] Will: Yeah.
 
@@ -684,15 +684,15 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:30:13] Adam: It's it it basically is the profit that both Marcos Mafia and I make on on those plans.
 
-[00:30:18] Will: Okay, so that means it's supporting the people that are yeah. Okay, I I mean I feel like that's that's a fair price. A fifteen bucks for plans. I I bought, well, like I just I'm about to spend way more money than that on plans for a playhouse for my kid.
+[00:30:18] Will: Okay, so that means it's supporting the people that are yeah. Okay, I I mean I feel like that's that's a fair price. A $15 for plans. I I bought, well, like I just I'm about to spend way more money than that on plans for a playhouse for my kid.
 
-[00:30:31] Adam: Less than a standard retail split for that in order because fifteen was the number I wanted to hit. I didn't want to go to I didn't want to go higher.
+[00:30:31] Adam: Less than a standard retail split for that in order because 15 was the number I wanted to hit. I didn't want to go to I didn't want to go higher.
 
-[00:30:37] Will: Yeah. Okay. So so then in that case, like that seems like a fair price. I would say. I mean, there's a bunch of ways you could do the plans. You could put the plans up and just say, " Hey, you know, we're going to charge you five, ten, whatever,
+[00:30:37] Will: Yeah. Okay. So so then in that case, like that seems like a fair price. I would say. I mean, there's a bunch of ways you could do the plans. You could put the plans up and just say, " Hey, you know, we're going to charge you five, 10, whatever,
 
 [00:30:48] Adam: right?
 
-[00:30:48] Will: Or, or, or hell, charge fifteen bucks and you don't have to pay shipping if you're someplace far away. Maybe that's the solution.
+[00:30:48] Will: Or, or, or hell, charge $15 and you don't have to pay shipping if you're someplace far away. Maybe that's the solution.
 
 [00:30:54] Norm: That's totally fair. They don't print it themselves.
 
@@ -700,7 +700,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:31:19] Adam: Right.
 
-[00:31:19] Will: But if I can see the plan in advance, then I would know if this is if I think this is something I can accomplish. Um. So I mean, maybe you put a donation link up and make people click through it to get there, or maybe you charge five bucks or ten bucks or whatever. I mean, you got to figure out what's right for your business.
+[00:31:19] Will: But if I can see the plan in advance, then I would know if this is if I think this is something I can accomplish. Um. So I mean, maybe you put a donation link up and make people click through it to get there, or maybe you charge $5 or $10 or whatever. I mean, you got to figure out what's right for your business.
 
 [00:31:33] Adam: Yeah.
 
@@ -730,9 +730,9 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:33:04] Adam: That's amazing.
 
-[00:33:05] Norm: Twenty dollars,  a person.
+[00:33:05] Norm: $20,  a person.
 
-[00:33:05] Adam: twenty bucks.
+[00:33:05] Adam: $20.
 
 [00:33:06] Adam: I need a picture of an eye.
 
@@ -784,7 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:35:35] Will: What a perfect segue.
 
-[00:35:36] Norm: I gave you the. Flickr Creative Commons segue, like twenty minutes ago.
+[00:35:36] Norm: I gave you the. Flickr Creative Commons segue, like 20 minutes ago.
 
 [00:35:40] Will: I looked, I saw that one hanging there.
 

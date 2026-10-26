@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:00:37] Norm: And actually, wonderful weather. I know.
 
-[00:00:40] Adam: Yeah. No, I was in DC on Tuesday. It was sixty degrees.
+[00:00:40] Adam: Yeah. No, I was in DC on Tuesday. It was 60 degrees.
 
 [00:00:43] Norm: Yeah. East Coast is doing [unclear]. very windy in San Francisco. Coming in though.
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:10:09] Adam: For Joker, um, I, uh, again still haven't seen that movie. I know I need to see it, but I thought her speech was adorable, and the degree to which she was surprised and delighted was infectious.
 
-[00:10:21] Will: I was making dinner during that one, unfortunately. Uh, the thing I loved was that when every time Bong Joon Ho came up to accept an award, he clearly was thinking, " Oh, this is the last time I am going to be up here tonight," and and like each time was surprised, and it was it was so it was so nice because he's been making movies for what fifteen years now,
+[00:10:21] Will: I was making dinner during that one, unfortunately. Uh, the thing I loved was that when every time Bong Joon Ho came up to accept an award, he clearly was thinking, " Oh, this is the last time I am going to be up here tonight," and and like each time was surprised, and it was it was so it was so nice because he's been making movies for what 15 years now,
 
 [00:10:39] Norm: yeah,
 
@@ -654,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:24:43] Adam: Your power went out.
 
-[00:24:43] Will: It was just to be clear, Northern California. The power has gone out at my house maybe three times in ten years, and two of them were when PG&E turned off the power because they were afraid they were going to burn down the state.
+[00:24:43] Will: It was just to be clear, Northern California. The power has gone out at my house maybe three times in 10 years, and two of them were when PG&E turned off the power because they were afraid they were going to burn down the state.
 
 [00:24:54] Adam: Yeah, and still didn't help them not burn down the state.
 
@@ -868,7 +868,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:32:33] Adam: Wow!
 
-[00:32:33] Norm: You could wait in a long line and pay a hundred twenty-five, hundred forty dollars for like a Kylo Ren lightsaber. That's really not nearly as good as what you would get on the RPF or Etsy.
+[00:32:33] Norm: You could wait in a long line and pay $125, $140 for like a Kylo Ren lightsaber. That's really not nearly as good as what you would get on the RPF or Etsy.
 
 [00:32:42] Adam: Really?
 

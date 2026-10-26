@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:00:58] Will: Okay.
 
-[00:01:00] Adam: Which I picked up a few years ago on Craigslist for like a hundred bucks. Because the PIXMA 9000i or whatever the next one had just come out, and of course a full suite of ink for it is like 160.
+[00:01:00] Adam: Which I picked up a few years ago on Craigslist for like $100. Because the PIXMA 9000i or whatever the next one had just come out, and of course a full suite of ink for it is like 160.
 
 [00:01:12] Will: Oh yeah, and it expires after X number of years, so you have to really burn through it.
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:15:45] Adam: Very slowly.
 
-[00:15:45] Will: One twenty-fourth of the speed.
+[00:15:45] Will: 1/24 of the speed.
 
 [00:15:47] Adam: Actually, even probably slower to expose for the low light situation that you are in. It's nighttime. You probably could do longer exposures. It's a luxury you can have with a motion control rig that you don't have with a normal film camera. You can open up that frame as long as you want.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=w0KEG9JYCYc
 
 [00:17:21] Adam: And I submit, if you look at—Cinefex did a contest, a questionnaire years ago, and I think that the shot of the police spinner turning clockwise as the camera is turning counterclockwise as the spinner is landing on the roof of the Los Angeles Police Department is considered one of the like two or three most beautiful effects sequences in all of film. I mean, it. And I totally agree.
 
-[00:17:45] Will: It's so—I watched after, after we started working with you last year, and we started talking about Blade Runner again. I hadn't watched the movie since it probably came out on DVD ten years ago, and I went back and I got the Blu-ray and I sat down and I—and I, I guess I got the Blu-ray. Maybe I just watched the DVD. I get—it doesn't matter. The upshot is, I sat down and watched the movie again for the first time since, since I was probably 25 or 26, and the effects in that movie hold up in a level at which nothing other than maybe Aliens and Alien and, and Star Wars from that era—
+[00:17:45] Will: It's so—I watched after, after we started working with you last year, and we started talking about Blade Runner again. I hadn't watched the movie since it probably came out on DVD 10 years ago, and I went back and I got the Blu-ray and I sat down and I—and I, I guess I got the Blu-ray. Maybe I just watched the DVD. I get—it doesn't matter. The upshot is, I sat down and watched the movie again for the first time since, since I was probably 25 or 26, and the effects in that movie hold up in a level at which nothing other than maybe Aliens and Alien and, and Star Wars from that era—
 
 [00:18:16] Adam: Yeah.
 

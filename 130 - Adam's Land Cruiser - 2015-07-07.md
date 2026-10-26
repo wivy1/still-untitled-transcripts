@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:01:52] Will: That's not not good.
 
-[00:01:53] Adam: I had an infection. I had an infected wisdom tooth. I had my wisdom tooth removed. Wisdom two of my wisdom teeth removed, one in thirty-two, and then I also had implants put in. Look, all of this is my fault. Because I didn't brush my teeth enough. Back when I was a kid
+[00:01:53] Adam: I had an infection. I had an infected wisdom tooth. I had my wisdom tooth removed. Wisdom two of my wisdom teeth removed, 1 in 32, and then I also had implants put in. Look, all of this is my fault. Because I didn't brush my teeth enough. Back when I was a kid
 
 [00:01:53] Unknown speaker: Oh.
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:17:17] Will: at my grandmother's house there was a a creek, and it was all clay banks because North Virginia. Right. And the the Ford for the creek, they eventually built a bridge, but we would whenever we had the Land Cruiser, I was always use the Ford because it was the only the the only they had tractors because it's a farm. Everybody had to be pulled out of that thing. All the jeeps, all the other cars had to be pulled out. They had to be pulled out by a tractor at some point, except for the Land Cruiser, because you always just chunk it down. You know, you pull out of anything.
 
-[00:17:44] Adam: It is one of the most beautiful designs of a all wheel drive vehicle that I can think of. I love the Land Cruiser, specifically the short wheelbase with the curved back windows. This is the FJ design, I believe. Bj of Bj forty two stands for British Jeep, actually.
+[00:17:44] Adam: It is one of the most beautiful designs of a all wheel drive vehicle that I can think of. I love the Land Cruiser, specifically the short wheelbase with the curved back windows. This is the FJ design, I believe. Bj of Bj42 stands for British Jeep, actually.
 
 [00:17:44] Will: Okay.
 
@@ -592,4 +592,4 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:21:42] Norm: Yeah.
 
-[00:21:42] Will: Right now, we have a survey that I'd love for you to take to help us learn more about you guys, our audience. You can go to podsurvey.com/untitled. The survey will take about five minutes. We're going to ask you some questions about yourself, things you like to buy, things you like, things you're interested in. It's completely anonymous, unless you choose to give us your email address at the end, which we will only use to notify you if you win a hundred dollar Amazon gift card that is drawn monthly. That's it. That's all there is. If you've taken the survey before, we'd love for you to take it again for us. It helps us support the show, and you get the chance to win the hundred dollar gift card. That's podsurvey.com/untitled. P O D S U R V E Y. dot com slash u n t i t l e d. Thanks for helping us find the best advertisers for the show, so we can keep it free.
+[00:21:42] Will: Right now, we have a survey that I'd love for you to take to help us learn more about you guys, our audience. You can go to podsurvey.com/untitled. The survey will take about five minutes. We're going to ask you some questions about yourself, things you like to buy, things you like, things you're interested in. It's completely anonymous, unless you choose to give us your email address at the end, which we will only use to notify you if you win a $100 Amazon gift card that is drawn monthly. That's it. That's all there is. If you've taken the survey before, we'd love for you to take it again for us. It helps us support the show, and you get the chance to win the $100 gift card. That's podsurvey.com/untitled. P O D S U R V E Y. dot com slash u n t i t l e d. Thanks for helping us find the best advertisers for the show, so we can keep it free.

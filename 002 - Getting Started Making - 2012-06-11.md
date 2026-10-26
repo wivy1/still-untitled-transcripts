@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=rt76k1awa6I
 
 [00:00:43] Will: I know you talked about building stuff out of cardboard when you were a youth.
 
-[00:00:46] Adam: So yeah, this - I have to break down the question into a couple of pieces in order to answer it because this year at Maker Faire, during my Q and A phase of my talk, I think two different kids, both under the age of twelve, asked me, "What can I do to get materials to build with -"
+[00:00:46] Adam: So yeah, this - I have to break down the question into a couple of pieces in order to answer it because this year at Maker Faire, during my Q and A phase of my talk, I think two different kids, both under the age of 12, asked me, "What can I do to get materials to build with -"
 
 [00:01:01] Will: Yeah.
 
@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=rt76k1awa6I
 
 [00:01:46] Will: Yeah, or - and you can use tape too. I mean, masking tape, duct tape, whatever.
 
-[00:01:50] Adam: Contact cement. You can use any kind of household silicone and whatever you've got. I prefer Elmer's glue because it is a, it is a paper product, and Elmer's just grabs that like nobody's business. And cardboard was my - corrugated cardboard was my first building material. I found refrigerator boxes in my hometown, and I turned them into spaceships. I turned them into men that sat on my front porch. But to me, so I think corrugated cardboard is a, is a fantastic - oh, this is the other reason corrugated cardboard is important, because I learned to build things. I started with corrugated cardboard, but very quickly graduated to - and I think I have some of the books here. I'll pull one. No, maybe I don't. There was a series done in the '80s by an architect named Alan Rose. And the series of books was called The World at Your Feet, and each one was a magazine-format book of about thirty pages, heavy paper, where you could cut things out of the paper. It wasn't pre-scored or anything, and you could build your own Taj Mahal, Capitol Building -
+[00:01:50] Adam: Contact cement. You can use any kind of household silicone and whatever you've got. I prefer Elmer's glue because it is a, it is a paper product, and Elmer's just grabs that like nobody's business. And cardboard was my - corrugated cardboard was my first building material. I found refrigerator boxes in my hometown, and I turned them into spaceships. I turned them into men that sat on my front porch. But to me, so I think corrugated cardboard is a, is a fantastic - oh, this is the other reason corrugated cardboard is important, because I learned to build things. I started with corrugated cardboard, but very quickly graduated to - and I think I have some of the books here. I'll pull one. No, maybe I don't. There was a series done in the '80s by an architect named Alan Rose. And the series of books was called The World at Your Feet, and each one was a magazine-format book of about 30 pages, heavy paper, where you could cut things out of the paper. It wasn't pre-scored or anything, and you could build your own Taj Mahal, Capitol Building -
 
 [00:02:48] Will: Wow.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=rt76k1awa6I
 
 [00:07:51] Adam: They're a couple thousand bucks, but that price point will probably go down. People will be just printing out cutout pieces of paper.
 
-[00:07:57] Will: Or a laser. I mean, a laser cutter is seven grand.
+[00:07:57] Will: Or a laser. I mean, a laser cutter is $7,000.
 
 [00:07:59] Adam: The same thing. Yeah. Yeah. And even that is going to get simpler and simpler and simpler. I know that Autodesk is working on software that helps convert things from 3D to 2D so that you can build it yourself in lots of different ways.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=rt76k1awa6I
 
 [00:11:10] Adam: Yeah.
 
-[00:11:10] Will: And it's, it's going to be more expensive than papier-mâché, but it's not - for under 800 dollars, you can build an amazing robot now.
+[00:11:10] Will: And it's, it's going to be more expensive than papier-mâché, but it's not - for under $800, you can build an amazing robot now.
 
 [00:11:17] Adam: All right. So now I'm going to circle back to the other way I want to break apart the problem of how you get started making, and it is, to me, you have to come up with something you want.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=rt76k1awa6I
 
 [00:16:40] Adam: Yeah. Not many people know they sell nichrome wire in all the boutiques in San Francisco.
 
-[00:16:43] Will: Yeah, it's amazing. I never - we - Norm and I went on a hunt for nichrome wire one time, one day, that ended spectacularly badly. So, so yeah, the, the - I mean, the internet is a good resource for this. Wired had a good story a few weeks ago. I think we linked to it. We should, we should go through and dig a little deeper because I think there were some places on there where they listed ten stores that sell everything from like supplies for molecular gastronomy at home all the way up to crazy machine screws and -
+[00:16:43] Will: Yeah, it's amazing. I never - we - Norm and I went on a hunt for nichrome wire one time, one day, that ended spectacularly badly. So, so yeah, the, the - I mean, the internet is a good resource for this. Wired had a good story a few weeks ago. I think we linked to it. We should, we should go through and dig a little deeper because I think there were some places on there where they listed 10 stores that sell everything from like supplies for molecular gastronomy at home all the way up to crazy machine screws and -
 
 [00:17:11] Adam: Yeah, yeah.
 
@@ -284,11 +284,11 @@ Episode URL: https://www.youtube.com/watch?v=rt76k1awa6I
 
 [00:20:26] Will: Awesome.
 
-[00:20:26] Adam: I mean, I bought him a nice one, but that's just because I wanted - I want him to have a nice one. Look, a soldering iron that costs eight bucks is 95% as functional -
+[00:20:26] Adam: I mean, I bought him a nice one, but that's just because I wanted - I want him to have a nice one. Look, a soldering iron that costs $8 is 95% as functional -
 
 [00:20:26] Will: Oh, yeah.
 
-[00:20:26] Adam: As one that costs 200 bucks.
+[00:20:26] Adam: As one that costs $200.
 
 [00:20:37] Will: Yeah, especially if you're just doing rough, like if you're doing rough solders, there's the, the, the cheap one is better because it heats up faster a lot of times.
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=rt76k1awa6I
 
 [00:21:08] Norm: You don't need Tony Stark's lab.
 
-[00:21:10] Adam: No. Also, actually, I will also say this: flea markets are fantastic for entry-level tool purchasing. They got a lot of these crappy tools from China, which will not last for many iterations. However, if you're a fifteen-year-old kid and you need a crowbar or you need a cordless tool, you can go to a flea market, pick one up for like twelve bucks, and that is a fantastic, again, another entry level. Then you learn what you need, you know, learn what you need to know. We'd all like to have the best versions of every tool, but, you know, over the years, one of the things I did long before I had success with MythBusters or even in special effects was I would slowly, every couple times a year, invest in another good tool, and I still have all those tools.
+[00:21:10] Adam: No. Also, actually, I will also say this: flea markets are fantastic for entry-level tool purchasing. They got a lot of these crappy tools from China, which will not last for many iterations. However, if you're a 15-year-old kid and you need a crowbar or you need a cordless tool, you can go to a flea market, pick one up for like $12, and that is a fantastic, again, another entry level. Then you learn what you need, you know, learn what you need to know. We'd all like to have the best versions of every tool, but, you know, over the years, one of the things I did long before I had success with MythBusters or even in special effects was I would slowly, every couple times a year, invest in another good tool, and I still have all those tools.
 
 [00:21:55] Will: So you're building a collection. I mean, the thing is, once you're in a place where you're buying stuff that's, that's the best -
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=rt76k1awa6I
 
 [00:22:05] Will: Or, you know, ends up in a flea market someplace one day.
 
-[00:22:06] Adam: And it's no different than a musical instrument, you know. It's my saxophone teacher - I used to play the saxophone - told me, "Whenever you find a mouthpiece that's better than the one you're using, buy it immediately." There's no - it's all about the mouthpiece. And the moment you find one that feels more comfortable than yours, buy it. Borrow, whatever you have to do to get that mouthpiece, it's worth it. And I mean, some mouthpieces can cost 300 bucks.
+[00:22:06] Adam: And it's no different than a musical instrument, you know. It's my saxophone teacher - I used to play the saxophone - told me, "Whenever you find a mouthpiece that's better than the one you're using, buy it immediately." There's no - it's all about the mouthpiece. And the moment you find one that feels more comfortable than yours, buy it. Borrow, whatever you have to do to get that mouthpiece, it's worth it. And I mean, some mouthpieces can cost $300.
 
 [00:22:30] Will: Wow.
 

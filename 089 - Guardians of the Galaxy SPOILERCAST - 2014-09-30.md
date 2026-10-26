@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:01:56] Will: Oh, awesome!
 
-[00:01:56] Adam: For their gold level donors, anyone who donates more than a thousand bucks, I'm giving a ten minute talk tomorrow night.
+[00:01:56] Adam: For their gold level donors, anyone who donates more than $1,000, I'm giving a 10 minute talk tomorrow night.
 
 [00:02:18] Will: This is in San Francisco.
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:02:23] Will: this will be in the past.
 
-[00:02:24] Adam: But I'm so I'm still not quite positive what I'm going to say, and this is frequent with me and talks. Right, I I so I tend to leave these things until late, and I gestate, I think about them for a long time, and then I write them down a few hours before the talk. Many times I do that, and with this one, I'm not really sure what to do because if these are people that have given between one and ten thousand dollars to the ASPCA, they agree with me wholeheartedly that everyone should go get rescue dogs and please have your dog neutered or spayed, and that there's way too many there's way more dogs out there who need homes and love. than there are homes and love, and so please stop adding to it by getting, you know, pure breed dogs, and go get a rescue dog.
+[00:02:24] Adam: But I'm so I'm still not quite positive what I'm going to say, and this is frequent with me and talks. Right, I I so I tend to leave these things until late, and I gestate, I think about them for a long time, and then I write them down a few hours before the talk. Many times I do that, and with this one, I'm not really sure what to do because if these are people that have given between $1,000 and $10,000 to the ASPCA, they agree with me wholeheartedly that everyone should go get rescue dogs and please have your dog neutered or spayed, and that there's way too many there's way more dogs out there who need homes and love. than there are homes and love, and so please stop adding to it by getting, you know, pure breed dogs, and go get a rescue dog.
 
 [00:03:10] Will: Or if you want a pure breed dog, there's pure breed rescues for all breeds.
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:04:02] Will: Yeah,
 
-[00:04:03] Adam: that and that's from Berkeley Humane, and it really was instant love, love at first sight upon seeing him, and ever since. I mean, we're now. I mean, the the worst part about a dog is it is a lesson in impermanence, right? We're going to outlive him by a long way, and that is the saddest thing in the world because he has brought so much amazing affection into our lives. And and then Maggie, a couple of years later. So I think I'll tell the story about wanting to get a dog. They only want me to speak for about ten minutes. That'll take like six minutes to do that, and maybe I, you know, maybe I'll find some more to discuss within that about my father's allergies to animals and the fact that we never only had cats and cats are dicks.
+[00:04:03] Adam: that and that's from Berkeley Humane, and it really was instant love, love at first sight upon seeing him, and ever since. I mean, we're now. I mean, the the worst part about a dog is it is a lesson in impermanence, right? We're going to outlive him by a long way, and that is the saddest thing in the world because he has brought so much amazing affection into our lives. And and then Maggie, a couple of years later. So I think I'll tell the story about wanting to get a dog. They only want me to speak for about 10 minutes. That'll take like six minutes to do that, and maybe I, you know, maybe I'll find some more to discuss within that about my father's allergies to animals and the fact that we never only had cats and cats are dicks.
 
 [00:04:51] Will: They're bad.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:09:16] Adam: Are they?
 
-[00:09:17] Will: Well, we have dog. We have raccoons in our neighborhood that have to weigh at least forty pounds. They're enormous.
+[00:09:17] Will: Well, we have dog. We have raccoons in our neighborhood that have to weigh at least 40 pounds. They're enormous.
 
 [00:09:20] Adam: Oh yeah, no.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:10:36] Will: Okay.
 
-[00:10:36] Adam: and we want to go see it." I said, " I've looked it up. It's playing a block from here at this theater called blah at eight o'clock. So, book us tickets for the eight o'clock show." He comes back ten minutes later and he says, " I bought some tickets. There were no theaters nearby, but there was a 9:30 showing, so I bought four tickets to that." And I said, " Okay, this is a problem because I am old and I want to go to sleep, and 9:30 is too late. So, let's get the money back for the tickets." Can't we've already bought them?
+[00:10:36] Adam: and we want to go see it." I said, " I've looked it up. It's playing a block from here at this theater called blah at eight o'clock. So, book us tickets for the eight o'clock show." He comes back 10 minutes later and he says, " I bought some tickets. There were no theaters nearby, but there was a 9:30 showing, so I bought four tickets to that." And I said, " Okay, this is a problem because I am old and I want to go to sleep, and 9:30 is too late. So, let's get the money back for the tickets." Can't we've already bought them?
 
 [00:11:05] Will: Yeah,
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:11:12] Will: well it's because you took his phone away so he didn't have Fandango
 
-[00:11:15] Adam: no he had his phone he had a laptop I said look it's called this this is the theater go I sent him the link here's the theater it's got an eight o'clock showing there's seats available book it so he comes back and he says I booked it for the eight o'clock show we're good so 7:30 no the theater's like two blocks away 7:30 rolls around I'm like um so do we need to print those tickets out or we can just go to will call he goes let me check oh um dad I've messed up I didn't buy the tickets to that theater I bought it to a theater that's forty five minutes away
+[00:11:15] Adam: no he had his phone he had a laptop I said look it's called this this is the theater go I sent him the link here's the theater it's got an eight o'clock showing there's seats available book it so he comes back and he says I booked it for the eight o'clock show we're good so 7:30 no the theater's like two blocks away 7:30 rolls around I'm like um so do we need to print those tickets out or we can just go to will call he goes let me check oh um dad I've messed up I didn't buy the tickets to that theater I bought it to a theater that's 45 minutes away
 
 [00:11:46] Will: Oh no. So hold on so now we're two sets of tickets in and those I'm sure you are refundable as well
 
@@ -302,11 +302,11 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:12:01] Will: do you remember
 
-[00:12:02] Adam: this is obscene we ended up spending it was the three it was. Like eighteen bucks or something like that.
+[00:12:02] Adam: this is obscene we ended up spending it was the three it was. Like $18 or something like that.
 
 [00:12:10] Will: Still cheaper than here.
 
-[00:12:12] Adam: Well, We ended up paying for for the four of us to go see this this movie. I was going to say stupid movie, but it wasn't a stupid movie. But that's like I want to see the stupid movie. Was we ended up spending like 190 dollars.
+[00:12:12] Adam: Well, We ended up paying for for the four of us to go see this this movie. I was going to say stupid movie, but it wasn't a stupid movie. But that's like I want to see the stupid movie. Was we ended up spending like $190.
 
 [00:12:22] Will: Oh no! Oh no!
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:15:26] Adam: It was in the title when you clicked on it.
 
-[00:15:27] Will: Yeah, so we gave you the segue. Now, if you don't want to hear about Guardians of the Galaxy, A, you should have gone to see it already because like a million and a half people have or something.
+[00:15:27] Will: Yeah, so we gave you the segue. Now, if you don't want to hear about Guardians of the Galaxy, A, you should have gone to see it already because like 1.5 million people have or something.
 
 [00:15:27] Adam: Yes.
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:19:32] Adam: Right.
 
-[00:19:32] Norm: out of that universe, so that all builds up to their every once every four years tentpole that makes a billion dollars or you know a hundred million opening weekend.
+[00:19:32] Norm: out of that universe, so that all builds up to their every once every four years tentpole that makes $1 billion or you know a hundred million opening weekend.
 
 [00:19:45] Adam: So I, you know, obviously the thing I'm always most interested in talking about on the talking room is how do you run a giant creative endeavor with integrity?
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:23:16] Adam: Yeah, right. Which is a great cold open.
 
-[00:23:18] Will: Space Jesus, perhaps. And then you see him twenty years later.
+[00:23:18] Will: Space Jesus, perhaps. And then you see him 20 years later.
 
 [00:23:18] Adam: Right.
 
@@ -682,7 +682,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:24:53] Adam: I was like wow that's like it's like four three levels to that it's so fucking brilliant oh my god
 
-[00:25:02] Adam: I I I wanted to pause the movie just to enjoy that moment for an extra like forty seconds
+[00:25:02] Adam: I I I wanted to pause the movie just to enjoy that moment for an extra like 40 seconds
 
 [00:25:06] Norm: and the fact they got it you know they could have got the Rock they could have got any well known big dude. They got an unknown.
 
@@ -874,7 +874,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:32:03] Adam: and it's so perfectly done. It's easy to not realize how you how all the choices, hundreds and hundreds of choices of how you're going to make that moment clear visually. So that the audience is just totally on board because you're in a climax. You don't have time to lay groundwork. That just has to be done. It's beautiful.
 
-[00:32:21] Will: It's what like a three, three or four frame. I mean, I mean three or four second transition. It's long, so it's sixty frames.
+[00:32:21] Will: It's what like a three, three or four frame. I mean, I mean three or four second transition. It's long, so it's 60 frames.
 
 [00:32:21] Adam: Yeah.
 
@@ -1042,7 +1042,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:37:13] Adam: It’s a fad. It's going away for the like seventh time.
 
-[00:37:21] Will: Well, as long as they can sell the movie tickets for eighteen dollars instead of ten, then you know it'll continue to be around. I think that'll do it for us.
+[00:37:21] Will: Well, as long as they can sell the movie tickets for $18 instead of ten, then you know it'll continue to be around. I think that'll do it for us.
 
 [00:37:30] Adam: I think that's a reasonable place to leave this. Chris Pratt, by the way, full marks for moving from from comedy television guy to movie hero. He really he's a fantastic star.
 
@@ -1080,7 +1080,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:38:40] Adam: And we promise we won't talk about schedule while you're listening.
 
-[00:38:43] Will: It's nine hundred and ninety-five beats, guys. We got to go.
+[00:38:43] Will: It's 995 beats, guys. We got to go.
 
 [00:38:45] Adam: Excellent.
 

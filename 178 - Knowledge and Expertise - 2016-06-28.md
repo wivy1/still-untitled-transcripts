@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:04:06] Norm: Can you buy individual things, or do you have to buy in bulk?
 
-[00:04:09] Simone: You can buy both, so that's like one of the main benefits. I think it's. I mean, it's individual for [unclear: meat stand / me to stand], but I think that's the one of the biggest differences from Shenzhen from from different or from other electronics places is that you can buy everything from just one piece to like five hundred thousand pieces. So a lot of hardware startups go there to source parts, and also a lot of makers go there just to check out random cool shit that they can build with.
+[00:04:09] Simone: You can buy both, so that's like one of the main benefits. I think it's. I mean, it's individual for [unclear: meat stand / me to stand], but I think that's the one of the biggest differences from Shenzhen from from different or from other electronics places is that you can buy everything from just one piece to like 500,000 pieces. So a lot of hardware startups go there to source parts, and also a lot of makers go there just to check out random cool shit that they can build with.
 
 [00:04:30] Norm: I bet there's got to be a business of people who who just play the middleman who have their database of what's there.
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:06:26] Simone: Yeah, it depends, but it's really for different. But I would just rather not buy stuff than buy stuff. I think.
 
-[00:06:31] Norm: Do you know if that market is open? Like, is it twenty-four hours, or they actually have
+[00:06:31] Norm: Do you know if that market is open? Like, is it 24 hours, or they actually have
 
 [00:06:34] Simone: no idea? But probably a lot of. I mean, I think it's very individual.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:06:52] Norm: No, no, there was no mocking.
 
-[00:06:54] Simone: Maybe, but they were. You were fascinated with the fact that I had lived my life for twenty-five years without having seen it.
+[00:06:54] Simone: Maybe, but they were. You were fascinated with the fact that I had lived my life for 25 years without having seen it.
 
 [00:06:59] Adam: There's look. There's there's lots of gaps in my film education. I've never seen Gone with the Wind.
 
@@ -400,11 +400,11 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:19:32] Simone: Oh, really?
 
-[00:19:33] Adam: And rule thirty-four of the internet. Do you know rule thirty-four of the internet?
+[00:19:33] Adam: And rule 34 of the internet. Do you know rule 34 of the internet?
 
 [00:19:37] Simone: No.
 
-[00:19:37] Adam: The rule thirty-four states: if it exists, there is pornography of it.
+[00:19:37] Adam: The rule 34 states: if it exists, there is pornography of it.
 
 [00:19:41] Simone: All right.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:24:37] Simone: Oh.
 
-[00:24:37] Adam: And that's actually the first line of the book: the moon blew up without warning, and the resulting human drama that stems from the moon blowing up and eventually destroying the Earth, and the book spans five thousand years. It's amazing.
+[00:24:37] Adam: And that's actually the first line of the book: the moon blew up without warning, and the resulting human drama that stems from the moon blowing up and eventually destroying the Earth, and the book spans 5,000 years. It's amazing.
 
 [00:24:52] Simone: Oh wow!
 
@@ -576,7 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:26:04] Simone: I mean, that's an interesting thing. Seeing the movie, just how they solve all the problems,
 
-[00:26:09] Adam: and the Martian. Yeah, the Martian is very fascinating because the movie has about a third of the problems. Mark Watney runs into about a third of the problems in the movie that he does in the book, because the movie would be like ten or twelve hours long.
+[00:26:09] Adam: and the Martian. Yeah, the Martian is very fascinating because the movie has about a third of the problems. Mark Watney runs into about a third of the problems in the movie that he does in the book, because the movie would be like 10 or 12 hours long.
 
 [00:26:19] Simone: Yeah,
 
@@ -608,7 +608,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:27:59] Simone: Yeah, it's going to feel weird. It's not going to feel like a real character,
 
-[00:28:01] Adam: right? But in television, you do have that in long form format—twelve hours to tell a story. You do have the luxury of doing that. Like a great example of that are the, wow, the Helen Mirren series where she plays a detective on the BBC
+[00:28:01] Adam: right? But in television, you do have that in long form format—12 hours to tell a story. You do have the luxury of doing that. Like a great example of that are the, wow, the Helen Mirren series where she plays a detective on the BBC
 
 [00:28:17] Norm: I haven’t seen it.
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:29:09] Simone: No,
 
-[00:29:10] Adam: that's fine. What Norm is referring to is Captain America gets unfrozen after fifty years in a sort of cryogenic sleep, and as he's woken up now in the 2000s, he's like, " How do I catch up on culture since World War Two?" And people keep giving him suggestions, and he's writing down his suggestions in a notebook. And in the film, you catch a glimpse of what's in that notebook. But what's really cool is they changed what was in that notebook depending on the market that the film was released in.
+[00:29:10] Adam: that's fine. What Norm is referring to is Captain America gets unfrozen after 50 years in a sort of cryogenic sleep, and as he's woken up now in the 2000s, he's like, " How do I catch up on culture since World War Two?" And people keep giving him suggestions, and he's writing down his suggestions in a notebook. And in the film, you catch a glimpse of what's in that notebook. But what's really cool is they changed what was in that notebook depending on the market that the film was released in.
 
 [00:29:36] Simone: Oh, really?
 
@@ -644,7 +644,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:29:51] Simone: because moving here from Sweden, it's a lot. Because I mean, also it's I have a fairly American accent, and sometimes people mistake me for being American. And then I just lack some like very obvious piece of knowledge. I mean, just somebody being like, " Oh, I'm from Oregon," and I'm like, " Yeah, really? Where's that?" And they're like, "
 
-[00:30:10] Simone: Who is this girl?" Or like beginning like when I moved to San Francisco the first time, and I was paying for something in a store, and she was like, " Yeah, it's one dollar fifty cents or whatever," and I was just like going through the coins, and I was like, " What's this little guy?"
+[00:30:10] Simone: Who is this girl?" Or like beginning like when I moved to San Francisco the first time, and I was paying for something in a store, and she was like, " Yeah, it's $1.50 or whatever," and I was just like going through the coins, and I was like, " What's this little guy?"
 
 [00:30:21] [unclear speaker]: Okay, yeah, so that's it.
 

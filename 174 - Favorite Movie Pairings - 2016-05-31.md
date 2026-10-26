@@ -54,13 +54,13 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:01:09] Will: That’s a fabulous movie.
 
-[00:01:09] Adam: and then we watched Forty Eight Hours.
+[00:01:09] Adam: and then we watched 48 Hours.
 
-[00:01:20] Will: I've never seen Forty Eight Hours.
+[00:01:20] Will: I've never seen 48 Hours.
 
 [00:01:20] Norm: Yeah, those are those are all great,
 
-[00:01:22] Adam: And, and so the the the First Blood is incredible. When you watch old movies like from the '70s, one of the things that I find surprising is, jeezum crow, we're like thirty minutes in, and I don't know what this movie's about yet. Like, they really take their time. The pacing, I mean, Rocky, amazing movie, but it crawls along as far as narratively.
+[00:01:22] Adam: And, and so the the the First Blood is incredible. When you watch old movies like from the '70s, one of the things that I find surprising is, jeezum crow, we're like 30 minutes in, and I don't know what this movie's about yet. Like, they really take their time. The pacing, I mean, Rocky, amazing movie, but it crawls along as far as narratively.
 
 [00:01:44] Norm: A different type of audience,
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:03:11] Adam: But they didn't realize what what like that was part of what made him a star. But then you had movies like Trading Places, which they'd seen, but Forty Eight Hours and Beverly Hills Cop. Beverly Hills Cop is astoundingly wonderful.
 
-[00:03:26] Will: Forty Eight Hours is Nick Nolte, right?
+[00:03:26] Will: 48 Hours is Nick Nolte, right?
 
 [00:03:26] Adam: Mm-hmm.
 
@@ -228,11 +228,11 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:05:57] Will: it's it's like the John Pryor free association skit from SNL in '76, made into a feature length film.
 
-[00:06:04] Adam: It's terrifying, and you watch it, you realize Julia was like, my wife was like, they wouldn't do that today, and I said, no, they would do that, but they'd make in the in the in the you could see in the screenwriter's head, I think of forty eight hours that he's like, oh well, Nick's an old racist cop, and he turns around and realizes that Eddie's great. That's the that's the arc, but today it'd be like you he can't call him watermelon without him suffering later for some reason, and that is the least awful of the things he calls Murphy.
+[00:06:04] Adam: It's terrifying, and you watch it, you realize Julia was like, my wife was like, they wouldn't do that today, and I said, no, they would do that, but they'd make in the in the in the you could see in the screenwriter's head, I think of 48 hours that he's like, oh well, Nick's an old racist cop, and he turns around and realizes that Eddie's great. That's the that's the arc, but today it'd be like you he can't call him watermelon without him suffering later for some reason, and that is the least awful of the things he calls Murphy.
 
 [00:06:35] Will: Oh yeah,
 
-[00:06:35] Adam: it's literally we're in the living room going, whoa, hey, and then also there’s like women, and I think there’s like seven women that that you see on screen in forty eight hours, and at least five of them show up topless.
+[00:06:35] Adam: it's literally we're in the living room going, whoa, hey, and then also there’s like women, and I think there’s like seven women that that you see on screen in 48 hours, and at least five of them show up topless.
 
 [00:06:50] Will: And how many of them have names?
 
@@ -260,9 +260,9 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:08:00] Adam: Yeah, no, I realized that, but but Stallone bringing it into the modern super over the top finish where he basically destroys a whole town single handedly
 
-[00:08:08] Will: with an M sixty in each hand.
+[00:08:08] Will: with an M60 in each hand.
 
-[00:08:09] Adam: With an M sixty in one hand, he's shooting out transformers. My my son's girlfriend was like, " Are there any more of these?"
+[00:08:09] Adam: With an M60 in one hand, he's shooting out transformers. My my son's girlfriend was like, " Are there any more of these?"
 
 [00:08:18] Norm: There are quite a few. A lot of.
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:08:52] Will: all the Fast and the Furious movies. Really,
 
-[00:08:53] Adam: I don't know if people realize that Stallone wrote Rocky and invented that genre of of triumph over adversity film. And to be clear, he wrote it and kept on peddling it around, knowing it would be his vehicle, and turned down a million bucks to sell the script without him attached.
+[00:08:53] Adam: I don't know if people realize that Stallone wrote Rocky and invented that genre of of triumph over adversity film. And to be clear, he wrote it and kept on peddling it around, knowing it would be his vehicle, and turned down $1 million to sell the script without him attached.
 
 [00:08:53] Will: Wow,
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:11:05] Will: Oh, right, I’ve seen this.
 
-[00:11:05] Adam: They're eighteen-wheeler drivers.
+[00:11:05] Adam: They're 18-wheeler drivers.
 
 [00:11:05] Will: I've seen this.
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:15:23] Adam: One of my heroes came to San Francisco, and we got to spend some time with him. His name is Theo Jansen, and he is the inventor, creator, father of the Strandbeest, which are the multi-legged walking robots that I'm obsessed with. I have the whole shelf here behind me. Hold on. Yeah, I'll grab it.
 
-[00:15:42] Norm: Okay. Yeah, so to set it up, right now at the Exploratorium Museum in San Francisco, there is an exhibit with Strandbeest, many of them extinct Strandbeest from Theo’s collection. He has been making these for over twenty-five years.
+[00:15:42] Norm: Okay. Yeah, so to set it up, right now at the Exploratorium Museum in San Francisco, there is an exhibit with Strandbeest, many of them extinct Strandbeest from Theo’s collection. He has been making these for over 25 years.
 
 [00:16:00] Will: Wow, really?
 

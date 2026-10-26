@@ -98,9 +98,9 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:02:59] Norm: Mm-hmm.
 
-[00:03:00] Adam: And they were like, " No, it was Saturday afternoon." I bought four tickets for Sunday's show, and there was like maybe fifteen people in the audience at that point. I just thought that's really unlike.
+[00:03:00] Adam: And they were like, " No, it was Saturday afternoon." I bought four tickets for Sunday's show, and there was like maybe 15 people in the audience at that point. I just thought that's really unlike.
 
-[00:03:10] Norm: That's what happens when you play a movie and debut it in more than four thousand theaters.
+[00:03:10] Norm: That's what happens when you play a movie and debut it in more than 4,000 theaters.
 
 [00:03:15] Adam: It's showing in four different theaters at Kabuki.
 
@@ -280,9 +280,9 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:10:22] Adam: to podcast the series.
 
-[00:10:24] Will: So, I I watched Studio Sixty on the Sunset Strip, which was it's one of my like for one season TV shows. It's really really high on my list.
+[00:10:24] Will: So, I I watched Studio 60 on the Sunset Strip, which was it's one of my like for one season TV shows. It's really really high on my list.
 
-[00:10:33] Adam: I’m a big fan of Studio Sixty
+[00:10:33] Adam: I’m a big fan of Studio 60
 
 [00:10:33] Will: It's super smart and super good, and I never went back to watch The West Wing.
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:13:49] Adam: So, how far into? How long is that?
 
-[00:13:52] Norm: It's uh, I think seven episodes, and they're about you know between seventy and ninety minutes long.
+[00:13:52] Norm: It's uh, I think seven episodes, and they're about you know between 70 and 90 minutes long.
 
 [00:13:56] Adam: Oh, wow.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:14:08] Norm: Uh, it. I mean, you have to do his entire life, or his.
 
-[00:14:08] Norm: It goes through like at least thirty years in
+[00:14:08] Norm: It goes through like at least 30 years in
 
 [00:14:13] Adam: I see.
 
@@ -548,7 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:18:23] Adam: I totally agree. The thing that I just felt was that the stakes weren't quite as high.
 
-[00:18:28] Adam: Well, to me personally, now my son, my seventeen-year-old son, and was like, " Oh, I got totally weepy at the end." He like really bought in and loved, loved the spit out of it.
+[00:18:28] Adam: Well, to me personally, now my son, my 17-year-old son, and was like, " Oh, I got totally weepy at the end." He like really bought in and loved, loved the spit out of it.
 
 [00:18:37] Will: I can't imagine crying at a Marvel movie.
 
@@ -638,11 +638,11 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:21:56] Adam: I was amazed. What's the name of the actor? Tom Holland plays Spider-Man. He plays by far the youngest Spider-Man that anyone's put on the screen.
 
-[00:22:04] Norm: nineteen years old.
+[00:22:04] Norm: 19 years old.
 
-[00:22:06] Will: But he he looks like he's about fourteen.
+[00:22:06] Will: But he he looks like he's about 14.
 
-[00:22:07] Adam: He looks like he's about fourteen. He
+[00:22:07] Adam: He looks like he's about 14. He
 
 [00:22:10] Norm: is the world ready for Hot Aunt May.
 
@@ -736,11 +736,11 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:25:23] Norm: and they crank up their their shutter, so everything was a little bit faster. That scene in the airport. I mean, I I would only say and it’s a masterpiece of choreography and and fight writing because you're talking about eight characters that you have to juggle back and forth, give them individual moments.
 
-[00:25:39] Will: More than eight, it's twelve,
+[00:25:39] Will: More than eight, it's 12,
 
 [00:25:40] Norm: um, or
 
-[00:25:40] Will: eleven.
+[00:25:40] Will: 11.
 
 [00:25:41] Norm: Wow, it's it's a lot. Yeah, and and it's not. It didn't feel like as much a war zone as you know Ultron did because that was in a city, or even First Avengers movie because that was in New York. And I think they had to, for the writing, just take civilians out of it, isolate these characters.
 
@@ -750,7 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:26:07] Adam: probably
 
-[00:26:08] Will: right, right, and or maybe Kingdom Come. I don't know, whatever some comic book arc twenty years ago. I hope that we can go back to just punching people and not thinking about the civilian casualties quite as much. Um, the the thing about the airport sequence to me. Is that it was it was incredibly coherent. This is the thing I loved about the Winter Soldier too. Is at no point did I get lost in action. At no point did I think, oh, where? Hold on, where is where is Black Widow and Black Panther? Where what are they doing standing?
+[00:26:08] Will: right, right, and or maybe Kingdom Come. I don't know, whatever some comic book arc 20 years ago. I hope that we can go back to just punching people and not thinking about the civilian casualties quite as much. Um, the the thing about the airport sequence to me. Is that it was it was incredibly coherent. This is the thing I loved about the Winter Soldier too. Is at no point did I get lost in action. At no point did I think, oh, where? Hold on, where is where is Black Widow and Black Panther? Where what are they doing standing?
 
 [00:26:34] Adam: It's almost like the opposite of Bayhem.
 
@@ -860,7 +860,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:30:03] Norm: It was very like like that made it actually have have impact and meaning because that's all of Tony Stark's character through the six movies he's been in his immaturity everything. It's all angst.
 
-[00:30:17] Adam: How about how about the seventeen-year-old Robert Downey Jr. The digitally, and he's like, " Shit, I feel like I'm looking at a John Hughes movie twenty-five, thirty years ago."
+[00:30:17] Adam: How about how about the 17-year-old Robert Downey Jr. The digitally, and he's like, " Shit, I feel like I'm looking at a John Hughes movie 25, 30 years ago."
 
 [00:30:27] Norm: And they shot it that way, and then they perfectly explained it because any imperfections, even though it was damn near perfect, because it was a hologram.
 
@@ -898,7 +898,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:31:44] Adam: Right.
 
-[00:31:44] Will: But they did a ton of work in this movie, like like in terms of they introduced new characters, they opened up an entire new like narrative arc that can run them, let's say, a shareholder interesting ten or twelve movies.
+[00:31:44] Will: But they did a ton of work in this movie, like like in terms of they introduced new characters, they opened up an entire new like narrative arc that can run them, let's say, a shareholder interesting 10 or 12 movies.
 
 [00:31:57] Norm: So I think that's where it falls apart a little bit because while it did its job absolutely of making you after wanting to watch after watching the movie wanting to watch a Black Panther movie and a Spider Man movie, your money is ready to be out there.
 
@@ -1062,9 +1062,9 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:37:23] Norm: Yes, and oh, and Adam, you're going to be emceeing a Star Trek event, fan event, at the end of this month.
 
-[00:37:29] Adam: in Los Angeles on the twentieth.
+[00:37:29] Adam: in Los Angeles on the 20th.
 
-[00:37:31] Norm: On the twentieth. And I think there's some information about. Well, I'll put information below about how people can win tickets to that event.
+[00:37:31] Norm: On the 20th. And I think there's some information about. Well, I'll put information below about how people can win tickets to that event.
 
 [00:37:43] Will: Oh yeah. Cool. Okay. See you guys next week.
 

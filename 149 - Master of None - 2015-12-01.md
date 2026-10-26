@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:13:34] Adam: Yeah, it's the opening is so horrifying.
 
-[00:13:37] Will: It's hard to watch it twenty years later.
+[00:13:37] Will: It's hard to watch it 20 years later.
 
 [00:13:39] Unknown speaker: Yeah,
 
@@ -424,7 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:17:47] Norm: Absolutely.
 
-[00:17:47] Adam: I must tell you, this is a weird case in which I actually feel like they're shooting below me in terms of the age. Right, of course they are. The the the characters in this show are like ten years, fifteen years younger than I am.
+[00:17:47] Adam: I must tell you, this is a weird case in which I actually feel like they're shooting below me in terms of the age. Right, of course they are. The the the characters in this show are like 10 years, 15 years younger than I am.
 
 [00:18:03] Will: oh yeah,
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:21:56] Norm: Sorry, back to
 
-[00:21:56] Adam: so I love the Leatherman. I use it dozens of times every single day. It's hard to imagine living without it. But within my shop, the tool that I genuinely get like, oh, I can't wait, I can't wait, is the lathe. I just love lathing stuff. I love lathing different materials. I love the requirements they have. I love setting up the auto feeds for threading. I love the figuring out ways to engineer holding sensitive parts without marking them, making bucks, making holders, just everything around using the lathes. I find very meditative, and I really like working at high precision. And years ago on MythBusters, we were doing a thing where I we needed to use a pump. We needed a pump that pumped 2,000 gallons per minute for a section about a firefighting helicopter that sucks up a scuba diver, and we wanted to find out if such suction could work. And I ended up building this pump using a two hundred and fifty horsepower outboard motor, which I extended the shaft of by six feet, put inside a one foot diameter steel tube, welded the entire thing together. And machined down the propeller to fit inside the tube with a sixteenth inch of clearance,
+[00:21:56] Adam: so I love the Leatherman. I use it dozens of times every single day. It's hard to imagine living without it. But within my shop, the tool that I genuinely get like, oh, I can't wait, I can't wait, is the lathe. I just love lathing stuff. I love lathing different materials. I love the requirements they have. I love setting up the auto feeds for threading. I love the figuring out ways to engineer holding sensitive parts without marking them, making bucks, making holders, just everything around using the lathes. I find very meditative, and I really like working at high precision. And years ago on MythBusters, we were doing a thing where I we needed to use a pump. We needed a pump that pumped 2,000 gallons per minute for a section about a firefighting helicopter that sucks up a scuba diver, and we wanted to find out if such suction could work. And I ended up building this pump using a 250 horsepower outboard motor, which I extended the shaft of by six feet, put inside a one foot diameter steel tube, welded the entire thing together. And machined down the propeller to fit inside the tube with a sixteenth inch of clearance,
 
 [00:23:14] Will: Wow.
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:23:19] Will: Wow!
 
-[00:23:20] Adam: And that, to me, was like that was like that was one of those graduate level executions on the lathe. Because for something like that to work, this is actually a lovely engineering thing. If you have a thing that when it's spinning, it's rattling. That rattling is energy being expended in some other way than rotationally, and that means it's taking away from your from your overall speed. So, with the two hundred fifty horsepower engine, the output speeds that it's spinning at means that no rattling can occur. Any rattling could actually toss, cause this thing to fly apart. So, in the process of ordering and using and setting the bearings and floating pillow blocks that held this all in orientation, to think through and remove all of that deeply, deeply pleasurable. The lathe.
+[00:23:20] Adam: And that, to me, was like that was like that was one of those graduate level executions on the lathe. Because for something like that to work, this is actually a lovely engineering thing. If you have a thing that when it's spinning, it's rattling. That rattling is energy being expended in some other way than rotationally, and that means it's taking away from your from your overall speed. So, with the 250 horsepower engine, the output speeds that it's spinning at means that no rattling can occur. Any rattling could actually toss, cause this thing to fly apart. So, in the process of ordering and using and setting the bearings and floating pillow blocks that held this all in orientation, to think through and remove all of that deeply, deeply pleasurable. The lathe.
 
 [00:24:10] Will: I got hooked on the laser cutter lately.
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:28:55] Adam: Yeah, the challenge coin collection. We haven't even gone through that.
 
-[00:28:58] Will: No, the challenge coin collection. Yeah. I didn't know about challenge coins until until well there was a ninety nine pi episode but yeah yeah your challenge coin collection is impressive and exhaustive
+[00:28:58] Will: No, the challenge coin collection. Yeah. I didn't know about challenge coins until until well there was a 99pi episode but yeah yeah your challenge coin collection is impressive and exhaustive
 
 [00:29:09] Adam: yeah it's it's um the yeah it's pretty cool we got to get Roman on this podcast
 

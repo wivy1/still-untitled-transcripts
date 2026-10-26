@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:03:14] Adam: Oh, really?
 
-[00:03:14] Will: Because there's been multiple generations across the twenty years that the shuttle flew. You know, because you, we all remember that big MMU thing, right? Remember that it looked like an enormous backpack chair with some arms, and I made a model of that.
+[00:03:14] Will: Because there's been multiple generations across the 20 years that the shuttle flew. You know, because you, we all remember that big MMU thing, right? Remember that it looked like an enormous backpack chair with some arms, and I made a model of that.
 
 [00:03:26] Adam: I have one upstairs.
 
@@ -152,27 +152,27 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:05:36] Adam: right?
 
-[00:05:36] Norm: If you have 200 dollars, 300 dollars to spend,
+[00:05:36] Norm: If you have $200, $300 to spend,
 
 [00:05:39] Adam: your basic toolkit, and what should be in that kit?
 
 [00:05:41] Norm: And you're just starting out. Well, what do you buy?
 
-[00:05:43] Adam: Yeah. Um, first off, I, for some reason, this is in my head, and I want to get it out, which is that don't buy that set of twelve freaking screwdrivers.
+[00:05:43] Adam: Yeah. Um, first off, I, for some reason, this is in my head, and I want to get it out, which is that don't buy that set of 12 freaking screwdrivers.
 
 [00:05:54] Will: Like you mean the the one that you're buying, you roll out and it has like six different size heads and it has—
 
-[00:05:58] Adam: no no no no. There's like in every in every hardware area of every, you know, big box store or in every hardware store, they always have like the twelve screwdrivers. Truth be told, you need four. You need a big Phillips, a small Phillips, a big flathead, and a small flathead. And really, you could then also invest in some Wiha, W I H A, jeweler's screwdrivers, which are really nice. But again, you only need like a couple.
+[00:05:58] Adam: no no no no. There's like in every in every hardware area of every, you know, big box store or in every hardware store, they always have like the 12 screwdrivers. Truth be told, you need four. You need a big Phillips, a small Phillips, a big flathead, and a small flathead. And really, you could then also invest in some Wiha, W I H A, jeweler's screwdrivers, which are really nice. But again, you only need like a couple.
 
 [00:06:26] Will: So, like I have this set of of basically take-it-apart screwdrivers. It came from iFixit or someplace like that.
 
 [00:06:31] Adam: Right.
 
-[00:06:31] Will: And they have sixty-five bits.
+[00:06:31] Will: And they have 65 bits.
 
 [00:06:34] Adam: Now that is actually, those are pretty good.
 
-[00:06:36] Will: It's great, but I use like five of them regularly, and the other forty I never touch.
+[00:06:36] Will: It's great, but I use like five of them regularly, and the other 40 I never touch.
 
 [00:06:40] Adam: And a lot of those replaceable-head screwdrivers can tend to run you into trouble if you've got a piece of electronics with a deep screw.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:07:18] Will: And then I also have, um, a kind of big rubber mallet, just for knocking stuff loose.
 
-[00:07:23] Adam: A convincer, a mallet is really is really key, and they're about like seven or eight dollars.
+[00:07:23] Adam: A convincer, a mallet is really is really key, and they're about like $7 or $8.
 
 [00:07:23] Unknown speaker: Yeah.
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:07:37] Adam: Craigslist is fantastic. You can often buy toolboxes with tools already in them. I have, um, and you'll get a probably about a 20% hit ratio with that. 20% of the tools in those all-inclusive toolboxes will actually be good tools. The rest will be a lot of crap.
 
-[00:07:51] Will: But that's, I mean, you're probably looking at, if you're at a garage sale, you're looking at probably, you know, four bucks for a toolbox full of tools.
+[00:07:51] Will: But that's, I mean, you're probably looking at, if you're at a garage sale, you're looking at probably, you know, $4 for a toolbox full of tools.
 
 [00:07:57] Adam: And that's how that's how I built up a lot of my early tools.
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:09:46] Will: There's usually a little notch taken out there.
 
-[00:09:47] Adam: If you want really, if you want good wire strippers, the kind that are actually adjustable, that have a pair of V's that meet at different depths depending on where you've set them, those are great. I have a couple pairs of those, and those are great. Um, one of the first, if you're going to do a lot of electronics wiring, one of the first tools to invest in is to spend forty bucks on a pair of Greenlee, uh, automatic wire strippers.
+[00:09:47] Adam: If you want really, if you want good wire strippers, the kind that are actually adjustable, that have a pair of V's that meet at different depths depending on where you've set them, those are great. I have a couple pairs of those, and those are great. Um, one of the first, if you're going to do a lot of electronics wiring, one of the first tools to invest in is to spend $40 on a pair of Greenlee, uh, automatic wire strippers.
 
 [00:10:09] Will: The ones that, you, yeah—
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:10:20] Will: the awesome part about the whole thing. Um.
 
-[00:10:21] Adam: But again, that's not the 200 dollars starter kit. That's that's something to move up to. Now you're also going to need, in addition to the pair of dikes, those won't cut really hard things.
+[00:10:21] Adam: But again, that's not the $200 starter kit. That's that's something to move up to. Now you're also going to need, in addition to the pair of dikes, those won't cut really hard things.
 
 [00:10:31] Will: Yeah, you should only use those for copper wire, maybe maybe aluminum,
 
@@ -280,11 +280,11 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:10:58] Will: Okay.
 
-[00:10:58] Adam: Uh, and I happen to know that Lowe's now sells Knipex cutters for a really reasonable deal, like fifteen bucks.
+[00:10:58] Adam: Uh, and I happen to know that Lowe's now sells Knipex cutters for a really reasonable deal, like $15.
 
 [00:11:05] Will: Oh wow!
 
-[00:11:05] Adam: I used to spend have to spend like sixty or seventy dollars for a good pair of Knipex cutters.
+[00:11:05] Adam: I used to spend have to spend like $60 or $70 for a good pair of Knipex cutters.
 
 [00:11:10] Will: Yeah.
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:11:55] Norm: You mentioned a Leatherman earlier? You recommend multi-tool?
 
-[00:11:58] Adam: Multi-tool is totally key. A multi-tool is a reasonable investment. Now it is an investment. If you're talking, you only have a couple hundred bucks, you're going to spend sixty dollars on a Leatherman. I'm. It's a close call to me because it's got like nineteen tools in there,
+[00:11:58] Adam: Multi-tool is totally key. A multi-tool is a reasonable investment. Now it is an investment. If you're talking, you only have a couple hundred bucks, you're going to spend $60 on a Leatherman. I'm. It's a close call to me because it's got like 19 tools in there,
 
 [00:12:12] Will: but they're not very good. The pliers are great, and the knives are great. But the rest of it's kind of just, you know, okay in a pinch.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:12:34] Will: So you don't have to use the key.
 
-[00:12:35] Adam: You don't have to use a chuck key. Um, you can buy one of those now for like 25 dollars. That is absolutely a critical tool to have.
+[00:12:35] Adam: You don't have to use a chuck key. Um, you can buy one of those now for like $25. That is absolutely a critical tool to have.
 
 [00:12:43] Will: I I I have probably four drills in the in the garage. Most of mine at this point are cordless.
 
@@ -332,13 +332,13 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:12:54] Norm: I think most people buy the cordless because they think it's it's more convenient. But—
 
-[00:12:57] Adam: well, and again, I'm thinking if you're if you're really if you're, uh, really on the tightest budget, that's the cheapest, really versatile drill that you can get. It'll have a, I think a three-eighths chuck to it, so you can fit a reasonably sized bit in there. You'll obviously need a drill index. Those can cost everything from fifteen dollars up to hundreds of dollars for really high quality ones. If you're just starting out, you don't need the really high quality ones. You can buy the cheap ones. Even the ones from Harbor Freight will serve you just fine.
+[00:12:57] Adam: well, and again, I'm thinking if you're if you're really if you're, uh, really on the tightest budget, that's the cheapest, really versatile drill that you can get. It'll have a, I think a three-eighths chuck to it, so you can fit a reasonably sized bit in there. You'll obviously need a drill index. Those can cost everything from $15 up to hundreds of dollars for really high quality ones. If you're just starting out, you don't need the really high quality ones. You can buy the cheap ones. Even the ones from Harbor Freight will serve you just fine.
 
 [00:13:27] Will: Yeah.
 
-[00:13:27] Adam: For beginning making, in fact, if you're standing there at Harbor Freight and you're wondering about those drills, go ahead and get them. Go ahead and get the big set that's got the number drills, the letter drills, and the fractionals all at once. Um, that will serve you for years because you'll have everything down to a a size sixty, uh, number drill. You'll have everything up to a half-inch, uh, uh, fractional drill, um, and everything in between.
+[00:13:27] Adam: For beginning making, in fact, if you're standing there at Harbor Freight and you're wondering about those drills, go ahead and get them. Go ahead and get the big set that's got the number drills, the letter drills, and the fractionals all at once. Um, that will serve you for years because you'll have everything down to a a size 60, uh, number drill. You'll have everything up to a half-inch, uh, uh, fractional drill, um, and everything in between.
 
-[00:13:51] Will: Well, the other nice thing about the drill is if you get a vise clamp for your bench, a bench vise, even a small one you can get for fifteen or twenty dollars,
+[00:13:51] Will: Well, the other nice thing about the drill is if you get a vise clamp for your bench, a bench vise, even a small one you can get for $15 or $20,
 
 [00:13:57] Adam: Yes.
 
@@ -366,9 +366,9 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:14:53] Adam: Um, for wood, honestly, uh, a jigsaw is totally key, and those can also be picked up for a reasonable, reasonably low price.
 
-[00:15:01] Will: Twenty bucks new, or like I said, if you're at a garage sale, you can get them for fifty cents sometimes.
+[00:15:01] Will: $20 new, or like I said, if you're at a garage sale, you can get them for $0.50 sometimes.
 
-[00:15:05] Adam: Um, and now for a handsaw for cutting wood, I am going to go out on a limb and say it's worth investing the like thirty dollars in a Japanese handsaw. Uh, they cut on the pull rather than the push.
+[00:15:05] Adam: Um, and now for a handsaw for cutting wood, I am going to go out on a limb and say it's worth investing the like $30 in a Japanese handsaw. Uh, they cut on the pull rather than the push.
 
 [00:15:18] Will: Okay.
 
@@ -382,15 +382,15 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:15:52] Adam: Um, so—
 
-[00:15:52] Norm: are you buying for things to last, or just spending 200 bucks, or you're just buying so you?
+[00:15:52] Norm: are you buying for things to last, or just spending $200, or you're just buying so you?
 
 [00:15:56] Adam: I think if you're a beginning maker, you're getting what you can afford. Um, if something breaks, you definitely need to invest in a better one. That's absolutely true.
 
 [00:16:06] Will: Can I?
 
-[00:16:07] Adam: In general, as when I was a beginning maker, I would invest in, you know, a tool every few weeks that I could afford. I didn't have a circular saw for years because I didn't really have a need for it. It was more like a luxury tool. I did much more small stuff than that for a long time, and those are expensive. Those are, you know, minimum of like seventy to a hundred dollars.
+[00:16:07] Adam: In general, as when I was a beginning maker, I would invest in, you know, a tool every few weeks that I could afford. I didn't have a circular saw for years because I didn't really have a need for it. It was more like a luxury tool. I did much more small stuff than that for a long time, and those are expensive. Those are, you know, minimum of like $70 to $100.
 
-[00:16:27] Will: You can get a circular saw for like twenty bucks now too, if you get the cheapo.
+[00:16:27] Will: You can get a circular saw for like $20 now too, if you get the cheapo.
 
 [00:16:30] Adam: Really, really, wow! Um, I'll tell you, for those for those electrical tools, the Harbor Freight isn't often the way to go. Those tools, those can be so cheap, cheapy, cheapy that it's not even worth. That's where garage sales can be great.
 
@@ -404,15 +404,15 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:17:19] Will: yeah,
 
-[00:17:19] Adam: and the materials, which was often one of the more difficult things to expense when I was, you know, making eleven bucks an hour.
+[00:17:19] Adam: and the materials, which was often one of the more difficult things to expense when I was, you know, making $11 an hour.
 
-[00:17:27] Will: Well, when I built shell, I built shelves a few months ago, and the materials were five, six hundred dollars,
+[00:17:27] Will: Well, when I built shell, I built shelves a few months ago, and the materials were $500, $600,
 
 [00:17:31] Adam: right?
 
 [00:17:31] Will: And I mean that's a fair amount of money for a set of kids' room shelves. Um.
 
-[00:17:37] Adam: You know, it's it's also a great, when when you're a beginning maker, and I'm thinking of, you know, I'm thinking of a guy or a girl who's like seventeen, eighteen, nineteen years old. Birthdays and Christmases are a great time to ask.
+[00:17:37] Adam: You know, it's it's also a great, when when you're a beginning maker, and I'm thinking of, you know, I'm thinking of a guy or a girl who's like 17, 18, 19 years old. Birthdays and Christmases are a great time to ask.
 
 [00:17:49] Will: Yeah,
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:17:54] Will: I promise I won't cut my fingers off if you get me the good saw, Mom.
 
-[00:17:56] Norm: Yeah, the parents decide seventy dollars for a video game or seventy dollars for a saw.
+[00:17:56] Norm: Yeah, the parents decide $70 for a video game or $70 for a saw.
 
 [00:18:01] Adam: There are some there are some, uh, nonstandard tools which I tend to really like. Um, an awl.
 
@@ -430,9 +430,9 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:18:22] Will: Like a caliper?
 
-[00:18:22] Adam: Yeah, you can now buy. Again, when I was first starting out, the minimum price on those was like forty dollars. But now you can go onto Amazon and buy a digital caliper for probably ten dollars.
+[00:18:22] Adam: Yeah, you can now buy. Again, when I was first starting out, the minimum price on those was like $40. But now you can go onto Amazon and buy a digital caliper for probably $10.
 
-[00:18:33] Will: I bought a really nice one for 25 bucks.
+[00:18:33] Will: I bought a really nice one for $25.
 
 [00:18:35] Adam: Yeah, and i—it's not expensive. I'll tell you, in general, the cheap ones are every bit as useful to you as the expensive ones. Make sure it's made of metal. Don't buy the plastic ones; they are really, really cheap.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:19:17] Adam: yeah.
 
-[00:19:17] Will: And it's it's just sitting here, but when you have when you when you start using stuff, you find out, oh, okay, this is something that I'm going to use a ton. I use my table saw ten times a day. I'm really glad that I spent a lot of money on this
+[00:19:17] Will: And it's it's just sitting here, but when you have when you when you start using stuff, you find out, oh, okay, this is something that I'm going to use a ton. I use my table saw 10 times a day. I'm really glad that I spent a lot of money on this
 
 [00:19:29] Adam: Right.
 
@@ -462,11 +462,11 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:19:45] Will: Okay.
 
-[00:19:45] Adam: I will tell you, it is so not worth saving the fifteen bucks to buy a ten dollar pop riveter. Go spend the 25 dollars, and you will be so much happier. They clear the pins that they pull on the rivets much faster. Uh, they cycle faster. They're they're, uh, easier to adjust for different sizes of rivets by putting in, uh, different nozzle tips. Um, I have had cheap pop riveters. They are not. They are garbage. Absolute garbage. Go go ahead and spend. And again, even on an automatic pop riveter, uh, I know that Harbor Freight sells one for like thirty dollars that's air powered. Don't buy it. Go spend a hundred dollars on the really good one. You will be so much happier. Pop rivets is one of those things that I've been using since the very beginning of making. Rivets are a really inexpensive way of attaching things like sheet metal and leather and rubber to each other. They're incredibly versatile. Learn to use backing plates. It's not something that's often covered in books about making stuff. With a rivet, it's basically an aluminum mushroom or a steel mushroom that you put through a hole, and when you pull on the tool, it pulls effectively what is a a headed brad through that mushroom and makes it expand to pressure fit in the hole it's in. If you use a backing plate, you actually are grabbing it from both sides, uh, and a backing plate is effectively just a little washer you put on the other side of the rivet. So you've got a head of the rivet on one side, the body of the rivet through the two pieces of material adjoining, and a backing plate pressure fit on the other side.
+[00:19:45] Adam: I will tell you, it is so not worth saving the $15 to buy a $10 pop riveter. Go spend the $25, and you will be so much happier. They clear the pins that they pull on the rivets much faster. Uh, they cycle faster. They're they're, uh, easier to adjust for different sizes of rivets by putting in, uh, different nozzle tips. Um, I have had cheap pop riveters. They are not. They are garbage. Absolute garbage. Go go ahead and spend. And again, even on an automatic pop riveter, uh, I know that Harbor Freight sells one for like $30 that's air powered. Don't buy it. Go spend $100 on the really good one. You will be so much happier. Pop rivets is one of those things that I've been using since the very beginning of making. Rivets are a really inexpensive way of attaching things like sheet metal and leather and rubber to each other. They're incredibly versatile. Learn to use backing plates. It's not something that's often covered in books about making stuff. With a rivet, it's basically an aluminum mushroom or a steel mushroom that you put through a hole, and when you pull on the tool, it pulls effectively what is a a headed brad through that mushroom and makes it expand to pressure fit in the hole it's in. If you use a backing plate, you actually are grabbing it from both sides, uh, and a backing plate is effectively just a little washer you put on the other side of the rivet. So you've got a head of the rivet on one side, the body of the rivet through the two pieces of material adjoining, and a backing plate pressure fit on the other side.
 
 [00:21:19] Will: So just, it distributes the stress. It distributes the stress on the plate rather than the material.
 
-[00:21:23] Adam: Absolutely. When I was fifteen, I made a full suit of armor out of aluminum using only pop rivets, and promptly wore it to school and passed out in math class of heat exhaustion.
+[00:21:23] Adam: Absolutely. When I was 15, I made a full suit of armor out of aluminum using only pop rivets, and promptly wore it to school and passed out in math class of heat exhaustion.
 
 [00:21:33] Will: There you go.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:22:02] Will: cutting,
 
-[00:22:02] Adam: hard-edge model making and cutting. Um, those blades will go through your fingers really quickly. You've got to be very, very, very careful. I'm not someone who would say that a Dremel is one of the first tools you want because honestly, I can do tremendous amounts of shaping and sanding with an X-Acto knife and, uh, uh, toilet, sorry, uh, nail files. Honestly, nail files of, uh, the foam nail files that you can buy at the beauty store of different grits from like eighty all the way up to four hundred. You buy a bunch of those eighty grit ones, and I use those more than almost any other sanding tool in my shop.
+[00:22:02] Adam: hard-edge model making and cutting. Um, those blades will go through your fingers really quickly. You've got to be very, very, very careful. I'm not someone who would say that a Dremel is one of the first tools you want because honestly, I can do tremendous amounts of shaping and sanding with an X-Acto knife and, uh, uh, toilet, sorry, uh, nail files. Honestly, nail files of, uh, the foam nail files that you can buy at the beauty store of different grits from like 80 all the way up to 400. You buy a bunch of those 80 grit ones, and I use those more than almost any other sanding tool in my shop.
 
 [00:22:37] Will: Well, the neat thing is they kind of bend and flex, so you can get up and on round edges and all sorts of stuff like that. Um, let's see, we talked about, um, oh, X-Acto knife is another good one.
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:23:19] Will: Oh, right, right, right.
 
-[00:23:20] Adam: This has a has a has a spine on it. A single-edge razor blade is actually one of the first tools I ever used because my dad had tons of them in his studio, and like Jamie rarely stocks them, and it always used to unnerve me because I just think by using them, they're very useful for, you can shape foam with them, you can cut cardboard with them, uh, and they're they cost about a penny apiece, so they're incredibly, you know, whatever, three cents.
+[00:23:20] Adam: This has a has a has a spine on it. A single-edge razor blade is actually one of the first tools I ever used because my dad had tons of them in his studio, and like Jamie rarely stocks them, and it always used to unnerve me because I just think by using them, they're very useful for, you can shape foam with them, you can cut cardboard with them, uh, and they're they cost about a penny apiece, so they're incredibly, you know, whatever, $0.03.
 
 [00:23:43] Will: And they're made of old submarines.
 
@@ -540,9 +540,9 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:24:16] Will: Oh, that's a good call.
 
-[00:24:16] Adam: Get yourself a cutting board. You can buy them in eight by ten. You can buy them in thirty by forty.
+[00:24:16] Adam: Get yourself a cutting board. You can buy them in 8 by 10. You can buy them in 30 by 40.
 
-[00:24:21] Will: Yeah, and you don't have to. This is one of those things you can go to the kitchen supply place and get. You can get, you can get like kitchen cutting boards for restaurants for like ten dollars.
+[00:24:21] Will: Yeah, and you don't have to. This is one of those things you can go to the kitchen supply place and get. You can get, you can get like kitchen cutting boards for restaurants for like $10.
 
 [00:24:21] Unknown speaker: Yeah.
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:26:20] Will: Wrenches, stuff like that. Box box wrenches, maybe.
 
-[00:26:23] Adam: You know, a crescent wrench is going to be, again, for your starting out, your 200 dollar budget. A crescent wrench is going to supply you with most of what you need. Investing in box-end wrenches later, that's an investment. You are going to want to, you know, even a small set of reasonable, uh, English and metric is going to run you thirty or forty dollars. That's a that's a that's a real investment. But a two sizes of crescent wrench is going to supply you most of what you need. A small one like a little six inch and a large one like a nine inch.
+[00:26:23] Adam: You know, a crescent wrench is going to be, again, for your starting out, your $200 budget. A crescent wrench is going to supply you with most of what you need. Investing in box-end wrenches later, that's an investment. You are going to want to, you know, even a small set of reasonable, uh, English and metric is going to run you $30 or $40. That's a that's a that's a real investment. But a two sizes of crescent wrench is going to supply you most of what you need. A small one like a little six inch and a large one like a nine inch.
 
 [00:26:51] Will: Yeah,
 
@@ -660,7 +660,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:29:41] Will: my all time favorite Allen wrenches were these Japanese T Allen wrenches that we got with an embroidery machine when I was a kid.
 
-[00:29:47] Adam: I use these Bondhus, um, serious welded steel T handled Allen wrenches, and I love them. I love them. They're expensive, but again, Allen wrenches. You could buy a full set of Allen wrenches in a holder that are separate. Ten bucks.
+[00:29:47] Adam: I use these Bondhus, um, serious welded steel T handled Allen wrenches, and I love them. I love them. They're expensive, but again, Allen wrenches. You could buy a full set of Allen wrenches in a holder that are separate. $10.
 
 [00:30:01] Will: If if that.
 
@@ -692,7 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:30:57] Will: so yeah, the cutting steel, like I, the the one thing that we had the rule in the electronics shop when I first my first job out of college was, for the love of God, don't use the wire snips on any kind of steel wire. Nothing but copper. Nope.
 
-[00:31:07] Adam: No. Yeah. Yeah. Yeah. Okay. So now moving into slightly into the, um, electronics, there is a thing called a clip lead, which is effectively a length of wire with an alligator clip at each end. If you're going to do any kind of electrical work at all, buy a set of clip leads. It's like three bucks at Fry's for a set of, uh, you know, ten of these. They're all multicolored. Um, they'll allow you to hook a nine volt up to a light bulb. It's just a way of testing a circuit before you put it together. Uh, and clip leads are have been a staple of my toolkit for twenty-five years.
+[00:31:07] Adam: No. Yeah. Yeah. Yeah. Okay. So now moving into slightly into the, um, electronics, there is a thing called a clip lead, which is effectively a length of wire with an alligator clip at each end. If you're going to do any kind of electrical work at all, buy a set of clip leads. It's like $3 at Fry's for a set of, uh, you know, 10 of these. They're all multicolored. Um, they'll allow you to hook a nine volt up to a light bulb. It's just a way of testing a circuit before you put it together. Uh, and clip leads are have been a staple of my toolkit for 25 years.
 
 [00:31:39] Will: And, and it's to save you from having to solder.
 
@@ -734,13 +734,13 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:33:02] Norm: those are expensive, right?
 
-[00:33:03] Will: I spent 150 bucks on clamps.
+[00:33:03] Will: I spent $150 on clamps.
 
 [00:33:05] Adam: Grip clips are great. Also, C clamps. Cheapy little C clamps, ones that are like two inches and four inches.
 
 [00:33:10] Will: With the with the screw and the thing, yeah.
 
-[00:33:12] Adam: Just go get four of those. I I have like twenty, and I use them all the time. There are there are more expensive ways to clamp stuff, but go ahead and get the cheapest way right now because clamping two pieces together so you cut them the same that's a really useful technique. Clamping something to a table so you can have a you know a grip on it.
+[00:33:12] Adam: Just go get four of those. I I have like 20, and I use them all the time. There are there are more expensive ways to clamp stuff, but go ahead and get the cheapest way right now because clamping two pieces together so you cut them the same that's a really useful technique. Clamping something to a table so you can have a you know a grip on it.
 
 [00:33:31] Will: Yeah. Yeah. Well, and and the thing about clamps is you can always use more clamps. So
 
@@ -794,7 +794,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:35:14] Adam: Electric, yes. Sorry, electrical tape, absolutely key. That should be part of everybody's.
 
-[00:35:18] Will: I'm looking at your tape wall right now, and it's like forty-five different kinds of tape.
+[00:35:18] Will: I'm looking at your tape wall right now, and it's like 45 different kinds of tape.
 
 [00:35:22] Adam: Yeah, I mean, I've got some fairly specialized ones. I'll tell you for making as well. If you want to make a metal surface, um, plumber's aluminum tape, which is used for wrapping pipes and stuff like that,
 
@@ -832,7 +832,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:36:59] Will: So more surface area.
 
-[00:37:00] Adam: More surface area and more places for the glue to grab. Then you paint the metal surface with some contact cement, and you paint, let's say, the leather surface with some contact cement, and you let them dry. Now you don't let them dry too long. If they dry overnight, you won't be able to stick them together, but within like twenty minutes they'll dry to be tacky, and then you put them together and they'll be bonded. It'll be really, really nice,
+[00:37:00] Adam: More surface area and more places for the glue to grab. Then you paint the metal surface with some contact cement, and you paint, let's say, the leather surface with some contact cement, and you let them dry. Now you don't let them dry too long. If they dry overnight, you won't be able to stick them together, but within like 20 minutes they'll dry to be tacky, and then you put them together and they'll be bonded. It'll be really, really nice,
 
 [00:37:21] Will: glued forever.
 
@@ -882,7 +882,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:38:36] Will: Did not know that.
 
-[00:38:37] Adam: It's their fortieth attempt at making the right.
+[00:38:37] Adam: It's their 40th attempt at making the right.
 
 [00:38:39] Will: Really?
 
@@ -906,11 +906,11 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:39:26] Will: Needle and thread, needle and thread are really important to have.
 
-[00:39:28] Adam: A basic sewing kit is totally, totally key, and like about three dollars.
+[00:39:28] Adam: A basic sewing kit is totally, totally key, and like about $3.
 
 [00:39:32] Will: It can, or it can be the thing that you lift from the hotel when you go. I have the shoe polisher. I save those obsessively.
 
-[00:39:39] Adam: Every time I'm in a hotel and they've got a sewing kit, I save it. I've got like forty of them.
+[00:39:39] Adam: Every time I'm in a hotel and they've got a sewing kit, I save it. I've got like 40 of them.
 
 [00:39:42] Norm: Sewing kits and shampoo.
 

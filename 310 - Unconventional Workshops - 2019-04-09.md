@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:05:34] Melissa: But yeah, there's music and art. You know, that's both in my life, and I'm I'm I'm very thankful for that. But it's it can get really tiring.
 
-[00:05:46] Adam: You're reminding me of when I first moved to San Francisco. I was working in theater, and I had a regular gig at a theater called Beach Blanket Babylon, which was I worked about three nights a week on that, and then I did. Five days a week, doing props for Berkeley Repertory Theater, and I was still doing both of those jobs. And like you were just describing, coming back to my shop. This is the benefit. It was you know I was twenty four, and working sometimes all night long just to go back to work at Berkeley Rep because I didn't find. I mean, when you're when you're younger, you have so much more energy. I remember thinking, like, I'll go out and do an errand these days, and I'll be like, " Wow, that that's my day, that errand." And like, I'm like, " Wow," and I'm in my twenties. I used to get like four things done in a day, and that that like. I have no regrets about being tired, right? Like that was just this moment of just pure output, just drive to keep on making stuff, to just work all night long, and it was it was really a delight.
+[00:05:46] Adam: You're reminding me of when I first moved to San Francisco. I was working in theater, and I had a regular gig at a theater called Beach Blanket Babylon, which was I worked about three nights a week on that, and then I did. Five days a week, doing props for Berkeley Repertory Theater, and I was still doing both of those jobs. And like you were just describing, coming back to my shop. This is the benefit. It was you know I was 24, and working sometimes all night long just to go back to work at Berkeley Rep because I didn't find. I mean, when you're when you're younger, you have so much more energy. I remember thinking, like, I'll go out and do an errand these days, and I'll be like, " Wow, that that's my day, that errand." And like, I'm like, " Wow," and I'm in my 20s. I used to get like four things done in a day, and that that like. I have no regrets about being tired, right? Like that was just this moment of just pure output, just drive to keep on making stuff, to just work all night long, and it was it was really a delight.
 
 [00:06:46] Melissa: Yeah, I'm like I'm telling myself stress is worth it, but then I hold the things in my hand and I'm. Well, cool. I made that. I think it's good, but you know, there's that doubt that's that's constantly there, and I'm not going to lie; it's it's really hard for me to deal with it, and and that's why again, I keep I'm I think I'm finding myself here a little bit more often in California. Just as I mentioned last time on the podcast, just trying to find creatives that get me. But you know, that has changed a lot of my mentality. Just understanding the process and that there's no wrong way to do it.
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:14:06] Adam: or if it exists.
 
-[00:14:07] Kayte: I was just discussing this. So I used to have quite a large home workshop that is no more. I am currently in a probably about a eight by twelve foot room that has a shop sink and a window. Um, Phil Tippett was generous enough to give me his old drafting table. It's amazing, as his daughter Sam puts it, it's pre-stained with red wine and frustration. Um, it's like my prized possession now, and that takes up most of the room.
+[00:14:07] Kayte: I was just discussing this. So I used to have quite a large home workshop that is no more. I am currently in a probably about a 8 by 12 foot room that has a shop sink and a window. Um, Phil Tippett was generous enough to give me his old drafting table. It's amazing, as his daughter Sam puts it, it's pre-stained with red wine and frustration. Um, it's like my prized possession now, and that takes up most of the room.
 
 [00:14:40] Adam: Is " Red Wine and Frustration" the title of Phil's autobiography?
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:15:51] Kayte: Yes, exactly.
 
-[00:15:52] Adam: Um, I came across something that may uh be of interest to you and. I sometimes just go down YouTube rabbit holes of interesting woodwork or machine work, and I found a guy who had a closet that he wanted to make maximal use of, but he knew that in his house the function of closets may change over time. So he built what's called a French cleat system, and this is strips of wood cut at a forty-five mounted to the wall, and shelves that have a corresponding forty-five mate with gussets that keep them hold held upright, so that you can re. And he puts the cleats two-inch-wide strips every five inches, all the way up all three walls. Very strong.
+[00:15:52] Adam: Um, I came across something that may uh be of interest to you and. I sometimes just go down YouTube rabbit holes of interesting woodwork or machine work, and I found a guy who had a closet that he wanted to make maximal use of, but he knew that in his house the function of closets may change over time. So he built what's called a French cleat system, and this is strips of wood cut at a 45 mounted to the wall, and shelves that have a corresponding 45 mate with gussets that keep them hold held upright, so that you can re. And he puts the cleats two-inch-wide strips every five inches, all the way up all three walls. Very strong.
 
 [00:16:33] Norm: I love that.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:18:32] Unknown speaker: Yeah.
 
-[00:18:32] Adam: Especially when I was working on MythBusters and I had this space, I got here for like three hours a month. It was all just like catch as catch can, but there was a certain point at which you know the the the labor of raising teenage boys in this city with my partner and my ex wife and this whole panoply of folks involved that require my attention all the time. I have found that it is possible to be more distant from my family in a shop that's in my house, and more connected to my family in a shop that's twenty miles away.
+[00:18:32] Adam: Especially when I was working on MythBusters and I had this space, I got here for like three hours a month. It was all just like catch as catch can, but there was a certain point at which you know the the the labor of raising teenage boys in this city with my partner and my ex wife and this whole panoply of folks involved that require my attention all the time. I have found that it is possible to be more distant from my family in a shop that's in my house, and more connected to my family in a shop that's 20 miles away.
 
 [00:19:03] Unknown speaker: Yep.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:22:51] Norm: That sounds like a really good guiding principle for. Making things in general, like not what the thing does or what it looks like, but how it makes you feel, or how you want it to make other people feel, even when you're like filming a video, writing a story.
 
-[00:23:05] Adam: Totally true. I also I would be remiss if I didn't say my parents gave me a tremendous amount of latitude in these kinds of choices. They paid my rent when I wanted to quit a job with people I didn't like. That like so a lot of I came to that through a place of privilege, through a place of real privilege and gift from my parents. As like, yes, we'll create the space for you to figure that out. And they did it before I had learned how to work hard. So I don't know what kind of picture I presented to them, but it wasn't of someone with like total focus, because that was not how you would have described me at nineteen. But yeah, no, thinking about how something feels, how you want something to to pay you back emotionally, and what you want to put into it emotionally is really it's a great exercise.
+[00:23:05] Adam: Totally true. I also I would be remiss if I didn't say my parents gave me a tremendous amount of latitude in these kinds of choices. They paid my rent when I wanted to quit a job with people I didn't like. That like so a lot of I came to that through a place of privilege, through a place of real privilege and gift from my parents. As like, yes, we'll create the space for you to figure that out. And they did it before I had learned how to work hard. So I don't know what kind of picture I presented to them, but it wasn't of someone with like total focus, because that was not how you would have described me at 19. But yeah, no, thinking about how something feels, how you want something to to pay you back emotionally, and what you want to put into it emotionally is really it's a great exercise.
 
 [00:23:53] Melissa: I mean, I totally agree with that too. But if I might also add. That question still creates so much conflict in me because I have the privilege to think about that. Like at least that's what the way I feel. Like that the fact that I can think about what I'm making, what makes me happy, I feel like already gives me an opportunity that a lot of people don't have. Granted, you know, it's because we, you know, worked very unfulfilling jobs. My sisters and I, we started another company together that got, you know, that went pretty well and got stable enough for me to move on to figure out what I want. And I, I, I tell myself, like, hey, this is wonderful thing that I, I, I'm privileged to be able to do. But, but at the same time, like, sometimes I feel kind of like, well, I need to make sure that I. Again, I'm not saying this is an okay way of thinking.
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:30:54] Adam: So so good.
 
-[00:30:56] Norm: Bergen, New Jersey, three staff, twenty high school students with no budget. They did get some donations that amounted to about a thousand dollars. Dumpster diving, everything scratch built. The play was the length of the film.
+[00:30:56] Norm: Bergen, New Jersey, three staff, 20 high school students with no budget. They did get some donations that amounted to about $1,000. Dumpster diving, everything scratch built. The play was the length of the film.
 
 [00:31:09] Adam: Every scene
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:31:54] Adam: Yeah.
 
-[00:31:55] Norm: So they did it for two nights on the nineteenth and the twenty second. Ran for almost two hours. I think the second night they may have they may have filmed it.
+[00:31:55] Norm: So they did it for two nights on the 19th and the 22nd. Ran for almost two hours. I think the second night they may have they may have filmed it.
 
 [00:32:01] Kayte: I hope did they? I
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:34:37] Kayte: Yes.
 
-[00:34:38] Adam: So this is another thing, a place that I go when I'm suffering self-doubt and I'm suffering because my shop is not right now. I'm in production and my shop is not my shop. Right. None of my tools are here, so it's very hard to use this. But I, I get so much out of the interaction with other makers. I get that out of my social media. I get that out of the projects that I'm planning for the future. I get that out of seeing you guys here in the cave. We spent some time talking. We'll spend some more time talking. Maybe we'll go out for some pupusas. All that is like all that's food to me. It's mental and emotional food for inspiration. And especially like when the last big public event they had at the Obama White House was called South by South Lawn. And the day before South by South Lawn, Jen Schachter designed and I helped her build the S X S L letters for the lawn. And we did it with fifty kids from the Digital Harbor Foundation in Baltimore. And there was this point at which this young girl had to paint the backside of this letter twice because we had her paint it too early, and then we made it all dirty, and it needed more black paint. And she was like painting black paint over black paint, and she was super annoyed. And she was like, " Yo, is this what work is like?" And I was like, " Yeah." Yeah, this is exactly what work is like. What a great lesson to get! And I'm like so thrilled at this whole experience of the tedium and the exhaustion, and we've been going for ten hours, and yet there's the camaraderie. We're slamming pizza and coke, and it's just like so much fun.
+[00:34:38] Adam: So this is another thing, a place that I go when I'm suffering self-doubt and I'm suffering because my shop is not right now. I'm in production and my shop is not my shop. Right. None of my tools are here, so it's very hard to use this. But I, I get so much out of the interaction with other makers. I get that out of my social media. I get that out of the projects that I'm planning for the future. I get that out of seeing you guys here in the cave. We spent some time talking. We'll spend some more time talking. Maybe we'll go out for some pupusas. All that is like all that's food to me. It's mental and emotional food for inspiration. And especially like when the last big public event they had at the Obama White House was called South by South Lawn. And the day before South by South Lawn, Jen Schachter designed and I helped her build the S X S L letters for the lawn. And we did it with 50 kids from the Digital Harbor Foundation in Baltimore. And there was this point at which this young girl had to paint the backside of this letter twice because we had her paint it too early, and then we made it all dirty, and it needed more black paint. And she was like painting black paint over black paint, and she was super annoyed. And she was like, " Yo, is this what work is like?" And I was like, " Yeah." Yeah, this is exactly what work is like. What a great lesson to get! And I'm like so thrilled at this whole experience of the tedium and the exhaustion, and we've been going for 10 hours, and yet there's the camaraderie. We're slamming pizza and coke, and it's just like so much fun.
 
 [00:36:06] Kayte: I love that.
 

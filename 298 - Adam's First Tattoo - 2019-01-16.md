@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:02:57] Norm: It was a first for you.
 
-[00:02:58] Adam: I we we we haven't talked about this yet. Yes, I’ve got my first tattoo, and it is a it's here on my left arm. It is a six inch ruler or fifteen centimeter ruler. It is, uh, I'm really, really, really happy with it.
+[00:02:58] Adam: I we we we haven't talked about this yet. Yes, I’ve got my first tattoo, and it is a it's here on my left arm. It is a six inch ruler or 15 centimeter ruler. It is, uh, I'm really, really, really happy with it.
 
 [00:03:14] Norm: All right, let's break this down.
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:14:13] Adam: And I really agree with that. When I finally read an article that sort of explicated that in that beautiful, articulate way, I was like, " That is it. That's it."
 
-[00:14:21] Norm: Well, and I'll go deeper on that. And I was thinking about that earlier, and a lot of that is because, and maybe Zack Snyder, because like his films, Three Hundred, Watchmen, and to some extent Batman v Superman, he used the graphic novels, used the comic books as his storyboards, right? And in comics, the spaces in between the panels are very important and happen in your imagination,
+[00:14:21] Norm: Well, and I'll go deeper on that. And I was thinking about that earlier, and a lot of that is because, and maybe Zack Snyder, because like his films, 300, Watchmen, and to some extent Batman v Superman, he used the graphic novels, used the comic books as his storyboards, right? And in comics, the spaces in between the panels are very important and happen in your imagination,
 
 [00:14:47] Adam: right?
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:17:25] Adam: Yes, so what it is is that Chance. Forgive my lack of knowledge because I'm old, but Chance I think plays around with the number three, and they change it to the number four. So again, it's like it's a slightly different timeline.
 
-[00:18:58] Adam: Another thing that about this movie that I found interesting, being in my fifties, is the talk show with Hasan Minhaj.
+[00:18:58] Adam: Another thing that about this movie that I found interesting, being in my 50s, is the talk show with Hasan Minhaj.
 
 [00:19:07] Norm: Yes. Oh, oh, what is that called? It's on Netflix.
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:21:37] Adam: Yeah,
 
-[00:21:37] Norm: and you see things like, I think Sony's trying to patent the animation style, but like going in frame by frame, mixing twenty four frame with twelve frame animation, so some of the characters would move in twos, and some would move.
+[00:21:37] Norm: and you see things like, I think Sony's trying to patent the animation style, but like going in frame by frame, mixing 24 frame with 12 frame animation, so some of the characters would move in twos, and some would move.
 
 [00:21:51] Adam: Fascinating.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:22:57] Adam: Yeah.
 
-[00:22:57] Norm: and released twenty twenty twenty one and 2022 because 2020 is when Top Gun is coming out, which he's also working on.
+[00:22:57] Norm: and released twenty 2021 and 2022 because 2020 is when Top Gun is coming out, which he's also working on.
 
 [00:23:09] Adam: Wow,
 
@@ -450,15 +450,15 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:23:28] Norm: and it's strange because this has got to be the end of Mission Impossible as a series. I know that people are divided about it. There are fans and acolytes of Chris McQuarrie.
 
-[00:23:37] Adam: Tom Cruise will be like fifty six. He will be
+[00:23:37] Adam: Tom Cruise will be like 56. He will be
 
-[00:23:40] Norm: sixty.
+[00:23:40] Norm: 60.
 
 [00:23:41] Adam: What?
 
-[00:23:41] Norm: By the time they finish, and by the time that's released, the the last one, MI eight, he will be sixty. And look fifty.
+[00:23:41] Norm: By the time they finish, and by the time that's released, the the last one, MI eight, he will be 60. And look 50.
 
-[00:23:48] Adam: He'll be the best looking sixty year old.
+[00:23:48] Adam: He'll be the best looking 60 year old.
 
 [00:23:50] Norm: I mean, what are the stunts that can happen?
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:25:08] Adam: yeah,
 
-[00:25:08] Norm: that it almost takes you know ten fifteen minutes to acclimate yourself.
+[00:25:08] Norm: that it almost takes you know 10 15 minutes to acclimate yourself.
 
 [00:25:14] Adam: It definitely does.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:26:27] Adam: [unclear: I think of a teenager. / I Sam / Sam.]
 
-[00:26:28] Norm: [unclear: Teenager, / Raimi, think he’s the Peter Parker / Raimi, even teenagers, except] because you grew up with the younger Peter Parker, and that's one of the reasons that that story of the Peter Parker in high school has been so resonant. That's why the Sam Raimi films they got it right with Tobey Maguire, maybe a little less so with the Andrew Garfield ones, but also Tom Holland, the coming of age, the John Hughes’s aspect of it all still resonates. But I grew up with the Peter Parker in the comics when Todd McFarlane was doing it and J. Michael Straczynski was doing it a little older, and that's a Peter Parker that I had never seen on screen either. A more mature someone who's been doing it for ten, fifteen years,
+[00:26:28] Norm: [unclear: Teenager, / Raimi, think he’s the Peter Parker / Raimi, even teenagers, except] because you grew up with the younger Peter Parker, and that's one of the reasons that that story of the Peter Parker in high school has been so resonant. That's why the Sam Raimi films they got it right with Tobey Maguire, maybe a little less so with the Andrew Garfield ones, but also Tom Holland, the coming of age, the John Hughes’s aspect of it all still resonates. But I grew up with the Peter Parker in the comics when Todd McFarlane was doing it and J. Michael Straczynski was doing it a little older, and that's a Peter Parker that I had never seen on screen either. A more mature someone who's been doing it for 10, 15 years,
 
 [00:27:04] Adam: yeah,
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:27:24] Adam: From all the lack of sleep,
 
-[00:27:25] Norm: I got 85% of the names. Ten fifteen percent have been gone, but all the different versions. I think there’s a little bit of like it doesn't feel like your Spider Man, whatever you grew up with, was stepped over or wiped.
+[00:27:25] Norm: I got 85% of the names. 10 15 percent have been gone, but all the different versions. I think there’s a little bit of like it doesn't feel like your Spider Man, whatever you grew up with, was stepped over or wiped.
 
 [00:27:40] Adam: In fact, the John Mulaney Spider Pig,
 

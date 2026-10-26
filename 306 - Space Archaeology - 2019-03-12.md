@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:03:26] Sarah: There are millions of people.
 
-[00:03:15] Sarah: There are millions and millions of archaeological sites out there to discover. And so, a couple years ago, I started an organization called GlobalXplorer, and it's an online citizen science crowdsourcing platform, and it allows anyone in the world to help look at satellite imagery and find sites. And we've had I think about eighty four, eighty five thousand people from over a hundred countries, and they found almost thirty thousand potential archaeological features in Peru alone.
+[00:03:15] Sarah: There are millions and millions of archaeological sites out there to discover. And so, a couple years ago, I started an organization called GlobalXplorer, and it's an online citizen science crowdsourcing platform, and it allows anyone in the world to help look at satellite imagery and find sites. And we've had I think about 84,000, 85,000 people from over 100 countries, and they found almost 30,000 potential archaeological features in Peru alone.
 
 [00:03:53] Adam: And I mean, one of the things you were showing me last time I visited the lab in Alabama was that you could easily see from the satellite imagery a site that had already been discovered and looted. And that was the thing is like if there if there are details tell me if I'm wrong about this but if there are details that are visible from the ground someone has dug in to try and find stuff and what you're finding is all these really pristine potential sites that are pristine that no one has discovered yet
 
@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:08:23] Will: there like satellite based spectrographs, or are you just looking?
 
-[00:08:26] Sarah: [unclear: so so? / So so / so?] There are hundreds of different satellites, of course, that are observing the Earth, and every satellite is taking a different kind of picture. So some satellites are purely visual, which is which is great. Think of like a Google Earth image; it's a visual color image. You can zoom in and zoom out, but a lot of satellites take pictures in different parts of the light spectrum, so the near, middle, far infrared, or thermal infrared, and there are even hyperspectral cameras that we can use. You attach them to to airplanes, and instead of getting say four, eight, twelve, fifteen bands within the light spectrum, you can get hundreds of bands. Oh wow! So geologists can use that data to say, right, you know, I want this particular. I'm looking for this particular kind of stone in the middle of nowhere because that could help me with prospecting for say oil, and you can get the exact Spectral signature of the type of geology
+[00:08:26] Sarah: [unclear: so so? / So so / so?] There are hundreds of different satellites, of course, that are observing the Earth, and every satellite is taking a different kind of picture. So some satellites are purely visual, which is which is great. Think of like a Google Earth image; it's a visual color image. You can zoom in and zoom out, but a lot of satellites take pictures in different parts of the light spectrum, so the near, middle, far infrared, or thermal infrared, and there are even hyperspectral cameras that we can use. You attach them to to airplanes, and instead of getting say four, eight, 12, 15 bands within the light spectrum, you can get hundreds of bands. Oh wow! So geologists can use that data to say, right, you know, I want this particular. I'm looking for this particular kind of stone in the middle of nowhere because that could help me with prospecting for say oil, and you can get the exact Spectral signature of the type of geology
 
 [00:09:18] Will: or you can see
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:11:59] Adam: you can picture his shop you can picture there's a lovely bit in the videos for the Clickspring’s replication of the Antikythera mechanism. Where he said, he walks you down this path of how he builds this thing to replicate the one that's on the ship. But he says there are several other ways you could have done this that are easier than this. But this has a particular advantage, and he goes into the advantage. And he goes, all this is a long way of saying it's clear that this was built as part of a mature. It was a mature technology. This isn't the first one. It clearly came about because you could see that there's a history within this, and the maker's mark potentially being the thumbprint. The idea that you go down to the shop to purchase this beer mug. I mean, that's so thrilling.
 
-[00:12:42] Sarah: And and the this idea that you know every every every potter you know they had their own particular way of making something. Yeah, okay, you have a thousand beer jars, but you know, you know, Joe made his with with a slightly thicker lip, which is great for when you're drinking. So I prefer to buy mine from him. And it just so often, you know, it's rare in antiquity that we get the names of. The people who, whose pieces and things were excavating. So, I think what it also taught me at a, at a very early age and an early part of my career was that ultimately, you know, archaeologists are empathy machines. You know, we're trying to connect people, not just us, but the people with whom we're communicating about our work, to people in the past, and kind of getting us to understand how little we've evolved and changed over time.
+[00:12:42] Sarah: And and the this idea that you know every every every potter you know they had their own particular way of making something. Yeah, okay, you have 1,000 beer jars, but you know, you know, Joe made his with with a slightly thicker lip, which is great for when you're drinking. So I prefer to buy mine from him. And it just so often, you know, it's rare in antiquity that we get the names of. The people who, whose pieces and things were excavating. So, I think what it also taught me at a, at a very early age and an early part of my career was that ultimately, you know, archaeologists are empathy machines. You know, we're trying to connect people, not just us, but the people with whom we're communicating about our work, to people in the past, and kind of getting us to understand how little we've evolved and changed over time.
 
 [00:13:30] Norm: That was something I found really striking. You did a TED Talk in 2016 about this, and I think that's where you guys met, right? And I remember Adam coming back saying how, how great he was that he met you, and I looked at the TED Talk, and the tech behind GlobalXplorer super cool, but the thing that resonated so much from your talk was like this very romantic nature about the idea of archaeology and that you're not looking for objects, you're looking for people, and there's something that's said about what they did thousands of years ago. It's very similar to what we do now. We're just kind of living our lives.
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:14:36] Adam: And speaking of time machine, we haven't talked since over Thanksgiving. My wife and I spent the Thanksgiving holiday in Mexico City, and we went to the the Museum of Anthropology there. Which holy hell! What a what a journey! What a trip! But and the gold stuff was interesting, but I found shocking. The variety of pottery, of characters within the pottery, of figures and stuff. But the thing that blew me the most away were these tiny, fine obsidian shaving razors. That there's this like a pile of like eight of them, and the amount of handwork that had to have gone into making them really had that a similar empathetic effect on me of realizing the need was met by these, the need that was met by these, and the craftsmanship that went into them felt so immediate.
 
-[00:15:30] Sarah: Yeah, I mean, so when whenever I take a friend to the Metropolitan Museum of Art in New York, my favorite thing to show them because the question is, well, how did you know this great civilization and pyramids and amazing sculptures? Where did it all begin? And I take them to the Neolithic case. So this is more than seven thousand years ago, and you look at these stunning, beautifully carved Neolithic flint blades, and there's something very Egyptian about them, even. Many thousands of years before the pyramids, and it's clear that they'd mastered stone.
+[00:15:30] Sarah: Yeah, I mean, so when whenever I take a friend to the Metropolitan Museum of Art in New York, my favorite thing to show them because the question is, well, how did you know this great civilization and pyramids and amazing sculptures? Where did it all begin? And I take them to the Neolithic case. So this is more than 7,000 years ago, and you look at these stunning, beautifully carved Neolithic flint blades, and there's something very Egyptian about them, even. Many thousands of years before the pyramids, and it's clear that they'd mastered stone.
 
 [00:16:01] Unknown speaker: Right.
 
@@ -138,7 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:16:18] Adam: And then I think the very first tweet response was, " It's aliens."
 
-[00:16:23] Norm: That's about right. Thirty years of internet, and that's what we can't we've come to
+[00:16:23] Norm: That's about right. 30 years of internet, and that's what we can't we've come to
 
 [00:16:28] Unknown speaker: [unclear: Just / Just, yeah].
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:18:29] Sarah: Yeah, I've worked all over the world.
 
-[00:18:30] Will: So, I mean, I have to imagine that there's an amazing moment when you kind of first open up a tomb or or a dwelling or whatever that's been, like I said, unspoiled for four, three, four thousand years. What does that? What does that feel like? And and like what? Can you describe the sensations of just kind of going in there
+[00:18:30] Will: So, I mean, I have to imagine that there's an amazing moment when you kind of first open up a tomb or or a dwelling or whatever that's been, like I said, unspoiled for 4, 3, 4 thousand years. What does that? What does that feel like? And and like what? Can you describe the sensations of just kind of going in there
 
 [00:18:30] Will: for the first time
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:19:09] Will: okay.
 
-[00:19:09] Sarah: But so so when we when yes so when we're digging so it's this it's so magical and and otherworldly because I I sort of I have to fight right I'm a dorky scientist I'm very grounded in years and years of method and theory and there's a there's a way to dig correctly right and it's like it's like twelve science experiments are going on all at once and you really have to make sure that your work crew's doing what they need to do and everything's being recorded because to dig is to destroy but then like it's insane because you're digging up things from thousands of years ago and whoever gets to do this and I wanted to do this ever since I was five and I read National Geographic and I saw Indiana Jones for the first time so I'm like constantly tempering this inner five year old inside me and and and because you never ever know what is going to come up and you could go for days and days and days and days and you know it's Pretty standard. You're uncovering things. You have to have a lot of patience, and then there's this moment where there's a flip on the site, and there's a change in the energy, and everyone comes running because a thing has been found, whatever that thing is. It could be it could be something really tiny. It could be a little amulet. It could be something that you've missed because you send all your buckets of earth to be sieved, and it's really easy to miss things. It could be that you know the thing you hope would be there wasn't. So, like, I work at a site about two hours south of Cairo called Lisht, and it was Egypt's Middle Kingdom capital city called Itjtawy. It's an extraordinary site, and you have two pyramids there from Amenemhet the First and Senwosret the First, who are the founders of Dynasty Twelve, sort of the high point of Egypt's Great Renaissance period. And there are thousands upon thousands of tombs there from the people who lived and worked at Itjtawy. And the season that we were there, so this was 2015, we were excavating the tomb was. Partly looted, and then we came across a two-meter-tall inscribed stele.
+[00:19:09] Sarah: But so so when we when yes so when we're digging so it's this it's so magical and and otherworldly because I I sort of I have to fight right I'm a dorky scientist I'm very grounded in years and years of method and theory and there's a there's a way to dig correctly right and it's like it's like 12 science experiments are going on all at once and you really have to make sure that your work crew's doing what they need to do and everything's being recorded because to dig is to destroy but then like it's insane because you're digging up things from thousands of years ago and whoever gets to do this and I wanted to do this ever since I was five and I read National Geographic and I saw Indiana Jones for the first time so I'm like constantly tempering this inner five year old inside me and and and because you never ever know what is going to come up and you could go for days and days and days and days and you know it's Pretty standard. You're uncovering things. You have to have a lot of patience, and then there's this moment where there's a flip on the site, and there's a change in the energy, and everyone comes running because a thing has been found, whatever that thing is. It could be it could be something really tiny. It could be a little amulet. It could be something that you've missed because you send all your buckets of earth to be sieved, and it's really easy to miss things. It could be that you know the thing you hope would be there wasn't. So, like, I work at a site about two hours south of Cairo called Lisht, and it was Egypt's Middle Kingdom capital city called Itjtawy. It's an extraordinary site, and you have two pyramids there from Amenemhet the First and Senwosret the First, who are the founders of Dynasty 12, sort of the high point of Egypt's Great Renaissance period. And there are thousands upon thousands of tombs there from the people who lived and worked at Itjtawy. And the season that we were there, so this was 2015, we were excavating the tomb was. Partly looted, and then we came across a two-meter-tall inscribed stele.
 
 [00:21:13] Will: What’s a stela?
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:31:07] Sarah: It was rent control. Right.
 
-[00:31:12] Adam: Oh my gosh, it's so like, it's so. I love reading about ancient history because one of the things I feel like is if I was suddenly zapped to a Roman market two thousand years ago, the thing that would surprise me the most is how unsurprising it would be. How much I would feel familiarly like I am in a city.
+[00:31:12] Adam: Oh my gosh, it's so like, it's so. I love reading about ancient history because one of the things I feel like is if I was suddenly zapped to a Roman market 2,000 years ago, the thing that would surprise me the most is how unsurprising it would be. How much I would feel familiarly like I am in a city.
 
 [00:31:31] Sarah: Yeah, I mean, yeah, walking around a site like Pompeii, it's just like walking around the old part of any any European city, and you know, you sort of imagine the tavernas and the drunken, rowdy people. And
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:31:47] Adam: There is the brothels. Yep, I like to point out to people that there is graffiti on one of the walls in Pompeii that complains about this generation of kids having no level of respect or stick to itiveness. And I was like, that's a a thing to log. Every generation complains about the previous.
 
-[00:32:03] Sarah: Well, in ancient Egypt, there is a—there is a quote from the New Kingdom, so three thousand eight hundred years ago, saying a boy's ears are upon his back. In other words, boys will only listen if you beat them.
+[00:32:03] Sarah: Well, in ancient Egypt, there is a—there is a quote from the New Kingdom, so 3,800 years ago, saying a boy's ears are upon his back. In other words, boys will only listen if you beat them.
 
 [00:32:20] Unknown speaker: Wow! Wow!
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:37:47] Unknown speaker: All right.
 
-[00:37:47] Will: Um, I think that they do a grave disservice to that show by making the marketing about the big guy in the spacesuit when that's literally like the first thirty seconds of the television show and that's it.
+[00:37:47] Will: Um, I think that they do a grave disservice to that show by making the marketing about the big guy in the spacesuit when that's literally like the first 30 seconds of the television show and that's it.
 
 [00:37:58] Adam: Fascinating.
 

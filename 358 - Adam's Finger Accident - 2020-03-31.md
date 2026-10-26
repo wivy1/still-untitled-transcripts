@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:02:06] Norm: These are all new considerations as we're now into the third week of this new normal. For those of us in the Bay Area, it was just announced this morning we're going to be doing this for till you know end of April, beginning of May. So that's why I'm thinking about things like, like chairs.
 
-[00:02:22] Will: Did you see that that work from home supplies are now like webcams? Webcams are going for 250 or 300 bucks on eBay now because the webcam the bottom has fallen out of the webcam market or its supply.
+[00:02:22] Will: Did you see that that work from home supplies are now like webcams? Webcams are going for $250 or $300 on eBay now because the webcam the bottom has fallen out of the webcam market or its supply.
 
 [00:02:36] Adam: Oh my God,
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:05:11] Adam: No, no, no, no. It's not that she would delight in screwing Norm up, but she would consider it a learning exercise because she likes learning new skills, and she would use Norm as her as her hairdressing doll, and it might and it might not work. You know, it's anybody's guess.
 
-[00:05:27] Will: I've got I've got the idea here. This is a billion dollars. I hesitate to put this out of the podcast because it's such a fantastic idea. We need to repurpose some of your spacesuits, get the hairdressers in them, and bring people in one clean up at a time. They can wear the they can wear the Mercury helmet in the background. They'll be totally clean. Everything's going to be great. We can all get nice, good haircuts. We'll look good.
+[00:05:27] Will: I've got I've got the idea here. This is $1 billion. I hesitate to put this out of the podcast because it's such a fantastic idea. We need to repurpose some of your spacesuits, get the hairdressers in them, and bring people in one clean up at a time. They can wear the they can wear the Mercury helmet in the background. They'll be totally clean. Everything's going to be great. We can all get nice, good haircuts. We'll look good.
 
 [00:05:49] Adam: I'll tell you, I've been surprised in my grooming habits during the uh, uh, the sheltering in place, and that I'm shaving every morning.
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:11:13] Will: coming in cold.
 
-[00:11:14] Adam: Yeah. Uh, Friday, I was not sure what to work on, and I remembered that my lathe has had this problem. My lathe has about eleven dials that change different parts of its speed, and the main dial for the spindle speed has four settings. Ah, well, eight settings, but four on the primary arm, and I lost one. Like I could get it into three settings, but not all four, and it's been a.
+[00:11:14] Adam: Yeah. Uh, Friday, I was not sure what to work on, and I remembered that my lathe has had this problem. My lathe has about 11 dials that change different parts of its speed, and the main dial for the spindle speed has four settings. Ah, well, eight settings, but four on the primary arm, and I lost one. Like I could get it into three settings, but not all four, and it's been a.
 
 [00:11:47] Will: Is this like a transmission thing where it has like a transmission inside and the gears to the spindle? Okay.
 
@@ -296,11 +296,11 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:21:04] Will: Or life, yeah.
 
-[00:21:04] Adam: and and and sometimes it's a it's a it's a fence post. Should I go get stitches? Shouldn't I? And I've had like I cut myself on a bandsaw about eight years ago, ten years ago, and the second I did it, I'm like hospital. I knew without even looking at it that this was a hospital visit. This one, this one, 100%. This is a hospital visit. This is totally stitch worthy. Um, but again, at this moment in time, I don't want to get around doctors. Well, I don't want to waste their time. I don't want to expose myself.
+[00:21:04] Adam: and and and sometimes it's a it's a it's a fence post. Should I go get stitches? Shouldn't I? And I've had like I cut myself on a bandsaw about eight years ago, 10 years ago, and the second I did it, I'm like hospital. I knew without even looking at it that this was a hospital visit. This one, this one, 100%. This is a hospital visit. This is totally stitch worthy. Um, but again, at this moment in time, I don't want to get around doctors. Well, I don't want to waste their time. I don't want to expose myself.
 
 [00:21:35] Will: I I was gonna say this is the threshold for. Do I take a picture of this before I have to sit down? Right.
 
-[00:21:42] Adam: Well, so this is the other thing is, and I've talked about this. I have a I have a fainting reaction when I cut my hands specifically. I often faint, and I, so being very cognizant of that, I I I tightened up my core, my solar plexus, to keep blood in my head, and I called my mom. I knew my wife was actually working. I knew she was doing. Doing her job, and my mom was at the house. And I knew Fridays she does not, she does not see patients. My mom is a psychotherapist who's been seeing her regular patients on the phone. And I knew that she was not working, so I called her. I'm like, " Wow, I'm calling my mommy. How about this?" So I called her, and I'm like, " Hey, could you come to the shop?" And she's like, " Yeah, is everything okay?" I'm like, " Yeah, just come to the shop." So about ten minutes later, she arrives, and I'm not. All I'm doing at that point is irrigating it. I have medical, I have medical saline, I have iodine, and I have hydrogen peroxide, and I'm spraying it down, cleaning the rest of my hands. Uh, I got towels out, I got toilet paper out, I got all the things that I need, and I'm just making sure that this cut is as clean as I can possibly make it.
+[00:21:42] Adam: Well, so this is the other thing is, and I've talked about this. I have a I have a fainting reaction when I cut my hands specifically. I often faint, and I, so being very cognizant of that, I I I tightened up my core, my solar plexus, to keep blood in my head, and I called my mom. I knew my wife was actually working. I knew she was doing. Doing her job, and my mom was at the house. And I knew Fridays she does not, she does not see patients. My mom is a psychotherapist who's been seeing her regular patients on the phone. And I knew that she was not working, so I called her. I'm like, " Wow, I'm calling my mommy. How about this?" So I called her, and I'm like, " Hey, could you come to the shop?" And she's like, " Yeah, is everything okay?" I'm like, " Yeah, just come to the shop." So about 10 minutes later, she arrives, and I'm not. All I'm doing at that point is irrigating it. I have medical, I have medical saline, I have iodine, and I have hydrogen peroxide, and I'm spraying it down, cleaning the rest of my hands. Uh, I got towels out, I got toilet paper out, I got all the things that I need, and I'm just making sure that this cut is as clean as I can possibly make it.
 
 [00:22:56] Norm: Wait, and it's the inside, right? It's the inside.
 
@@ -366,7 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:27:01] Adam: everything. Everything about this, I am a lucky, lucky, lucky, lucky man, and I feel very guilty. I'm survival guilt about surviving. I mean, so I actually just shot a piece for tested about it, Norm. On my phone, I'll send you this. We can cut it together because look, it's instructive. Whenever I have complicated feelings around something to do with shop practice, I figure it's reasonable to shoot something about it.
 
-[00:27:30] Will: I mean, this is this is stuff that everybody with a shop faces, right? I, I, we, Norm and I have a mutual friend who got really excited about woodworking, and he bought some chisels and he started doing stuff by hand. And he's like, " I'm going to go take some classes," and he went to a woodworking shop near him, and he walked in there and he was talking to the old timers who were hanging out, and they were like, " Oh yeah, we do lessons on Thursdays." And he started counting fingers in the room, and there's all these guys that have been doing woodworking stuff for forty, fifty years, and all of them are missing at least one knuckle. And he's like, " I'm going to stick with the chisels. The chisels seem good."
+[00:27:30] Will: I mean, this is this is stuff that everybody with a shop faces, right? I, I, we, Norm and I have a mutual friend who got really excited about woodworking, and he bought some chisels and he started doing stuff by hand. And he's like, " I'm going to go take some classes," and he went to a woodworking shop near him, and he walked in there and he was talking to the old timers who were hanging out, and they were like, " Oh yeah, we do lessons on Thursdays." And he started counting fingers in the room, and there's all these guys that have been doing woodworking stuff for 40, 50 years, and all of them are missing at least one knuckle. And he's like, " I'm going to stick with the chisels. The chisels seem good."
 
 [00:28:02] Adam: Yeah, it is part of. It is. Something it's part of every shop, and it's part of working in a shop. And you know, when I tweeted the story on Saturday, um, somebody tweeted back, " Every injury they've had was during reassembly because it's when their guard is down," and that makes complete sense.
 
@@ -442,11 +442,11 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:33:06] Will: There's only what three or four seasons of that. It's short.
 
-[00:33:09] Adam: Two seasons, twenty-three episodes and twenty-two episodes. It's forty-five.
+[00:33:09] Adam: Two seasons, 23 episodes and 22 episodes. It's 45.
 
 [00:33:13] Will: Doesn't seem long.
 
-[00:33:14] Adam: Four. Yeah, it's it's like twenty hours total to watch the whole thing.
+[00:33:14] Adam: Four. Yeah, it's it's like 20 hours total to watch the whole thing.
 
 [00:33:17] Will: It's so good. It's so good.
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:33:19] Will: Yeah,
 
-[00:33:21] Norm: I will say, yeah, for West Wing and and people who it's you know over ten years old, the seventh season I think is fantastic. I think the introduction
+[00:33:21] Norm: I will say, yeah, for West Wing and and people who it's you know over 10 years old, the seventh season I think is fantastic. I think the introduction
 
 [00:33:29] Adam: Really?
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:33:48] Will: He's there at the end of the fourth season. Yeah.
 
-[00:33:50] Norm: Yeah, I don't want to spoil if you haven't seen the show, but it's one of those things that as we're getting close to the end of the series, like a lot of these ensemble shows, you grow with these characters or you come to know them over a hundred and something episodes, and you really fall in love with them, and it's really hard to say goodbye. I don't know. It's like reading a book, and you're getting to the last chapter or so, and especially you know, like a show like Mad Men, right? You know, you're at the last season, you see how far someone like Peggy's gone, you know, Roger and everyone, and the last like three or four episodes, you're like kind of savoring every scene because they're wrapping up all the stories, and you're finding out you'll you'll never know where these characters are after the show ends. That you know, the door is closed to your window, right into their world. Um, and the West Wing does something interesting, where in the beginning of the last season, the very opening scene of season seven is a flash forward to three years later, and so they give you this tiny five minute glimpse into three years later as to who's married, who lives where, and so you get that little peek into where they are. And it's very if you're a sentimental person,
+[00:33:50] Norm: Yeah, I don't want to spoil if you haven't seen the show, but it's one of those things that as we're getting close to the end of the series, like a lot of these ensemble shows, you grow with these characters or you come to know them over 100 and something episodes, and you really fall in love with them, and it's really hard to say goodbye. I don't know. It's like reading a book, and you're getting to the last chapter or so, and especially you know, like a show like Mad Men, right? You know, you're at the last season, you see how far someone like Peggy's gone, you know, Roger and everyone, and the last like three or four episodes, you're like kind of savoring every scene because they're wrapping up all the stories, and you're finding out you'll you'll never know where these characters are after the show ends. That you know, the door is closed to your window, right into their world. Um, and the West Wing does something interesting, where in the beginning of the last season, the very opening scene of season seven is a flash forward to three years later, and so they give you this tiny five minute glimpse into three years later as to who's married, who lives where, and so you get that little peek into where they are. And it's very if you're a sentimental person,
 
 [00:34:57] Adam: do Donna and Christian Slater end up together? That's what I want to know.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:44:54] Norm: Hey, that's right. Oh, Dark, Dark Forest and.
 
-[00:44:57] Will: I don't know if I can make it through a thousand pages of Cixin Liu.
+[00:44:57] Will: I don't know if I can make it through 1,000 pages of Cixin Liu.
 
 [00:45:03] Adam: Uh, so wait, I've been working on this. Uh, we should pronounce it. We should speak it the other way, Liu.
 

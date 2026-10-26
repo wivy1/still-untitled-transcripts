@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:00:31] Will: Um, those those are my favorite kind of harmless baiting of of Twitter trolls. But um, but I I did actually go back and watch the first couple of episodes of Voyager the other night because I realized I was talking to a friend about Star Trek and we talked about DS9, which I never watched. I think I'm going to embark on a full rewatch of that because people seem to love it. Um, and and they were like, " Look, Voyager is way better than it got credit for at the time," and. The first episode is a kind of a banger. The first couple episodes, but but um, it is, it it like it is showing its age in a way a lot of '90s TV is. In that it's really low resolution. It's really really grainy and kind of crappy. The transfer that they use on, I guess Netflix or Hulu or wherever I was watching it was is awful. Hmm. Um. But yeah, I mean, it seemed and the effects are are like early CG bad.
 
-[00:01:26] Norm: The '90s are going to be a really interesting place. You know, fifty years down from now, when we look back at the history of television and film, because up from film to the late '80s, everything was shot on film. TV, right? TV Star Trek Next Generation was maybe edited on video, but shot on film.
+[00:01:26] Norm: The '90s are going to be a really interesting place. You know, 50 years down from now, when we look back at the history of television and film, because up from film to the late '80s, everything was shot on film. TV, right? TV Star Trek Next Generation was maybe edited on video, but shot on film.
 
 [00:01:43] Adam: Right.
 
@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:03:32] Unknown speaker: Slow heat on the pan.
 
-[00:03:33] Adam: And I actually have a I think it's a fourteen or sixteen inch Teflon pan, which is perfect for a small or medium pizza. Um, and frankly, I almost think that pizza's better when you reheat it on the skillet than when you get it from the pizza parlor. Sometimes,
+[00:03:33] Adam: And I actually have a I think it's a 14 or 16 inch Teflon pan, which is perfect for a small or medium pizza. Um, and frankly, I almost think that pizza's better when you reheat it on the skillet than when you get it from the pizza parlor. Sometimes,
 
 [00:03:53] Norm: Well, especially if it's delivery. Yeah,
 
@@ -100,11 +100,11 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:05:33] Norm: Much quicker, and I can reheat pizza a thousand ways, much quicker, but it takes like an order of magnitude more time to do the slow reheat pizza. But it is an order of magnitude better.
 
-[00:05:43] Adam: Twenty five minutes easily because you want to do it so low. By the time the cheese melts, it's crispy.
+[00:05:43] Adam: 25 minutes easily because you want to do it so low. By the time the cheese melts, it's crispy.
 
 [00:05:49] Norm: Yes.
 
-[00:05:50] Will: Huh. So I usually just put it on the steel in the oven at like four hundred for maybe six minutes and get the same crispiness. I just have to heat up the whole house to do it. So you know pros and cons.
+[00:05:50] Will: Huh. So I usually just put it on the steel in the oven at like 400 for maybe six minutes and get the same crispiness. I just have to heat up the whole house to do it. So you know pros and cons.
 
 [00:06:01] Norm: One extra step we do in our house for pizza, and depends on the pizza. You know, if you have a lot of people like a lot of cheese. So if you have New York style, you don't have a ton of cheese necessarily. In California, there's a lot of cheese. We'll do a slow heat, and for 30 seconds, or maybe even less, we'll flip the pizza slice, and just get the cheese a little bit crispy, but not so long so the oils come out and it gets melty. But just do a a quick burn on the cheese on the top.
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:06:58] Unknown speaker: Yeah.
 
-[00:06:58] Adam: And that's what you want. You want it? You you want to reheat them in the microwave for like. Ten minutes, fifteen minutes until they're soft and kind of gooey. Then you line them up in a waffle iron and you clamp that thing down and you really let them go for like fifteen or twenty minutes. They basically keep saying it's almost impossible to screw it up, and then you have to serve it with syrup chup, which is a one-to-one mixture of ketchup and maple syrup.
+[00:06:58] Adam: And that's what you want. You want it? You you want to reheat them in the microwave for like. 10 minutes, 15 minutes until they're soft and kind of gooey. Then you line them up in a waffle iron and you clamp that thing down and you really let them go for like 15 or 20 minutes. They basically keep saying it's almost impossible to screw it up, and then you have to serve it with syrup chup, which is a one-to-one mixture of ketchup and maple syrup.
 
 [00:07:27] Will: No,
 
@@ -182,15 +182,15 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:10:25] Norm: Okay.
 
-[00:10:25] Adam: And when you do that, what he does is he gets within probably fifty thou using a scroll saw, and then the die filer is how he brings it into that final profile. And if you the die filer is a perfectly vertical file, and you actually has replaceable files, so you can put a round one, a square one, a triangular one in there, and it gives you this tremendous amount of control over over that last filing operation, and you don't have to worry that you're like you know adding curves by using your hands
+[00:10:25] Adam: And when you do that, what he does is he gets within probably 50 thou using a scroll saw, and then the die filer is how he brings it into that final profile. And if you the die filer is a perfectly vertical file, and you actually has replaceable files, so you can put a round one, a square one, a triangular one in there, and it gives you this tremendous amount of control over over that last filing operation, and you don't have to worry that you're like you know adding curves by using your hands
 
 [00:10:56] Norm: because it's perpendicular. But is it also analog, where like a like a sewing machine, you can Or is it a fixed fixed rate? Uh,
 
-[00:11:04] Adam: yeah, no, and so I have a variable speed. I bought a little Sherline lathe motor speed control for like a hundred bucks. Uh, put a belt, made a little gear pulley for that, and it runs beautifully. And I mean, I this project idled for like eighteen months, maybe even longer in the shop. Metal Lathe Accessories is the shop that sells this kit. They sell you a bunch of raw cast iron castings, and then you cut your reference surfaces, and then you slowly make this whole machine. And it's a beautiful design because it's very forgiving. It gives there's a lot of latitude to kind of screw up and still make it work, which is good for me because this is let machining big bores at like one thousandth precision is not my specialty, and it's been a real learning curve.
+[00:11:04] Adam: yeah, no, and so I have a variable speed. I bought a little Sherline lathe motor speed control for like $100. Uh, put a belt, made a little gear pulley for that, and it runs beautifully. And I mean, I this project idled for like 18 months, maybe even longer in the shop. Metal Lathe Accessories is the shop that sells this kit. They sell you a bunch of raw cast iron castings, and then you cut your reference surfaces, and then you slowly make this whole machine. And it's a beautiful design because it's very forgiving. It gives there's a lot of latitude to kind of screw up and still make it work, which is good for me because this is let machining big bores at like one thousandth precision is not my specialty, and it's been a real learning curve.
 
 [00:11:49] Adam: Yeah.
 
-[00:11:53] Adam: But in the last couple of days, I've made I made this little vise. Uh, and I'm like so in love, Norm. You'll be happy. I've been shooting everything, lots of like close-up machine porn of this thing. And the thing is, I was thinking, oh, I got to get some chunks of machinable cast iron. And I came across this video of a guy who made a lathe indexer using an old cast iron barbell. And I was like, oh, you could use cast iron you have around. So I have this whole bin full of old machine tool parts. And I grabbed this. Um, It's a keeper for the bottom of a steady rest, uh, that I no longer have. And the keeper was, you know, about probably six hundred thousandths thick. And I was able to machine, uh, like a solid billet, and out of that billet, I made this, uh, this little tracking, uh, vise, which will be part of a one day build of another tool mod that I'm currently working on.
+[00:11:53] Adam: But in the last couple of days, I've made I made this little vise. Uh, and I'm like so in love, Norm. You'll be happy. I've been shooting everything, lots of like close-up machine porn of this thing. And the thing is, I was thinking, oh, I got to get some chunks of machinable cast iron. And I came across this video of a guy who made a lathe indexer using an old cast iron barbell. And I was like, oh, you could use cast iron you have around. So I have this whole bin full of old machine tool parts. And I grabbed this. Um, It's a keeper for the bottom of a steady rest, uh, that I no longer have. And the keeper was, you know, about probably 600 thousandths thick. And I was able to machine, uh, like a solid billet, and out of that billet, I made this, uh, this little tracking, uh, vise, which will be part of a one day build of another tool mod that I'm currently working on.
 
 [00:12:54] Will: That's lovely.
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:15:26] Will: Is it like benchtop or small? It's it's a mini.
 
-[00:15:29] Adam: So Sherline is probably about like this long, like eighteen inches. This one is more like probably 26 inches, and with the with the mill combo, it's you know good two feet high, but still it's very desk friendly.
+[00:15:29] Adam: So Sherline is probably about like this long, like 18 inches. This one is more like probably 26 inches, and with the with the mill combo, it's you know good two feet high, but still it's very desk friendly.
 
 [00:15:42] Norm: Yeah,
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:18:26] Will: Yeah.
 
-[00:18:26] Adam: Um, I half of my tooling came from one Grandpa's shop sale about twelve thirteen years ago that blew my freaking mind. Um, and those show up every few years, so it's it's worth checking Craigslist on a regular basis, and they're always on eBay.
+[00:18:26] Adam: Um, I half of my tooling came from one Grandpa's shop sale about 12 13 years ago that blew my freaking mind. Um, and those show up every few years, so it's it's worth checking Craigslist on a regular basis, and they're always on eBay.
 
 [00:18:34] Will: Okay.
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:19:30] Adam: Glad everyone stuck around for that mental exercise. You're welcome, everybody.
 
-[00:19:35] Will: If you know if you have a line on Adam's old mill and lathe, call one eight hundred LatheBusters.
+[00:19:35] Will: If you know if you have a line on Adam's old mill and lathe, call 1-800 LatheBusters.
 
 [00:19:40] Adam: I I bought it actually from Mitch Romanauski, uh, uh, who was the, uh, shop lead on Nightmare Before Christmas and James and the Giant Peach? He was my mentor.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:20:20] Will: Yeah, we'll ruin the market tomorrow.
 
-[00:20:24] Adam: I remember I bought my first Curta organ grinder coffee grinder calculator. I hadn't bought one. I've been ogling them for years, and then Wired asked me to do a column on things that I'd always wanted that I hadn't yet obtained, and I wrote a thousand words on on the Curta. And before it came out, I was like. Ah, I'm gonna bump the eBay price a few bucks. I better. I'm just gonna buy one now. I don't know what's my—. I don't know what the long tail of this is gonna be, but just in case this makes the this increases the market value, I'm uh I'm gonna buy one.
+[00:20:24] Adam: I remember I bought my first Curta organ grinder coffee grinder calculator. I hadn't bought one. I've been ogling them for years, and then Wired asked me to do a column on things that I'd always wanted that I hadn't yet obtained, and I wrote 1,000 words on on the Curta. And before it came out, I was like. Ah, I'm gonna bump the eBay price a few bucks. I better. I'm just gonna buy one now. I don't know what's my—. I don't know what the long tail of this is gonna be, but just in case this makes the this increases the market value, I'm uh I'm gonna buy one.
 
 [00:21:00] Will: It's it's funny that stuff happens in such unexpected places. I remember there was, like every once in a while there'll be a video game that will let you root a console or something like that, and it's it's almost always some terrible like movie license tie-in like some kids title like Barbie Horse Adventures or something like that, and then the the news of the of the hack gets released, and all of a sudden you know whether it's a Blu-ray disc that lets you hack a Blu-ray player or drive or whatever those things they go off the you know they get really expensive really fast. So
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:34:14] Adam: Right, they talk super fast.
 
-[00:34:16] Norm: It is two hundred words a minute, where the average speaking speed is ninety words a minute, which is the only reason, and it's complete personal preference. I know a lot of people don't want to watch with subtitles because it distracts from the performance.
+[00:34:16] Norm: It is 200 words a minute, where the average speaking speed is 90 words a minute, which is the only reason, and it's complete personal preference. I know a lot of people don't want to watch with subtitles because it distracts from the performance.
 
 [00:34:28] Unknown speaker (Adam, Norm or Will): Yeah,
 

@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:03:30] Norm: the emergency sous vide.
 
-[00:03:31] Will: The like who I was sitting there, I was like, I open the I opened the oven two hours before the the meat was supposed to be done because I was doing it. It's like you cook it at one hundred and fifty, one hundred and seventy degrees as low as your oven goes. Yeah, and I opened the door and I stuck my hand in there. I was like, man, it feels a lot cooler than 170 degrees. Wait, it's room to,. Wait, this hasn't cooked at all. What's and and you know, it was the full on full on Christmas emergency. Yeah, and then it worked out, so it was all good. That's we had a really good time. Norm,
+[00:03:31] Will: The like who I was sitting there, I was like, I open the I opened the oven two hours before the the meat was supposed to be done because I was doing it. It's like you cook it at 150, 170 degrees as low as your oven goes. Yeah, and I opened the door and I stuck my hand in there. I was like, man, it feels a lot cooler than 170 degrees. Wait, it's room to,. Wait, this hasn't cooked at all. What's and and you know, it was the full on full on Christmas emergency. Yeah, and then it worked out, so it was all good. That's we had a really good time. Norm,
 
 [00:03:57] Norm: I was over at a friend's place in Alameda. Some friends have tested. Hung out with Sean Charlesworth, Frank Ippolito, Rebecca Watson, and had a lovely New Year.
 
@@ -442,7 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:18:30] Adam: yeah.
 
-[00:18:30] Will: Which which helps. I've also it's been on a hundred times probably since it came out on video.
+[00:18:30] Will: Which which helps. I've also it's been on 100 times probably since it came out on video.
 
 [00:18:36] Norm: Did you see the edit of Inside Out?
 
@@ -456,9 +456,9 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:18:44] Adam: And how long is it? It's
 
-[00:18:44] Will: like twelve minutes,
+[00:18:44] Will: like 12 minutes,
 
-[00:18:45] Norm: fifteen minutes, and it makes perfect sense as a as a short film.
+[00:18:45] Norm: 15 minutes, and it makes perfect sense as a as a short film.
 
 [00:18:48] Adam: Really,
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:26:21] Adam: A lot of it's a lot of work. It's a lot of viewing.
 
-[00:26:22] Norm: Fifty-seven hours. There's
+[00:26:22] Norm: 57 hours. There's
 
 [00:26:23] Adam: a
 
@@ -744,7 +744,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:31:07] Will: It's good. It's good for them.
 
-[00:31:07] Adam: Totally, totally. You know, it is. It's great to for me to kick off the season by by showing how the sausage gets made because we had such an incredible sausage factory there. You know, the crew. I said it on tour a million times, and it just bears repeating infinitely. MythBusters wasn't just Jamie and I; it was this cadre of eighteen people in San Francisco. The crew, when we were running at full bore with Kari, Grant and Tory as well, was about twenty-two people. Still, an incredibly small crew by television standards, which means that everybody is a Swiss Army knife. Everybody is putting their all into what they're doing, and a good portion of the crew, like a farm team, started out as runners and interns and became producers and a camera people, b camera people, drone operators, and wonderful, wonderful. Experience to let them shine on the on the show.
+[00:31:07] Adam: Totally, totally. You know, it is. It's great to for me to kick off the season by by showing how the sausage gets made because we had such an incredible sausage factory there. You know, the crew. I said it on tour a million times, and it just bears repeating infinitely. MythBusters wasn't just Jamie and I; it was this cadre of 18 people in San Francisco. The crew, when we were running at full bore with Kari, Grant and Tory as well, was about 22 people. Still, an incredibly small crew by television standards, which means that everybody is a Swiss Army knife. Everybody is putting their all into what they're doing, and a good portion of the crew, like a farm team, started out as runners and interns and became producers and a camera people, b camera people, drone operators, and wonderful, wonderful. Experience to let them shine on the on the show.
 
 [00:32:04] Will: That's all. I mean, it turns out the best way to make sure you get people who are reliable and awesome is to, you know, only is to only hire people at the low level and train them into the awesome, amazing people that you want them to be.
 
@@ -754,7 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:32:35] Adam: This morning, I had Thing One doing some sorting for me of some Apollo level documentation that I had for my spacesuit, and he was like, " This is really tedious." I'm like, " This is 95% of the special effects industry. What you're doing right now."
 
-[00:32:48] Will: I mean, was it you that told me that that on Star Wars they didn't have superglue yet, so people were just standing there holding stuff with epoxy for ten minutes?
+[00:32:48] Will: I mean, was it you that told me that that on Star Wars they didn't have superglue yet, so people were just standing there holding stuff with epoxy for 10 minutes?
 
 [00:32:55] Adam: Yep.
 
@@ -806,7 +806,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:34:36] Will: Well, and and so what we saw with the with the with the Tippett shoot, I mean, they were just animating characters. When you're doing an actual stop motion shoot in a stop motion set, you have to the sets. When you see that scene where the scene the background seems alive, and there's a bird flying through, and there's water flowing,
 
-[00:34:52] Adam: every last thing has been touched by a person. Every frame, twenty four frames a second, sixty seconds a minute. I mean,
+[00:34:52] Adam: every last thing has been touched by a person. Every frame, 24 frames a second, 60 seconds a minute. I mean,
 
 [00:34:58] Norm: breaking space time.
 

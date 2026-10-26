@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:02:37] Adam: Yeah, yeah. But unmanned aerial vehicles filming the wildfires, hampering firefighting efforts. Now I'm going to give them the benefit of the doubt and say maybe you don't realize that filming a wildfire, which I get the reason you want to get high up that it's going to look amazing and the footage will be cool. But you need to know is that when a firefighting helicopter or plane comes through and they see any bogeys in the air, they do not waste any time; they go back home to base. And
 
-[00:03:04] Will: each of those flights is a cost of about ten grand, right? Right,
+[00:03:04] Will: each of those flights is a cost of about $10,000, right? Right,
 
 [00:03:07] Adam: and they're not dropping water.
 
@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:05:55] Will: What are the drone nationals in the
 
-[00:05:56] Norm: public? It was the organized event where they brought in like one hundred and twenty competitors from around the world to race around a course and do freestyle. It really felt like like an X Games style competition. Oh,
+[00:05:56] Norm: public? It was the organized event where they brought in like 120 competitors from around the world to race around a course and do freestyle. It really felt like like an X Games style competition. Oh,
 
 [00:06:06] Adam: cool.
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:06:35] Will: Fon's been on the site,
 
-[00:06:36] Adam: yeah. Yeah, Fon Davis started this group of enthusiasts who bought cheap foam RC planes, and we'd go into one of the empty rooms, which is this is an empty room that was eighty thousand square feet. Right, this is where they used to build P fifty ones during World War II, and everyone would fly their planes, and the goal is fly them into each other, which is actually really difficult. It's it's less a dogfight than a coordination exercise to try and smash your planes into others.
+[00:06:36] Adam: yeah. Yeah, Fon Davis started this group of enthusiasts who bought cheap foam RC planes, and we'd go into one of the empty rooms, which is this is an empty room that was 80,000 square feet. Right, this is where they used to build P-51s during World War II, and everyone would fly their planes, and the goal is fly them into each other, which is actually really difficult. It's it's less a dogfight than a coordination exercise to try and smash your planes into others.
 
 [00:07:03] Will: We're not built for 3D space.
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:07:14] Will: right?
 
-[00:07:14] Adam: And I hate that. I mean, we did it safely. We actually had—I don't know if we—if it made it into the final episode because I didn't watch the whole thing last night, but um, we actually had a cable out at the front of the barrel that was cabled and bolted to the car so that even if our entire rig failed, except for the trigger and the gun unmounted from its mount, it couldn't do anything but still point within that thirty-degree arc.
+[00:07:14] Adam: And I hate that. I mean, we did it safely. We actually had—I don't know if we—if it made it into the final episode because I didn't watch the whole thing last night, but um, we actually had a cable out at the front of the barrel that was cabled and bolted to the car so that even if our entire rig failed, except for the trigger and the gun unmounted from its mount, it couldn't do anything but still point within that 30-degree arc.
 
 [00:07:14] Will: Okay,
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:09:08] Norm: Could end it there.
 
-[00:09:09] Adam: You could absolutely, but season five, as Julia kept saying, " Fully operatic." Season five, the last sixteen episodes, completely operatic, and some of the worst stuff possible to imagine.
+[00:09:09] Adam: You could absolutely, but season five, as Julia kept saying, " Fully operatic." Season five, the last 16 episodes, completely operatic, and some of the worst stuff possible to imagine.
 
 [00:09:22] Norm: Yeah, I'm glad he got out of the Canada, where wherever it was,
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:09:22] Norm: Yeah, in the cold, wherever he was. Yes, yes, got out that quickly.
 
-[00:09:30] Adam: Anyway, so it was. She spotted of everything. [unclear: Fifty / Fifteen]. She's much smarter than I am. When she watches television, she keeps on guessing and then looking at my face, and I have a terrible poker face, so she's pretty much guessing what's happening about twenty minutes ahead of time the whole time.
+[00:09:30] Adam: Anyway, so it was. She spotted of everything. [unclear: Fifty / Fifteen]. She's much smarter than I am. When she watches television, she keeps on guessing and then looking at my face, and I have a terrible poker face, so she's pretty much guessing what's happening about 20 minutes ahead of time the whole time.
 
 [00:09:43] Will: That's good.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:11:37] Will: Like Project Runway and stuff fall somewhere in between.
 
-[00:11:39] Adam: Yeah, but I think Project Runway is structured reality because it's the same. Again, it's a structure. We've been nominated. This is our seventh nomination. Antiques Roadshow, I believe, is their twelfth nomination.
+[00:11:39] Adam: Yeah, but I think Project Runway is structured reality because it's the same. Again, it's a structure. We've been nominated. This is our seventh nomination. Antiques Roadshow, I believe, is their 12th nomination.
 
 [00:11:39] Will: Ooh.
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:16:29] Will: Oh, that's nice.
 
-[00:16:30] Adam: They were it's all a bunch of friends of ours. But we got back. I was back for twenty four hours, and then I had to fly to Oregon because we had a shoot up in Eastern Oregon in the high desert all week long on MythBusters. So I didn't get any time to recover. It was twelve hour days back to back all week in 95 degree heat.
+[00:16:30] Adam: They were it's all a bunch of friends of ours. But we got back. I was back for 24 hours, and then I had to fly to Oregon because we had a shoot up in Eastern Oregon in the high desert all week long on MythBusters. So I didn't get any time to recover. It was 12 hour days back to back all week in 95 degree heat.
 
 [00:16:48] Will: Oh, I sounded like a '50s starlet until about Wednesday.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:18:09] Adam: Absolutely, and so I think that the category needs both some great spectacle and dark and intense scripts. I totally agree with that. But I like maybe it's that my kids were playing the trailer for me, and I am like in this room full of people listening to this really, really intense talk. I don't want to say it on the on the.
 
-[00:18:31] Norm: No, no, I agree, and I think that film because studios want movies to be PG thirteen to reach a wider audience. Filmmakers who want to get an R feel like they have to earn the R,
+[00:18:31] Norm: No, no, I agree, and I think that film because studios want movies to be PG-13 to reach a wider audience. Filmmakers who want to get an R feel like they have to earn the R,
 
 [00:18:31] Adam: right?
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:19:40] Adam: they didn't want to pay the full budget for a giant budget, you know, right?
 
-[00:19:43] Will: 200,000,000 dollars, hundred and fifty film. Yeah, I mean, but the thing that happens is you end up seeing things like Ex Machina that are really, really low budget that that retain the R's,
+[00:19:43] Will: $200 million, hundred and fifty film. Yeah, I mean, but the thing that happens is you end up seeing things like Ex Machina that are really, really low budget that that retain the R's,
 
 [00:19:43] Adam: Yes.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:23:20] Will: I still haven't watched it.
 
-[00:23:21] Adam: Oh my god! Easily a hundred thousand people must die,
+[00:23:21] Adam: Oh my god! Easily 100,000 people must die,
 
 [00:23:25] Norm: and that was the answer
 
@@ -566,7 +566,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:24:14] Adam: Yeah.
 
-[00:24:14] Will: Whereas Marvel's like, well, we just destroyed like twelve blocks. It's no big deal.
+[00:24:14] Will: Whereas Marvel's like, well, we just destroyed like 12 blocks. It's no big deal.
 
 [00:24:14] Adam: Yeah.
 
@@ -656,11 +656,11 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:28:41] Will: So the cooling system, just so everybody knows, is super straightforward. It's a tank. It's an acrylic tank with this immersion pump.
 
-[00:28:47] Adam: Yes, so I had these. I had an acrylic box made for me at TAP Plastics at a reasonable cost. I then drilled into it to install a pump and a port for filling it full of ice and water. Um. Coming out of it are two quick connect, two quick connect plugs that connect up to a Coolshirt. Coolshirt is a manufacturer of race gear for race car drivers, but also for EMT workers and people who are suffering heat stroke. They make these garments as health, basically to bring someone's temperature down. And it worked terrifically. The lithium ion batteries that I was using, which were from small Makita drills, power the submersible pump for ninety minutes.
+[00:28:47] Adam: Yes, so I had these. I had an acrylic box made for me at TAP Plastics at a reasonable cost. I then drilled into it to install a pump and a port for filling it full of ice and water. Um. Coming out of it are two quick connect, two quick connect plugs that connect up to a Coolshirt. Coolshirt is a manufacturer of race gear for race car drivers, but also for EMT workers and people who are suffering heat stroke. They make these garments as health, basically to bring someone's temperature down. And it worked terrifically. The lithium ion batteries that I was using, which were from small Makita drills, power the submersible pump for 90 minutes.
 
 [00:28:47] Will: That's fantastic.
 
-[00:28:47] Adam: If you run it at full bore, it's going to melt all the ice inside of twenty minutes. But you'll see in the video, Chris and I are constantly turning it on and off.
+[00:28:47] Adam: If you run it at full bore, it's going to melt all the ice inside of 20 minutes. But you'll see in the video, Chris and I are constantly turning it on and off.
 
 [00:29:41] Will: So it's important you are able to do. Like if you're building one of these your own on your own, it's important you're able to do that because if you leave it running full bore the whole time, you'll get hypothermia.
 
@@ -946,7 +946,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:42:43] Will: Yeah. Um. Any other? This is our last chance to talk about Comic Con. So, is there anything else you want to talk about?
 
-[00:42:48] Adam: Um. I. I will say. I. I at the beginning of the party, I spent about ninety minutes talking to a crap ton of Tested Premium members, and I just everybody was so awesome. Um. You know, not only do I love meeting the fans, but seemingly more often than not, um, they're avid contributors to Tested, to the comments, but also to builds and people who've sent us stuff and people we've covered. Um, that whole cross section was represented at the party, and I just I love talking to everybody. It's one of the great things about having that party is getting to meet the people that are supporting the site.
+[00:42:48] Adam: Um. I. I will say. I. I at the beginning of the party, I spent about 90 minutes talking to a crap ton of Tested Premium members, and I just everybody was so awesome. Um. You know, not only do I love meeting the fans, but seemingly more often than not, um, they're avid contributors to Tested, to the comments, but also to builds and people who've sent us stuff and people we've covered. Um, that whole cross section was represented at the party, and I just I love talking to everybody. It's one of the great things about having that party is getting to meet the people that are supporting the site.
 
 [00:43:23] Will: The costumes that people wore to the party
 
@@ -980,7 +980,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:44:25] Adam: So great.
 
-[00:44:25] Will: Twelve dollars.
+[00:44:25] Will: $12.
 
 [00:44:25] Will: Yeah. And then I spray painted it silver and tan. So yeah,
 

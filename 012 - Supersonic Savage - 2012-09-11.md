@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:00:30] Norm: How often do you get to work out of this office as an office? Is it? Should you work here?
 
-[00:00:34] Adam: Well, so I often stage things on this table. It's usually like just cluttered with crap. The table we're sitting at, my desk right here. That's usually I come in and check emails, whatever, fifteen twenty times a day, and at lunch I'll sit there and eat a sandwich and write or whatever I need to do.
+[00:00:34] Adam: Well, so I often stage things on this table. It's usually like just cluttered with crap. The table we're sitting at, my desk right here. That's usually I come in and check emails, whatever, 15-20 times a day, and at lunch I'll sit there and eat a sandwich and write or whatever I need to do.
 
 [00:00:51] Norm: And then you have filled in here memorabilia from over the years.
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:08:12] Unknown speaker: That's awesome.
 
-[00:08:12] Adam: Because he's now flying, uh, maybe like forty feet back and over to the side from the lead plane.
+[00:08:12] Adam: Because he's now flying, uh, maybe like 40 feet back and over to the side from the lead plane.
 
 [00:08:20] Will: Uh-huh.
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:09:15] Adam: As long as I can see that,
 
-[00:09:16] Adam: I'm good. Here's the other thing: I've been in large pieces of equipment, and when they move, when you move around large things, there's always a little bit of settling, right? You move a crane, and it—right. Um the the F/A-18s they weigh 35,000 pounds with another 10,000 pounds in fuel or something like that. It's crazy amounts of metal and fuel. So this thing is like the heaviest vehicle I've ever been in, aside from a, a jet. And as he is telling me about aligning parts of the tick marks on the wing with the logo, he's doing it. And when he's doing it, it's he's going boop, boop, boop, and he's just moving. And so the whole plane's orientation to the other plane is moving precisely like twelve inches forward.
+[00:09:16] Adam: I'm good. Here's the other thing: I've been in large pieces of equipment, and when they move, when you move around large things, there's always a little bit of settling, right? You move a crane, and it—right. Um the the F/A-18s they weigh 35,000 pounds with another 10,000 pounds in fuel or something like that. It's crazy amounts of metal and fuel. So this thing is like the heaviest vehicle I've ever been in, aside from a, a jet. And as he is telling me about aligning parts of the tick marks on the wing with the logo, he's doing it. And when he's doing it, it's he's going boop, boop, boop, and he's just moving. And so the whole plane's orientation to the other plane is moving precisely like 12 inches forward.
 
 [00:10:06] Will: He thinks it, and it happens almost.
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:10:46] Will: Wow.
 
-[00:10:47] Adam: And not and and in just like you know about as easily as you could turn a piece of paper. It's just like whoop, and it flipped one eighty, and now you're looking at the earth instead of the sky.
+[00:10:47] Adam: And not and and in just like you know about as easily as you could turn a piece of paper. It's just like whoop, and it flipped 180, and now you're looking at the earth instead of the sky.
 
 [00:10:56] Norm: And when you were in the chase plane, you were documenting this. You were—
 
@@ -228,9 +228,9 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:11:13] Will: I can imagine.
 
-[00:11:14] Norm: It's a little more than the camera—pointing a camera outside of a seven forty seven.
+[00:11:14] Norm: It's a little more than the camera—pointing a camera outside of a 747.
 
-[00:11:17] Adam: Yeah, and there's a point at which we're pulling a roll, and like now the camera weighs like a hundred pounds.
+[00:11:17] Adam: Yeah, and there's a point at which we're pulling a roll, and like now the camera weighs like 100 pounds.
 
 [00:11:22] Will: Well, and I have to imagine after like even flying in like a, a small prop plane like a Cessna or something like that, the difference in flying with windows versus the difference when flying on a commercial jet with a with a little tiny window versus this where you just have 180 degrees of vision—and above you has got to be astounding.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:12:17] Will: And that's that's got to be the best reserves of all time, right?
 
-[00:12:20] Adam: Right? So he—we said, "What's the hardest thing you've—what's the hardest thing you guys have to do? If being in the Blue Angels is, it's not that it's easy, but for these guys, it's all in a day's work. What is the really, really hard stuff you've got to do?" And he said, landing on an aircraft carrier at night in a storm in the North Atlantic. And so then he just started to describe. Now I have to preface this with: this is how I remember him telling me the story. If anybody out there knows that I am getting some facts wrong, go ahead and write in. I am sorry about it, but here is what he was telling me. He said, "First of all, in the storm, the waves are pitching up and down, thirty, forty foot swells. Big, maybe less than that, but it’s big, huge swells. So the aircraft carrier is going up and down,
+[00:12:20] Adam: Right? So he—we said, "What's the hardest thing you've—what's the hardest thing you guys have to do? If being in the Blue Angels is, it's not that it's easy, but for these guys, it's all in a day's work. What is the really, really hard stuff you've got to do?" And he said, landing on an aircraft carrier at night in a storm in the North Atlantic. And so then he just started to describe. Now I have to preface this with: this is how I remember him telling me the story. If anybody out there knows that I am getting some facts wrong, go ahead and write in. I am sorry about it, but here is what he was telling me. He said, "First of all, in the storm, the waves are pitching up and down, 30, 40 foot swells. Big, maybe less than that, but it’s big, huge swells. So the aircraft carrier is going up and down,
 
 [00:13:05] Will: Bucking.
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:13:14] Norm: What's the frequency like? What? How long is it in the valley?
 
-[00:13:16] Adam: It's it's not long; it's seconds. Right? So when you think about like a, I remember reading this in a in a book about the the the Drake's Passage circumnavigation race. If you've got like a thirty foot swell, they can be traveling at like 25 miles per hour. So imagine a hill coming up underneath you at 25 miles per hour, and so these swells are moving much faster than you'd think is really possible when we're sitting here in a nice, cozy room.
+[00:13:16] Adam: It's it's not long; it's seconds. Right? So when you think about like a, I remember reading this in a in a book about the the the Drake's Passage circumnavigation race. If you've got like a 30 foot swell, they can be traveling at like 25 miles per hour. So imagine a hill coming up underneath you at 25 miles per hour, and so these swells are moving much faster than you'd think is really possible when we're sitting here in a nice, cozy room.
 
 [00:13:47] Norm: So you don't want the aircraft carrier to drop out underneath you as you land,
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:16:01] Will: Mm-hmm.
 
-[00:16:01] Adam: So the the the the hornet takes off, and he goes, "You want to do a rapid ascent?" And I was like, "Sure." And he goes, "Ready? Hit it!" And when he says "hit it," it's not like you're like, "Okay, now something's going to happen." At the end of the T of "hit it," radical things happen, and in this case, the plane starts climbing at like a thousand feet a second or something incredible,
+[00:16:01] Adam: So the the the the hornet takes off, and he goes, "You want to do a rapid ascent?" And I was like, "Sure." And he goes, "Ready? Hit it!" And when he says "hit it," it's not like you're like, "Okay, now something's going to happen." At the end of the T of "hit it," radical things happen, and in this case, the plane starts climbing at like 1,000 feet a second or something incredible,
 
 [00:16:22] Will: Accelerating into the climb, right?
 
@@ -302,9 +302,9 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:16:53] Adam: Yeah.
 
-[00:16:55] Will: Yeah, how long were the flights? Is it like twenty, thirty minutes, or is it a long time?
+[00:16:55] Will: Yeah, how long were the flights? Is it like 20, 30 minutes, or is it a long time?
 
-[00:16:59] Adam: No, it was a good hour for each flight, like forty-five, fifty minutes per flight.
+[00:16:59] Adam: No, it was a good hour for each flight, like 45, 50 minutes per flight.
 
 [00:17:03] Will: So were they the kind of thing that went really, really fast, and you were like, "Oh, I can't believe we're done already," or was it just so physically exhausting and mentally exhausting that it seemed like a really, really long time?
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:19:09] Norm: So, what about the myth of the end, the the glass?
 
-[00:19:12] Adam: We were able to make the glass burst, but we had to be. It was I wasn't in the plane at that point because of insurance. I think it was something like sixteen feet above the ground. It was an incredible— Oh my goodness! Maybe it wasn't that close,
+[00:19:12] Adam: We were able to make the glass burst, but we had to be. It was I wasn't in the plane at that point because of insurance. I think it was something like 16 feet above the ground. It was an incredible— Oh my goodness! Maybe it wasn't that close,
 
 [00:19:25] Will: But it was. I mean, it was probably not like modern safety glass.
 

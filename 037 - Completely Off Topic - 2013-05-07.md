@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:01:31] Adam: Okay, this is a little bit of a derail, but it's a good story.
 
-[00:01:34] Adam: So, one of the key scenes in Almost Famous that Cameron Crowe wrote into the film is, uh, the kid, in order to convince his mom that rock and roll has soul and is a real art form, plays her Stairway to Heaven, and in the film, it was supposed to happen in real time. So that they basically—the movie stops while you look at him and Frances McDormand listening to the song in real time. The whole—and Crowe was like, "It was my favorite scene in the movie. It made it through all fifty drafts of the script. And if you had asked me at the beginning and at the end what scene is going to be the soul of this movie, I would have said that scene." And the moment they got in the editing room, he's like, "It's got to go. It totally doesn't work. It's too—"
+[00:01:34] Adam: So, one of the key scenes in Almost Famous that Cameron Crowe wrote into the film is, uh, the kid, in order to convince his mom that rock and roll has soul and is a real art form, plays her Stairway to Heaven, and in the film, it was supposed to happen in real time. So that they basically—the movie stops while you look at him and Frances McDormand listening to the song in real time. The whole—and Crowe was like, "It was my favorite scene in the movie. It made it through all 50 drafts of the script. And if you had asked me at the beginning and at the end what scene is going to be the soul of this movie, I would have said that scene." And the moment they got in the editing room, he's like, "It's got to go. It totally doesn't work. It's too—"
 
 [00:02:18] Will: It's not in the director's cut.
 
@@ -236,7 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:06:47] Norm: And you didn't give that gun to him.
 
-[00:06:50] Adam: That's good. That is absolutely the kind of thing that can totally lose me. My, my friend David loves the bit that is like in Batman Dark Knight Rises: "No one has ever gotten out of this prison, except for an eleven-year-old girl." But extra materials, I exhort you to go and watch the extra materials commentary for The Matrix, the first DVD release of The Matrix.
+[00:06:50] Adam: That's good. That is absolutely the kind of thing that can totally lose me. My, my friend David loves the bit that is like in Batman Dark Knight Rises: "No one has ever gotten out of this prison, except for an 11-year-old girl." But extra materials, I exhort you to go and watch the extra materials commentary for The Matrix, the first DVD release of The Matrix.
 
 [00:07:19] Unknown speaker: Who's on it?
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:10:35] Norm: Yeah, with distribution and, and who produce that DVD for that market? I mean, they do their own art, art for the DVD.
 
-[00:10:40] Adam: I'll tell you. I'll tell you another DVD, uh, extra materials weirdness, and this one's directed right at my employer, Discovery. Discovery, so MythBusters has shot, um—we shoot and edit a forty-eight-minute cut for international television, but in the US it's forty-two and a half minutes.
+[00:10:40] Adam: I'll tell you. I'll tell you another DVD, uh, extra materials weirdness, and this one's directed right at my employer, Discovery. Discovery, so MythBusters has shot, um—we shoot and edit a 48-minute cut for international television, but in the US it's 42.5 minutes.
 
 [00:10:57] Will: So hold on, we're getting screwed out of six minutes of Mythb—MythBusters every week?
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:13:07] Will: He's just by him, by himself?
 
-[00:13:08] Adam: Just Val by himself, and it's, it's kind of a surrealist masterpiece. At one point, he, he starts to assert that Mamet doesn't actually do any of the directing; that his thirteen-year-old daughter does all the directing. And the reason these night shots are stupid and shitty is because she had to go to bed and so couldn't direct them.
+[00:13:08] Adam: Just Val by himself, and it's, it's kind of a surrealist masterpiece. At one point, he, he starts to assert that Mamet doesn't actually do any of the directing; that his 13-year-old daughter does all the directing. And the reason these night shots are stupid and shitty is because she had to go to bed and so couldn't direct them.
 
 [00:13:29] Will: Oh my God! It's a look in his psyche at that point of his career.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:16:23] Adam: Could—yeah, but I like to think of him as from Hooper.
 
-[00:16:26] Will: Well, I, I grew up—I'm going to go ahead and tell you, Airwolf, featuring the, the comic stylings of Ernest Borgnine, was a regular viewing in my household when I was ten years old or however old I was.
+[00:16:26] Will: Well, I, I grew up—I'm going to go ahead and tell you, Airwolf, featuring the, the comic stylings of Ernest Borgnine, was a regular viewing in my household when I was 10 years old or however old I was.
 
 [00:16:37] Adam: So The Stunt Man is a really dark movie starring Peter O'Toole as a crazy director, and I think, I could be wrong on this, it's Jan-Michael Vincent, and someone will no doubt correct me if I am wrong.
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:17:39] Will: Oh, yeah.
 
-[00:17:40] Adam: Right, like a lot of times in, in literature and other stuff about movies, you have to read between the lines to realize, like, "Oh wow, that must have been shitty, shitty, shitty." Like in the, uh, Cinefex about Titanic, which I know for many of the people who worked on it was one of the hardest movies to work on ever. And there's one point in Cinefex, they're like, "Yeah, we needed a 45-foot-long Titanic, and we built it in sixty days with a hundred model makers." And I think that sounds like a Dantean terror.
+[00:17:40] Adam: Right, like a lot of times in, in literature and other stuff about movies, you have to read between the lines to realize, like, "Oh wow, that must have been shitty, shitty, shitty." Like in the, uh, Cinefex about Titanic, which I know for many of the people who worked on it was one of the hardest movies to work on ever. And there's one point in Cinefex, they're like, "Yeah, we needed a 45-foot-long Titanic, and we built it in 60 days with 100 model makers." And I think that sounds like a Dantean terror.
 
 [00:18:13] Will: Wow.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:19:26] Will: Never seen Once and Again.
 
-[00:19:27] Adam: She's playing one of the daughters in the show. She was only like twelve or thirteen years old, and she's unbelievably brilliant in it. And there's this great bit of commentary where, uh, oh my God, am I getting the name wrong? Can you look it up?
+[00:19:27] Adam: She's playing one of the daughters in the show. She was only like 12 or 13 years old, and she's unbelievably brilliant in it. And there's this great bit of commentary where, uh, oh my God, am I getting the name wrong? Can you look it up?
 
 [00:19:39] Will: The TV show?
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:20:58] Will: That's awesome.
 
-[00:20:59] Adam: And then he'll show you a scene. There's another scene in one episode where she's got a secret, and the other daughter—you know, another little girl—knows the secret and sort of reveals it offhand. And Evan Rachel Wood, you see the penny drop behind her eyes when she realizes that her secret's out. And Zwick talks you through it on the commentary: "Watch her," he said. "Rewind this and watch this. Watch the—her eyes. Look there, she's got it. She's not reacting yet. Watch this. Now she's holding it back." Look at all that sophistication in like a thirteen- or fourteen-year-old girl. That's amazing.
+[00:20:59] Adam: And then he'll show you a scene. There's another scene in one episode where she's got a secret, and the other daughter—you know, another little girl—knows the secret and sort of reveals it offhand. And Evan Rachel Wood, you see the penny drop behind her eyes when she realizes that her secret's out. And Zwick talks you through it on the commentary: "Watch her," he said. "Rewind this and watch this. Watch the—her eyes. Look there, she's got it. She's not reacting yet. Watch this. Now she's holding it back." Look at all that sophistication in like a 13- or 14-year-old girl. That's amazing.
 
 [00:21:34] Norm: And that's, that's why commentaries are so great. There's so much that goes into the production of a movie. Yeah. And all the shots they take and all the nuances and things that, you know, you can read a, a analysis and, and, and talk to a film student about it, but when you listen to the commentary, and they're just giving you a, a little bit—
 

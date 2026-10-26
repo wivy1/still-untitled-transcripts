@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:00:33] Norm: Yeah. And no surprise if you've been following any of us on social media, we are in New Zealand,
 
-[00:00:38] Adam: Wellington, beautiful Wellington, New Zealand, at the south end of New Zealand's North Island, and it's like when we arrived, the weather was precisely what I had left in San Francisco, mid seventies, slightly drizzly. It was uncanny how much the doors matched on both sides.
+[00:00:38] Adam: Wellington, beautiful Wellington, New Zealand, at the south end of New Zealand's North Island, and it's like when we arrived, the weather was precisely what I had left in San Francisco, mid 70s, slightly drizzly. It was uncanny how much the doors matched on both sides.
 
 [00:00:56] Norm: Now, before you guys out there ask, we're not going to talk about everything we're doing here. We're saving some surprises, but it's also No surprise that the room that we're recording in, we are at Weta Workshop currently.
 
@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:03:48] Norm: to the specifications, and the only currently flying one of this model. So the back seat, which is a beautiful, beautiful seat.
 
-[00:03:57] Adam: Again, every last thing in this plane is built perfectly to the specs of the thousand blueprints that it that were developed in Britain in 1916, 1915 to make this thing, and every bit of it is like a jewel of plywood and hardwood and cables and canvas and
+[00:03:57] Adam: Again, every last thing in this plane is built perfectly to the specs of the 1,000 blueprints that it that were developed in Britain in 1916, 1915 to make this thing, and every bit of it is like a jewel of plywood and hardwood and cables and canvas and
 
 [00:04:14] Joey: Yeah, using all the same was like Irish, [unclear: Irish nylon bodies, silver] to protect it from UV. But yeah, [unclear: you were saying you had the little camera / like I was saying, you had the little camera / like you were saying, you have to be very careful], that little camera target, right? This plane was specifically for taking photos.
 
@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:06:10] Joey: and then we see him go up in the clouds, and then just come drop down on you, which was amazing to watch.
 
-[00:06:15] Adam: So it also really brings home. And I just finished Hugh Seg, Hugh Sebag Montefiore's book on the Somme battle of World War One, called Into the Breach, which is riveting and like every other book about World War One, horrifying. But it really brings it home how primitive the airplane, the airplane was. Less than like twelve years old when World War One is happening, and this is a brand new technology. And you're in these things made of wood and paper. It feels like, and when you see how close the German plane can get, you're like, " How did anybody survive this?"
+[00:06:15] Adam: So it also really brings home. And I just finished Hugh Seg, Hugh Sebag Montefiore's book on the Somme battle of World War One, called Into the Breach, which is riveting and like every other book about World War One, horrifying. But it really brings it home how primitive the airplane, the airplane was. Less than like 12 years old when World War One is happening, and this is a brand new technology. And you're in these things made of wood and paper. It feels like, and when you see how close the German plane can get, you're like, " How did anybody survive this?"
 
 [00:06:52] Joey: What was Peter saying? Like five five hours you get to spend with the plane,
 
@@ -214,11 +214,11 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:10:40] Adam: countries.
 
-[00:10:40] Norm: Very different. They speak about each other very differently, even how they participated in the war. And the people here have been extremely gracious. Let's try to paint a word picture of like what what a workshop is like, like an operation, because you know we've shown workshops and effect houses of different scales, and of course a little bit of the rooms in Weta. But I think it's it's hard to communicate that. It is over one hundred people here.
+[00:10:40] Norm: Very different. They speak about each other very differently, even how they participated in the war. And the people here have been extremely gracious. Let's try to paint a word picture of like what what a workshop is like, like an operation, because you know we've shown workshops and effect houses of different scales, and of course a little bit of the rooms in Weta. But I think it's it's hard to communicate that. It is over 100 people here.
 
-[00:11:09] Adam: One hundred and fifty. One hundred and fifty full-time staff. One hundred and forty.
+[00:11:09] Adam: 150. 150 full-time staff. 140.
 
-[00:11:11] Norm: Yeah, it's well over a hundred people here, spread across the departments that we typically have covered on Tested in terms of sculpting, you know, mold making, casting. But these are big, big departments working on multiple projects at once,
+[00:11:11] Norm: Yeah, it's well over 100 people here, spread across the departments that we typically have covered on Tested in terms of sculpting, you know, mold making, casting. But these are big, big departments working on multiple projects at once,
 
 [00:11:28] Adam: with large amounts of output required at high degrees of perfection. You know, if they're they're working on some a whole bunch of weapons downstairs, there are stunt weapons, background weapons, foreground weapons, hero weapons, all being finished in different degrees of perfection. Yeah, it's a it's a humming machine,
 
@@ -252,9 +252,9 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:13:12] Adam: And they work hand in glove lots of the time, but they're two separate entities. So we're talking about the physical production plant at Weta, and yeah, Richard Taylor, you know, we talked to him a lot this weekend about the philosophy of running a large shop and keeping people employed, and what are the important aspects of that? And it's clear that from the top on down, this is a family.
 
-[00:13:33] Norm: Yeah, totally, totally. And what was it that they've been running this shop for over over twenty years now? It's how many how many families have come out of this shop?
+[00:13:33] Norm: Yeah, totally, totally. And what was it that they've been running this shop for over over 20 years now? It's how many how many families have come out of this shop?
 
-[00:13:43] Adam: That was great. Richard said, yeah, he's like he views it not how much profit or many movies they've run through, but how many babies have been born. It's over eighty. Wow. How many mortgages people have been able to buy from the work that they're doing? I mean, that's those are the right things to be concentrating on.
+[00:13:43] Adam: That was great. Richard said, yeah, he's like he views it not how much profit or many movies they've run through, but how many babies have been born. It's over 80. Wow. How many mortgages people have been able to buy from the work that they're doing? I mean, that's those are the right things to be concentrating on.
 
 [00:13:59] Joey: It's something that barely exists anymore, at least in the states where I'm, Los Angeles, California.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:15:04] Norm: like just. You line with you know it feels like the whole thing is like a version of the cave, right? Where where you have workshop and creative space, and and except that sprawling in like a rabbit hole, it's kind of kind of breathtaking.
 
-[00:15:22] Adam: Also, just overall, how Wellington is a magnificently beautiful city. I just I really really love it here. This is my third time staying here. It's the longest time I'll have been here. We're staying for ten days. You guys for twelve days, and I just feel so at home here.
+[00:15:22] Adam: Also, just overall, how Wellington is a magnificently beautiful city. I just I really really love it here. This is my third time staying here. It's the longest time I'll have been here. We're staying for 10 days. You guys for 12 days, and I just feel so at home here.
 
 [00:15:38] Joey: Yeah, I want to spend more time coming through here and driving around. This is the first time we've seen the sun, which is right.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:22:01] Joey: Yeah, it's like summer time in Cornwall.
 
-[00:22:02] Joey: It was it was the sun was setting at ten p.m. So I was watching the sunset. All right, it's time for dinner. Like everything was closed.
+[00:22:02] Joey: It was it was the sun was setting at 10 p.m. So I was watching the sunset. All right, it's time for dinner. Like everything was closed.
 
 [00:22:09] Adam: Right, like as we're recording this, we have like five more hours of sunlight, and the sun sets in California in like an hour.
 

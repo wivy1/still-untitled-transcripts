@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:01:48] Norm: That won’t fly in weather like that..
 
-[00:01:48] Will: My ass, like when you're walking around, like the places where skin is like. Luckily, I have a beard. And I had a hat and I had mittens, but the like the area from the top of my beard to my glasses just felt like knives were stabbing it. And then after you've been outside for about ten minutes, that also happens to your ass if you are not wearing double pants. Let's see what else. What else did I learn? I learned that if you lay down and make a snow angel when it's that cold, it is almost certainly a mistake, and that it it once you get below negative ten, then it's cold enough that your skin doesn't have to be wet to stick to metal. So,
+[00:01:48] Will: My ass, like when you're walking around, like the places where skin is like. Luckily, I have a beard. And I had a hat and I had mittens, but the like the area from the top of my beard to my glasses just felt like knives were stabbing it. And then after you've been outside for about 10 minutes, that also happens to your ass if you are not wearing double pants. Let's see what else. What else did I learn? I learned that if you lay down and make a snow angel when it's that cold, it is almost certainly a mistake, and that it it once you get below negative 10, then it's cold enough that your skin doesn't have to be wet to stick to metal. So,
 
 [00:01:48] Adam: oh wow,
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:03:21] Will: Yeah.
 
-[00:03:21] Adam: Anyway, so we're back at the hotel one night, and it's like twenty-five below zero, and literally so cold that we're getting headaches going the sixty feet from the car to the hotel.
+[00:03:21] Adam: Anyway, so we're back at the hotel one night, and it's like 25 below zero, and literally so cold that we're getting headaches going the 60 feet from the car to the hotel.
 
 [00:03:36] Will: You get the brain freeze if you don't have a hat on.
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:09:27] Adam: yeah,
 
-[00:09:27] Will: but it kind of self organizes. It's really, it's really a neat process. And and you know, as opposed to a normal conference, it goes from like nine o'clock in the morning until five o'clock, and then you go home and go to a bar or something, Yeah, hang out with people that you met that day. This one starts at like ten and goes until six o'clock in the morning. Sometimes,
+[00:09:27] Will: but it kind of self organizes. It's really, it's really a neat process. And and you know, as opposed to a normal conference, it goes from like nine o'clock in the morning until five o'clock, and then you go home and go to a bar or something, Yeah, hang out with people that you met that day. This one starts at like 10 and goes until six o'clock in the morning. Sometimes,
 
 [00:10:31] Adam: oh wow!
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:15:49] Adam: and then a little trip to Los Angeles to take care of some other business, and the shoots going. This is just an incredible crew. We're making some beautiful television. It's very different than what I've made before, although it will also feel quite familiar. It's really exciting. It's it's it's a really really neat thing that we're doing.
 
-[00:16:18] Will: So this is. This is the first time in a while you've like MythBusters Junior. I mean, obviously, the last ten seasons of MythBusters were informed by the first few seasons of MythBusters. The MythBusters Junior. is informed by everything that came before it with MythBusters. This is the first time in a while you've made something that was kind of from scratch.
+[00:16:18] Will: So this is. This is the first time in a while you've like MythBusters Junior. I mean, obviously, the last 10 seasons of MythBusters were informed by the first few seasons of MythBusters. The MythBusters Junior. is informed by everything that came before it with MythBusters. This is the first time in a while you've made something that was kind of from scratch.
 
 [00:16:35] Adam: Well, and obviously, it's got a ton of the same DNA that MythBusters does because it's because it's me.
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:31:22] Adam: Oh my god!
 
-[00:31:22] Norm: And went on a fifteen-minute explanation about the restaurant scene, and then and then the glowing the green, and then the male gaze, and like and it was an easy way to go back and forth.
+[00:31:22] Norm: And went on a 15-minute explanation about the restaurant scene, and then and then the glowing the green, and then the male gaze, and like and it was an easy way to go back and forth.
 
 [00:31:58] Will: Wow.
 
@@ -672,15 +672,15 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:32:50] Adam: Wow. All right, that was that was awesome. Thank you for that.
 
-[00:32:51] Will: No, no, no, okay. Here's here's my here's my here's my analysis of the first ten episodes of Star Trek Discovery.
+[00:32:51] Will: No, no, no, okay. Here's here's my here's my here's my analysis of the first 10 episodes of Star Trek Discovery.
 
-[00:32:58] Norm: There are only ten episodes.
+[00:32:58] Norm: There are only 10 episodes.
 
-[00:32:59] Will: There's fifteen.
+[00:32:59] Will: There's 15.
 
 [00:32:59] Norm: Okay,
 
-[00:32:59] Will: and there's two new ones now. Um, it is an interesting premise with some really. I have some real problems with the early character development. They introduce characters solely for you to hate, and then redeem them over the next like two episodes of each after the introduction of the character. And it doesn't, unlike every other Trek, which starts out with, " Hey, here's a crew that is a unified, cohesive team." This one starts, and this is maybe a spoiler, but it happens in the first like thirty minutes with a mutiny, which doesn't seem very Roddenberry-esque. [unclear: Plot wise,]
+[00:32:59] Will: and there's two new ones now. Um, it is an interesting premise with some really. I have some real problems with the early character development. They introduce characters solely for you to hate, and then redeem them over the next like two episodes of each after the introduction of the character. And it doesn't, unlike every other Trek, which starts out with, " Hey, here's a crew that is a unified, cohesive team." This one starts, and this is maybe a spoiler, but it happens in the first like 30 minutes with a mutiny, which doesn't seem very Roddenberry-esque. [unclear: Plot wise,]
 
 [00:33:31] Norm: it’s not
 
@@ -690,7 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:33:32] Norm: Not great.
 
-[00:33:32] Will: After you get past the first five episodes, it gets it they like I so far of the first ten episodes, which I've watched, they've had maybe two episodes that feel like classic Trek, and then the rest of them feel like a war movie. It feels a little bit like a submarine movie a lot from like like S '60s like Run Silent, Run Deep, or no older than that.
+[00:33:32] Will: After you get past the first five episodes, it gets it they like I so far of the first 10 episodes, which I've watched, they've had maybe two episodes that feel like classic Trek, and then the rest of them feel like a war movie. It feels a little bit like a submarine movie a lot from like like S '60s like Run Silent, Run Deep, or no older than that.
 
 [00:33:52] Adam: Older than that,
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:34:15] Will: Oh yeah, Gene. Turn your key, sir.
 
-[00:34:18] Adam: Gene Hackman turned, I think, eighty nine the other day.
+[00:34:18] Adam: Gene Hackman turned, I think, 89 the other day.
 
 [00:34:18] Will: Wow.
 
@@ -850,7 +850,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:38:33] Will: I always wondered why you had a radiator in the shop because it's always cold as hell here.
 
-[00:38:36] Adam: We made so they'd shot in a they'd shot in a a landmark courtroom in New Orleans, and then they replicated that courtroom on Treasure Island for a bunch of extra scenes. And when they did the thirteen radiators that they that were in the original courtroom, it was it was cheaper to have us build them from scratch than it was to ship like 1,800 pounds of radiators from wherever they were around the country.
+[00:38:36] Adam: We made so they'd shot in a they'd shot in a a landmark courtroom in New Orleans, and then they replicated that courtroom on Treasure Island for a bunch of extra scenes. And when they did the 13 radiators that they that were in the original courtroom, it was it was cheaper to have us build them from scratch than it was to ship like 1,800 pounds of radiators from wherever they were around the country.
 
 [00:38:36] Will: Wow.
 

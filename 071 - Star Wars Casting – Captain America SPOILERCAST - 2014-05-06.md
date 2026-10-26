@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:00:36] Norm: You write them? It's a big list word document.
 
-[00:00:38] Adam: Yeah, I, I, I have seventeen thousand of them.
+[00:00:38] Adam: Yeah, I, I, I have 17,000 of them.
 
 [00:00:41] Will: That is a lot of palindromes.
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:05:35] Norm: Are these like college students? Are they members of the community?
 
-[00:05:35] Adam: It's all over the map. Actually, there's over seven hundred members, I believe. I hope I'm right about this of the of the Connecticut Forum. The youngest members are in grade school or high school. We met a bunch of those kids, and the oldest are, you know, regular people, my age and even older. And they buy season tickets, or they buy tickets individually per event, and you know, everything from watching people talk about medicine to music.
+[00:05:35] Adam: It's all over the map. Actually, there's over 700 members, I believe. I hope I'm right about this of the of the Connecticut Forum. The youngest members are in grade school or high school. We met a bunch of those kids, and the oldest are, you know, regular people, my age and even older. And they buy season tickets, or they buy tickets individually per event, and you know, everything from watching people talk about medicine to music.
 
 [00:05:35] Norm: Politics and—
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:05:35] Norm: It’s like the Commonwealth Club.
 
-[00:06:08] Adam: Yeah, exactly. And except a you know much bigger audience is two and a half thousand people.
+[00:06:08] Adam: Yeah, exactly. And except a you know much bigger audience is 2,500 people.
 
 [00:06:13] Norm: Oh wow! Okay.
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:11:19] Will: Oscar Goldman.
 
-[00:11:20] Will: I know that because of the forty-year-old virgin.
+[00:11:20] Will: I know that because of the 40-year-old virgin.
 
 [00:11:22] Adam: Oh really?
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:12:44] Will: That is a lot of Star Wars figures.
 
-[00:12:44] Adam: I mean, he was missing, you know, maybe like one of the early Boba Fett prototypes, which are like 15,000 dollars.
+[00:12:44] Adam: I mean, he was missing, you know, maybe like one of the early Boba Fett prototypes, which are like $15,000.
 
 [00:12:44] Will: The ones that shoot the that actually have the firing missile, the eye blasters, what they call that one.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:14:22] Adam: Crazy.
 
-[00:14:22] Will: it's a great event if you're if you're anywhere near the Bay Area I think it's like 30 bucks a person kids get in cheaper
+[00:14:22] Will: it's a great event if you're if you're anywhere near the Bay Area I think it's like $30 a person kids get in cheaper
 
 [00:14:47] Adam: and I ran into someone recently who asked me oh is it good for my seven or nine year old
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:14:47] Will: As long as they can hold their own head up and focus at things more than three feet away. Your kids are probably in a perfect age.
 
-[00:15:09] Adam: as long as they can hold their head up. Give them two twenties and send them out to the hot dog stand. You should be fine.
+[00:15:09] Adam: as long as they can hold their head up. Give them two $20s and send them out to the hot dog stand. You should be fine.
 
 [00:15:13] Norm: Yeah, sure.
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:18:09] Norm: Is that Noah Baumbach?
 
-[00:18:09] Adam: Frances Ha is Noah Baumbach’s new film with Greta Gerwig. They wrote it together. It's beautiful, and frankly, having kind of growing up in New York, this is a perfect depiction of the total self-centeredness of the early twenties and growing up in New York. But Adam Driver has a bit part in it, and he's totally different than his character in Girls, and really excellent. So I, I am, I think he's a wonderful actor.
+[00:18:09] Adam: Frances Ha is Noah Baumbach’s new film with Greta Gerwig. They wrote it together. It's beautiful, and frankly, having kind of growing up in New York, this is a perfect depiction of the total self-centeredness of the early 20s and growing up in New York. But Adam Driver has a bit part in it, and he's totally different than his character in Girls, and really excellent. So I, I am, I think he's a wonderful actor.
 
 [00:18:42] Norm: Wonderful. I mean, there's the speculation now is exactly who these people may be playing,
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:23:20] Adam: Not at all.
 
-[00:23:20] Will: But but I mean I'm just saying we've walked the path the the the casting the hype all of the building of of the excitement culminating with me sitting in a line for twelve hours waiting to get into the movie on at midnight.
+[00:23:20] Will: But but I mean I'm just saying we've walked the path the the the casting the hype all of the building of of the excitement culminating with me sitting in a line for 12 hours waiting to get into the movie on at midnight.
 
 [00:23:20] Adam: Yeah.
 
@@ -780,7 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:27:50] Will: yeah,
 
-[00:27:50] Adam: with way too much ridiculous exposition, right? Literally, like, oh, there's an anomaly. Quick, drive to it. I didn't give up four college credits. Sort of everyone, every character is literally like, like, you know, no dots on a line, explicating who they are and where, how they feel about the situation. It feels so formulaic, exhausted. Whereas Winter Soldier, first twenty lines, which carries you like probably fifteen minutes into the movie, the first twenty lines, all of them are great. All of them.
+[00:27:50] Adam: with way too much ridiculous exposition, right? Literally, like, oh, there's an anomaly. Quick, drive to it. I didn't give up four college credits. Sort of everyone, every character is literally like, like, you know, no dots on a line, explicating who they are and where, how they feel about the situation. It feels so formulaic, exhausted. Whereas Winter Soldier, first 20 lines, which carries you like probably 15 minutes into the movie, the first 20 lines, all of them are great. All of them.
 
 [00:27:50] Will: Hold on, it starts with like a with like a secret mission or something. Yeah,
 
@@ -806,7 +806,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:29:12] Adam: No,
 
-[00:29:12] Will: like by the end of Iron Man three, I just wanted to take a nap because I'd seen like sixty five robot suits beat the shit out of each other.
+[00:29:12] Will: like by the end of Iron Man three, I just wanted to take a nap because I'd seen like 65 robot suits beat the shit out of each other.
 
 [00:29:12] Adam: Well,
 
@@ -878,7 +878,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:31:57] Norm: It was. Yes.
 
-[00:31:57] Adam: Okay. Because when I visited the set of of Pacific Rim, the incomparable and my hero Shane Mahan, who's one of the key Stan Winston people for decades, and is not only an incredible draftsman and designer, but also maker extraordinaire, he did all the exo suits for the for for the characters in for the pilots. And I got a tour of the armor trailer. So this full trailer of like you know seventy five suits of armor that that Legacy had built, and I walked in and I went, " Who? How did you chrome flexible rubber?" And Shane went, " Ah, someone who asks the right questions. They have built some amazing techniques in that shop.
+[00:31:57] Adam: Okay. Because when I visited the set of of Pacific Rim, the incomparable and my hero Shane Mahan, who's one of the key Stan Winston people for decades, and is not only an incredible draftsman and designer, but also maker extraordinaire, he did all the exo suits for the for for the characters in for the pilots. And I got a tour of the armor trailer. So this full trailer of like you know 75 suits of armor that that Legacy had built, and I walked in and I went, " Who? How did you chrome flexible rubber?" And Shane went, " Ah, someone who asks the right questions. They have built some amazing techniques in that shop.
 
 [00:32:53] Norm: It looks so
 

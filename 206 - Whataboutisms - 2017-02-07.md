@@ -68,7 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:02:34] Simone: That is an amazing story.
 
-[00:02:35] Adam: And they they had a daughter, Marlena. Marlena, I was I think one of the very first humans to meet her when she was fresh on this planet, and she's now 16 and amazing. And I we got to sit there, two of my oldest friends and I, in a in a restaurant in Berlin, looking at our teenagers being like full adults sitting in front of us. It was awesome. So then we went to from Berlin. We went to Rostock, and then a couple of other towns, finishing up in Papenburg. I got a helicopter flight out into the North Sea as part of this job, which was pretty amazing. And then from there, sixteen hours in Amsterdam before flying home. And I have not been to Amsterdam. Holy cow! It's gorgeous.
+[00:02:35] Adam: And they they had a daughter, Marlena. Marlena, I was I think one of the very first humans to meet her when she was fresh on this planet, and she's now 16 and amazing. And I we got to sit there, two of my oldest friends and I, in a in a restaurant in Berlin, looking at our teenagers being like full adults sitting in front of us. It was awesome. So then we went to from Berlin. We went to Rostock, and then a couple of other towns, finishing up in Papenburg. I got a helicopter flight out into the North Sea as part of this job, which was pretty amazing. And then from there, 16 hours in Amsterdam before flying home. And I have not been to Amsterdam. Holy cow! It's gorgeous.
 
 [00:03:22] Simone: Yeah, you've never been.
 
@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:03:27] Adam: Oh,
 
-[00:03:27] Norm: ten years ago. Yeah.
+[00:03:27] Norm: 10 years ago. Yeah.
 
 [00:03:29] Adam: So, so I know that there is a a word that they have that means like that specifically means like that warm feeling you have when you're with family at the holidays. All of Amsterdam feels like that word, like the windows. There's no curtains on the windows. It's just inside of every house. You can see this warm tableau of European domesticity. Of
 
@@ -168,9 +168,9 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:07:01] Unknown speaker: Oh, look at that.
 
-[00:07:01] Adam: There you go. Oh, it's up to eleven. I love it.
+[00:07:01] Adam: There you go. Oh, it's up to 11. I love it.
 
-[00:07:32] Simone: Yeah, I got a little pin on my jacket that's a volume button that goes up to eleven.
+[00:07:32] Simone: Yeah, I got a little pin on my jacket that's a volume button that goes up to 11.
 
 [00:07:36] Adam: That’s lovely. And so Sketchfest is always like one of my favorite times of the year. It's when I get to see a lot of my friends.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:22:21] Adam: I totally agree. It's a, it's meditative.
 
-[00:22:24] Simone: Yeah. No. And also, but I get so carried away that I'm like, I, I work for ten hours and like my body is just like shaking. And you forget to eat. Like I get really caught up in it.
+[00:22:24] Simone: Yeah. No. And also, but I get so carried away that I'm like, I, I work for 10 hours and like my body is just like shaking. And you forget to eat. Like I get really caught up in it.
 
 [00:22:38] Adam: Yeah.
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:23:03] Adam: Yourself,
 
-[00:23:03] Simone: and it was it's a pretty big. Like they built the bed like a fucking house. Like it's heavy. I bet it it's like leaning on like two two three hundred pounds. And I'm like, no, I'm just gonna lower it. I could call over my friend, but no, I'm just gonna do it myself. And I just, I don't know. It's just a lot of folly.
+[00:23:03] Simone: and it was it's a pretty big. Like they built the bed like a fucking house. Like it's heavy. I bet it it's like leaning on like two 200-300 pounds. And I'm like, no, I'm just gonna lower it. I could call over my friend, but no, I'm just gonna do it myself. And I just, I don't know. It's just a lot of folly.
 
 [00:23:42] Adam: I, I do the same thing. Um, I I had I used to have a benchtop Enco Mill here. It weighs 600 pounds, and I got it onto its stand myself alone here. And I I did it carefully. Don't worry. But I love doing stuff like that. I'm like you. I I'm not gonna call people on a Sunday. I'm just gonna be like, let's just work through this problem.
 

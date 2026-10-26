@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:00:46] Norm: you you you like have a different relationship with those characters and the way they connect to each other.
 
-[00:00:54] Will: I I don't. What was it I used to say at the beginning of this? Is only a test that I said four hundred times.
+[00:00:54] Will: I I don't. What was it I used to say at the beginning of this? Is only a test that I said 400 times.
 
 [00:00:59] Norm: I don't remember.
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:02:21] Will: I wish I could be that. I wish I could do that.
 
-[00:02:23] Will: Like eighty k
+[00:02:23] Will: Like 80 k
 
 [00:02:24] Adam: of a drawing, and he's like, "
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:03:19] Adam: I have a box of hard drives in your garage. You didn't know about that.
 
-[00:03:21] Will: Hey, you're welcome. It's literally every hard drive I've ever owned. Because when I get rid of a laptop, I pull the hard drive and I give the laptop to somebody else or you know whatever, and it goes all the way back to I think a Pentium sixty that I bought in 1994.
+[00:03:21] Will: Hey, you're welcome. It's literally every hard drive I've ever owned. Because when I get rid of a laptop, I pull the hard drive and I give the laptop to somebody else or you know whatever, and it goes all the way back to I think a Pentium 60 that I bought in 1994.
 
 [00:03:21] Unknown speaker: Wow.
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:05:34] Will: Yeah, it's the J. J. Abrams monsters before J. J. Abrams,
 
-[00:05:36] Adam: sure, exactly. So I built my my friend Mark Siegel and I built the very first architectural model of that arena up at the ranch in the art department, and then the model shop took that and made a bigature. You know, it was like eight feet on eight feet in diameter, all beautifully, just absolutely gorgeous, incredible work. And I had just gotten the Canon Powershot one hundred and ten.
+[00:05:36] Adam: sure, exactly. So I built my my friend Mark Siegel and I built the very first architectural model of that arena up at the ranch in the art department, and then the model shop took that and made a bigature. You know, it was like eight feet on eight feet in diameter, all beautifully, just absolutely gorgeous, incredible work. And I had just gotten the Canon Powershot 110.
 
 [00:05:36] Will: Oh yeah,
 
@@ -316,9 +316,9 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:11:41] Will: How old?
 
-[00:11:41] Adam: Twelve, thirteen, thirteen.
+[00:11:41] Adam: 12, 13, 13.
 
-[00:11:42] Will: That's thirteen.
+[00:11:42] Will: That's 13.
 
 [00:11:44] Adam: Yeah,
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:16:23] Adam: Lee DeWyze.
 
-[00:16:23] Norm: Fifty million people watched
+[00:16:23] Norm: 50 million people watched
 
 [00:16:25] Adam: Lee DeWyze is
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:16:41] Adam: it just came back.
 
-[00:16:42] Will: Well, of course. The thing about American Idol, it's like it's fifteen years old. Let's recycle it, do it again. The thing about American Idol back then was it was the last cultural touchstone, like that or Lost were the last things that everybody watched. I walked into an office full of twenty-year-olds,
+[00:16:42] Will: Well, of course. The thing about American Idol, it's like it's 15 years old. Let's recycle it, do it again. The thing about American Idol back then was it was the last cultural touchstone, like that or Lost were the last things that everybody watched. I walked into an office full of 20-year-olds,
 
 [00:16:57] Adam: Right.
 
@@ -434,17 +434,17 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:17:12] Adam: Yeah,
 
-[00:16:42] Will: and we, I mean, we don't have that anymore because there's what TCA's this year probably had a hundred and twenty shows,
+[00:16:42] Will: and we, I mean, we don't have that anymore because there's what TCA's this year probably had 120 shows,
 
 [00:17:19] Adam: right? Right.
 
-[00:17:19] Will: During and back then it would have been thirty or forty probably.
+[00:17:19] Will: During and back then it would have been 30 or 40 probably.
 
 [00:17:22] Adam: So so so when I got the tickets, we didn't tell the boys; we made it a surprise.
 
 [00:17:22] Will: Oh man!
 
-[00:17:22] Adam: And I'll have to look up what year it was. It's I believe it's like 2011. The boys would have been twelve years old.
+[00:17:22] Adam: And I'll have to look up what year it was. It's I believe it's like 2011. The boys would have been 12 years old.
 
 [00:17:22] Will: Okay.
 
@@ -482,7 +482,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:18:36] Will: Okay.
 
-[00:18:38] Adam: Giant, right? Seats eight thousand or something like that.
+[00:18:38] Adam: Giant, right? Seats 8,000 or something like that.
 
 [00:18:42] Norm: It's where the Oscars are.
 
@@ -494,13 +494,13 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:18:50] Will: yeah. The Nokia is where we went to your show. You were you performed there.
 
-[00:18:52] Adam: Yeah, but they they they blocked off a good portion of it, so we didn't have to fill eight thousand seats. That was very very nice of them. So we're at the Biltmore and we're hanging out, and the afternoon comes, and the finale doesn't air for two hours, so we're just walking downtown looking for shoes for thing one.
+[00:18:52] Adam: Yeah, but they they they blocked off a good portion of it, so we didn't have to fill 8,000 seats. That was very very nice of them. So we're at the Biltmore and we're hanging out, and the afternoon comes, and the finale doesn't air for two hours, so we're just walking downtown looking for shoes for thing one.
 
 [00:19:13] Norm: It was it was live. It was live.
 
 [00:19:15] Adam: Yeah. And thing two looks over and goes, Dad, Julia, I think that's the line for American Idol, and I was like, Oh my god, you're right! Holy cow!
 
-[00:19:28] Norm: Twelve year olds, man.
+[00:19:28] Norm: 12 year olds, man.
 
 [00:19:30] Adam: Wouldn't it be amazing if we had four tickets to this?
 
@@ -556,9 +556,9 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:20:56] Adam: because otherwise you'd have to put all. You'd have to lose eight episodes for the last eight episodes of Breaking Bad.
 
-[00:21:00] Norm: That's right, exactly. They couldn't do that, right? So they had to find the moment in the Breaking Bad. So I'm just going to go through like the top ten, and then we'll see if things that you guys shout out fit in that list.
+[00:21:00] Norm: That's right, exactly. They couldn't do that, right? So they had to find the moment in the Breaking Bad. So I'm just going to go through like the top 10, and then we'll see if things that you guys shout out fit in that list.
 
-[00:21:11] Will: I just want to say, like back in the days when we worked on a magazine, going into a conference room with ten people and a giant stack of post-it notes or index cards or whatever, and some tape—
+[00:21:11] Will: I just want to say, like back in the days when we worked on a magazine, going into a conference room with 10 people and a giant stack of post-it notes or index cards or whatever, and some tape—
 
 [00:21:21] Norm: a list and the best X—
 
@@ -594,7 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:21:58] Will: It has to be like five.
 
-[00:22:00] Adam: If you do an hour, ten.
+[00:22:00] Adam: If you do an hour, 10.
 
 [00:22:01] Will: Yeah.
 
@@ -618,7 +618,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:22:40] Adam: That was that was the loveliest thing about becoming friends with Hodgman was I remember him and my wife and I eating at a restaurant, and towards the end of the meal, all three of us were like, " It's delightful to to spend time with someone who takes television as seriously as we do."
 
-[00:22:55] Will: Wow. Well, so then you also need somebody who's willing to [unclear: start the pop / thirteen years ago]
+[00:22:55] Will: Wow. Well, so then you also need somebody who's willing to [unclear: start the pop / 13 years ago]
 
 [00:23:00] Will: You need somebody who's going to be kind of a pain in the ass and who's going to make the the principal decision. Yeah,
 
@@ -648,23 +648,23 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:23:37] Adam: Okay, so okay, what's the list?
 
-[00:23:39] Norm: All right, top ten list. Number one, and and
+[00:23:39] Norm: All right, top 10 list. Number one, and and
 
 [00:23:41] Will: oh, should we guess what the first one is first?
 
-[00:23:43] Adam: Let's do ten down to one.
+[00:23:43] Adam: Let's do 10 down to 1.
 
-[00:23:45] Norm: Okay, so and this when Will and I were making lists back for magazines, this is also a point of contention. And for websites, do you start with a hundred or to one?
+[00:23:45] Norm: Okay, so and this when Will and I were making lists back for magazines, this is also a point of contention. And for websites, do you start with 100 or to 1?
 
-[00:23:52] Adam: Oh, you start with a hundred.
+[00:23:52] Adam: Oh, you start with 100.
 
 [00:23:53] Norm: Well, you want to anticipation.
 
-[00:23:54] Will: Well, we don't start with two fifty if we were doing a list of one hundred, and then we would just cut the bottom one hundred and fifty.
+[00:23:54] Will: Well, we don't start with 250 if we were doing a list of 100, and then we would just cut the bottom 150.
 
 [00:23:54] Will: Right, because like you need to like yeah.
 
-[00:24:01] Norm: Number ten is from Breaking Bad. It's Ozymandias.
+[00:24:01] Norm: Number 10 is from Breaking Bad. It's Ozymandias.
 
 [00:24:05] Adam: Now you told me off mic that Rian Johnson directed that, and I didn't know this. This is the episode in which Hank dies.
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:24:51] Will: Wow.
 
-[00:24:51] Adam: So intense. Okay, number ten. Ozymandias is number ten.
+[00:24:51] Adam: So intense. Okay, number 10. Ozymandias is number 10.
 
 [00:25:01] Norm: Number nine, and this one caught me a little off guard. The pilot for the OC.
 
@@ -720,7 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:25:20] Norm: Exactly. It is the thing that showed that teenagers and tweens will consume soap opera style drama on broadcast television. We're talking about very early.
 
-[00:25:31] Will: I mean, you could argue that nine hundred two one zero did that. Ten years, fifteen years before,
+[00:25:31] Will: I mean, you could argue that 90210 did that. 10 years, 15 years before,
 
 [00:25:34] Norm: and then the OC begat, you know, Laguna Beach begat the Kardashians.
 
@@ -754,7 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:26:11] Adam: The College Visit,
 
-[00:26:12] Norm: Pine Barrens, Season Three, Episode Eleven, the one where Christopher and Polly botch the shakedown and end up lost in New Jersey.
+[00:26:12] Norm: Pine Barrens, Season Three, Episode 11, the one where Christopher and Polly botch the shakedown and end up lost in New Jersey.
 
 [00:26:20] Will: Oh, okay, that one's good.
 
@@ -868,11 +868,11 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:28:46] Norm: right? About like you know, like she. This is about Mother Nature, and you're the snake, and you went after the prey, and at the end, it's about the snake eating the rat, and like, and it's all [unclear: exuberantius / superannious], and
 
-[00:28:58] Will: it's so like that show has has drafted on that moment for twenty years,
+[00:28:58] Will: it's so like that show has has drafted on that moment for 20 years,
 
-[00:29:03] Adam: and you know that if you want some Schadenfreude, do you remember that he got in huge trouble for not paying taxes on that million bucks?
+[00:29:03] Adam: and you know that if you want some Schadenfreude, do you remember that he got in huge trouble for not paying taxes on that $1 million?
 
-[00:29:09] Adam: And his response was his response. Way back when Steve Martin was a stand-up comedian before he's a movie star, and he had a monologue: " You can get a million dollars and never pay taxes. You can have a million dollars and never pay taxes. First, get a million dollars, then."
+[00:29:09] Adam: And his response was his response. Way back when Steve Martin was a stand-up comedian before he's a movie star, and he had a monologue: " You can get $1 million and never pay taxes. You can have $1 million and never pay taxes. First, get $1 million, then."
 
 [00:29:25] Will: Yeah.
 
@@ -984,7 +984,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:32:20] Will: In right. For a show that came out, what was this like five years ago?
 
-[00:32:30] Norm: This is real, real skewed toward the last fifteen years.
+[00:32:30] Norm: This is real, real skewed toward the last 15 years.
 
 [00:32:32] Will: And I think their argument for this is that this was the moment you felt like TV could be better, TV could be movies,
 
@@ -1160,9 +1160,9 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:37:30] Will: No, I am probably okay.
 
-[00:37:32] Norm: Like it is a show that you could just choose, like the best ten from every season, and be okay.
+[00:37:32] Norm: Like it is a show that you could just choose, like the best 10 from every season, and be okay.
 
-[00:37:38] Will: I would love if somebody does that for me. I will watch the best eight or ten episodes for every season
+[00:37:38] Will: I would love if somebody does that for me. I will watch the best 8 or 10 episodes for every season
 
 [00:37:41] Norm: because you
 
@@ -1184,17 +1184,17 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:38:01] Adam: they watchable when you do that?
 
-[00:38:02] Will: I don't, I don't know, but like, yeah, I would watch a fan. I would watch a fan edit of like the the twenty episodes of Lost that I need to see. Anyway,
+[00:38:02] Will: I don't, I don't know, but like, yeah, I would watch a fan. I would watch a fan edit of like the the 20 episodes of Lost that I need to see. Anyway,
 
-[00:38:12] Adam: probably more than twenty. Actually, more than twenty. Okay, but it's stunning. It's stunning. It's and there are some, yeah, there are some really magical and amazing things moments in that in that series that I still treasure. Yeah. Okay,
+[00:38:12] Adam: probably more than 20. Actually, more than 20. Okay, but it's stunning. It's stunning. It's and there are some, yeah, there are some really magical and amazing things moments in that in that series that I still treasure. Yeah. Okay,
 
 [00:38:25] Will: so what? What? And
 
 [00:38:26] Norm: all the feels.
 
-[00:38:27] Will: What other? What? Give me some high points of the rest of this. You said there was a top ten worst episodes
+[00:38:27] Will: What other? What? Give me some high points of the rest of this. You said there was a top 10 worst episodes
 
-[00:38:34] Adam: or top ten
+[00:38:34] Adam: or top 10
 
 [00:38:34] Will: pilots.
 
@@ -1212,11 +1212,11 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:38:51] Norm: These
 
-[00:38:52] Will: are this is gotta be this is all like last twenty years.
+[00:38:52] Will: are this is gotta be this is all like last 20 years.
 
 [00:38:56] Norm: Yeah, and I think that's indicative of maybe the writing staff there, the writing
 
-[00:39:00] Will: team, also indicative of the fact that TV has dramatically gotten better in the last twenty
+[00:39:00] Will: team, also indicative of the fact that TV has dramatically gotten better in the last 20
 
 [00:39:03] Adam: years. The episode where Maude gets an abortion is important as that episode is in television history. It's been mostly culturally forgotten.
 
@@ -1288,7 +1288,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:41:26] Norm: Stay until it's done.
 
-[00:41:27] Will: Get a giant whiteboard. Put it up behind you. Put your panel of ten people out there. If you could, no
+[00:41:27] Will: Get a giant whiteboard. Put it up behind you. Put your panel of 10 people out there. If you could, no
 
 [00:41:32] Adam: one's going to want to sit through that. No, you've got a time limit. Two hours. It's
 
@@ -1298,21 +1298,21 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:41:39] Will: People, trust me. If you do it, people will come.
 
-[00:41:42] Adam: They'll hate watch it. They'll get all tired. You'll have to buy pizza for everyone because that's exactly what you'll need at that point. At like two hours in, you buy a hundred pepperoni pizzas. Look, look.
+[00:41:42] Adam: They'll hate watch it. They'll get all tired. You'll have to buy pizza for everyone because that's exactly what you'll need at that point. At like two hours in, you buy 100 pepperoni pizzas. Look, look.
 
-[00:41:55] Norm: I've done that before. Yeah, buy a hundred pepperoni pizzas from Costco.
+[00:41:55] Norm: I've done that before. Yeah, buy 100 pepperoni pizzas from Costco.
 
 [00:41:58] Will: You sent somebody to
 
 [00:41:58] Norm: Costco. We had to. You all? Did you really? Yeah. Oh,
 
-[00:42:01] Will: it was more than a hundred. It was six
+[00:42:01] Will: it was more than 100. It was six
 
-[00:42:03] Norm: hundred. It was two hundred and fifty pizzas from Costco. Wow.
+[00:42:03] Norm: hundred. It was 250 pizzas from Costco. Wow.
 
 [00:42:06] Will: Yeah, we had a LAN party one time. We promised
 
-[00:42:09] Norm: people unlimited pizza, and we figured, hmm, five hundred people, I think probably half a pizza. Nope. And so we bought two hundred and fifty pizzas, and we still ended up with at least like sixty pizzas. Oh
+[00:42:09] Norm: people unlimited pizza, and we figured, hmm, 500 people, I think probably half a pizza. Nope. And so we bought 250 pizzas, and we still ended up with at least like 60 pizzas. Oh
 
 [00:42:19] Adam: my god!
 
@@ -1324,7 +1324,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:42:25] Norm: Oh yeah.
 
-[00:42:28] Will: Um. Look, I. I would watch that conversation. People would. People would like that. The if you give it, if you give it the room to breathe, people will like the conversation will be fascinating. And you break it up into a like a ten-episode podcast series.
+[00:42:28] Will: Um. Look, I. I would watch that conversation. People would. People would like that. The if you give it, if you give it the room to breathe, people will like the conversation will be fascinating. And you break it up into a like a 10-episode podcast series.
 
 [00:42:42] Adam: Wow, I'm going to think about it. I'm slightly overwhelmed by the idea, but it sounds really cool.
 
@@ -1422,7 +1422,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:45:03] Norm: I'm going to watch.
 
-[00:45:04] Will: We are playing in the Twitch broadcaster Royale, and they are. It's a 300,000 dollar tournament, I think.
+[00:45:04] Will: We are playing in the Twitch broadcaster Royale, and they are. It's a $300,000 tournament, I think.
 
 [00:45:11] Norm: Holy smokes!
 

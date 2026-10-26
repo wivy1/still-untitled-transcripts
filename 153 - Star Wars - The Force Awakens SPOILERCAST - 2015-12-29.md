@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:05:44] Will: based on his previous comments that if he didn’t die, he was basically going to get all of Disney for appearing in the movie, so I assumed that they were killing him off in the film.
 
-[00:06:08] Adam: I was thinking, you know, they could probably make another twenty minutes of the next film just by not having to pay his fee.
+[00:06:08] Adam: I was thinking, you know, they could probably make another 20 minutes of the next film just by not having to pay his fee.
 
 [00:06:08] Will: Yeah.
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:07:38] Norm: So the characters were great, Adam. [unclear: Go in / unknown] circles.
 
-[00:07:41] Adam: Okay, I loved that he went. I loved that he. How do I put this? Julia turned to me about twenty minutes into the film, and she went, " Isn't this the plot of Star Wars?" And I said, " Yeah, pretty much." But let's be clear. [unclear: I do / I don’t]—I think it's pretty much. It's hard to argue that James Cameron might be the best sequel writer ever.
+[00:07:41] Adam: Okay, I loved that he went. I loved that he. How do I put this? Julia turned to me about 20 minutes into the film, and she went, " Isn't this the plot of Star Wars?" And I said, " Yeah, pretty much." But let's be clear. [unclear: I do / I don’t]—I think it's pretty much. It's hard to argue that James Cameron might be the best sequel writer ever.
 
 [00:08:04] Norm: Absolutely. James Cameron understands audiences.
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:10:03] Adam: Eight is to me, you know, it is. He's bottle fed on Spielberg, and and he takes that, and I felt like he was giving me back my childhood, what I wanted from Episode One.
 
-[00:10:15] Will: Well, that had the twist. That had enough. That had more of a twist on the ET formula than than this does on the Star Wars formula. And I think part of the problem with with taking the theme and the and the structure of Star Wars and updating it is that it's the it's the core theme that shaped cinema, this type of cinema for the last thirty forty years, which is you know it's a it's the it's the hero's journey, right? It's the unknown comes up, goes blah blah blah all the way through, saves the universe.
+[00:10:15] Will: Well, that had the twist. That had enough. That had more of a twist on the ET formula than than this does on the Star Wars formula. And I think part of the problem with with taking the theme and the and the structure of Star Wars and updating it is that it's the it's the core theme that shaped cinema, this type of cinema for the last 30 40 years, which is you know it's a it's the it's the hero's journey, right? It's the unknown comes up, goes blah blah blah all the way through, saves the universe.
 
 [00:10:43] Norm: You talk about the two most successful per movie franchises in cinema history. It's Star Wars and Harry Potter, and both of those. Are the same story,
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:14:16] Norm: than the Tantive IV, but I think it was. I mean, it echoed the Tantive IV, introducing the force, introducing a a powerful villain. I think Adam's mention of Indiana Jones is extremely apt. The Star Wars here succeeds in the way the fourth Indiana Jones movie, which doesn't exist, didn't. In that that was a sequel, but didn't do anything to itself. It didn't. It was pure fan service and did it poorly. Here, its fan service served the fans of the original as a sequel, but then it holds in itself. The fact that you like the new characters so much and you're happy to watch their journey. I think speaks to its success.
 
-[00:14:51] Will: Well, but the conceit of the fourth Indiana Jones movie should have, like, is the thing that we're asking for here. So maybe, maybe Adams is right. Maybe asking for this is right wrong. You know, they took the pulpy adventure serials that that were the inspiration for the original Indiana Jones, moved it forward twenty years, and and it was a world of science fiction and Russians, and it completely fucked up the whole thing.
+[00:14:51] Will: Well, but the conceit of the fourth Indiana Jones movie should have, like, is the thing that we're asking for here. So maybe, maybe Adams is right. Maybe asking for this is right wrong. You know, they took the pulpy adventure serials that that were the inspiration for the original Indiana Jones, moved it forward 20 years, and and it was a world of science fiction and Russians, and it completely fucked up the whole thing.
 
 [00:15:10] Adam: Right. Plus, I think that Spielberg and Lucas changed our whole world, and in many ways, in great ways, and in some, in many ways, in some really not terrible ways, but ways that didn't necessarily make for great films.
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:21:28] Adam: The modulation was terrifying of Kylo Ren. It was perfect.
 
-[00:21:31] Norm: It was like what they did with Xerxes in three three hundred. Right, the same actor. They didn't use two actors, but it actually did. You heard him through the voice,
+[00:21:31] Norm: It was like what they did with Xerxes in three 300. Right, the same actor. They didn't use two actors, but it actually did. You heard him through the voice,
 
 [00:21:31] Adam: yes,
 
@@ -1108,7 +1108,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:42:53] Adam: It was. I loved the size.
 
-[00:42:56] Will: I hope he's huge. I hope he's like thirty feet tall.
+[00:42:56] Will: I hope he's huge. I hope he's like 30 feet tall.
 
 [00:42:57] Adam: Wouldn't that be the best?
 
@@ -1314,7 +1314,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:48:37] Adam: There's the implication that.
 
-[00:48:40] Will: Well, I think the idea is that clones don't last long. They have like a ten-year lifespan or something.
+[00:48:40] Will: Well, I think the idea is that clones don't last long. They have like a 10-year lifespan or something.
 
 [00:48:43] Norm: Since—since Empire.
 

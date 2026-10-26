@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:07:20] Unknown speaker (Adam or Will): Right.
 
-[00:07:20] Adam: Um, in ten lines, and then you extrapolated that out.
+[00:07:20] Adam: Um, in 10 lines, and then you extrapolated that out.
 
 [00:07:33] Will: Oh right, because they're probably not they're not monospace fonts, so you have to
 
@@ -178,11 +178,11 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:07:38] Will: [unclear: Reverse lorem / You have to reverse lorem ipsum].
 
-[00:07:38] Norm: Ten lines
+[00:07:38] Norm: 10 lines
 
 [00:07:39] Norm: is good enough for
 
-[00:07:40] Adam: ten lines was good. It was good enough to get you really to get you into the zone.
+[00:07:40] Adam: 10 lines was good. It was good enough to get you really to get you into the zone.
 
 [00:07:44] Norm: With larger, where did the designers like designing them? Like, what was the most visually interesting part? Was it the cover page? Was it graphs?
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:08:25] Adam: Yep.
 
-[00:08:25] Norm: except the thousand people that were there. for the shareholders meeting.
+[00:08:25] Norm: except the 1,000 people that were there. for the shareholders meeting.
 
 [00:08:40] Will: Oh, that’s what my wife used to do for a living. And
 
@@ -284,11 +284,11 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:12:11] Will: Yeah.
 
-[00:12:11] Will: So I, I, um, I got a friend who is very good at Illustrator and and lasering stuff to walk me through it, and she spent thirty minutes on the phone with me one afternoon and made a world of difference in my ability to use that. Just like she gave me enough of the basic stuff that I could then move forward, and and and like a lot of that is for people who like to learn stuff on their own instead of going and sitting down taking a boring class or something, which I think we're probably all in that category.
+[00:12:11] Will: So I, I, um, I got a friend who is very good at Illustrator and and lasering stuff to walk me through it, and she spent 30 minutes on the phone with me one afternoon and made a world of difference in my ability to use that. Just like she gave me enough of the basic stuff that I could then move forward, and and and like a lot of that is for people who like to learn stuff on their own instead of going and sitting down taking a boring class or something, which I think we're probably all in that category.
 
 [00:12:36] Adam: Yeah.
 
-[00:12:11] Will: That is much more helpful to me, even though it's pretty selfish to take somebody's thirty minutes, whatever, um, than than trying to to blow through the other the other way. Um,
+[00:12:11] Will: That is much more helpful to me, even though it's pretty selfish to take somebody's 30 minutes, whatever, um, than than trying to to blow through the other the other way. Um,
 
 [00:12:47] Norm: I mean that's been a big complaint for software. Like we started with the before we got to phones and tablets, very complex pieces of software that required training and expertise to master. What you're talking about with vectors or even Photoshop,
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:14:18] Adam: I couldn't even parse it.
 
-[00:14:19] Will: Yeah, and and as a result, InDesign is a much more powerful tool than those versions. I mean, plus twenty years, but but it was a painful process for all the people mired in the old.
+[00:14:19] Will: Yeah, and and as a result, InDesign is a much more powerful tool than those versions. I mean, plus 20 years, but but it was a painful process for all the people mired in the old.
 
 [00:14:30] Adam: Moving a text box and wrapping around a photo is—I don't know how to do it. I mean, I'll figure it out at some point.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:24:31] Adam: Oh, wow.
 
-[00:24:31] Will: and when the money for the security guy for that set of half million dollar earrings ran out, that shoot was over, and they had to they had to do the rest of that.
+[00:24:31] Will: and when the money for the security guy for that set of $500,000 earrings ran out, that shoot was over, and they had to they had to do the rest of that.
 
 [00:25:00] Unknown speaker (Adam or Norm): Those were in two scenes; they had to shoot those two scenes back to back.
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:27:34] Norm: Yes,
 
-[00:27:35] Norm: exactly, and so a climb up Half Dome the first climb took eighteen, eighteen weeks.
+[00:27:35] Norm: exactly, and so a climb up Half Dome the first climb took 18, 18 weeks.
 
 [00:27:42] Adam: Oh my God! Because they just keep incrementally adding hardware.
 
@@ -730,7 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:32:30] Will: I never saw that.
 
-[00:32:31] Adam: Oh, it's a beautiful, beautiful early Duvall film with Tess Harper. I believe his daughter is played by a super young Ellen Barkin, who's like eighteen at the time the movie came out, and he plays a drunken singer who kind of hits bottom and wakes up in a motel in Texas run by Tess Harper and stays, and that's about it. That's that's about the plot of the movie, but it's Really beautiful, really important. As my as my dad said, it reminded him of what growing up in Texas was like—miles and miles of nothing but miles and miles.
+[00:32:31] Adam: Oh, it's a beautiful, beautiful early Duvall film with Tess Harper. I believe his daughter is played by a super young Ellen Barkin, who's like 18 at the time the movie came out, and he plays a drunken singer who kind of hits bottom and wakes up in a motel in Texas run by Tess Harper and stays, and that's about it. That's that's about the plot of the movie, but it's Really beautiful, really important. As my as my dad said, it reminded him of what growing up in Texas was like—miles and miles of nothing but miles and miles.
 
 [00:33:07] Norm: Any other recommendations? I think
 

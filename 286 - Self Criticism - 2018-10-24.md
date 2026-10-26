@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:03:21] Adam: And then once you have that thing, you have to make sure that you've covered around it so that when you put that episode into your video, it is surrounded by narrative that helps it make sense. Like that that's non trivial.
 
-[00:03:33] Norm: I always think of it as a building a puzzle, like except you're also making the pieces, and right. This is analogy. You're like you can make a thousand piece puzzle, or you can make a hundred piece puzzle, and if you're ambitious, you can make a thousand piece puzzle and have that much more detail or a bigger canvas. But as you're making it, do you make just the border,
+[00:03:33] Norm: I always think of it as a building a puzzle, like except you're also making the pieces, and right. This is analogy. You're like you can make a 1,000 piece puzzle, or you can make a 100 piece puzzle, and if you're ambitious, you can make a 1,000 piece puzzle and have that much more detail or a bigger canvas. But as you're making it, do you make just the border,
 
 [00:03:33] Adam: right,
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:08:31] Will: Yeah.
 
-[00:08:31] Adam: Right. So, and just in the same way, it was a revelation when someone explained to me. I was having a fight with my then girlfriend. This is thirty years ago. I was having a fight with his girlfriend, and a friend said, " Well, that's what it is when you share a life with someone. You share all the good stuff and all the bad stuff. So you you get dark and crappy and feel awful sometimes, and that's part of the life you're sharing with someone." And I was like, " Oh yeah, so it is. So there's no way to turn it around." I left here. I dutifully cleaned the shop. That felt like I was achieving something, and then I went home and I I went upstairs onto the deck of the back of our house. My wife was out there, and she took one look at my face and she went hard day. She could totally see it, and I was like, oh yeah, man, I just totally screwed something up. Ah, it was so awful, just spinning my wheels. Thought I'd get a lot more done, didn't get it done, and you know, then we figured out what we were gonna have for dinner. And within a couple of hours, I felt pretty fine. And then, literally at like one o'clock that morning, I was like, oh, two different types of aluminum, you dummy.
+[00:08:31] Adam: Right. So, and just in the same way, it was a revelation when someone explained to me. I was having a fight with my then girlfriend. This is 30 years ago. I was having a fight with his girlfriend, and a friend said, " Well, that's what it is when you share a life with someone. You share all the good stuff and all the bad stuff. So you you get dark and crappy and feel awful sometimes, and that's part of the life you're sharing with someone." And I was like, " Oh yeah, so it is. So there's no way to turn it around." I left here. I dutifully cleaned the shop. That felt like I was achieving something, and then I went home and I I went upstairs onto the deck of the back of our house. My wife was out there, and she took one look at my face and she went hard day. She could totally see it, and I was like, oh yeah, man, I just totally screwed something up. Ah, it was so awful, just spinning my wheels. Thought I'd get a lot more done, didn't get it done, and you know, then we figured out what we were gonna have for dinner. And within a couple of hours, I felt pretty fine. And then, literally at like one o'clock that morning, I was like, oh, two different types of aluminum, you dummy.
 
 [00:09:41] Will: Well, I mean, but but but like that cleaning the shop is is a key thing there, right? Like when I have a day that I spend all day doing something, and then I get to the end and it doesn't work out, and I feel like I wasted an entire day, which is like on my scale of worst feelings, it's like something bad happens to my kid, and then that one, right?
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:21:08] Adam: well, yeah.
 
-[00:21:14] Will: And this was fun because the orchestra had rehearsed the songs that they played on, but on * Sgt. Pepper*, that's only like four of the twelve songs or thirteen songs. So most of the most of the album, they were hearing it for the very first time, and and like watching the orchestra come around was very cool.
+[00:21:14] Will: And this was fun because the orchestra had rehearsed the songs that they played on, but on * Sgt. Pepper*, that's only like four of the 12 songs or 13 songs. So most of the most of the album, they were hearing it for the very first time, and and like watching the orchestra come around was very cool.
 
 [00:21:31] Adam: Oh, that's cool.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:34:30] Norm: Judy Garland.
 
-[00:34:32] Adam: Judy Garland and James Mason, and then there's one less than ten years before that. Okay. Um. But I'm a fan of the Kris Kristofferson Barbra Streisand one.
+[00:34:32] Adam: Judy Garland and James Mason, and then there's one less than 10 years before that. Okay. Um. But I'm a fan of the Kris Kristofferson Barbra Streisand one.
 
 [00:34:42] Will: I saw that one probably 20 years ago. I haven't seen it since then. But
 

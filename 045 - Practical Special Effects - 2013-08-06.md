@@ -18,9 +18,9 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:00:10] Adam: I know. It's it actually. My wife was like, Jesus, everything's got to be bigger in America.
 
-[00:00:16] Will: Do you want to upsize that for an extra 35 cents? Bananas.
+[00:00:16] Will: Do you want to upsize that for an extra $0.35? Bananas.
 
-[00:00:21] Adam: Something maybe it's about being in my mid to late forties now, but I no longer get a soda at the movies because I won't make it through the whole movie.
+[00:00:21] Adam: Something maybe it's about being in my mid to late 40s now, but I no longer get a soda at the movies because I won't make it through the whole movie.
 
 [00:00:28] Will: Well, I mean that's a real problem at all ages, depending on...
 
@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:00:45] Norm: There's a Seinfeld Seinfeld bit.
 
-[00:00:47] Will: A thimble. But it's but it's the Seinfeld bit is out of date because the sizes have gotten even more ludicrous in the last fifteen years.
+[00:00:47] Will: A thimble. But it's but it's the Seinfeld bit is out of date because the sizes have gotten even more ludicrous in the last 15 years.
 
 [00:00:53] Adam: Yeah, yeah, yeah.
 
@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:02:07] Norm: So maybe there's a revival of these giant creature movies,
 
-[00:02:14] Will: or it will all implode and we'll see none ever again for the next twenty years.
+[00:02:14] Will: or it will all implode and we'll see none ever again for the next 20 years.
 
 [00:02:17] Unknown speaker: We're hoping for the former.
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:03:31] Will: Chewbacca is the bomb.
 
-[00:03:32] Adam: Chewbacca is the bomb. And so at Comic Con, and I don't know if this will have already hit the site, but I got inducted as an honorary member into the Five Hundred First, the the the the charity raising organization of Stormtroopers and Star Wars characters. I chose to be inducted as a Wookiee in my Chewie costume, and my Chewie costume was built by a terrific guy in the in New England named Mark Poutenis. I think. He called it New England Wookiee Works, and it's a beautiful costume. The materials cost on it is practically nothing. It is all labor and ingenuity that make that costume actually work. It's not movie quality. Don't get me wrong. I mean, it is you know, it's like pink foam and everything, and that's why I love it because it's so accessible. I've got a couple of other Chewie heads that I've been working on. trying. I want to make one that that fits me.
+[00:03:32] Adam: Chewbacca is the bomb. And so at Comic Con, and I don't know if this will have already hit the site, but I got inducted as an honorary member into the 501st, the the the the charity raising organization of Stormtroopers and Star Wars characters. I chose to be inducted as a Wookiee in my Chewie costume, and my Chewie costume was built by a terrific guy in the in New England named Mark Poutenis. I think. He called it New England Wookiee Works, and it's a beautiful costume. The materials cost on it is practically nothing. It is all labor and ingenuity that make that costume actually work. It's not movie quality. Don't get me wrong. I mean, it is you know, it's like pink foam and everything, and that's why I love it because it's so accessible. I've got a couple of other Chewie heads that I've been working on. trying. I want to make one that that fits me.
 
 [00:04:23] Will: Mm-hmm.
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:07:24] Adam: It's it's incredible. He's such a fully realized character, as far as I'm concerned.
 
-[00:07:28] Will: And there are close ups of Chewbacca's face, which is the real testament to the work that was done, and it's forty years, thirty thirty five years ago now.
+[00:07:28] Will: And there are close ups of Chewbacca's face, which is the real testament to the work that was done, and it's 40 years, 30 35 years ago now.
 
 [00:07:34] Adam: Yeah,
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:09:35] Will: They get out and then get hooked up to IV fluids to rehydrate.
 
-[00:09:39] Adam: Absolutely. Uh, uh, uh, Rick was telling me about the actor he, the performer he had in the Harry and the Hendersons suit, who really couldn't see from that suit for a lot of takes, but just had this kinesthetic genius for being able to hit his marks. And get all the pieces of the performance that were necessary out, and that's also in conjunction with like three or four people operating the facial mechanics via remote control in order to get a performance. And one of the things Rick told me that they were doing is, for specifically on Harry and the Hendersons, he would tell the DP and the other actors once the scene is done, just keep on rolling, like don't break character, just keep on rolling for another ten seconds. And he said they got a lot of really interesting stuff while the puppeteers trying out other stuff, and the actor was could also kind of tell what was going on and moving based on what he was seeing.
+[00:09:39] Adam: Absolutely. Uh, uh, uh, Rick was telling me about the actor he, the performer he had in the Harry and the Hendersons suit, who really couldn't see from that suit for a lot of takes, but just had this kinesthetic genius for being able to hit his marks. And get all the pieces of the performance that were necessary out, and that's also in conjunction with like three or four people operating the facial mechanics via remote control in order to get a performance. And one of the things Rick told me that they were doing is, for specifically on Harry and the Hendersons, he would tell the DP and the other actors once the scene is done, just keep on rolling, like don't break character, just keep on rolling for another 10 seconds. And he said they got a lot of really interesting stuff while the puppeteers trying out other stuff, and the actor was could also kind of tell what was going on and moving based on what he was seeing.
 
 [00:10:29] Norm: And there's a collaboration between the the puppeteers working the animatronics and the actors, and that's something that like if you watch the Ninja Turtles movies from the '80s, Jim Henson Company did that stuff.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:12:56] Adam: Precisely, precisely. So I grew up with Star Wars. I grew up with the the Thing, Raiders of the Lost Ark. But I also grew up with the channel that played it was W O R Channel Nine in New York in the tri-state area, and they would a couple times a year have Monster Week, and Monster Week was always just it was after you got home from school there was the 4:30 movie Monster Week. I think that's what it was, and they would play Japanese monster films every day. So there was like, there's one that includes all the monsters, and then there's Planet X, and then there's Godzilla versus Mothra, Godzilla versus King Kong, et cetera, et cetera, et cetera. And so I just grew up watching those every year as often as they were on because they're just never not awesome.
 
-[00:13:43] Norm: We know the new Godzilla movie is going to be mostly CG, but wouldn't it be amazing if you took the budget of that movie? It's got to be like 150, 200 million dollars, and just made it scale miniatures and prosthetics and dude in suit.
+[00:13:43] Norm: We know the new Godzilla movie is going to be mostly CG, but wouldn't it be amazing if you took the budget of that movie? It's got to be like $150 million, $200 million, and just made it scale miniatures and prosthetics and dude in suit.
 
 [00:13:54] Adam: You know there is.
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:15:26] Adam: and I mean, it's also because I also look. The other reason I go to bat for Brazil is while I think Anton Furst is a great production designer, he designed the first Batman film. I think that the design work on Gilliam's Brazil is so much better along the same lines.
 
-[00:15:44] Will: Well, Gilliam has a different like. Gilliam shoots stuff that's weird in a way. Even even like when he makes a relatively straight movie like Twelve Monkeys. Like that movie is shot in such a spectacularly weird way,
+[00:15:44] Will: Well, Gilliam has a different like. Gilliam shoots stuff that's weird in a way. Even even like when he makes a relatively straight movie like 12 Monkeys. Like that movie is shot in such a spectacularly weird way,
 
 [00:15:57] Adam: agreed.
 
@@ -340,7 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:17:10] Norm: Just like a future where like overpopulation and like
 
-[00:17:13] Adam: yeah? I'll point out that in Blade Runner, to me, a couple of the weaker shots are the are the matte painting shots, like Deckard on his on his balcony looking at how big the city is, and he's like on the eight hundredth floor kind of thing.
+[00:17:13] Adam: yeah? I'll point out that in Blade Runner, to me, a couple of the weaker shots are the are the matte painting shots, like Deckard on his on his balcony looking at how big the city is, and he's like on the 800th floor kind of thing.
 
 [00:17:25] Will: Yeah.
 
@@ -366,9 +366,9 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:18:00] Adam: let's call it out. So, Cinefex. One of the reasons that I know what I know about special effects. One of the reasons that I have the knowledge that I do is because of this unbelievable magazine which we all read called Cinefex. It's been coming out since 1980, if I remember.
 
-[00:18:15] Will: Thirty years, basically.
+[00:18:15] Will: 30 years, basically.
 
-[00:18:16] Adam: Thirty-three years. It comes out quarterly. There's one hundred and twenty-seven issues.
+[00:18:16] Adam: 33 years. It comes out quarterly. There's 127 issues.
 
 [00:18:21] Norm: A little more, yeah,
 
@@ -376,13 +376,13 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:18:26] Norm: so you didn't you subscribed early, but then you had to fill in the blank. Okay.
 
-[00:18:30] Adam: I had everything from I think sixty-five on.
+[00:18:30] Adam: I had everything from I think 65 on.
 
 [00:18:33] Norm: Okay.
 
-[00:18:33] Adam: And then I managed on Craigslist, and when people hear this, they're going to be mad at me. Somebody on Craigslist was selling issues one through fifteen, and I bought them for 300 bucks for the whole set, which is
+[00:18:33] Adam: And then I managed on Craigslist, and when people hear this, they're going to be mad at me. Somebody on Craigslist was selling issues 1 through 15, and I bought them for $300 for the whole set, which is
 
-[00:18:45] Norm: a single issue is like 300 bucks.
+[00:18:45] Norm: a single issue is like $300.
 
 [00:18:47] Adam: I know it was a crazy steal.
 
@@ -400,11 +400,11 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:19:00] Adam: Yes.
 
-[00:19:00] Will: Because now you can get the whole thing, the whole run, OCR and digital on your iPad for 250 bucks.
+[00:19:00] Will: Because now you can get the whole thing, the whole run, OCR and digital on your iPad for $250.
 
-[00:19:06] Adam: 250 bucks if you join the Kickstarter. It is a crazy deal. I will say, if you spent the amount of money on the original issues, which is like it was started out at eight bucks an issue and now it's like eighteen bucks, fifteen bucks an issue, it's totally worth it. It's a perfect bound, high quality printed magazine. It's, I think, it's one of the best magazines ever.
+[00:19:06] Adam: $250 if you join the Kickstarter. It is a crazy deal. I will say, if you spent the amount of money on the original issues, which is like it was started out at $8 an issue and now it's like $18, $15 an issue, it's totally worth it. It's a perfect bound, high quality printed magazine. It's, I think, it's one of the best magazines ever.
 
-[00:19:27] Will: It's a really gorgeous magazine. The the reason it's interesting though is the content and what it is is a journal of the development of special effects over the last thirty three years.
+[00:19:27] Will: It's a really gorgeous magazine. The the reason it's interesting though is the content and what it is is a journal of the development of special effects over the last 33 years.
 
 [00:19:36] Adam: And and it's an amazing time for such a craft to have been journalled because special effects, modern special effects, left adolescence and became a mature art form, really post Star Wars.
 
@@ -414,11 +414,11 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:20:17] Norm: Photos that you are not going to find anywhere.
 
-[00:20:19] Adam: Photos from behind the scenes of, like, you know, somebody sanding the tooth of the worm that goes after Harrison Ford's Millennium Falcon in Empire. You know, animatronic stuff. I read these. I've been reading this magazine since I was fifteen. You know, trying to save up to buy the issues, 250 dollars for all of them.
+[00:20:19] Adam: Photos from behind the scenes of, like, you know, somebody sanding the tooth of the worm that goes after Harrison Ford's Millennium Falcon in Empire. You know, animatronic stuff. I read these. I've been reading this magazine since I was 15. You know, trying to save up to buy the issues, $250 for all of them.
 
-[00:20:39] Will: It's it's up through episode issue one seventy six or one twenty seven
+[00:20:39] Will: It's it's up through episode issue 176 or 127
 
-[00:20:42] Adam: one twenty six one twenty seven
+[00:20:42] Adam: 126 127
 
 [00:20:44] Will: right.
 
@@ -446,11 +446,11 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:22:57] Will: Harryhausen.
 
-[00:22:57] Adam: Harryhausen, yeah, it is. Like I can't gush enough about what an amazing magazine it is, and how great this Kickstarter is to get it for 250 bucks.
+[00:22:57] Adam: Harryhausen, yeah, it is. Like I can't gush enough about what an amazing magazine it is, and how great this Kickstarter is to get it for $250.
 
 [00:23:08] Will: It seems expensive if you if you don't understand what you're getting,
 
-[00:23:11] Adam: right? And but all you need to do is go and look and see that like issue one, issue seven, the Blade Runner issue might sell on eBay for like 150 dollars or more in good condition. That trying to get this information in any other way would cost thousands and thousands of dollars.
+[00:23:11] Adam: right? And but all you need to do is go and look and see that like issue one, issue seven, the Blade Runner issue might sell on eBay for like $150 or more in good condition. That trying to get this information in any other way would cost thousands and thousands of dollars.
 
 [00:23:28] Will: Well, and the neat thing is they're putting them out as PDFs too. I think so. So you'll be able to they're OCR'd, so you'll be able to go through and search search for specific things that you're looking for. So you can find references to key set pieces and props and stuff like that. I'm really excited about it, and and and I mean, it seems to be going well for them.
 

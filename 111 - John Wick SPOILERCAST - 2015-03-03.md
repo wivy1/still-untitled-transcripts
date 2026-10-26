@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:08:35] Adam: right,
 
-[00:08:35] Will: right. You know what's going to happen. Something terrible is going to happen to him, and then he's going to go fucking crazy and kill a thousand people,
+[00:08:35] Will: right. You know what's going to happen. Something terrible is going to happen to him, and then he's going to go fucking crazy and kill 1,000 people,
 
 [00:08:42] Adam: right?
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:13:57] Will: they were it was all winks and nods,
 
-[00:13:59] Adam: right? And John Wick, which is sort of gesturally, one entire wink and a nod at the same time, was just like, here's it's fight choreographers going, here's what we like about these scenes, and we're just going to take one and run it for like fifteen minutes for your enjoyment.
+[00:13:59] Adam: right? And John Wick, which is sort of gesturally, one entire wink and a nod at the same time, was just like, here's it's fight choreographers going, here's what we like about these scenes, and we're just going to take one and run it for like 15 minutes for your enjoyment.
 
 [00:14:14] Norm: No one's going to look at the camera. There's not going to be a quip, no quips,
 
@@ -594,7 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:19:43] Adam: So that when you got to the line of the bodies he burned that day laid the foundation for everything we are.
 
-[00:19:50] Will: I didn't realize he was a hitman. The first clue you got to that was when he was he's talking. The Russian gangsters are harassing him at the gas station because they think he has a car that is much cooler than the car he actually had because they thought it was a five hundred, not the anyway.
+[00:19:50] Will: I didn't realize he was a hitman. The first clue you got to that was when he was he's talking. The Russian gangsters are harassing him at the gas station because they think he has a car that is much cooler than the car he actually had because they thought it was a 500, not the anyway.
 
 [00:20:03] Adam: Oh, really?
 
@@ -746,7 +746,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:25:34] Will: Yeah, I. I really like this movie a lot. I want to know more about how it and and also you. I can't say enough about Keanu because his you you see the thing that made Keanu great for the Matrix in the efficiency of movement and and just the deliberate the deliberate every aspect of this performance is deliberate on his part. I believe.
 
-[00:25:54] Adam: And let's also bring this up that Keanu is both very open about his limitations as an actor, and from people I know that know him, one of the nicest guys alive. He had a stunt crew of I think seventeen to twenty guys on the three Matrix films, and they were with him through almost all of that. And he became really close with them, up to and including giving them Ducatis one year for Christmas, like each of them a Ducati motorcycle, and then also cutting them into his profit sharing on the second two Matrix films to the point that I believe. Each of them will make well over a million dollars by the end of the matrixes delivering checks for residuals and broadcast. So he clearly finds something really important in working with these guys, and it shows on film that like they're not only terrific fight choreographers but terrific directors. It's just wonderful.
+[00:25:54] Adam: And let's also bring this up that Keanu is both very open about his limitations as an actor, and from people I know that know him, one of the nicest guys alive. He had a stunt crew of I think 17 to 20 guys on the three Matrix films, and they were with him through almost all of that. And he became really close with them, up to and including giving them Ducatis one year for Christmas, like each of them a Ducati motorcycle, and then also cutting them into his profit sharing on the second two Matrix films to the point that I believe. Each of them will make well over $1 million by the end of the matrixes delivering checks for residuals and broadcast. So he clearly finds something really important in working with these guys, and it shows on film that like they're not only terrific fight choreographers but terrific directors. It's just wonderful.
 
 [00:26:51] Will: It was. It was. It's a delightful movie. I really thoroughly enjoyed. it.
 
@@ -760,9 +760,9 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:27:00] Adam: So there's a supercut you can watch online of all of his kills in the movie, and I think how many?
 
-[00:27:06] Norm: Like seventy-six.
+[00:27:06] Norm: Like 76.
 
-[00:27:06] Adam: Seventy-six.
+[00:27:06] Adam: 76.
 
 [00:27:07] Will: That's it?
 
@@ -772,7 +772,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:27:09] Adam: It seems like more. There are some very funny bits in the supercut as he's pumping bullets into someone and they're not quite dead, and it's where it decides to call them dead.
 
-[00:27:20] Will: So, so I guess the first twenty or so you really pay attention to, and then after that, it just seems like
+[00:27:20] Will: So, so I guess the first 20 or so you really pay attention to, and then after that, it just seems like
 
 [00:27:25] Adam: we didn't even talk about the cop showing up.
 
@@ -860,7 +860,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:29:45] Will: Catering.
 
-[00:29:45] Norm: Catering for a dinner party for twelve. The gold coin showing the actual physical size of how much he's accumulated when he breaks through his floor versus his boss and the vault of gold coins like that as a just symbol of power.
+[00:29:45] Norm: Catering for a dinner party for 12. The gold coin showing the actual physical size of how much he's accumulated when he breaks through his floor versus his boss and the vault of gold coins like that as a just symbol of power.
 
 [00:30:00] Adam: Right.
 

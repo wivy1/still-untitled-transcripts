@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:04:46] Will: Yeah, but she knows what's going on.
 
-[00:04:47] Adam: No, at the same time, she'd be like, oh, oh. So the other thing that happened is when I I've been living in and around the Mission for most of my twenty five years in San Francisco, and about five six years ago, we moved back here. And when we did, we moved. I'm just gonna say we're near Bi-Rite? That's that's a reasonable location.
+[00:04:47] Adam: No, at the same time, she'd be like, oh, oh. So the other thing that happened is when I I've been living in and around the Mission for most of my 25 years in San Francisco, and about five six years ago, we moved back here. And when we did, we moved. I'm just gonna say we're near Bi-Rite? That's that's a reasonable location.
 
 [00:05:10] Will: Big window.
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:07:10] Will: some of them were Sprint stores.
 
-[00:07:11] Adam: Back when they were, it's a shame, my you know, because I really need a place I can spend ten dollars for a CD-ROM.
+[00:07:11] Adam: Back when they were, it's a shame, my you know, because I really need a place I can spend $10 for a CD-ROM.
 
 [00:07:19] Will: I mean, I like to. I like when people ask me what my phone number is when I need batteries. That's my that's my apologies. I don't remember who's bit that is.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:10:47] Adam: It would be so important, and that's when I mean that's where some of the real emotion of the book happens, and the trailer, trailer feels like it accurately communicates that as well.
 
-[00:10:58] Will: Well, the thing the thing that's amazing about that cut we've talked about this at length, so I am not going to go into it. But the the you you get the feeling that you are part of one of the seven billion people on Earth who want him to live,
+[00:10:58] Will: Well, the thing the thing that's amazing about that cut we've talked about this at length, so I am not going to go into it. But the the you you get the feeling that you are part of one of the 7 billion people on Earth who want him to live,
 
 [00:11:07] Adam: right?
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:11:34] Adam: the wheels are in motion. We
 
-[00:11:35] Will: did it for Andy Weir, and it was a massive success. And then that Andy Weir talking room ended up being the biggest one we've had to date. Like one hundred fifty thousand people watched it. So my hope is that. The pod. If we do the podcast, the deal is that you guys have to tell your friends to go watch the YouTube. That's all I ask.
+[00:11:35] Will: did it for Andy Weir, and it was a massive success. And then that Andy Weir talking room ended up being the biggest one we've had to date. Like 150,000 people watched it. So my hope is that. The pod. If we do the podcast, the deal is that you guys have to tell your friends to go watch the YouTube. That's all I ask.
 
 [00:11:53] Adam: See one, do one. And one of the lead questions was from a bibliophile, a book lover, who wanted to who wanted a tested video of a tour through my library, which is I think a great idea.
 
@@ -530,13 +530,13 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:26:51] Adam: To die for.
 
-[00:26:52] Will: To die for. Right. There's a there's this this ice skating scene that goes over the entire end credits, like ten minutes long.
+[00:26:52] Will: To die for. Right. There's a there's this this ice skating scene that goes over the entire end credits, like 10 minutes long.
 
 [00:26:57] Adam: Yeah.
 
 [00:26:57] Will: And that sends a very specific message.
 
-[00:27:00] Adam: Right, and these tend to be very famous shots, but Every Frame a Picture took a took a took fifteen minutes to educate the public on the fact that Steven Spielberg regularly uses minute plus long shots, but never draws attention to them. Just uses them as really efficient bits of filmmaking, and so does Woody Allen. There's an entire scene in Bullets Over Broadway where the camera walks into a bar and sits at the bar watching Chazz Palminteri and John Cusack have a conversation for like. Ten minutes,
+[00:27:00] Adam: Right, and these tend to be very famous shots, but Every Frame a Picture took a took a took 15 minutes to educate the public on the fact that Steven Spielberg regularly uses minute plus long shots, but never draws attention to them. Just uses them as really efficient bits of filmmaking, and so does Woody Allen. There's an entire scene in Bullets Over Broadway where the camera walks into a bar and sits at the bar watching Chazz Palminteri and John Cusack have a conversation for like. 10 minutes,
 
 [00:27:32] Will: and they're in the mirror, right, or something.
 
@@ -552,7 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:28:08] Adam: Yeah, that was a recent one.
 
-[00:28:08] Will: It was a good one. Yeah, yeah. Then you start looking at you start looking at things completely differently, and you understand the the authorial intent more or directorial intent more. I guess the the other like I want a book that's basically like film school one hundred and one, like the stuff that you should learn in the first year of film school. That that because if once you know that Chekhov's gun is a is a concept for screenwriters, right?
+[00:28:08] Will: It was a good one. Yeah, yeah. Then you start looking at you start looking at things completely differently, and you understand the the authorial intent more or directorial intent more. I guess the the other like I want a book that's basically like film school 101, like the stuff that you should learn in the first year of film school. That that because if once you know that Chekhov's gun is a is a concept for screenwriters, right?
 
 [00:28:31] Adam: Right.
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:28:54] Will: No, I've not seen this.
 
-[00:28:55] Adam: It's absolutely incredible. It is ten parts, I believe, and it's an hour per roughly an hour per part, like forty five to fifty five minutes per. He's very, very centered on non American films, so he really takes you all over the world from the turn of the 19th to the 20th century all the way till now, showing you all the ways and places in which film was new territory and film was being braved in Japan, in India, in Turkey, in Russia, in I mean that influenced American film because we have a the history of film is very America centric and the lang the the the actual history of film isn't. Necessarily, so the history of film is a really watchable series that gives you a deep insight into the language of filmmaking and how that language was invented and developed.
+[00:28:55] Adam: It's absolutely incredible. It is 10 parts, I believe, and it's an hour per roughly an hour per part, like 45 to 55 minutes per. He's very, very centered on non American films, so he really takes you all over the world from the turn of the 19th to the 20th century all the way till now, showing you all the ways and places in which film was new territory and film was being braved in Japan, in India, in Turkey, in Russia, in I mean that influenced American film because we have a the history of film is very America centric and the lang the the the actual history of film isn't. Necessarily, so the history of film is a really watchable series that gives you a deep insight into the language of filmmaking and how that language was invented and developed.
 
 [00:29:46] Will: So the last thing I'll say, oh, go ahead.
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:30:36] Adam: And that is phenomenal to do. Watching a movie, so Criterion Collection often has fantastic commentary that will take you through a film you love and shot by shot walk you through how amazing, how much more amazing it is, and it will deepen your experience of the film that you love. So it's not just like this random knowledge you're getting; you're like deepening your intersection with that product.
 
-[00:30:59] Will: Commentaries in general, like I, commentaries are the reason I own a thousand plus movies on discs, right?
+[00:30:59] Will: Commentaries in general, like I, commentaries are the reason I own 1,000 plus movies on discs, right?
 
 [00:31:04] Adam: Yeah, yeah.
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:31:55] Adam: Right, right, right.
 
-[00:31:55] Will: Which is definitely Norm and I. That's happened to Norm and I talking about technology for ten years on podcasts.
+[00:31:55] Will: Which is definitely Norm and I. That's happened to Norm and I talking about technology for 10 years on podcasts.
 
 [00:32:00] Adam: right, and it's an it's an acquired skill, so it's not something you are ever done with. Um. So my thing is my my suggestions would be in short, TLDR.
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:32:25] Will: I've got to go watch that. I've not seen that one.
 
-[00:32:27] Adam: Really great. The History of Film the the documentary series is really worth watching, and. Again, choosing a movie that you are deeply familiar with will make the experience better because you'll know those shots that they're talking about. You'll know the scenes, and you really do need to understand that. You know, the director when he's made the movie has read the script a thousand times and gone over every inch of it. And in order for you to understand, you also want to have a deep experience.
+[00:32:27] Adam: Really great. The History of Film the the documentary series is really worth watching, and. Again, choosing a movie that you are deeply familiar with will make the experience better because you'll know those shots that they're talking about. You'll know the scenes, and you really do need to understand that. You know, the director when he's made the movie has read the script 1,000 times and gone over every inch of it. And in order for you to understand, you also want to have a deep experience.
 
 [00:32:57] Will: You have to internalize it. Yeah, yeah,
 

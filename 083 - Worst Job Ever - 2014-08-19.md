@@ -4,11 +4,11 @@
 **Duration:** 34m 53s  
 Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
-[00:00:00] Will: Can you count backwards from ten real quick?
+[00:00:00] Will: Can you count backwards from 10 real quick?
 
-[00:00:01] Adam: Ten, nine, eight, seven, six, five, four, three, two, one.
+[00:00:01] Adam: 10, nine, eight, seven, six, five, four, three, two, one.
 
-[00:00:04] Will: Okay, cool. I was just checking to make sure you could count backwards from ten. Welcome to Still Untitled, the Adam Savage Project. I'm Will.
+[00:00:04] Will: Okay, cool. I was just checking to make sure you could count backwards from 10. Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:12] Adam: I'm Adam,
 
@@ -32,11 +32,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:00:31] Adam: Get into the car.
 
-[00:00:31] Will: I get in the car, and it’s like sixteen miles to empty. I was like—
+[00:00:31] Will: I get in the car, and it’s like 16 miles to empty. I was like—
 
 [00:00:45] Norm: Do you play the? The gas game?
 
-[00:00:46] Will: I never let it get to sixteen miles to empty.
+[00:00:46] Will: I never let it get to 16 miles to empty.
 
 [00:00:47] Norm: The how long can I make it ride? Not the not as far as Kramer, but like on a road trip from LA or something like—
 
@@ -48,13 +48,13 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:00:59] Norm: So how far past empty does?
 
-[00:01:01] Adam: Oh God! Like you can, I don't want to tell anyone what to do. But thirty miles at least.
+[00:01:01] Adam: Oh God! Like you can, I don't want to tell anyone what to do. But 30 miles at least.
 
 [00:01:01] Norm: Really?
 
 [00:01:01] Adam: Oh yeah.
 
-[00:01:09] Norm: The light goes on. Maybe yeah. You have another twenty miles before it's empty.
+[00:01:09] Norm: The light goes on. Maybe yeah. You have another 20 miles before it's empty.
 
 [00:01:13] Adam: They make sure you they because automakers know how lazy and stupid we all are.
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:01:31] Norm: and you have one of those cars that does the estimation, like oh, everyone does that.
 
-[00:01:35] Adam: Actually, the Fiat my I have a Fiat Abarth, it estimates down until thirty miles. Then it's like you better fill, then it just goes to fill it.
+[00:01:35] Adam: Actually, the Fiat my I have a Fiat Abarth, it estimates down until 30 miles. Then it's like you better fill, then it just goes to fill it.
 
 [00:01:35] Will: Oh really?
 
@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:01:45] Will: Oh, see, mine gives me the thing. I can press the button that says you have eight miles left.
 
-[00:01:49] Adam: Oh no, mine goes down to thirty, and then that's when it needs filling. And it's got two little bars at the bottom. That's low fuel. When it gets to one bar, you really better fill. And I've actually let it get all the way to no bars.
+[00:01:49] Adam: Oh no, mine goes down to 30, and then that's when it needs filling. And it's got two little bars at the bottom. That's low fuel. When it gets to one bar, you really better fill. And I've actually let it get all the way to no bars.
 
 [00:02:00] Will: It's really bad with a fuel injected. Car to let your car run out of gas. Just to be clear.
 
@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:03:02] Adam: Yeah.
 
-[00:03:06] Adam: I mean, you know, this is twenty years ago, but yeah. But the long story short, I let my Jaguar run out of gas. I accidentally didn't switch. over—
+[00:03:06] Adam: I mean, you know, this is 20 years ago, but yeah. But the long story short, I let my Jaguar run out of gas. I accidentally didn't switch. over—
 
 [00:03:14] Will: You let someone else's Jaguar run out of gas, which is even worse.
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:03:16] Will: Oh, of course.
 
-[00:03:16] Adam: And I didn’t do the switch over, and that that fuel pump, which ran dry and failed, cost me 1,600 bucks.
+[00:03:16] Adam: And I didn’t do the switch over, and that that fuel pump, which ran dry and failed, cost me $1,600.
 
 [00:03:29] Norm: So when you run out of gas, it sputters, and then you just pressing accelerator does nothing. You pull.
 
@@ -198,9 +198,9 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:05:30] Will: of the SUV
 
-[00:05:31] Adam: of the of the 30,000 dollars sedan.
+[00:05:31] Adam: of the of the $30,000 sedan.
 
-[00:05:33] Norm: So they announced they just announced a new one called the Model 3, and it is there's no pictures of it yet, but it's called it's a 35,000 dollars sedan.
+[00:05:33] Norm: So they announced they just announced a new one called the Model 3, and it is there's no pictures of it yet, but it's called it's a $35,000 sedan.
 
 [00:05:41] Will: Does it have the the 300 mile range?
 
@@ -248,11 +248,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:07:24] Will: Is that a car that you bought, or that your parents like you inherited from your parents?
 
-[00:07:28] Adam: Oh no, no, no. I sorry. Yeah, no, I bought it. My parents gave me money to buy the car. I had moved out here in 1990, and in 1991, they were like, " You should have a car. We're going to send you 2,500 bucks."
+[00:07:28] Adam: Oh no, no, no. I sorry. Yeah, no, I bought it. My parents gave me money to buy the car. I had moved out here in 1990, and in 1991, they were like, " You should have a car. We're going to send you $2,500."
 
 [00:07:41] Will: Yeah, that's amazing.
 
-[00:07:41] Adam: And I I spent every penny of it on this Volvo, which you know that was a good car, fourteen years old back then.
+[00:07:41] Adam: And I I spent every penny of it on this Volvo, which you know that was a good car, 14 years old back then.
 
 [00:07:49] Will: So this is funny. Sorry, I don't mean to interrupt, but 1991 is when you bought this car.
 
@@ -268,7 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:07:58] Will: Yeah, of course.
 
-[00:07:58] Adam: Nobody. I didn’t learn to drive till I was twenty-two.
+[00:07:58] Adam: Nobody. I didn’t learn to drive till I was 22.
 
 [00:08:05] Will: Well, that explains a lot. We've seen the way you drive.
 
@@ -344,15 +344,15 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:10:51] Will: Oh, oh, that's much worse. That is like like a hold on like a legit call center or like a oh yeah like a customer service call center.
 
-[00:10:59] Adam: No no no no. This was a call center where we did surveys literally. So people would hire us to like call some town in Connecticut and do. Really, impossibly large numbers of questions, like seventy questions.
+[00:10:59] Adam: No no no no. This was a call center where we did surveys literally. So people would hire us to like call some town in Connecticut and do. Really, impossibly large numbers of questions, like 70 questions.
 
 [00:10:59] Will: Oh, wow!
 
 [00:10:59] Adam: On the two people running for office in that city,
 
-[00:11:17] Will: Did people did people actually get through seventy questions before telling you to pound sand?
+[00:11:17] Will: Did people did people actually get through 70 questions before telling you to pound sand?
 
-[00:11:19] Adam: You didn't, you know. Nowadays, I am sure they screw you every way, but Sunday, but back then, you you didn't actually get credit for the survey. It's not like you took a pay hit, but you didn't get credit for the survey unless someone answered all the questions, which really means that the only people that were willing to sit, you'd say, just take a few minutes of your time, knowing that it's like twenty five minutes to get through all these bloody questions, and so lonely old people. That's who you get.
+[00:11:19] Adam: You didn't, you know. Nowadays, I am sure they screw you every way, but Sunday, but back then, you you didn't actually get credit for the survey. It's not like you took a pay hit, but you didn't get credit for the survey unless someone answered all the questions, which really means that the only people that were willing to sit, you'd say, just take a few minutes of your time, knowing that it's like 25 minutes to get through all these bloody questions, and so lonely old people. That's who you get.
 
 [00:11:19] Norm: Oh, yeah.
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:12:15] Adam: Do you know Horsefeathers?
 
-[00:12:15] Will: No, no, no. But I let me guess. It is a small town. There's like twenty seat, twenty tables. There's a bar. They have a big lunch crowd from like the local hospital or maybe attorneys' offices, and they have a pretty good fry cook. Yeah, short order line with hamburgers, French dip, your club sandwich.
+[00:12:15] Will: No, no, no. But I let me guess. It is a small town. There's like 20 seat, 20 tables. There's a bar. They have a big lunch crowd from like the local hospital or maybe attorneys' offices, and they have a pretty good fry cook. Yeah, short order line with hamburgers, French dip, your club sandwich.
 
 [00:12:36] Adam: French dip. You got it.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:15:30] Norm: how old were you?
 
-[00:15:31] Adam: I was I was eighteen.
+[00:15:31] Adam: I was I was 18.
 
 [00:15:33] Will: I am.
 
@@ -470,11 +470,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:16:07] Adam: I don’t think they’d hire any of us now.
 
-[00:16:08] Will: I was a little skinnier and twenty-two years old then.
+[00:16:08] Will: I was a little skinnier and 22 years old then.
 
 [00:16:11] Adam: That was clear by the name of the store.
 
-[00:16:13] Will: Yeah, so. Um, I went in there. I did the application. They hired me for part time. I went went in for maybe forty five minutes, an hour.
+[00:16:13] Will: Yeah, so. Um, I went in there. I did the application. They hired me for part time. I went went in for maybe 45 minutes, an hour.
 
 [00:16:13] Adam: Oh.
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:18:01] Will: Hmm.
 
-[00:18:01] Adam: Um, and it was a flat fee, fifty bucks a day, which even in 1986 was a shitty, shitty, shitty salary, especially when they wanted you to show up at 7 a.m. and work until they said you were dead.
+[00:18:01] Adam: Um, and it was a flat fee, $50 a day, which even in 1986 was a shitty, shitty, shitty salary, especially when they wanted you to show up at 7 a.m. and work until they said you were dead.
 
 [00:18:15] Will: Yeah, I am sure that was not a punch out at 4:30 job.
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:18:58] Norm: the attitude the
 
-[00:18:59] Adam: the attitude of like we get whatever we want out of you for this fifty bucks, which again, granted, like five years later, when I was much more of a builder and a maker, and knew kind of what I wanted to be interested in instead of just being mystified by everything, I might have stuck it out because I might have had some ambition about the job. But in this case, it was just like a terrible salary for. Ridiculous hours, and it was like half the people were having a good time; the other half weren't.
+[00:18:59] Adam: the attitude of like we get whatever we want out of you for this $50, which again, granted, like five years later, when I was much more of a builder and a maker, and knew kind of what I wanted to be interested in instead of just being mystified by everything, I might have stuck it out because I might have had some ambition about the job. But in this case, it was just like a terrible salary for. Ridiculous hours, and it was like half the people were having a good time; the other half weren't.
 
 [00:19:24] Will: What was the best bad job you ever had?
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:19:28] Adam: Yeah.
 
-[00:19:28] Will: When I was fresh out of college, or actually, sorry, when I was going to college, I knew how I had done all the IT work for my parents' small business in high school and and you know first year of college, and I realized that it was at the dawn of the internet age, and everybody wanted to get their stuff on the internet. Everybody wanted to network their computers at their offices. So I was in a relatively small town, and I realized that for forty bucks an hour, I could go in and network people plus plus equipment costs and all that stuff.
+[00:19:28] Will: When I was fresh out of college, or actually, sorry, when I was going to college, I knew how I had done all the IT work for my parents' small business in high school and and you know first year of college, and I realized that it was at the dawn of the internet age, and everybody wanted to get their stuff on the internet. Everybody wanted to network their computers at their offices. So I was in a relatively small town, and I realized that for $40 an hour, I could go in and network people plus plus equipment costs and all that stuff.
 
 [00:19:28] Adam: Yeah.
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:22:21] Will: And this was at the Like the this was pre Wayne's World, so it's the pinnacle of public access television,
 
-[00:22:27] Adam: eighty three, eighty four. Yeah,
+[00:22:27] Adam: '83, '84. Yeah,
 
 [00:22:28] Will: yeah. I mean, it's amazing.
 
@@ -720,7 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:25:58] Adam: Corrections?
 
-[00:25:58] Will: No, no, for the close IT for the Department of of Biology at the University of Tennessee. Yeah. I was maintaining a network, and it was prior to Ethernet. Ah, so it was ten base two, the BNC coaxial stuff.
+[00:25:58] Will: No, no, for the close IT for the Department of of Biology at the University of Tennessee. Yeah. I was maintaining a network, and it was prior to Ethernet. Ah, so it was 10BASE2, the BNC coaxial stuff.
 
 [00:25:58] Adam: Wow.
 
@@ -744,7 +744,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:26:42] Adam: Yeah.
 
-[00:26:42] Will: That’s the way sane people do this. But the way we did it because we were cheap in a university is we just ran we drilled holes through the wall and there were thirty computers hooked up to one chain of the of the coax in a hundred and fifty year old building. So when you combine that with the fact that none of the, none of the power ports had grounded outlets, none of the, none of the outlets were grounded and some old bastard would invariably grab a pair of pliers and break the grounding socket off. I discovered that you could float a ground across thirty computers by grabbing the BNC connector to unhook it and having my hand not let go.
+[00:26:42] Will: That’s the way sane people do this. But the way we did it because we were cheap in a university is we just ran we drilled holes through the wall and there were 30 computers hooked up to one chain of the of the coax in a 150 year old building. So when you combine that with the fact that none of the, none of the power ports had grounded outlets, none of the, none of the outlets were grounded and some old bastard would invariably grab a pair of pliers and break the grounding socket off. I discovered that you could float a ground across 30 computers by grabbing the BNC connector to unhook it and having my hand not let go.
 
 [00:26:42] Adam: Yeah.
 
@@ -756,7 +756,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:26:42] Adam: Oh, that’s terrible.
 
-[00:26:42] Will: So when I, when I got my, I eventually was able to like wrench my hand loose from the computer and unplug the computer, which broke the ground that I was on. I went room to room until we, I figured out and I almost punched the eighty-five-year-old faculty administrator who’d been like, “Well, my power strip didn’t have, my power strip didn’t plug into the thing, so I just popped it off.”
+[00:26:42] Will: So when I, when I got my, I eventually was able to like wrench my hand loose from the computer and unplug the computer, which broke the ground that I was on. I went room to room until we, I figured out and I almost punched the 85-year-old faculty administrator who’d been like, “Well, my power strip didn’t have, my power strip didn’t plug into the thing, so I just popped it off.”
 
 [00:26:42] Adam: Man.
 
@@ -798,11 +798,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:31:03] Will: It was a lot of money.
 
-[00:31:04] Adam: That’s a huge amount of money to a twenty-three-year-old, right?
+[00:31:04] Adam: That’s a huge amount of money to a 23-year-old, right?
 
-[00:31:06] Will: What was your rent at the time, like 400 dollars a month, or
+[00:31:06] Will: What was your rent at the time, like $400 a month, or
 
-[00:31:08] Adam: No, no, no, no? My rent was my rent was 800 bucks a month at that point. I was living alone in an artist loft.
+[00:31:08] Adam: No, no, no, no? My rent was my rent was $800 a month at that point. I was living alone in an artist loft.
 
 [00:31:08] Will: Oh, in New York?
 
@@ -824,7 +824,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:31:50] Adam: Yeah.
 
-[00:31:50] Will: And it's a. It's on. I'm sure it's on YouTube. If it's not, you should go find it. It's a wonderful interview. But at the end, he basically says, " She says, 'What, what would you tell people if you could teach them anything?' It's like, 'You should trade work for money, not time.' And you know, meaning he he would rather get paid fifty bucks to clean out a chicken coop than get paid eight out eight ten dollars an hour to do the exact same work. So then, whether it's completed is on his schedule, not on someone else's, and he doesn't end up sitting waiting for something. You know, and he is a guy who literally went across the Southwest cleaning out people's garages and chicken coops and mucking stalls so that he had time to write.
+[00:31:50] Will: And it's a. It's on. I'm sure it's on YouTube. If it's not, you should go find it. It's a wonderful interview. But at the end, he basically says, " She says, 'What, what would you tell people if you could teach them anything?' It's like, 'You should trade work for money, not time.' And you know, meaning he he would rather get paid $50 to clean out a chicken coop than get paid eight out eight ten dollars an hour to do the exact same work. So then, whether it's completed is on his schedule, not on someone else's, and he doesn't end up sitting waiting for something. You know, and he is a guy who literally went across the Southwest cleaning out people's garages and chicken coops and mucking stalls so that he had time to write.
 
 [00:32:39] Adam: Yeah, you know that's funny because as soon as I as soon as I had established myself in the theater industry and then in the special effects industry, I did as much freelance work out of my own shop as I did work for other people, and I vastly preferred it. It allowed me to be home for the first three years of my kids' lives.
 

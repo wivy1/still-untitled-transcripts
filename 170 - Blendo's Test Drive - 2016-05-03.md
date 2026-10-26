@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:01:14] Will: holy cow,
 
-[00:01:15] Adam: and a picture of their cat. And they're like eight and ten, eight and eleven.
+[00:01:15] Adam: and a picture of their cat. And they're like 8 and 10, 8 and 11.
 
 [00:01:19] Norm: They look tinier.
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:04:36] Will: No.
 
-[00:04:36] Norm: So there is a new company that started a a trip down from San Francisco to L.A. and back, and I think it's like sixty or seventy dollars each way. But it's basically it's it's a semi, but in the back they're all beds.
+[00:04:36] Norm: So there is a new company that started a a trip down from San Francisco to L.A. and back, and I think it's like $60 or $70 each way. But it's basically it's it's a semi, but in the back they're all beds.
 
 [00:04:53] Will: Like like you have a capsule hotel type situation.
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:04:56] Adam: how much? It's not that expensive.
 
-[00:04:57] Norm: Yeah, it's like fifty to seventy bucks or something.
+[00:04:57] Norm: Yeah, it's like $50 to $70 or something.
 
 [00:04:59] Will: Oh man, I would totally do that.
 
@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:05:19] Will: Yeah.
 
-[00:05:19] Adam: So I spent the weekend in Memphis with eleven amazingly talented kids. My wife and I were chaperoning them, and it was phenomenal. All the groups in Memphis at this at this competition and conference were amazing. Vocal Rush OSA's Vocal Troop won the competition.
+[00:05:19] Adam: So I spent the weekend in Memphis with 11 amazingly talented kids. My wife and I were chaperoning them, and it was phenomenal. All the groups in Memphis at this at this competition and conference were amazing. Vocal Rush OSA's Vocal Troop won the competition.
 
 [00:05:39] Will: Oh, awesome! Congratulations! And team.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:05:42] Norm: It's acapella.
 
-[00:05:43] Adam: It is acapella, and I'll tell you, traveling with an acapella group of teenagers is a freaking antidepressant. Like they are just, you know, we're in Houston Airport having a layover on our way there, and they're like, " Well, let's work out our blocking." And eleven kids get up and do the full choreography of one of their songs in the airport, and they did this wherever you stop, they sing.
+[00:05:43] Adam: It is acapella, and I'll tell you, traveling with an acapella group of teenagers is a freaking antidepressant. Like they are just, you know, we're in Houston Airport having a layover on our way there, and they're like, " Well, let's work out our blocking." And 11 kids get up and do the full choreography of one of their songs in the airport, and they did this wherever you stop, they sing.
 
 [00:06:05] Norm: So it's just like that Anna Kendrick movie.
 
@@ -244,11 +244,11 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:08:40] Will: Huh?
 
-[00:08:40] Adam: And it was amazing. I was led around by these two amazing women, Sonya Pryor-Jones and Lisa Camp, both of whom are heavily invested in making and teaching kids how to how to normalize the peripatetic path that making takes you on. And they're amazing. Like I did, it was twelve solid hours of going to place to place to place.
+[00:08:40] Adam: And it was amazing. I was led around by these two amazing women, Sonya Pryor-Jones and Lisa Camp, both of whom are heavily invested in making and teaching kids how to how to normalize the peripatetic path that making takes you on. And they're amazing. Like I did, it was 12 solid hours of going to place to place to place.
 
 [00:09:37] Norm: How many places did you go to? And were they schools?
 
-[00:09:40] Adam: I went to a I went to a couple of schools. I went to Boys and Girls Club. I went to the local public library where they have makerspaces set up. And the the the president of that library is about to become president of the National Library Association. Okay, it was really really impressive. Perhaps the most impressive was a 50,000,000 dollar endowed seven story makerspace called ThinkBox.
+[00:09:40] Adam: I went to a I went to a couple of schools. I went to Boys and Girls Club. I went to the local public library where they have makerspaces set up. And the the the president of that library is about to become president of the National Library Association. Okay, it was really really impressive. Perhaps the most impressive was a $50 million endowed seven story makerspace called ThinkBox.
 
 [00:09:40] Will: Oh wow!
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:11:18] Adam: It's amazing. They've built software so that when you go up to laser cutter and put yourself on on the on the list, you put your phone number and it texts you when you're close to being ready. Um,
 
-[00:11:28] Norm: I mean that's advanced and that's for a facility that has you know 50,000,000 dollars and set up from the ground up to be that purpose
+[00:11:28] Norm: I mean that's advanced and that's for a facility that has you know $50 million and set up from the ground up to be that purpose
 
 [00:11:33] Adam: to be that purpose and is free to the public.
 
@@ -326,15 +326,15 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:12:36] Adam: Yeah,
 
-[00:12:36] Norm: and I think you know there's going to be a huge opportunity in the next ten fifteen years as kids who grew up with 3D printers who know how to use it and those type of CNC machines then get to work in environments so they're not having to learn new technologies like teachers today and maintain them.
+[00:12:36] Norm: and I think you know there's going to be a huge opportunity in the next 10 15 years as kids who grew up with 3D printers who know how to use it and those type of CNC machines then get to work in environments so they're not having to learn new technologies like teachers today and maintain them.
 
-[00:13:03] Adam: Yeah, yeah, and again, yeah, this is really it's a fascinating thing. There are a lot of cities like Cleveland, Cleveland's way. Way out there in terms of being really clear about its mission, and it was, you know, on the tail end of having traveled to Memphis with this incredible diverse group of super talented teenagers, it felt like being part of the solution. That's really what it felt like. So we were on a bus all day. We're traveling around with city council members and state senators, and we're getting the stories of the people who live in the neighborhoods and how these neighborhoods were harmed by the crack epidemic or harmed by the financial crisis. How Cleveland's divides haven't yielded the right things, and how there are people building groups to gather other groups to heal these things. And so you talk to someone, and you know, the Boys and Girls Club. I didn't. I'd forgotten about the Boys and Girls Club. There's four thousand of them that serve over four million kids around the country.
+[00:13:03] Adam: Yeah, yeah, and again, yeah, this is really it's a fascinating thing. There are a lot of cities like Cleveland, Cleveland's way. Way out there in terms of being really clear about its mission, and it was, you know, on the tail end of having traveled to Memphis with this incredible diverse group of super talented teenagers, it felt like being part of the solution. That's really what it felt like. So we were on a bus all day. We're traveling around with city council members and state senators, and we're getting the stories of the people who live in the neighborhoods and how these neighborhoods were harmed by the crack epidemic or harmed by the financial crisis. How Cleveland's divides haven't yielded the right things, and how there are people building groups to gather other groups to heal these things. And so you talk to someone, and you know, the Boys and Girls Club. I didn't. I'd forgotten about the Boys and Girls Club. There's 4,000 of them that serve over 4 million kids around the country.
 
 [00:14:00] Will: Incredible organization.
 
 [00:14:01] Adam: Totally amazing. This is it. It was incredibly inspiring. Every single visit we we made. Yielded some new insight and some new ideas about ways in which, again, we keep on going back to this, and we talk about this a lot on this podcast about failure, about helping kids normalize. You know, as a parent, it's our job to sort of give kids the illusion of consistency until such time as they can handle the truth, which is there is none.
 
-[00:14:28] Will: I mean, the big, the big one of the big challenges I have is that you have to let your kid figure out, like how, like it would take me three seconds to get my daughter dressed in the morning; it takes her ten minutes.
+[00:14:28] Will: I mean, the big, the big one of the big challenges I have is that you have to let your kid figure out, like how, like it would take me three seconds to get my daughter dressed in the morning; it takes her 10 minutes.
 
 [00:14:28] Adam: Right.
 
@@ -342,9 +342,9 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:14:28] Adam: Yeah.
 
-[00:14:28] Will: We take the ten minutes every single day. It's maddening, right,
+[00:14:28] Will: We take the 10 minutes every single day. It's maddening, right,
 
-[00:14:47] Adam: dude? You just wait. Let me tell you that you'll spend the next like fifteen years waiting for her to put on her shoes. I, I still my teenagers. It's like I don't. Socks are hard, man. How many laces do you have to have on your shoes?
+[00:14:47] Adam: dude? You just wait. Let me tell you that you'll spend the next like 15 years waiting for her to put on her shoes. I, I still my teenagers. It's like I don't. Socks are hard, man. How many laces do you have to have on your shoes?
 
 [00:14:58] Will: Well, that's the fun. That's the fun, like how to break something down to explain it to a three-year-old is one of my new favorite games to play.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:21:09] Will: you mean the horns, the blades?
 
-[00:21:10] Adam: Yeah, the blades. This exterior ring was its ID was about thirty inches, and its OD was about 42 inches. Right, so it's very fairly thick, and it's thicker than quarter-inch plate. It might have even been three-eighths.
+[00:21:10] Adam: Yeah, the blades. This exterior ring was its ID was about 30 inches, and its OD was about 42 inches. Right, so it's very fairly thick, and it's thicker than quarter-inch plate. It might have even been three-eighths.
 
 [00:21:10] Norm: How did you bend it?
 

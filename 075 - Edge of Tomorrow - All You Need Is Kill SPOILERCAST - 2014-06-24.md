@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:15:01] Adam: Right.
 
-[00:15:01] Will: In his case, like two hundred and seventy times. In her case, two hundred and twelve.
+[00:15:01] Will: In his case, like 270 times. In her case, 212.
 
 [00:15:01] Adam: Right. Right.
 
@@ -486,11 +486,11 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:15:20] Adam: Did you did you ever see that thing that Harold Ramis said about how many times Bill Murray repeated?
 
-[00:15:24] Will: At least ten years.
+[00:15:24] Will: At least 10 years.
 
 [00:15:24] Adam: Yeah.
 
-[00:15:24] Will: Maybe more like twenty five.
+[00:15:24] Will: Maybe more like 25.
 
 [00:15:24] Adam: Yeah. Yeah.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:18:35] Adam: What was the ending in the book?
 
-[00:18:36] Will: The ending in the book is she realizes that she she's outside of his loop, right? She lives so she meets him every day for the first time, like fifty first dates or Groundhog Day.
+[00:18:36] Will: The ending in the book is she realizes that she she's outside of his loop, right? She lives so she meets him every day for the first time, like 50 first dates or Groundhog Day.
 
 [00:18:36] Adam: Yeah.
 
@@ -682,7 +682,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:22:49] Will: No, no, I was just gonna say in the book he starts out as like new recruit night before his first battle, and he and he's like, this is like a video game. I just keep going on dying over and over again. I get better every day.
 
-[00:22:58] Adam: Well, so yeah, I'll tell you something: is the opening of the movie, the first ten minutes, is the worst part of the movie. I I turned to my friend David and I was like, I don't know who I am supposed to give a shit about in this movie yet because nobody
+[00:22:58] Adam: Well, so yeah, I'll tell you something: is the opening of the movie, the first 10 minutes, is the worst part of the movie. I I turned to my friend David and I was like, I don't know who I am supposed to give a shit about in this movie yet because nobody
 
 [00:23:12] Norm: Tom Cruise is unlikable. He’s a coward, but I think it’s a meta-awareness.
 
@@ -744,7 +744,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:25:44] Norm: Opened the same day as The Edge of Tomorrow and did double.
 
-[00:25:46] Adam: Wow! And that movie cost like fifty bucks to make or something.
+[00:25:46] Adam: Wow! And that movie cost like $50 to make or something.
 
 [00:25:49] Norm: Yes.
 

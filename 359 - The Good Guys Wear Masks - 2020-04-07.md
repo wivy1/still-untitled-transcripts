@@ -22,11 +22,11 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:00:32] Will: Makes a funnel, probably.
 
-[00:00:34] Adam: Yeah. So that that made it incumbent upon me this weekend to to look up some mask designs and try and build a few. And I was here on Saturday for a few hours, flailing, breaking needles on my sewing machine. I just had the worst, worst four-hour period. Sewing is not my wheelhouse, and It was awful, and then I was texting back and forth today with Mary Robinette Kowal because we were talking spacesuit stuff, and she sent me this design that she had modified from a couple of others, and it's stunning. This is literally a twelve-inch square of cotton. We this is a pillowcase that my two pillowcases that my wife and I had that we hadn't used yet. It's a twelve-inch square, folded in half, sewn up one edge to make a tube that's six by twelve. The ends are are folded in to create tubes for the for the ties.
+[00:00:34] Adam: Yeah. So that that made it incumbent upon me this weekend to to look up some mask designs and try and build a few. And I was here on Saturday for a few hours, flailing, breaking needles on my sewing machine. I just had the worst, worst four-hour period. Sewing is not my wheelhouse, and It was awful, and then I was texting back and forth today with Mary Robinette Kowal because we were talking spacesuit stuff, and she sent me this design that she had modified from a couple of others, and it's stunning. This is literally a 12-inch square of cotton. We this is a pillowcase that my two pillowcases that my wife and I had that we hadn't used yet. It's a 12-inch square, folded in half, sewn up one edge to make a tube that's 6 by 12. The ends are are folded in to create tubes for the for the ties.
 
 [00:01:38] Will: Yeah.
 
-[00:01:39] Adam: A three pipe cleaners are twisted together to make the nose bridge, and actually having tried like about fifteen different things in my shop for the nose bridge, pipe cleaners are. It man, they are
+[00:01:39] Adam: A three pipe cleaners are twisted together to make the nose bridge, and actually having tried like about 15 different things in my shop for the nose bridge, pipe cleaners are. It man, they are
 
 [00:01:52] Norm: that's awesome,
 
@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:04:24] Adam: Yeah.
 
-[00:04:24] Will: Because I mean, presumably, as as near as we can tell, the virus doesn't spread in viral form. It has to still be attached to some sort of particulate, which in the case of a sneeze or a cough is. I mean, you did this on the show, right? There's little clouds of little droplets when somebody sneezes or coughs, and you walk through them ten minutes later, and then boom, there you go. So this is to minimize that. That's it.
+[00:04:24] Will: Because I mean, presumably, as as near as we can tell, the virus doesn't spread in viral form. It has to still be attached to some sort of particulate, which in the case of a sneeze or a cough is. I mean, you did this on the show, right? There's little clouds of little droplets when somebody sneezes or coughs, and you walk through them 10 minutes later, and then boom, there you go. So this is to minimize that. That's it.
 
 [00:04:45] Adam: Yeah,
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:18:16] Adam: Yeah, and and and it colors this, it colors everything in a way that it's really impossible to sort of parse from inside of it at this early stage. But there's definitely a feeling of like, if I was alone, I would easily stay in bed until noon and go bed at like go to bed at like four a.m. and eat nothing but Oreos. Like there's There's part that could just completely retreat.
 
-[00:18:44] Will: Well, I mean, it's funny because I have some friends who are single people who live alone in L.A. and and I was talking to one of them last night. He's like, " Yeah, today I sang the Goldfinger theme to my ham sandwich before I ate it," and I was like, " Damn, Casey, um, you know, maybe get on some. Let's get some voice conferences going. Let's get you on the Zoom and and hang out some. Like, but at the same time, at eleven o'clock on Saturday morning, when my when the house was full chaos, I was just like, Oh man, I'm very jealous. Like, we have we have these two completely different experiences that the that the country's having, and it's the people who live alone and the people who are living houses filled filled with family, and it's like it's like the family reunion you can't escape from, which is fine, but also it would be nice to have like twenty minutes of quiet in the house at some point during the daytime.
+[00:18:44] Will: Well, I mean, it's funny because I have some friends who are single people who live alone in L.A. and and I was talking to one of them last night. He's like, " Yeah, today I sang the Goldfinger theme to my ham sandwich before I ate it," and I was like, " Damn, Casey, um, you know, maybe get on some. Let's get some voice conferences going. Let's get you on the Zoom and and hang out some. Like, but at the same time, at 11 o'clock on Saturday morning, when my when the house was full chaos, I was just like, Oh man, I'm very jealous. Like, we have we have these two completely different experiences that the that the country's having, and it's the people who live alone and the people who are living houses filled filled with family, and it's like it's like the family reunion you can't escape from, which is fine, but also it would be nice to have like 20 minutes of quiet in the house at some point during the daytime.
 
 [00:19:33] Norm: And that's the thing. It's it's not what the circumstance is. It's the duration of that circumstance, and that you can't get a break from any of what would be the thing you're doing normally.
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:19:49] Adam: I was just going to say there's a there's a a phrase, and I I'm not sure if I heard it in Buddhism in my in the Buddhism reading that I have done and do, but I sense that it does, and the phrase is this is what's happening, and that simple phrase has been incredibly stabilizing for me to be repeating during this. Uh, and it's not to say that I have been on an even keel the whole time. I've had some real emotional swings over the past few weeks, and it's all informed by, like I said, like we talked about at the beginning. Uh, and that that that acceptance, right? It, I mean, it happens. It happens when you're a new parent, too, right? Well, like you at first, you're just like, " Jesus Christ, this is unrelenting," and then you're like, " Man, I just unrelenting is the flavor. That's that's what we are. We're we're existing within unrelenting."
 
-[00:20:46] Will: Norm, you and I have talked about this, but there's a moment when your kid is like three, two or three months old, when you're like, " You're like, oh God, I I'm so tired," and then and then you you realize in your head that it's like this isn't gonna stop for the rest of your life, probably, but at least like a good ten, twenty years, and um, like you have to you have to get acceptance and resignation and and all you know, move through all the stages. Uh, the the thing we're finding is that days are both very very long and seem and then you look up and it's four 4:45 or five o'clock, and like the individual moments are long. We're we're trying to live very much in the moment on the day to day. It helps having a seven year old around because having a short attention span human being in your life lets you lets you do that more often. Um, and and the nice thing I've, I like, I'm in a conveniently I'm in a position where like my business is slow right now, but I do have stuff that I have to do every day. So you know we're when I get my stuff done, then if I don't feel like I'm going to be productive, if I'm not in a productive headspace, I can go in and hang out with my kid, and we can do a puzzle or build some Lego or whatever together. Which which is you know it's a it's a small um it's a small uh you know bright side to an otherwise very grim time. So you find small comfort.
+[00:20:46] Will: Norm, you and I have talked about this, but there's a moment when your kid is like three, two or three months old, when you're like, " You're like, oh God, I I'm so tired," and then and then you you realize in your head that it's like this isn't gonna stop for the rest of your life, probably, but at least like a good 10, 20 years, and um, like you have to you have to get acceptance and resignation and and all you know, move through all the stages. Uh, the the thing we're finding is that days are both very very long and seem and then you look up and it's four 4:45 or five o'clock, and like the individual moments are long. We're we're trying to live very much in the moment on the day to day. It helps having a seven year old around because having a short attention span human being in your life lets you lets you do that more often. Um, and and the nice thing I've, I like, I'm in a conveniently I'm in a position where like my business is slow right now, but I do have stuff that I have to do every day. So you know we're when I get my stuff done, then if I don't feel like I'm going to be productive, if I'm not in a productive headspace, I can go in and hang out with my kid, and we can do a puzzle or build some Lego or whatever together. Which which is you know it's a it's a small um it's a small uh you know bright side to an otherwise very grim time. So you find small comfort.
 
 [00:22:09] Adam: We we we tried to build a puzzle, but I had to give up at the sky. It was like a vast white sky. I built I built 85% of the puzzle without looking at the box, and I never looked at the box. But the white sky just beat me. It defeated me.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:22:27] Adam: the only one, and and I was the only one in the house working on the puzzle. And at a certain point, I was like, " I gotta pack this puzzle up."
 
-[00:22:34] Will: Slackasses. We've gone the other way. We did. We had a couple of thousand-piece real nightmare puzzles with like all streets that wind in opposite directions and other and like and and we've gone. I was looking at a site that just does puzzles that are gradients. It's just a straight vertical gradient from like blue to orange. I was like, " Oh, this looks good."
+[00:22:34] Will: Slackasses. We've gone the other way. We did. We had a couple of 1,000-piece real nightmare puzzles with like all streets that wind in opposite directions and other and like and and we've gone. I was looking at a site that just does puzzles that are gradients. It's just a straight vertical gradient from like blue to orange. I was like, " Oh, this looks good."
 
 [00:22:53] Adam: Have you ever seen what real puzzlers do to practice? They'll take two white puzzles, join them together, and then have to complete the pair of them.
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:24:46] Will: I'm, I'm, I'm on a, I'm, I'm just, I'm in the, yeah, I'm, I'm in, I feel the flow. I'm in the flow state."
 
-[00:24:53] Adam: And speaking of the bread-making phase, a good friend, we we have friends that live nearby us, and we actually we went over to their house, and they have they have stairs in front of their house, so they they can stand on the second level like a balcony, and it's a little like Romeo and Juliet. So we stand on the street, and they stand on the balcony, and we had about a forty-five minute chat from you know fifteen feet away.
+[00:24:53] Adam: And speaking of the bread-making phase, a good friend, we we have friends that live nearby us, and we actually we went over to their house, and they have they have stairs in front of their house, so they they can stand on the second level like a balcony, and it's a little like Romeo and Juliet. So we stand on the street, and they stand on the balcony, and we had about a 45 minute chat from you know 15 feet away.
 
 [00:25:18] Will: A little bit of Verona.
 
@@ -316,11 +316,11 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:29:54] Adam: Yeah, it's been. It's. I mean, just to say, I was about to go. Yeah, it's really strange, which is the literally the dumbest possible thing you could say about this moment. But it is so strange.
 
-[00:30:06] Will: Well, but but you know what? The thing I I it's funny. I was I I was doing a pitch this morning for a thing, and as I was talking, I realized that this is the first time in thirty years that the entirety of American experience is the same. Right. I mean,
+[00:30:06] Will: Well, but but you know what? The thing I I it's funny. I was I I was doing a pitch this morning for a thing, and as I was talking, I realized that this is the first time in 30 years that the entirety of American experience is the same. Right. I mean,
 
 [00:30:20] Adam: the world experience.
 
-[00:30:21] Will: The world experience. Yeah. The the it's and and in that regard, it's the first time in a hundred years probably.
+[00:30:21] Will: The world experience. Yeah. The the it's and and in that regard, it's the first time in 100 years probably.
 
 [00:30:26] Adam: By the way, and. By the way, in Iowa, and I don't mean to call out Iowa because it's a lovely state with some lovely people, but they still have not done a shelter-in-place. The governor is still just shutting down schools, but hasn't asked everyone to shelter-in-place. It drives me crazy.
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:33:52] Adam: This is going to change social dynamics for a generation. If not, I mean,
 
-[00:33:59] Will: this is what happened in the countries that were affected by SARS, you know, fifteen years ago. So we're just we're just behind the times and didn't pay attention. So
+[00:33:59] Will: this is what happened in the countries that were affected by SARS, you know, 15 years ago. So we're just we're just behind the times and didn't pay attention. So
 
 [00:34:07] Adam: yeah, well, you guys stay safe and have a good week, and we'll keep on keeping on.
 

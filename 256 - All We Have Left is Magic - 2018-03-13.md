@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:02:23] Adam: This this is a puppet in which
 
-[00:02:24] Adam: it's a stop motion puppet in which every joint is pretty much visible, but there is, there is over two hundred parts in this. So when I first got it, I actually paid one of the machinists from Tippett's studio to build parts of the legs so it could stand on its own, and that got it about 80% there. And then over the last couple of weeks, I brought in Brett Foxwell, a wonderful machinist who also works at Tippett.
+[00:02:24] Adam: it's a stop motion puppet in which every joint is pretty much visible, but there is, there is over 200 parts in this. So when I first got it, I actually paid one of the machinists from Tippett's studio to build parts of the legs so it could stand on its own, and that got it about 80% there. And then over the last couple of weeks, I brought in Brett Foxwell, a wonderful machinist who also works at Tippett.
 
 [00:02:48] Norm: He made the armatures for the Force Awakens. Puppets, Dejarik
 
@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:04:02] Will: Like the toy manufacturer,
 
-[00:04:03] Adam: the toy manufacturers, they were pissed that the Ed Two Hundred Nine just showed up everywhere after RoboCop, and so Cain was like the anti-copy. Cain has built-in DRM.
+[00:04:03] Adam: the toy manufacturers, they were pissed that the Ed 209 just showed up everywhere after RoboCop, and so Cain was like the anti-copy. Cain has built-in DRM.
 
 [00:04:13] Will: Yeah,
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:06:40] Norm: You know it's funny. Well, Last time I visited Phil, he was doing his most recent Kickstarter for Mad God, and they were doing some puppets, and he is work still working on Mad God, and which is a stop motion short film. Unending, many parts
 
-[00:06:54] Adam: been doing for like twenty years. It's amazing
+[00:06:54] Adam: been doing for like 20 years. It's amazing
 
 [00:06:56] Norm: from his mind,
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:07:17] Adam: No, no,
 
-[00:07:17] Norm: that you could get for like seventy or eighty dollars, and these like musculature, you know, big like Arnold Schwarzenegger type body types,
+[00:07:17] Norm: that you could get for like $70 or $80, and these like musculature, you know, big like Arnold Schwarzenegger type body types,
 
 [00:07:25] Norm: Yes.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:09:11] Adam: Well, I mentioned Frank Oz this morning, and then you said, " Have you seen that show?" He tweets about
 
-[00:09:17] Will: at like eleven o'clock on many nights. Frank Oz will just blast out a retweet.
+[00:09:17] Will: at like 11 o'clock on many nights. Frank Oz will just blast out a retweet.
 
 [00:09:22] Norm: [unclear: Yoda thought / Yoda Thos].
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:10:16] Adam: But so what they do, like, so what I mean by not getting it is that like what Frank's been doing in posting stories and posting quotes about what it's like to work with Jim and with the other Muppeteers and stories from movies that he directed and movies that he's been in, he is elevating and changing Twitter a bit, like every new arrival, and saying maybe these are the stories that people are interested in. The answer is yes, we are. It's really exciting to see something totally different. show up. Oh, yeah.
 
-[00:10:43] Norm: Thank God for two hundred eighty characters.
+[00:10:43] Norm: Thank God for 280 characters.
 
 [00:10:46] Will: So, what? A couple nights ago, he started tweeting. It's the second or third time I've seen him do this since he since he came on Twitter. Which I assume was for the Dark Crystal re release. Maybe I don't know why he's why he's suddenly on Twitter. Like I don't know why you in 2018 look up and are like, man, I should really get get a Twitter account finally. It's time.
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:15:11] Adam: at Sundance, and they they basically copied this whole framework of the entry into into Derek's show in for this opening at Sundance, and it was shitty. And they were it was a dumb move on that on that part, and it was sad.
 
-[00:15:29] Norm: But when you say six magic tricks in seventy minutes, it means that the seven the construction of the seventy minutes is is the like the performance. It's not just the six tricks.
+[00:15:29] Norm: But when you say six magic tricks in 70 minutes, it means that the seven the construction of the 70 minutes is is the like the performance. It's not just the six tricks.
 
 [00:15:40] Adam: No, it's not about the tricks. The tricks are in service of a narrative, not the other way around,
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:15:49] Adam: They push. And extend and deepen that narrative.
 
-[00:15:52] Will: So I was going to say, like when we saw Penn and Teller's show in Vegas, which is the most recent big magic show I've seen, they do maybe ten tricks in an hour, hour and a half,
+[00:15:52] Will: So I was going to say, like when we saw Penn and Teller's show in Vegas, which is the most recent big magic show I've seen, they do maybe 10 tricks in an hour, hour and a half,
 
 [00:16:02] Norm: maybe a little more than that. Yeah,
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:19:16] Adam: Yeah.
 
-[00:19:19] Norm: They found a ghost town, I guess, outside of Austin and bus people there, hundreds of people, and had like one hundred actors in costume with a four hundred page script for two hours that did a immersive theater experience in the spirit of Westworld.
+[00:19:19] Norm: They found a ghost town, I guess, outside of Austin and bus people there, hundreds of people, and had like 100 actors in costume with a 400 page script for two hours that did a immersive theater experience in the spirit of Westworld.
 
 [00:19:38] Will: Okay, so I did an escape room in LA that was an off brand knockoff Westworld escape room, yeah, and having real actors behaving like the robots do in Westworld, I found to be profoundly disturbing. Like, like
 

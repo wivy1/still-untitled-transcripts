@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:00:38] Rebecca: Well, the good news is that there is a very good possibility that there's a parallel universe where David Bowie does, in fact, live forever. I was hoping it was ours, but you know what? It's not, and we just have to accept that. Unfortunately,
 
-[00:00:49] Norm: it came really suddenly. Now we're recording this the morning after the news broke. He just turned sixty-nine.
+[00:00:49] Norm: it came really suddenly. Now we're recording this the morning after the news broke. He just turned 69.
 
 [00:00:49] Adam: Yeah.
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:00:49] Norm: And the album has all sorts of new meaning and significance now that it happened.
 
-[00:01:03] Adam: And he's been battling cancer for eighteen months.
+[00:01:03] Adam: And he's been battling cancer for 18 months.
 
 [00:01:03] Rebecca: Yeah,
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:06:12] Rebecca: he was gender fluid before gender fluid was a thing.
 
-[00:06:16] Adam: He he was gender fluid and gave he was a. I've often I've often enjoyed saying that I like to feel like in my best I can be a permission machine for a ten year old me to go ahead and let the freak flag fly. Yeah, but Bowie's confidence at that fluidity—I think he announced that he was gay in 1973 as part of space as part of Ziggy Stardust. And there are some accounts that it was a cynical attempt to get more attention for the album, but really, in the in the arc of his life, none of that matters. He really was so weird and so bizarre. And so confident at it that he transcended any opinions you could have about it, because at the same time it was totally public. It was also completely personal, and it was his, and he owned it totally.
+[00:06:16] Adam: He he was gender fluid and gave he was a. I've often I've often enjoyed saying that I like to feel like in my best I can be a permission machine for a 10 year old me to go ahead and let the freak flag fly. Yeah, but Bowie's confidence at that fluidity—I think he announced that he was gay in 1973 as part of space as part of Ziggy Stardust. And there are some accounts that it was a cynical attempt to get more attention for the album, but really, in the in the arc of his life, none of that matters. He really was so weird and so bizarre. And so confident at it that he transcended any opinions you could have about it, because at the same time it was totally public. It was also completely personal, and it was his, and he owned it totally.
 
 [00:07:05] Rebecca: Yeah, I I watched Man Who Fell to Earth in college, and I I remember thinking I've never been so bored by a movie that, while still finding the central protagonist so so completely captivating.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:13:26] Adam: absolutely.
 
-[00:13:26] Norm: Yeah, so if you haven't seen the show yet, now is the time to pause, go watch all thirteen episodes, and then come back as we'll be talking about it.
+[00:13:26] Norm: Yeah, so if you haven't seen the show yet, now is the time to pause, go watch all 13 episodes, and then come back as we'll be talking about it.
 
 [00:13:35] Adam: Now, if you are a functioning human being, I will tell you that you might find it difficult to binge watch Jessica Jones. I personally
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:21:19] [unclear: Rebecca / Adam]: not even the Hemsworths. Especially the
 
-[00:21:21] Adam: no, no, no! Like all these, all these men and women—Scarlett Johansson—they're all actually terrific actors with great directors, making lovely product. And then Marvel delves into television. Daredevil was really wonderful. I think some of the dialogue in Daredevil is is really difficultly bad. At the same time, as Vincent D'Onofrio does a world-beating villain in Kingpin, the Kingpin I always wanted from the Frank Millers that I was reading thirty years ago. Jessica Jones, which is created by Melissa Rosenberg, I would love to see her original pitch documents because she brings. She's clearly influenced by Chandler. With the the smoked glass window on Jessica's apartment door, she's quoting Chinatown. I think of the broken front door as Jack Nicholson's bandaged nose. Yeah. Again, Vince Vince Gilligan played around with this in Breaking Bad. That this character is there's a line. Chandler wrote an essay, and I've quoted it on the podcast before. The simple art of murder. One of the things that he said, and in it he illustrates the things that make a proper hero of this kind of noir tale. And Jessica Jones is absolutely noir.
+[00:21:21] Adam: no, no, no! Like all these, all these men and women—Scarlett Johansson—they're all actually terrific actors with great directors, making lovely product. And then Marvel delves into television. Daredevil was really wonderful. I think some of the dialogue in Daredevil is is really difficultly bad. At the same time, as Vincent D'Onofrio does a world-beating villain in Kingpin, the Kingpin I always wanted from the Frank Millers that I was reading 30 years ago. Jessica Jones, which is created by Melissa Rosenberg, I would love to see her original pitch documents because she brings. She's clearly influenced by Chandler. With the the smoked glass window on Jessica's apartment door, she's quoting Chinatown. I think of the broken front door as Jack Nicholson's bandaged nose. Yeah. Again, Vince Vince Gilligan played around with this in Breaking Bad. That this character is there's a line. Chandler wrote an essay, and I've quoted it on the podcast before. The simple art of murder. One of the things that he said, and in it he illustrates the things that make a proper hero of this kind of noir tale. And Jessica Jones is absolutely noir.
 
 [00:22:39] Rebecca: Yeah.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:29:08] Rebecca: Yeah,
 
-[00:29:08] Adam: and wrote this beautiful pilot about himself at fourteen, in which within the pilot, all the kids he's hanging out with are played by children. And at our reading, we had many children, including a couple of people I already knew, but Hodgman playing himself as an adult, playing fourteen-year-old Hodgman, and it was
+[00:29:08] Adam: and wrote this beautiful pilot about himself at 14, in which within the pilot, all the kids he's hanging out with are played by children. And at our reading, we had many children, including a couple of people I already knew, but Hodgman playing himself as an adult, playing 14-year-old Hodgman, and it was
 
 [00:29:38] Rebecca: so I I laughed until I was crying. And what I really loved is that he introduced it. I love the whole concept of this podcast. I can't wait for it to come out. But he talked a little bit about why. It didn't get picked up, and he said that they pitched it to I think it was FX, and FX was like, " We really like it," and they bought it in the end. But they said it's we we tend to go edgier, and he said, " So you're saying that a 45 year old man almost kissing a 13 year old girl is not edgy?"
 

@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:06:24] Adam: Yeah,
 
-[00:06:24] Norm: and even though we can't search them and parse them, and they're produced differently than writing a thousand words in an article, it is the same thing. It's really interesting topic because the three of you guys make videos all differently with different production processes, and and doing it for different amounts of times. Like we've been making videos one day builds with Adam for for years now. We've developed a workflow. We have the support of of you know editor and and and shooter,
+[00:06:24] Norm: and even though we can't search them and parse them, and they're produced differently than writing 1,000 words in an article, it is the same thing. It's really interesting topic because the three of you guys make videos all differently with different production processes, and and doing it for different amounts of times. Like we've been making videos one day builds with Adam for for years now. We've developed a workflow. We have the support of of you know editor and and and shooter,
 
 [00:06:53] Adam: and we've developed a language. We've understood like Joey and I have talked extensively about how much silence to put in the videos, and both of us have. Improved and deepened our understanding of the kind of narratives we're interested in telling, just in the process of collaborating. And I know that you guys have gone through probably a similar process.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:13:44] Norm: that's true. It's not a teenage raunch comedy. I mean. There's so much that you're not beholden to when you're making content for YouTube. Like it's our own schedules, you know. I know people always ask, " When's the next one-day build?" And we're always thinking about it. If when if not shooting it, and it's not, but it's not the same as when you had to shoot, you know, within for MythBusters for a TV show. What you're doing now, Simone, for a TV show, like a certain number of shoot days, [unclear: and there’s more / and there’s no more]. There's more freedom to YouTube.
 
-[00:14:15] Adam: There's the freedom is a is an interesting and tricky word to use because all. I mean, I'm a big believer that deadlines and all great art comes about because of the restrictions placed upon us. I'm sure we all have experience with the open-ended project that never happens because you just keep on trying to make it perfect and you don't have a deadline. So I love the I love the restrictions of television. The 44 or 22 minute, the the act breaks, the trying to build a narrative through the through the pieces of it, and I also love the freedom of YouTube of Of again these alternate channels, but again it's not a total freedom. I still want to tell a compelling story, and for us we've found that that key time is somewhere between twenty five and forty five minutes.
+[00:14:15] Adam: There's the freedom is a is an interesting and tricky word to use because all. I mean, I'm a big believer that deadlines and all great art comes about because of the restrictions placed upon us. I'm sure we all have experience with the open-ended project that never happens because you just keep on trying to make it perfect and you don't have a deadline. So I love the I love the restrictions of television. The 44 or 22 minute, the the act breaks, the trying to build a narrative through the through the pieces of it, and I also love the freedom of YouTube of Of again these alternate channels, but again it's not a total freedom. I still want to tell a compelling story, and for us we've found that that key time is somewhere between 25 and 45 minutes.
 
 [00:14:15] Norm: Yep,
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:15:22] Adam: Yeah, yeah, yeah.
 
-[00:15:23] Laura Kampf: So I try to make my own experiments and my own experiences. So those videos, yeah, usually it's it's four to seven minutes depending on what I'm doing. And I think I experimented with super short content. I made ten second videos and sixty second videos, and that is super interesting as well. And I think the the interesting part about it is that it depends on the quality of the idea. A really good idea can be told in ten seconds, and if the idea Needs a bit more explanation. You need more time to to talk about it.
+[00:15:23] Laura Kampf: So I try to make my own experiments and my own experiences. So those videos, yeah, usually it's it's four to seven minutes depending on what I'm doing. And I think I experimented with super short content. I made 10 second videos and 60 second videos, and that is super interesting as well. And I think the the interesting part about it is that it depends on the quality of the idea. A really good idea can be told in 10 seconds, and if the idea Needs a bit more explanation. You need more time to to talk about it.
 
 [00:15:55] Adam: Ah,
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:17:54] Laura Kampf: Yeah.
 
-[00:17:54] Simone: Like I've made like a hundred videos, I've never mentioned it before. But I think to me, like the worst experiences that I've had, but they're they're so detached and like unpersonal.
+[00:17:54] Simone: Like I've made like 100 videos, I've never mentioned it before. But I think to me, like the worst experiences that I've had, but they're they're so detached and like unpersonal.
 
 [00:17:54] Laura Kampf: Yeah.
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:30:22] Laura Kampf: Oh, jeez.
 
-[00:30:22] Adam: That's about it. That was a good week. Three or four hours a week was like a good week for me. So you've known me in the most. I have had more time in my shop in the last eighteen months than I have in my whole previous life combined. Because I've we've just been able to be filming here. It's been absolutely luxurious. But again, that that won't last. That'll change.
+[00:30:22] Adam: That's about it. That was a good week. Three or four hours a week was like a good week for me. So you've known me in the most. I have had more time in my shop in the last 18 months than I have in my whole previous life combined. Because I've we've just been able to be filming here. It's been absolutely luxurious. But again, that that won't last. That'll change.
 
 [00:30:50] Norm: I think what Simone said actually it it echoes not just for people who make things, but who do any make videos of any type of things. I know people like who if you watch YouTube or watch Twitch for people who play video games or build things or do any type of turning what they love into the content. Like they have to turn off that streaming sometime and just do it for themselves, or else they'll stop enjoying it.
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:34:01] Laura Kampf: So that's a very nice, very nice feature.
 
-[00:34:03] Adam: I also love looking at other people's shops. On like, you go to those carpentry websites where, or carpentry YouTubes where someone's got like sixty-five planes all in ornate cutouts on the wall. Like, ah, I just get so. Yeah.
+[00:34:03] Adam: I also love looking at other people's shops. On like, you go to those carpentry websites where, or carpentry YouTubes where someone's got like 65 planes all in ornate cutouts on the wall. Like, ah, I just get so. Yeah.
 
 [00:34:20] Norm: So Laura, you're in town for a couple weeks. What are the things that you want to do in in the Bay Area and San Francisco?
 

@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:01:51] Adam: I You know, it's funny about that because this. This year feels like more than any other. I knew precisely what I wanted to highlight and how I wanted to highlight it. Other years, it's not like it's felt different, but just maybe less. This year, it felt like a real direction, and I was really pleased with the high and the low: high technology, low technology, bespoke personal stuff, mass-produced stuff. We included it all.
 
-[00:02:18] Norm: It's when coming up that list because that could be like a twenty-item list if you are looking back at the year and the things that you know, whether it's techniques you learn or new things you process. I go look through my PayPal purchases essentially, not even the Amazon purchases, the PayPal purchases because it's that's where I am getting the one-offs and where I am finding small resellers and discovering things, and that's just a fun retrospective journey for myself internally.
+[00:02:18] Norm: It's when coming up that list because that could be like a 20-item list if you are looking back at the year and the things that you know, whether it's techniques you learn or new things you process. I go look through my PayPal purchases essentially, not even the Amazon purchases, the PayPal purchases because it's that's where I am getting the one-offs and where I am finding small resellers and discovering things, and that's just a fun retrospective journey for myself internally.
 
 [00:02:43] Will: Well, and it seems like like when we started doing favorite things years and years ago, now it was kind of a gift guide thing. Now it's just becoming increasingly a retrospective.
 
@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:03:15] Adam: I'm not sure flannel specifically, but if you there's a beautiful New York Times article I tweeted from a couple weeks ago that's a deep dive into the work that American Giant did with manufacturers all over the country to bring this to fruition. Anyway, um, one of the first compendiums I did. Favorite things included the American Giant hoodie, and we were talking about the the fact that when I was talking about it, it wasn't really about the hoodie itself. It's also about the story of the hoodie, the story of local manufacturing, and the things that we like to highlight here on Tested.
 
-[00:03:44] Will: Taylor Stitch. I did Taylor Stitch years and years ago, and they're just down the street at Valencia and and 15th, I think. And they they brought they they do jeans manufacturing and they make really amazing jeans that should cost way more money than they do, and they're like 150 bucks. I mean, they were cheaper then.
+[00:03:44] Will: Taylor Stitch. I did Taylor Stitch years and years ago, and they're just down the street at Valencia and and 15th, I think. And they they brought they they do jeans manufacturing and they make really amazing jeans that should cost way more money than they do, and they're like $150. I mean, they were cheaper then.
 
 [00:04:01] Adam: And Taylor Stitch is a terrific gift certificate to buy someone.
 
@@ -142,21 +142,21 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:06:13] Adam: Right. No, seriously.
 
-[00:06:14] Will: And um and yeah, so I'll be interested to see. The clothes were really like cheap. Like you can go to there’s plenty of tailors here I could go to and get custom stuff made, or I could go to Taylor Stitch or any number of other places. And yeah, well, I mean, we'll see. I'm I'm interested to see what a fifty dollar white button down that's custom made for me looks like.
+[00:06:14] Will: And um and yeah, so I'll be interested to see. The clothes were really like cheap. Like you can go to there’s plenty of tailors here I could go to and get custom stuff made, or I could go to Taylor Stitch or any number of other places. And yeah, well, I mean, we'll see. I'm I'm interested to see what a $50 white button down that's custom made for me looks like.
 
 [00:06:34] Adam: You know, I I was in Mexico City earlier this year, and one of the things I noticed is that many more people in Mexico wear fitted clothing. You can just see, you can tell the difference, and it's very much the same as like in London and in Europe. You see the same thing. We Americans are very much an off the rack culture, and I really appreciate stuff that's been fitted. And
 
 [00:06:58] Norm: it's Often much less expensive than you think.
 
-[00:07:01] Adam: No, and my son found this out. I gave him an old jacket a few years ago, and he was like, " It's too big for me." And I said, " Take it and get it tailored." And he's like, " I can't afford that." I'm like, " It's like fifteen bucks to get a jacket taken in,
+[00:07:01] Adam: No, and my son found this out. I gave him an old jacket a few years ago, and he was like, " It's too big for me." And I said, " Take it and get it tailored." And he's like, " I can't afford that." I'm like, " It's like $15 to get a jacket taken in,
 
-[00:07:11] Norm: and it makes the world think about your favorite pair of shoes or your favorite shirt and why it's your favorite shirt. It's probably because it fits well and because you think you look good in it. That feeling is kind of priceless. And when you think like you can turn any shirt or any piece of clothing that you get off the rack and make it feel like that, the fifteen bucks is worth it.
+[00:07:11] Norm: and it makes the world think about your favorite pair of shoes or your favorite shirt and why it's your favorite shirt. It's probably because it fits well and because you think you look good in it. That feeling is kind of priceless. And when you think like you can turn any shirt or any piece of clothing that you get off the rack and make it feel like that, the $15 is worth it.
 
 [00:07:29] Will: Well, it's it's the same thing for shoes. There's a cobbler down just down the street from here. Again, this is one of the benefits of living in a big city. If you live in a smaller town, someplace you may not
 
 [00:07:37] Will: have quite
 
-[00:07:37] Will: accessible. Yeah, but but like I have a pair of shoes that I really love, and they had gotten damaged, and I took them down. He was like, " Yeah, okay, it'll be like three days, and it's going to be fifteen dollars to fix what was a 200 dollar pair of shoes.
+[00:07:37] Will: accessible. Yeah, but but like I have a pair of shoes that I really love, and they had gotten damaged, and I took them down. He was like, " Yeah, okay, it'll be like three days, and it's going to be $15 to fix what was a $200 pair of shoes.
 
 [00:07:37] Adam: Amazing.
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:08:24] Unknown speaker: A showroom.
 
-[00:09:19] Will: the place that makes the dining room chairs that I've had for twenty years and that I love in central Virginia has been making furniture for two hundred years, and they recently had the hey, I think we're going to go out of business scare, and luckily somebody who is a fan of their furniture was like, well, we'll give you x number of dollars to keep you going so you can figure this out and and solve your short term cash flow problem. Like holy, I mean, thank you. A if I get a bigger table, it'd be really useful. But also, yeah, support your small businesses.
+[00:09:19] Will: the place that makes the dining room chairs that I've had for 20 years and that I love in central Virginia has been making furniture for 200 years, and they recently had the hey, I think we're going to go out of business scare, and luckily somebody who is a fan of their furniture was like, well, we'll give you x number of dollars to keep you going so you can figure this out and and solve your short term cash flow problem. Like holy, I mean, thank you. A if I get a bigger table, it'd be really useful. But also, yeah, support your small businesses.
 
 [00:09:50] Adam: Exactly.
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:10:01] Will: Whoa!
 
-[00:10:36] Will: But but you also remember we used to see that guy with like six cell phones in a briefcase in the park by battery, and he was one of the roving signal quality testers. And they would these guys just walk around with these with these cases. It's a really you actually really love it because it's like totally like you open it up, and at the time it was like six or ten feature phones
+[00:10:36] Will: But but you also remember we used to see that guy with like six cell phones in a briefcase in the park by battery, and he was one of the roving signal quality testers. And they would these guys just walk around with these with these cases. It's a really you actually really love it because it's like totally like you open it up, and at the time it was like 6 or 10 feature phones
 
 [00:10:36] Adam: Yeah.
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:24:03] Adam: It's I really enjoyed the spit out of that movie.
 
-[00:24:05] Will: Well, so it's funny because that that that series has now become two trilogies, right? Because it was it was the the first ones that happened like twenty years ago, and then they took a little break, and then Brad Bird made a new one, which was I think probably my favorite of the whole of the whole run. The J J Abrams one is great.
+[00:24:05] Will: Well, so it's funny because that that that series has now become two trilogies, right? Because it was it was the the first ones that happened like 20 years ago, and then they took a little break, and then Brad Bird made a new one, which was I think probably my favorite of the whole of the whole run. The J J Abrams one is great.
 
 [00:24:05] Norm: That's my favorite.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:25:30] Will: Yeah, yeah.
 
-[00:25:30] Norm: But they're best friends, and they've been touring, and this is a three-episode mini-series in which they end their tour in New York City, go to the Comedy Cellar, and play Friday night, Saturday night, and Sunday, and every episode is different one of their nights, and you have it's a little bit like comedians to comedy documentary style the relationship, how they approach comedy, and then their thirty-minute set filled with a lot of guest stars in the audience.
+[00:25:30] Norm: But they're best friends, and they've been touring, and this is a three-episode mini-series in which they end their tour in New York City, go to the Comedy Cellar, and play Friday night, Saturday night, and Sunday, and every episode is different one of their nights, and you have it's a little bit like comedians to comedy documentary style the relationship, how they approach comedy, and then their 30-minute set filled with a lot of guest stars in the audience.
 
 [00:25:30] Unknown speaker: Fascinating.
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:28:02] Will: Okay.
 
-[00:28:02] Adam: But I did teach a twelve-year-old how to drive.
+[00:28:02] Adam: But I did teach a 12-year-old how to drive.
 
 [00:28:06] Will: Nice.
 

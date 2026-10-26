@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:02:52] Norm: That's what I'm saying.
 
-[00:02:53] Adam: They might not have been men's, they might not have been female boobs, but they're none the wiser. They were like ten.
+[00:02:53] Adam: They might not have been men's, they might not have been female boobs, but they're none the wiser. They were like 10.
 
 [00:02:59] Will: It all works out. Yeah.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:13:12] Norm: Why am I doing? What am I doing right now? That's the exact thing.
 
-[00:13:14] Adam: Yeah, and I mean, I'll even go so far as if I have a really tedious thing to do, like I'm gluing forty wheels together, I'm like timing myself. Okay, it's 2:30, and I've glued twenty four.
+[00:13:14] Adam: Yeah, and I mean, I'll even go so far as if I have a really tedious thing to do, like I'm gluing 40 wheels together, I'm like timing myself. Okay, it's 2:30, and I've glued 24.
 
 [00:13:22] Will: Oh, you mapped that out.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:14:24] Will: Blueprints matter; otherwise, just eyeball. Okay, there you go. Uh, Christoph wants to know. Uh, he was visiting our about page on the site. I didn't even know we had an about page on the site, but I guess we must have written it at some point. Um, and it says that you were restoring a car, so he wants to know if the car was possibly that beautiful Volvo 245 and how far into the project you are in a little background.
 
-[00:14:46] Adam: Well, no, I, uh, the Volvo 245 that I wrote about in Wired last year with clouds all over that was my first car bought in 1990 1990, um, it was a '78 245 DL. I loved that car. We destroyed a couple of Volvo station wagons yesterday on MythBusters. I can't. Can't say why, but what was great about them is that sitting in that Volvo, it smelled like my early twenties. 
+[00:14:46] Adam: Well, no, I, uh, the Volvo 245 that I wrote about in Wired last year with clouds all over that was my first car bought in 1990 1990, um, it was a '78 245 DL. I loved that car. We destroyed a couple of Volvo station wagons yesterday on MythBusters. I can't. Can't say why, but what was great about them is that sitting in that Volvo, it smelled like my early 20s. 
 
 [00:15:14] Will: Really?
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:15:35] Norm: This is a cologne you need to get.
 
-[00:15:36] Adam: And I I learned to work on cars on that car. That that was the car that taught me. That was what the Wired article was about. I have a car which has has been fully restored. It's a, um, uh, 1982 BJ forty two short wheelbase Land Cruiser.
+[00:15:36] Adam: And I I learned to work on cars on that car. That that was the car that taught me. That was what the Wired article was about. I have a car which has has been fully restored. It's a, um, uh, 1982 BJ42 short wheelbase Land Cruiser.
 
 [00:15:52] Will: Oh, cool!
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:22:00] Norm: Is that work that you could do and learn? Would that give you the skill to do something that's more in demand?
 
-[00:22:07] Adam: Well, the it's. I'm not even sure. The the play the place in which you would get into that you know you'd almost be doing it from an art direction standpoint like there is making props which when you say oh I'd like to make props for a living there's making props in which if you want to do that you can do it for theater all day long theater always needs props and you know you're going to get ten bucks and three days to make something really complex but it's a great training ground if you want to make props for movies, um, well you could try and get hired by a prop shop but again work is going to be tight it's going to be it's it's not going to be constant but you're going to get more work if you turn out to also be a great designer
+[00:22:07] Adam: Well, the it's. I'm not even sure. The the play the place in which you would get into that you know you'd almost be doing it from an art direction standpoint like there is making props which when you say oh I'd like to make props for a living there's making props in which if you want to do that you can do it for theater all day long theater always needs props and you know you're going to get $10 and three days to make something really complex but it's a great training ground if you want to make props for movies, um, well you could try and get hired by a prop shop but again work is going to be tight it's going to be it's it's not going to be constant but you're going to get more work if you turn out to also be a great designer
 
 [00:22:52] Will: okay
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:23:32] Will: Oh, that's coming soon. You have a few years.
 
-[00:23:34] Adam: Yes, yes, the boys just turned fourteen. Um, but again, this, some of the smartest people I know have chosen their degrees not because of the job they wanted when they were done; they've chosen for what they would learn while they were there.
+[00:23:34] Adam: Yes, yes, the boys just turned 14. Um, but again, this, some of the smartest people I know have chosen their degrees not because of the job they wanted when they were done; they've chosen for what they would learn while they were there.
 
 [00:23:47] Will: Yeah.
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:24:19] Adam: You know, and in that case, also we can talk just very briefly about the egregious cost of college, which is ridiculous and angers me every time I think about it.
 
-[00:24:28] Will: Yeah, sixty grand now for
+[00:24:28] Will: Yeah, $60,000 now for
 
 [00:24:29] Adam: Ridiculous. Um, and there's a really good argument to be made for something my wife and a bunch of my friends did, which was go to a really inexpensive school for the first couple of years to figure out what the hell it is that you're somewhat interested in.
 
@@ -500,11 +500,11 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:24:45] Adam: That's fantastic to do.
 
-[00:24:46] Will: Yeah, because I was much more prepared to go when I was nineteen.
+[00:24:46] Will: Yeah, because I was much more prepared to go when I was 19.
 
 [00:24:48] Adam: Yeah.
 
-[00:24:49] Will: to manage living by myself than I was eighteen.
+[00:24:49] Will: to manage living by myself than I was 18.
 
 [00:24:51] Adam: Yeah. Um, you know, uh, my wife went to state for two years before figuring out where she wanted to go, and I, we have several friends in the Bay Area who did that. Come go to a community college for a couple of years just to figure it out. Um,
 
@@ -536,15 +536,15 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:25:58] Will: and that's a good way to learn that stuff.
 
-[00:25:59] Adam: In fact, I all when I was freelancing, when I was in the mid '90s, early '90s through the late '90s through the early 2000s was my freelancing days, about twelve years. Fourteen years, I would have a price structure where I'd often say to people, " They would say, 'We got, we don't have enough money to do this.'" And I'd say, " Great, I will build it for you for your budget if you cover materials, but I get to keep it when we're done."
+[00:25:59] Adam: In fact, I all when I was freelancing, when I was in the mid '90s, early '90s through the late '90s through the early 2000s was my freelancing days, about 12 years. 14 years, I would have a price structure where I'd often say to people, " They would say, 'We got, we don't have enough money to do this.'" And I'd say, " Great, I will build it for you for your budget if you cover materials, but I get to keep it when we're done."
 
 [00:26:24] Will: Yeah.
 
-[00:26:25] Adam: and that meant that I got to really lay into something because I knew it was going to be mine. It was going to be cool. It was going to be a design of mine, and yet they were covering materials, which was the expensive part for me doing my stuff at home. Fifty bucks means a lot when you're twenty-two, and you've got to buy them art. You know, you got to spend that on art.
+[00:26:25] Adam: and that meant that I got to really lay into something because I knew it was going to be mine. It was going to be cool. It was going to be a design of mine, and yet they were covering materials, which was the expensive part for me doing my stuff at home. $50 means a lot when you're 22, and you've got to buy them art. You know, you got to spend that on art.
 
 [00:26:43] Will: If you can find somebody who'll supply tools and materials, go nuts.
 
-[00:26:46] Adam: And that's theater, and that's film. I mean, I built an entire padded cell for a friend's senior thesis film at NYU for something like 25 dollars, because that's all that we had, and that refined my brain. You know, that limitation, and that's just finding that finding those ways to just get access to materials and get your hands dirty is great.
+[00:26:46] Adam: And that's theater, and that's film. I mean, I built an entire padded cell for a friend's senior thesis film at NYU for something like $25, because that's all that we had, and that refined my brain. You know, that limitation, and that's just finding that finding those ways to just get access to materials and get your hands dirty is great.
 
 [00:27:08] Will: We're almost there.
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:27:14] Will: If you have questions, the email address is podcast at tested dot com. Use the subject line " questions for Adam," and we will come back and do more questions at some point in the future.
 
-[00:27:21] Adam: If you yes, and if you have advice about a Land Cruiser engine that will fit my BJ forty two diesel, please put Adam's new diesel engine in the email.
+[00:27:21] Adam: If you yes, and if you have advice about a Land Cruiser engine that will fit my BJ42 diesel, please put Adam's new diesel engine in the email.
 
 [00:27:32] Will: I will just set up a filter to send those directly to you. And as always, thanks for iTunes reviews and all that stuff. Everything you do to help, whether it's giving criticism or comments or whatever, helps us with the show.
 

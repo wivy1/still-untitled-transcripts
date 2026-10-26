@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:01:30] Frank Ippolito: Lightsabers.
 
-[00:01:33] Adam: Oh, Michael Stevens bought me a present. He bought me a hundred and twenty-sided die.
+[00:01:33] Adam: Oh, Michael Stevens bought me a present. He bought me a 120-sided die.
 
 [00:01:38] Norm: What?
 
@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:03:00] Norm: chaser. Yeah. Yeah. So speaking of places you visited, where are you now, and where have you been since we saw you last?
 
-[00:03:07] Adam: Oh my goodness! I've been in a lot of places. We went back to back to the Carolinas to play Durham, North Carolina. That was lovely. We were in Detroit two nights ago at the amazing Fox Theater. The Fox is probably the biggest theater. I think it is the biggest theater we'll play on this tour. It holds over five thousand people. We did not sell it out, but we sold about eighty plus percent, so it felt like a full house. Oh yeah, it was a gargantuan crowd. It was really fun. I love Detroit. I went over to Third Man Records and saw their beautiful record pressing plant in operation.
+[00:03:07] Adam: Oh my goodness! I've been in a lot of places. We went back to back to the Carolinas to play Durham, North Carolina. That was lovely. We were in Detroit two nights ago at the amazing Fox Theater. The Fox is probably the biggest theater. I think it is the biggest theater we'll play on this tour. It holds over 5,000 people. We did not sell it out, but we sold about 80 plus percent, so it felt like a full house. Oh yeah, it was a gargantuan crowd. It was really fun. I love Detroit. I went over to Third Man Records and saw their beautiful record pressing plant in operation.
 
 [00:03:44] Norm: Oh. Did they do any funky, funky pressings with different colors or materials?
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:04:12] Norm: The lightning bolt. Did you get to go behind the scenes and see where they assemble the watches?
 
-[00:04:17] Adam: That happened this summer, actually. When I was driving Thing One and Thing Two across country, we stopped in Detroit, and I was in the store when one of their designers came by and said, " Hey, do you want to come over? Because the factory is like ten minutes from the store in Detroit. The factory is in fact housed in the building where they invented the automatic transmission.
+[00:04:17] Adam: That happened this summer, actually. When I was driving Thing One and Thing Two across country, we stopped in Detroit, and I was in the store when one of their designers came by and said, " Hey, do you want to come over? Because the factory is like 10 minutes from the store in Detroit. The factory is in fact housed in the building where they invented the automatic transmission.
 
 [00:04:40] Frank Ippolito: Wow, wow, that's awesome.
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:06:36] Unknown speaker: Whoa.
 
-[00:06:36] Adam: on glass, on tin, on paper, on—I mean, it was. We only had forty-five minutes, but I am seriously. Oh right, we only had forty-five minutes. We had an amazing tour. There were three rooms we didn't see, and in May they opened a year-long exhibit about Abraham Lincoln and photography. And I swear, I am literally going to make a stop back through Pittsburgh to go to that exhibit because it was so amazing.
+[00:06:36] Adam: on glass, on tin, on paper, on—I mean, it was. We only had 45 minutes, but I am seriously. Oh right, we only had 45 minutes. We had an amazing tour. There were three rooms we didn't see, and in May they opened a year-long exhibit about Abraham Lincoln and photography. And I swear, I am literally going to make a stop back through Pittsburgh to go to that exhibit because it was so amazing.
 
 [00:07:26] Norm: That's and this is just above their store. Most people don't know about it. Yeah. People walk in to buy their lenses, buy their film, and that's upstairs. That's the best kind of museum—the hidden, the pet project because they have the building, and yeah, that's amazing.
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:08:15] Norm: Wow. Yeah, I guess they didn't want to be the subjects, or the men wanted to be the subjects. Did they have those cameras actually in the museum as well, and all on display in addition to the photos?
 
-[00:08:25] Adam: Oh yeah, they had they had over two hundred original like eight millimeter and Super 8 film cameras. It it really was a museum to film with a jaw dropping collection. It was beautiful. Wow. Ten bucks each for the tour, and like I said, I'm going back. the The museum is called Photo Antiques. The exhibit they're about to open, and Abraham Lincoln opens in May, and that that is there on East Ohio in Pittsburgh, Pennsylvania. And I was yeah, it was one of those. It was like the hidden gem you seek every kind every day. You you walk out of the bus on tour.
+[00:08:25] Adam: Oh yeah, they had they had over 200 original like eight millimeter and Super 8 film cameras. It it really was a museum to film with a jaw dropping collection. It was beautiful. Wow. $10 each for the tour, and like I said, I'm going back. the The museum is called Photo Antiques. The exhibit they're about to open, and Abraham Lincoln opens in May, and that that is there on East Ohio in Pittsburgh, Pennsylvania. And I was yeah, it was one of those. It was like the hidden gem you seek every kind every day. You you walk out of the bus on tour.
 
 [00:09:02] Frank Ippolito: That's so. I lived in Pittsburgh for a couple of years around my college age, and I sadly never found that place. So I'm gonna have to make a trip back to Pittsburgh to check it out.
 
@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:10:22] Frank Ippolito: Nice.
 
-[00:10:23] Adam: Five dollar Monday, so we went and saw John Wick Two. I have a very succinct review for John Wick Two.
+[00:10:23] Adam: $5 Monday, so we went and saw John Wick Two. I have a very succinct review for John Wick Two.
 
 [00:10:23] Norm: What?
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:26:24] Adam: Yeah,
 
-[00:26:24] Frank Ippolito: I know the makeup artist that did that, and that she did have a very that was an independent film, more or less. I mean, that's not a 200 million dollar you know tentpole film.
+[00:26:24] Frank Ippolito: I know the makeup artist that did that, and that she did have a very that was an independent film, more or less. I mean, that's not a $200 million you know tentpole film.
 
 [00:26:24] Adam: Yeah,
 

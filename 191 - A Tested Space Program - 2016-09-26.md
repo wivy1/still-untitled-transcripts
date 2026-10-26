@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:04:36] Will: There's
 
-[00:04:36] Adam: a quarantine trailer [unclear: with the spacesuits / with a spacesuit in it]. It's a quarantine trailer. Yeah. So to be clear, in case you don't know about this, Tom Sachs is an American sculptor who, in over the last ten years, has implemented two other. This is the third large-scale space program. It's not a performance; it's a mission. And space program opened at YBC here, YBCA here last weekend with a Europa landing. So two female astronauts got in the quarantine trailer, got suited up, and the suits are spacesuits made out of Tyvek with full cooling suits and Like reciprocating diastolic pumps and bubble helmets.
+[00:04:36] Adam: a quarantine trailer [unclear: with the spacesuits / with a spacesuit in it]. It's a quarantine trailer. Yeah. So to be clear, in case you don't know about this, Tom Sachs is an American sculptor who, in over the last 10 years, has implemented two other. This is the third large-scale space program. It's not a performance; it's a mission. And space program opened at YBC here, YBCA here last weekend with a Europa landing. So two female astronauts got in the quarantine trailer, got suited up, and the suits are spacesuits made out of Tyvek with full cooling suits and Like reciprocating diastolic pumps and bubble helmets.
 
 [00:05:13] Norm: So when you're saying a replica spacesuit, is it like the replicas you have, or made in the aesthetic and the materials of this project?
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:05:46] Norm: Wow.
 
-[00:05:46] Adam: Yeah. Yeah. And there's a veracity to the home builtness of it. It's like a it's like a ten year old kid with a forty five year old man's budget,
+[00:05:46] Adam: Yeah. Yeah. And there's a veracity to the home builtness of it. It's like a it's like a 10 year old kid with a 45 year old man's budget,
 
 [00:05:57] Norm: right? And time and imagination. It's the logical conclusion of the cardboard spaceship.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:11:04] Will: That's incredible.
 
-[00:11:05] Adam: Yeah, and you know, again. Part of I think you know I I don't mean to speak for Tom but I think part of his aesthetic is the barely controlled chaos, right? It is trying to grab order out of chaos constantly, and the space program is a way of creating a system that is semi-chaotic that requires problem solving on the fly, and that was what it was exemplified times a hundred. It was really really thrilling to be a part of it.
+[00:11:05] Adam: Yeah, and you know, again. Part of I think you know I I don't mean to speak for Tom but I think part of his aesthetic is the barely controlled chaos, right? It is trying to grab order out of chaos constantly, and the space program is a way of creating a system that is semi-chaotic that requires problem solving on the fly, and that was what it was exemplified times 100. It was really really thrilling to be a part of it.
 
 [00:11:36] Norm: That’s awesome.
 
@@ -232,7 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:12:52] Norm: Okay.
 
-[00:12:52] Adam: And we, the YBCA, actually impromptu did a Facebook live stream of the landing of the mission on Saturday, and sixty-five thousand people. Tuned in,
+[00:12:52] Adam: And we, the YBCA, actually impromptu did a Facebook live stream of the landing of the mission on Saturday, and 65,000 people. Tuned in,
 
 [00:12:52] Norm: yeah,
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:16:04] Will: At the same time, it makes interactive art.
 
-[00:16:10] Adam: It does, and you know, as as someone who who who's had shops for twenty five years, I can tell you that there's that that aspect of too valuable to throw away, not worth sorting. There's a lovely zen in coming into your shop in the morning and just you know you do it with your cables and with other stuff.
+[00:16:10] Adam: It does, and you know, as as someone who who who's had shops for 25 years, I can tell you that there's that that aspect of too valuable to throw away, not worth sorting. There's a lovely zen in coming into your shop in the morning and just you know you do it with your cables and with other stuff.
 
 [00:16:28] Will: I have a six gallon tub of cables. I'm going to bring down here, put in Logjam Cafe, and let let let the people, yeah, let the art decide.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:24:40] Norm: Mm-hmm.
 
-[00:24:40] Adam: and those themes weaved together in different ways. Um, there was a hundred and twenty one hours of Lost, something like that, somewhere over a hundred hours of the show.
+[00:24:40] Adam: and those themes weaved together in different ways. Um, there was 121 hours of Lost, something like that, somewhere over 100 hours of the show.
 
 [00:24:40] Norm: Yeah, that’s incredible.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:27:42] Will: yeah, yeah. He he has a real connection to the show that I don't think we're supposed to talk about, but I don't remember.
 
-[00:27:48] Adam: No, no, no. Lloyd Lloyd was on a retreat with executives at ABC when he conceived of the idea of Lost. Hired Damon Lindelof and hired J. J. Abrams and and Damon to come up with a treatment and ended up shooting the most expensive pilot in television history at that point, I think over 10,000,000 bucks.
+[00:27:48] Adam: No, no, no. Lloyd Lloyd was on a retreat with executives at ABC when he conceived of the idea of Lost. Hired Damon Lindelof and hired J. J. Abrams and and Damon to come up with a treatment and ended up shooting the most expensive pilot in television history at that point, I think over $10 million.
 
 [00:27:48] Will: Yeah.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:30:16] Adam: you know, I
 
-[00:30:16] Adam: want to go back to one of the things I talked about in my TED talk this year was that I built a spaceship in my mom's closet when I was ten years old, and how important that was in in the makeup of my play and how I created the realities that gave me succor as a lonely kid. And I'm here, and it feels like a culmination. You know, yeah, like this is the culmination of every kid playing in their closet and like sort of imagining other worlds and other realities.
+[00:30:16] Adam: want to go back to one of the things I talked about in my TED talk this year was that I built a spaceship in my mom's closet when I was 10 years old, and how important that was in in the makeup of my play and how I created the realities that gave me succor as a lonely kid. And I'm here, and it feels like a culmination. You know, yeah, like this is the culmination of every kid playing in their closet and like sort of imagining other worlds and other realities.
 
 [00:30:47] Will: I want to go stand at the window with my arms on the armrests and and look out from the from the Buzz Buzz Aldrin side.
 

@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:02:40] Norm: That's no.
 
-[00:02:40] Adam: It's like an extra thirty bucks or something. I don't even know how much it is.
+[00:02:40] Adam: It's like an extra $30 or something. I don't even know how much it is.
 
 [00:02:43] Will: When I lived in Tennessee in the sub in the deep suburbs in the real suburbs, not like toy suburbs like we have here where it's dense. Um, but I one morning I woke up and I heard the trash go, and I did I chased him down the street with the cans.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:03:30] Norm: Exactly, thank you, Oscar the Grouch.
 
-[00:03:32] Adam: I will tell you also that if your frisbee gets eaten by a dog or bitten in half by a dog, which happened to me on somebody's birthday twenty some odd years ago, one of those galvanized steel garbage can lids flies magnificently.
+[00:03:32] Adam: I will tell you also that if your frisbee gets eaten by a dog or bitten in half by a dog, which happened to me on somebody's birthday 20 some odd years ago, one of those galvanized steel garbage can lids flies magnificently.
 
 [00:03:46] Will: Never forget.
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:07:53] Will: TV back then was a much lower production affair.
 
-[00:07:55] Adam: Harry Shearer, in addition to doing dozens of voices on The Simpsons for the last twenty five years, also hosts one of my favorite Sunday radio shows, Le Show, out of Los Angeles. Actually, now out of New Orleans, where he lives. I've been listening to that for over twenty years. So, like, independently. All three of these guys have really infused me and my perception of our culture, my politics, my sense of humor, and I was not disappointed at all. They—they just dinner was lovely. The interview was lovely. It was very, very funny, and I actually got a laugh from Chris on stage.
+[00:07:55] Adam: Harry Shearer, in addition to doing dozens of voices on The Simpsons for the last 25 years, also hosts one of my favorite Sunday radio shows, Le Show, out of Los Angeles. Actually, now out of New Orleans, where he lives. I've been listening to that for over 20 years. So, like, independently. All three of these guys have really infused me and my perception of our culture, my politics, my sense of humor, and I was not disappointed at all. They—they just dinner was lovely. The interview was lovely. It was very, very funny, and I actually got a laugh from Chris on stage.
 
 [00:07:55] Will: Ooh.
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:10:07] Adam: and the footage, the low-res footage was was shite. The Inspire, on the other hand, is a magnificent piece of kit that I'm continually blown away by. And I know that you know Jamie and I were at their launch event for the Inspire. So you should take my opinion with a grain of salt, but I swear, up and down, this this thing is incredible.
 
-[00:10:28] Will: Just, I mean, just that that thing exists. All of those things, like from the 500 dollar kit quads that you put together at home, all the way up to three or four thousand dollars for something that's pro, semi pro level in a lot of cases, is amazing.
+[00:10:28] Will: Just, I mean, just that that thing exists. All of those things, like from the $500 kit quads that you put together at home, all the way up to $3,000 or $4,000 for something that's pro, semi pro level in a lot of cases, is amazing.
 
 [00:10:42] Norm: I think there are a couple of interesting things about your experience so far with the Inspire. So we've gone on a couple of trips, and there's video that's going to be on the site. I think it might already be on the site about one of our trips. But you're approaching it from a kind of a videographer and photographer perspective.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:16:17] Will: Not the quad.
 
-[00:16:19] Adam: The battery stays on, right? So turn the battery off, swap it out, put it. Back, make sure your signal's good. Hover in front of you for thirty seconds. Make sure the controls work the way you think, and then take off. Those, this is to me like using a table saw. Every time I approach it, I'm going to expect that this thing could fly into something and be a really bad situation.
+[00:16:19] Adam: The battery stays on, right? So turn the battery off, swap it out, put it. Back, make sure your signal's good. Hover in front of you for 30 seconds. Make sure the controls work the way you think, and then take off. Those, this is to me like using a table saw. Every time I approach it, I'm going to expect that this thing could fly into something and be a really bad situation.
 
 [00:16:38] Norm: You're always aware of what it's over, and you're always preparing your mind for the worst possible consequence. You, you mentioned something like one of the reasons that airplanes and airlines are so statistically safe is because they have the pre flight checklist that they go over, no matter what.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:17:03] Adam: Yeah.
 
-[00:17:03] Will: And he landed the plane underneath high tension wires. Went underneath high tension wires. Landed on a hill at a forty in a field at a forty five thirty five degree angle.
+[00:17:03] Will: And he landed the plane underneath high tension wires. Went underneath high tension wires. Landed on a hill at a 40 in a field at a 45 35 degree angle.
 
 [00:17:03] Adam: Oh my god.
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:22:38] Adam: Yes, it's—that's a great way to put it. Yeah,
 
-[00:22:39] Norm: that you are just as capable as someone who's been doing it for ten, fifteen years.
+[00:22:39] Norm: that you are just as capable as someone who's been doing it for 10, 15 years.
 
 [00:22:45] Will: Well, you you don't have the instincts.
 
@@ -618,7 +618,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:28:40] Adam: And you know, I Duncan actually gave me one of the super micro ones. I found it super hard to fly, super hard to trim, and super hard to fly.
 
-[00:28:48] Will: Some are definitely better than others. Norm has a Hubsan that he recommends. I know. I actually saw when I was in Chicago a straight out of China fifteen dollar gyro and accelerometer stabilized micro that was about or nano that was about the size of a silver dollar.
+[00:28:48] Will: Some are definitely better than others. Norm has a Hubsan that he recommends. I know. I actually saw when I was in Chicago a straight out of China $15 gyro and accelerometer stabilized micro that was about or nano that was about the size of a silver dollar.
 
 [00:29:02] Adam: Crazy.
 

@@ -108,9 +108,9 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:04:17] Adam: so it's it's like years ago. I worked for a machine artist in San Francisco named Chico MacMurtrie of Amorphic Robot Works, and he's now in Red Hook, Brooklyn. But I was in his assistant for about a year and a half in the very early '90s, and Chico lived in a space down in Hunters Point, a building that I eventually lived in for a couple years. But Chico's shop was, if you think this is like a kind of a cave, Chico's was like this, except it was all robots and machine art and greasy hydraulic cylinders and stuff just filling this room,
 
-[00:04:17] Adam: this giant room, like three thousand square feet,
+[00:04:17] Adam: this giant room, like 3,000 square feet,
 
-[00:04:17] Adam: two thousand square feet. And Chico's place, I stayed there for a few weeks while he was in Czechoslovakia on an art tour, and I stayed in his shop. And his shop had the most amazing effect on me in that that shop required you to either be working on something or leave.
+[00:04:17] Adam: 2,000 square feet. And Chico's place, I stayed there for a few weeks while he was in Czechoslovakia on an art tour, and I stayed in his shop. And his shop had the most amazing effect on me in that that shop required you to either be working on something or leave.
 
 [00:05:11] Will: Like there’s no there’s no idle space.
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:06:00] Will: Okay.
 
-[00:06:00] Adam: In my home office, I have a beautiful desk that I bought from DWR many years ago, ten years ago now. I actually was able. I'm sorry. Tangent. I was able to buy a prototype from them.
+[00:06:00] Adam: In my home office, I have a beautiful desk that I bought from DWR many years ago, 10 years ago now. I actually was able. I'm sorry. Tangent. I was able to buy a prototype from them.
 
 [00:06:13] Will: What? Really?
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:07:35] Will: I don’t. That’s what I’m saying. I don’t. I think.
 
-[00:07:35] Will: Like, look, you have over the last ten years, you've taken a part of your brain, the part that remembered shit that you don't need to remember.
+[00:07:35] Will: Like, look, you have over the last 10 years, you've taken a part of your brain, the part that remembered shit that you don't need to remember.
 
 [00:07:35] Adam: Yeah, that's true.
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:13:58] Will: It's very good writing right now. It's a good time for good writing.
 
-[00:14:01] Adam: And you wanted to talk a little bit about the fact that it is the fiftieth anniversary.
+[00:14:01] Adam: And you wanted to talk a little bit about the fact that it is the 50th anniversary.
 
 [00:14:04] Norm: That is the most inelegant segue ever. I was working
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:17:54] Norm: Oh, it's so creepy. For people who are not watching the video, Adam was holding his star child replica that he's working on, which has a mechanized eye, an eye mech that moves left and right.
 
-[00:18:08] Adam: And this sculpt is by my friend Steve Neill, who did, as we said last week, the beautiful Moonwatcher mask with the Stuart Freeborn correct mechanics in it. This is this is such a beautiful object, and I have so coveted one of these since I saw the full size one at the Kubrick exhibit. And I had so much reference material, really helped Steve be able to see this from every angle. Because in one of the places I saw the Kubrick exhibit, I had access to the full round of the figure, and so I took photos at like every twenty degrees all the way around.
+[00:18:08] Adam: And this sculpt is by my friend Steve Neill, who did, as we said last week, the beautiful Moonwatcher mask with the Stuart Freeborn correct mechanics in it. This is this is such a beautiful object, and I have so coveted one of these since I saw the full size one at the Kubrick exhibit. And I had so much reference material, really helped Steve be able to see this from every angle. Because in one of the places I saw the Kubrick exhibit, I had access to the full round of the figure, and so I took photos at like every 20 degrees all the way around.
 
 [00:18:08] Unknown speaker: Oh, man.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:19:27] Will: Like it, it is the, it is probably the first film that I saw that I was like, oh right, you have to see this. It's like that, and like and like Lawrence of Arabia, and those kind of like '60s huge epic cinema scope, you know.
 
-[00:19:39] Adam: So what do you? There's been. It is the we're now at the fiftieth anniversary of the release of 2001, and it's a super important movie and really important to remember. A couple of things that I find really shocking: there are no motion control shots in 2001.
+[00:19:39] Adam: So what do you? There's been. It is the we're now at the 50th anniversary of the release of 2001, and it's a super important movie and really important to remember. A couple of things that I find really shocking: there are no motion control shots in 2001.
 
 [00:19:54] Will: They hadn't invented motion control yet.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:20:20] Will: Yeah.
 
-[00:20:20] Adam: Right, and not only that, this is sixty eight, so it's nine years before Star Wars. It's like it's. Given its vision of life in space, it's an astounding achievement for what it is.
+[00:20:20] Adam: Right, and not only that, this is '68, so it's nine years before Star Wars. It's like it's. Given its vision of life in space, it's an astounding achievement for what it is.
 
 [00:20:32] Will: Well, and it used it used images from one of the space probes, probably from Pioneer, right?
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:26:34] Will: like he did a genre like people didn't do genre films like serious directors didn't do genre films like that so it's it's it's it's a fascinating film
 
-[00:27:04] Adam: so if you have not seen it on the big screen all of us exhort you to find a big screen near you where it is likely to be playing and this whole fiftieth anniversary thing is about to get really cool. Because we're only a year away from the 50th anniversary of the Apollo Moon.
+[00:27:04] Adam: so if you have not seen it on the big screen all of us exhort you to find a big screen near you where it is likely to be playing and this whole 50th anniversary thing is about to get really cool. Because we're only a year away from the 50th anniversary of the Apollo Moon.
 
 [00:27:20] Will: What was I say? Today was actually the 50th anniversary of Apollo 6, which was the last unmanned test flight of the Apollo capsule.
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:28:37] Will: Well, that used to happen more often too for kind of big, yes,
 
-[00:28:40] Adam: it's true. Like a movie like Jaws would stick around in theaters for six to ten months. Yeah. Um. But um. I will tell
+[00:28:40] Adam: it's true. Like a movie like Jaws would stick around in theaters for 6 to 10 months. Yeah. Um. But um. I will tell
 
 [00:28:40] Unknown speaker (Adam then Will or Norm): the book, the paperback book, the paperback book.
 

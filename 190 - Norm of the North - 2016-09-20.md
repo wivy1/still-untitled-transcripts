@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:01:15] Will: usually it's just a finger, or maybe two.
 
-[00:01:17] Adam: This is this is what it was like to hang out with Norm when he was ten.
+[00:01:17] Adam: This is this is what it was like to hang out with Norm when he was 10.
 
 [00:01:20] Will: Welcome,
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:03:26] Adam: All those, all of those, all of those were. So, this is I've been telling people for weeks that that's who we were going to lose to. I was like, we're going to lose to Celebrity Lip Sync Battle, and everyone says the same thing. Oh, but I love that show; it's pretty good. I wouldn't have minded losing to Celebrity Lip Sync Battle, but whatever network it is that shows Shark Tank, they made a big campaign, and Shark Tank won.
 
-[00:03:47] Will: So, as somebody who has gone and done, let's say something like sixty pitches in the last year, mostly unsuccessfully, Shark Tank is is farcical, like it is as far from reality
+[00:03:47] Will: So, as somebody who has gone and done, let's say something like 60 pitches in the last year, mostly unsuccessfully, Shark Tank is is farcical, like it is as far from reality
 
 [00:03:59] Adam: in terms of how you are pitching something
 
@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:05:54] Will: okay okay awards
 
-[00:05:56] Norm: hundred and nineteen categories they couldn’t add anymore.
+[00:05:56] Norm: 119 categories they couldn’t add anymore.
 
 [00:05:58] Adam: Our structured reality program included, as far as I can tell, among the six entrants, six genres of television.
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:07:46] Adam: While I was on that road trip, Norm and Joey went to the Arctic.
 
-[00:07:51] Norm: Yeah, the high Arctic. This has been a trip that we had been we known about for about six months, and we only announced it about a couple weeks before the actual trip itself. There's a company called Quark Expeditions, and they're Effectively, like a like a high end cruise company, but instead of these five hundred person, thousand person massive cruise ships, they take working ships and convert them with a little nicer amenities. And so, in this case, it was a retired Russian icebreaker.
+[00:07:51] Norm: Yeah, the high Arctic. This has been a trip that we had been we known about for about six months, and we only announced it about a couple weeks before the actual trip itself. There's a company called Quark Expeditions, and they're Effectively, like a like a high end cruise company, but instead of these 500 person, 1,000 person massive cruise ships, they take working ships and convert them with a little nicer amenities. And so, in this case, it was a retired Russian icebreaker.
 
 [00:08:21] Adam: Wow.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:10:39] Will: Oh, shit, like a scary close?
 
-[00:10:41] Norm: No, no, we were on the ship, and it was I think they said the closest a polar bear has gotten to that ship in ten years, which was less than fifty feet.
+[00:10:41] Norm: No, no, we were on the ship, and it was I think they said the closest a polar bear has gotten to that ship in 10 years, which was less than 50 feet.
 
 [00:10:51] Adam: Wow!
 
@@ -468,9 +468,9 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:17:04] Adam: Fascinating.
 
-[00:17:05] Norm: Twenty four thousand horsepower. Pushing down the ice,
+[00:17:05] Norm: 24,000 horsepower. Pushing down the ice,
 
-[00:17:07] Adam: twenty four thousand horsepower.
+[00:17:07] Adam: 24,000 horsepower.
 
 [00:17:09] Norm: And then sometimes
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:19:18] Adam: Yeah, yeah.
 
-[00:19:12] Norm: not very young people. I think the youngest person, you know, one person in their thirties. I think aside from our group, two people in their thirties. They usually do not interact a lot with the crew, like with the help, the service. So the people working the ship, we made friends with them, and we got to hang out with the Russians.
+[00:19:12] Norm: not very young people. I think the youngest person, you know, one person in their 30s. I think aside from our group, two people in their 30s. They usually do not interact a lot with the crew, like with the help, the service. So the people working the ship, we made friends with them, and we got to hang out with the Russians.
 
 [00:19:36] Adam: That's where all the cool. That's where you learned all the cool stuff.
 
@@ -742,11 +742,11 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:23:39] Adam: Yeah, I imagine.
 
-[00:23:40] Norm: And there's a reacclimation period coming back. No internet the entire time. eighteen days.
+[00:23:40] Norm: And there's a reacclimation period coming back. No internet the entire time. 18 days.
 
 [00:23:45] Adam: You're uploading stuff once a day or something by satellite.
 
-[00:23:47] Norm: I paid thirty dollars for a satellite webmail account where you'd get two hundred k kilobytes.
+[00:23:47] Norm: I paid $30 for a satellite webmail account where you'd get 200 k kilobytes.
 
 [00:23:55] Unknown speaker: Wow.
 
@@ -812,9 +812,9 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:25:49] Norm: Yeah.
 
-[00:25:49] Unknown speaker: Eighteen days.
+[00:25:49] Unknown speaker: 18 days.
 
-[00:25:50] Norm: Eighteen days, yeah. Of course, like the moment you get back to like the last day, resolute. There was a ho loosely you could loosely call it a hotel, but they had Wi-Fi, and then the we're like people were saying, " No, we're not going to sign on. I'm wait till I get back to Canada, back to get to Ottawa. The moment we got there and saw the Wi-Fi. Everyone, all hundred people from the ship, heads on their iPads and their Wi-Fi, and I looked at my messages and three thousand emails. Just
+[00:25:50] Norm: 18 days, yeah. Of course, like the moment you get back to like the last day, resolute. There was a ho loosely you could loosely call it a hotel, but they had Wi-Fi, and then the we're like people were saying, " No, we're not going to sign on. I'm wait till I get back to Canada, back to get to Ottawa. The moment we got there and saw the Wi-Fi. Everyone, all 100 people from the ship, heads on their iPads and their Wi-Fi, and I looked at my messages and 3,000 emails. Just
 
 [00:26:16] Adam: oh my gosh,
 

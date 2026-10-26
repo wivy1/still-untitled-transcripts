@@ -184,9 +184,9 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:09:07] Adam: Yeah, it's super exciting.
 
-[00:09:09] Norm: I mean, it's the DNA of something that you were intimately familiar with for fifteen years, and yet a format that's not the same.
+[00:09:09] Norm: I mean, it's the DNA of something that you were intimately familiar with for 15 years, and yet a format that's not the same.
 
-[00:09:17] Adam: Not the same, and yeah, I get to look at it from a different vantage point. I get to I get to use I get to use this expertise I got in a different way, in a in a similar way, but different. And frankly, I've been in San Francisco now for almost thirty years, and it feels like there are chunks of the entire arc of my three decades here that are coming into play in this. People that I've worked with, places that I've worked, you know, resources that I am going to count on, and that's really exciting.
+[00:09:17] Adam: Not the same, and yeah, I get to look at it from a different vantage point. I get to I get to use I get to use this expertise I got in a different way, in a in a similar way, but different. And frankly, I've been in San Francisco now for almost 30 years, and it feels like there are chunks of the entire arc of my three decades here that are coming into play in this. People that I've worked with, places that I've worked, you know, resources that I am going to count on, and that's really exciting.
 
 [00:09:47] Will: Very, very cool.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:11:54] Will: Yeah,
 
-[00:11:55] Norm: so this is an interesting spoiler cast because the movie made 258,000,000 dollars over the three and a half day. Weekend, which at the average ticket price of about nine dollars, that's over twenty-five million people in the U.S. who saw that, which is like close to a tenth of the population.
+[00:11:55] Norm: so this is an interesting spoiler cast because the movie made $258 million over the three and a half day. Weekend, which at the average ticket price of about $9, that's over 25 million people in the U.S. who saw that, which is like close to a tenth of the population.
 
 [00:12:13] Will: Yeah,
 
@@ -338,15 +338,15 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:14:34] Will: So I, I've been doing the no. I'm not. I'm not as like Joey. If you go see a movie with Joey, he puts his head down, covers his ears during the trailers before the movie. I don't go to that quite quite that far, but I I came in cold to this as well. And if I see a trailer in the theater, that's great. Otherwise, I kind of just don't seek them out. And and it was I was really pleased. It was a good experience.
 
-[00:14:52] Norm: Rating out of ten.
+[00:14:52] Norm: Rating out of 10.
 
 [00:14:53] Will: Yeah. I don't know, like eight and a half, nine.
 
 [00:14:55] Adam: Yeah, I'd put it up there.
 
-[00:14:57] Norm: Yeah, eight out of ten. I'd say.
+[00:14:57] Norm: Yeah, 8 out of 10. I'd say.
 
-[00:14:57] Adam: I have to see again. I can never say ten off the bat.
+[00:14:57] Adam: I have to see again. I can never say 10 off the bat.
 
 [00:15:00] Norm: Yeah.
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:15:06] Will: Oh yeah.
 
-[00:15:06] Adam: And and calling my my buddy Davey and I said he's like what did you think and I was like oh man one of my top ten just got bumped
+[00:15:06] Adam: And and calling my my buddy Davey and I said he's like what did you think and I was like oh man one of my top 10 just got bumped
 
 [00:15:16] Will: Gina Gina and I Gina and I literally walked left the IMAX for that and turned around and went and bought tickets and went back and watched it again
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:20:10] Adam: No, me too.
 
-[00:20:10] Will: to kind of be able to pay attention to costumes and stuff. Because I I like a lot of the costume design. Obviously, builds on the work from the previous seventeen movies in the franchise. There were no obvious CG. Like if you think about Ultron, that opening sequence was really spectacularly bad CG. The one where they're attacking the castle and and and taking out the last Hydra.
+[00:20:10] Will: to kind of be able to pay attention to costumes and stuff. Because I I like a lot of the costume design. Obviously, builds on the work from the previous 17 movies in the franchise. There were no obvious CG. Like if you think about Ultron, that opening sequence was really spectacularly bad CG. The one where they're attacking the castle and and and taking out the last Hydra.
 
 [00:20:34] Adam: Several shots in that they're like
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:21:57] Will: She meets him. She's like, " Who the hell is this?" And and I saw that. I was like, " Oh, right. They do this a lot. This is a like. There's a supercut of superheroes meeting other superheroes.
 
-[00:22:07] Adam: Well, and this movie has got like at least ten of those moments.
+[00:22:07] Adam: Well, and this movie has got like at least 10 of those moments.
 
 [00:22:09] Norm: So I like that, but I would also say it's a little bit of a crutch, right? I mean, it's fine. I mean, I enjoy it, but it is a it's a it's a it's a thing that the directors and the writers know they have in their in their arsenal to say we're going to be instant easy win, easy laugh, easy satisfaction.
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:24:08] Adam: Well, I could make a spoiler lamp.
 
-[00:24:08] Will: Yeah, I mean that's like ten minutes.
+[00:24:08] Will: Yeah, I mean that's like 10 minutes.
 
 [00:24:10] Adam: I could walk over and get your goddamn spoiler lamp. Don't brag about your spoiler lamp.
 
@@ -888,7 +888,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:35:13] Adam: I you know I read a piece this weekend that that took a counterpoint and said for Marvel to make this movie a total cliffhanger was the most cynical money grab ever, and I I could understand that is a reasonable interpretation, but what I felt at the end of it was wow, they did something new. How like number one, they started out with Iron Man, and I love reading Kevin Feige talking about how he worked with Whedon and the Russo's and all these different amazing. Creative talents to figure out how to create a bigger film universe, and they created the largest franchise universe in film that anyone's made in terms of all the different places it goes.
 
-[00:35:56] Norm: Fifteen billion in counting,
+[00:35:56] Norm: 15 billion in counting,
 
 [00:35:57] Adam: and so many, so many of their, so much of what they've done is kind of new for franchise, for films that are great, for films with good emotional cores, for films that showcase the individuality of the directors like Taika Waititi and the Russo brothers. So I ended this, and I still hold that they did something new, and that's why they did it. They did it because this is a different way to to make a blockbuster.
 
@@ -946,7 +946,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:38:21] Adam: the meta. And actually, going back to Civil War, where Tom Holland goes, you know that Shield doesn't obey any of the laws of physics.
 
-[00:38:29] Will: Oh yes. Well, I mean, the number of seeds that were planted through the last ten or twelve movies to make this movie land
+[00:38:29] Will: Oh yes. Well, I mean, the number of seeds that were planted through the last 10 or 12 movies to make this movie land
 
 [00:38:36] Adam: Yeah.
 
@@ -974,7 +974,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:39:30] Adam: Yeah, we don't trade lives. I, I feel that. But
 
-[00:39:31] Norm: and also Doctor Strange giving it up was part of the plan. He saw 14 million 605 versions, and guess what? The only one in which they win, he has to give it up.
+[00:39:31] Norm: and also Doctor Strange giving it up was part of the plan. He saw 14,000,605 versions, and guess what? The only one in which they win, he has to give it up.
 
 [00:39:40] Will: So.
 
@@ -1012,7 +1012,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:40:36] Adam: I love it when Loki's like, "Yeah, but I'm okay, boop," and he's Loki's gone.
 
-[00:40:40] Will: I've been falling for thirty minutes. Such a good like that movie. So much of that movie lands so well, and the like that I don't drink like that whole. Yeah, that's a really fantastic. sequence.
+[00:40:40] Will: I've been falling for 30 minutes. Such a good like that movie. So much of that movie lands so well, and the like that I don't drink like that whole. Yeah, that's a really fantastic. sequence.
 
 [00:40:50] Adam: Ragnarok is Ragnarok is completely. I think the most rewatchable film.
 
@@ -1066,7 +1066,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:43:02] Will: like the the the knife drops, the pickups, the slow-mo,
 
-[00:43:04] Norm: cranking up the shutter for that stuff. That's tough to do when you're asking them to have, you know, them fight a thousand space dogs.
+[00:43:04] Norm: cranking up the shutter for that stuff. That's tough to do when you're asking them to have, you know, them fight 1,000 space dogs.
 
 [00:43:13] Will: Well, but they escalate well. I mean, the only problem was
 
@@ -1218,7 +1218,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:50:53] Will: You're ready to go.
 
-[00:50:54] Norm: There's a really good one for a hundred dollars. That that's
+[00:50:54] Norm: There's a really good one for $100. That that's
 
 [00:50:57] Adam: is it wearable?
 
@@ -1304,7 +1304,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:52:29] Will: from like Close Encounters.
 
-[00:52:30] Adam: 1978, all the way through like 1980. Five, you had just this incredible string every single year. Um, it's hard for me to go back to my my at that point thirteen year old brain and and re reconstitute the excitement.
+[00:52:30] Adam: 1978, all the way through like 1980. Five, you had just this incredible string every single year. Um, it's hard for me to go back to my my at that point 13 year old brain and and re reconstitute the excitement.
 
 [00:52:47] Will: You're aware of different stuff now than you are then.
 

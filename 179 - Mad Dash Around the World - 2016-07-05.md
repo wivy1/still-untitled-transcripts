@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:01:22] Will: Don't say that."
 
-[00:01:22] Norm: It's a million dollars.
+[00:01:22] Norm: It's $1 million.
 
 [00:01:24] Will: Is that how much it is, really?
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:06:53] Will: It's the thing that we've kind of lost in large portions of America as like shop classes and stuff like that went away, right?
 
-[00:06:58] Adam: Yeah, and it's difficult because, like Norm is saying, here the work is very catch as catch can. ILM shut down its model shop, and while there are a couple of other model shops up in Marin that have tried to keep the work going and are doing pretty well, it's still there are sometimes downtimes of like ten months for for a big shop, and you just got to send everybody home. So Richard busts his ass to keep work coming into Weta, and I mean, like, I can't. I've never seen anyone. I think that I'm busy, until I'm standing next to Richard, and then I'm like, I've never been busy compared to this gentleman.
+[00:06:58] Adam: Yeah, and it's difficult because, like Norm is saying, here the work is very catch as catch can. ILM shut down its model shop, and while there are a couple of other model shops up in Marin that have tried to keep the work going and are doing pretty well, it's still there are sometimes downtimes of like 10 months for for a big shop, and you just got to send everybody home. So Richard busts his ass to keep work coming into Weta, and I mean, like, I can't. I've never seen anyone. I think that I'm busy, until I'm standing next to Richard, and then I'm like, I've never been busy compared to this gentleman.
 
 [00:07:33] Will: Well, there's a there's a there's a there's busy for you, and there's busy for a team of people you employ,
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:10:06] Adam: but it's also fatter, wider, and then he bends it on this arc that's shocking, and he's like, " This shows you how strong, how strong it is." And and
 
-[00:10:15] Norm: Joey's like, " Can I try that?" Yeah. And so Joey takes the sword, and Joey goes, " Bends it," and then Peter says, " Wow, yeah, that's that's that's impressive that you would bend something with market value of 450,000 dollars." And Joey, that
+[00:10:15] Norm: Joey's like, " Can I try that?" Yeah. And so Joey takes the sword, and Joey goes, " Bends it," and then Peter says, " Wow, yeah, that's that's that's impressive that you would bend something with market value of $450,000." And Joey, that
 
 [00:10:15] Unknown: [speaker unclear: Norm / unnamed local M speaker] Here you go.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:10:38] Will: Yeah, just that one time.
 
-[00:10:50] Adam: At any rate, it was like that's just one of the dozens of things that we shot and talked to people about at Weta. It really was. I found it so inspiring. I'm literally we're my family. We're trying to work out when we can go and spend at least like a week to ten days down in Wellington to hang out. The I have now a bunch of close friends at Weta, so we went out to dinner every night. The dinners were wonderful affairs of many people talking about all sorts of different things. You know, there's always amazing people visiting Weta, and so it was like it was every night was just filled with the most incredible conversation.
+[00:10:50] Adam: At any rate, it was like that's just one of the dozens of things that we shot and talked to people about at Weta. It really was. I found it so inspiring. I'm literally we're my family. We're trying to work out when we can go and spend at least like a week to 10 days down in Wellington to hang out. The I have now a bunch of close friends at Weta, so we went out to dinner every night. The dinners were wonderful affairs of many people talking about all sorts of different things. You know, there's always amazing people visiting Weta, and so it was like it was every night was just filled with the most incredible conversation.
 
 [00:11:30] Will: Anytime you get a big group of interesting people with multiple multiple multiple multi disciplinary backgrounds,
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:13:33] Will: like more so than this.
 
-[00:13:34] Adam: Oh, it's like this except picture you know eighty thousand square feet of shop space, room after room after room, where all the walls are lined with like oh you know there's Gimli's axe in three different scales depending on what they were filming.
+[00:13:34] Adam: Oh, it's like this except picture you know 80,000 square feet of shop space, room after room after room, where all the walls are lined with like oh you know there's Gimli's axe in three different scales depending on what they were filming.
 
 [00:13:34] Will: Wow!
 
@@ -534,13 +534,13 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:24:00] Adam: Yeah, exactly. But I also one of the so I was going to say for one of the things that can really bone you is I needed Teflon washers, half inch ID, big fat Teflon fender washers. I thought that'll be easy. I couldn't find them. My bearing place couldn't find them for less than like three fifty a piece or some ridiculous price.
 
-[00:24:19] Will: You need like thousand of them, probably.
+[00:24:19] Will: You need like 1,000 of them, probably.
 
 [00:24:20] Adam: Yeah, I need hundreds and hundreds of them. So we made them here. But I got to make sure I have enough.
 
 [00:24:20] Will: Yeah.
 
-[00:24:20] Adam: Because if I need an extra twenty and I don't have them, that could really bone me in terms of the ability for things to slip and slide past each other.
+[00:24:20] Adam: Because if I need an extra 20 and I don't have them, that could really bone me in terms of the ability for things to slip and slide past each other.
 
 [00:24:20] Will: Yeah.
 

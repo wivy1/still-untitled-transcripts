@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:17:30] Norm: And and then there are moments where they took turn the camera and goes, " Well, this meeting didn't happen exactly like we portrayed it, but for the sake of storytelling, it's way more interesting to show this."
 
-[00:17:39] Adam: Do you know my favorite version of that in any film is in the great twenty four hour party people?
+[00:17:39] Adam: Do you know my favorite version of that in any film is in the great 24 hour party people?
 
 [00:17:45] Norm: I've never seen it.
 
@@ -428,9 +428,9 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:17:51] Will: That seems. I know it's Steve Coogan. I’ll look while you talk about.
 
-[00:17:54] Norm: Twenty four hour,
+[00:17:54] Norm: 24 hour,
 
-[00:17:55] Adam: twenty four hour party people. Party people. It's about the Manchester rave scene.
+[00:17:55] Adam: 24 hour party people. Party people. It's about the Manchester rave scene.
 
 [00:17:59] Norm: Interesting.
 
@@ -464,7 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:18:51] Will: American Splendor,
 
-[00:18:53] Adam: twenty-four hour party people's masterful and does tons of breaking the fourth wall, and and Coogan is incredible. It's the first time I saw Steve Coogan,
+[00:18:53] Adam: 24 hour party people's masterful and does tons of breaking the fourth wall, and and Coogan is incredible. It's the first time I saw Steve Coogan,
 
 [00:19:01] Adam: and he's a genius.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:23:19] Adam: So.
 
-[00:23:19] Will: show. So, so this is it's light and it's like thirty minute episodes. It's shot like a sitcom. There's funny moments. There's a lot of uncomfortable sex stuff.
+[00:23:19] Will: show. So, so this is it's light and it's like 30 minute episodes. It's shot like a sitcom. There's funny moments. There's a lot of uncomfortable sex stuff.
 
 [00:23:19] Adam: All right.
 
@@ -648,7 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:25:01] Will: Really,
 
-[00:25:01] Adam: he's a wonderful writer. It's. Great historical writing. He pauses every now and then to go. Let's just tally up the amount of crap he had to deal with before he was seventeen. Here's what happened. Okay, now you know they really, really, really lovely writing and tremendous scholarship. He he went through all twenty thousand pages of Hamilton's writings. I mean,
+[00:25:01] Adam: he's a wonderful writer. It's. Great historical writing. He pauses every now and then to go. Let's just tally up the amount of crap he had to deal with before he was 17. Here's what happened. Okay, now you know they really, really, really lovely writing and tremendous scholarship. He he went through all 20,000 pages of Hamilton's writings. I mean,
 
 [00:25:01] Will: wow,
 

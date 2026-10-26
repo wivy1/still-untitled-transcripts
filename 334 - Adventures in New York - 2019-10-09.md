@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:03:45] Will: Oh, oh, you're going to be in New York this week. Oh, let's. Well, you know, I asked. I asked.
 
-[00:03:49] Norm: Also, let's be clear because there were a bunch of articles that just came out over the weekend about the people who are doing like the Uber for the skies, doing helicopters from, from Midtown to JFK in six minutes, but it's 200 dollars each way, and also it goes like eighty. Like gallons per you know per hour,
+[00:03:49] Norm: Also, let's be clear because there were a bunch of articles that just came out over the weekend about the people who are doing like the Uber for the skies, doing helicopters from, from Midtown to JFK in six minutes, but it's $200 each way, and also it goes like 80. Like gallons per you know per hour,
 
 [00:04:07] Adam: right? Yeah.
 
@@ -186,7 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:06:14] Norm: And so it's like right after it wasn't raining as you were riding, but it it rained just before.
 
-[00:06:20] Adam: And it was like a movie set, and it was like forty minutes of silence.
+[00:06:20] Adam: And it was like a movie set, and it was like 40 minutes of silence.
 
 [00:06:25] Will: And just those those like windy paved roads in Central Park with no people on them
 
@@ -194,15 +194,15 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:06:30] Will: would be the best for that kind of
 
-[00:06:32] Adam: so incredible. And because it was raining, just not another human being in sight for forty minutes, it was transformative.
+[00:06:32] Adam: so incredible. And because it was raining, just not another human being in sight for 40 minutes, it was transformative.
 
 [00:06:38] Will: Oh, that's so fun!
 
-[00:06:39] Adam: I was also brought right back to my original days in New York. So that's the first place I lived as an adult in 1985. I moved to NYU downtown and pretended to go to school for six months, but I spent from 1985 to 1990 bombing on a bicycle through the streets of New York and Brooklyn, probably ten or fifteen miles a day for five years.
+[00:06:39] Adam: I was also brought right back to my original days in New York. So that's the first place I lived as an adult in 1985. I moved to NYU downtown and pretended to go to school for six months, but I spent from 1985 to 1990 bombing on a bicycle through the streets of New York and Brooklyn, probably 10 or 15 miles a day for five years.
 
 [00:07:02] Will: Yeah,
 
-[00:07:02] Adam: and there's a way in which riding the Onewheel put me slotted me right back into that that. That bicycle trap, riding among traffic, kind of mindset, and it was intoxicating for me. It was lovely. It was like going thirty years, taking a time machine back.
+[00:07:02] Adam: and there's a way in which riding the Onewheel put me slotted me right back into that that. That bicycle trap, riding among traffic, kind of mindset, and it was intoxicating for me. It was lovely. It was like going 30 years, taking a time machine back.
 
 [00:07:19] Will: When you go to New York, do you ever want to move back? Does it? Do you get those feels?
 
@@ -230,13 +230,13 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:08:03] Adam: Yeah.
 
-[00:08:04] Norm: Yeah. Like all the benefits of all the social, the nightlife, and stuff. That's that's that's for people in their twenties.
+[00:08:04] Norm: Yeah. Like all the benefits of all the social, the nightlife, and stuff. That's that's that's for people in their 20s.
 
 [00:08:09] Adam: And yeah, I, I, there's a pacing that I'm not looking for a busier city. Than San Francisco at this point.
 
 [00:08:15] Will: Well, that's fair.
 
-[00:08:16] Adam: Yeah, we're already considering quieter futures, so I am not drawn to move back to New York. Even though I still think of myself as a New Yorker, thirty years after I moved to San Francisco, I'm not itching to move back.
+[00:08:16] Adam: Yeah, we're already considering quieter futures, so I am not drawn to move back to New York. Even though I still think of myself as a New Yorker, 30 years after I moved to San Francisco, I'm not itching to move back.
 
 [00:08:28] Will: Okay.
 
@@ -496,13 +496,13 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:20:16] Will: Yeah,
 
-[00:20:16] Adam: they definitely cut blood way down on the PG thirteen ratings, and I think that would be a disservice. It's actually,
+[00:20:16] Adam: they definitely cut blood way down on the PG-13 ratings, and I think that would be a disservice. It's actually,
 
 [00:20:23] Will: I'm not advocating,
 
 [00:20:24] Adam: Yeah, no, no, no, no, no.
 
-[00:20:24] Will: Re-releasing a PG thirteen version of Alien.
+[00:20:24] Will: Re-releasing a PG-13 version of Alien.
 
 [00:20:27] Adam: But I do find it funny when I I've been recently watching some movies from the '80s, like I watched Roadhouse.
 
@@ -510,7 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:20:31] Adam: and I think it's hilarious when you watch a hard R from the '80s. It announces that it's a hard R within the first three lines of dialogue. Someone drops f bombs like buying a cup of coffee.
 
-[00:20:41] Will: Well, that and even like PG thirteen movies from the early '80s before PG thirteen came on are really, really a lot. Like you have to be careful with a with like a 1982 PG.
+[00:20:41] Will: Well, that and even like PG-13 movies from the early '80s before PG-13 came on are really, really a lot. Like you have to be careful with a with like a 1982 PG.
 
 [00:20:51] Adam: Oh, really?
 
@@ -520,11 +520,11 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:20:58] Adam: Melting face. Wow.
 
-[00:21:00] Will: Temple of Doom is maybe the first PG thirteen, or maybe it was the last PG before they added PG thirteen.
+[00:21:00] Will: Temple of Doom is maybe the first PG-13, or maybe it was the last PG before they added PG-13.
 
 [00:21:05] Adam: Before they realized they needed some new layer.
 
-[00:21:07] Will: Before they were like, oh man, maybe seven year olds and fifteen year olds.
+[00:21:07] Will: Before they were like, oh man, maybe seven year olds and 15 year olds.
 
 [00:21:09] Adam: Maybe pulling the hearts out of people on the live is, yeah, maybe that’s wrong.
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:24:04] Will: And somebody sussed it out.
 
-[00:24:06] Adam: Someone guessed it within ten minutes. Oh well, that could be mouth mechanics for no face, and that would explain that bucket of teeth made of chopping block material that I saw last week. Oh yeah. Crazy!
+[00:24:06] Adam: Someone guessed it within 10 minutes. Oh well, that could be mouth mechanics for no face, and that would explain that bucket of teeth made of chopping block material that I saw last week. Oh yeah. Crazy!
 
 [00:24:17] Will: Wow,
 
@@ -878,7 +878,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:33:48] Adam: Yeah. Again, whenever you are covering these cosplayers, you are not. Yeah, everybody's finding their own way to these solutions, and then they're sharing them.
 
-[00:34:01] Will: That's the thing that that that's the thing that always struck me when we first started talking to cosplay. When we talked to Harrison, even like Harrison Krix Volpin at the time was doing, I think, the best work out there, and frankly, probably still is on the kind of stuff that he was focusing on. And he was just like, " Yeah, here are the plans for the. It took me three hundred hours to put together these Daft Punk helmets, but here is the wiring diagrams, and here is all the stuff, and you can just You know, if you want to make your own, go for it.
+[00:34:01] Will: That's the thing that that that's the thing that always struck me when we first started talking to cosplay. When we talked to Harrison, even like Harrison Krix Volpin at the time was doing, I think, the best work out there, and frankly, probably still is on the kind of stuff that he was focusing on. And he was just like, " Yeah, here are the plans for the. It took me 300 hours to put together these Daft Punk helmets, but here is the wiring diagrams, and here is all the stuff, and you can just You know, if you want to make your own, go for it.
 
 [00:34:25] Adam: And when I so I did get to I buried the lead because I got to go to the Saturday Night Live after party Saturday night.
 
@@ -890,11 +890,11 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:34:43] Will: Yeah,
 
-[00:34:43] Adam: I did not get to meet or see either of those insanely talented, awesome women, but that is fine because I got to hang out with Louis, who's been makeup supervisor for like over twenty years. I made some friends with other of the makeup people at SNL through through some mutual friends. Awesome Rick Baker and his family. It was a magical night because I got to have dinner with Rick and Sylvia, and then I went to Travis McElroy's party, and then I met up with them at the after party and got to hear that, like when when when Don Cheadle was on SNL, they bought an Iron Man costume and it arrived and it was. Not as good as they were hoping, and so they downloaded plans for an Iron Man costume offline to build in craft foam and built it in two days flat.
+[00:34:43] Adam: I did not get to meet or see either of those insanely talented, awesome women, but that is fine because I got to hang out with Louis, who's been makeup supervisor for like over 20 years. I made some friends with other of the makeup people at SNL through through some mutual friends. Awesome Rick Baker and his family. It was a magical night because I got to have dinner with Rick and Sylvia, and then I went to Travis McElroy's party, and then I met up with them at the after party and got to hear that, like when when when Don Cheadle was on SNL, they bought an Iron Man costume and it arrived and it was. Not as good as they were hoping, and so they downloaded plans for an Iron Man costume offline to build in craft foam and built it in two days flat.
 
 [00:35:30] Will: Wow!
 
-[00:35:30] Adam: And that's because the cosplayers are sharing their yeah their data. Yeah, and you know, as I said this at my panel, ten years ago there was a vigorous debate on the online
+[00:35:30] Adam: And that's because the cosplayers are sharing their yeah their data. Yeah, and you know, as I said this at my panel, 10 years ago there was a vigorous debate on the online
 
 [00:35:42] Unknown speaker: I don't know.
 

@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:01:05] Adam: so we're here really early because we're in production and today is a a final build day before we head to a undisclosed location tomorrow to engage in some shenanigans.
 
-[00:01:18] Norm: That sounds like your life for the past fifteen years. Final build days upon final build days before shenanigans.
+[00:01:18] Norm: That sounds like your life for the past 15 years. Final build days upon final build days before shenanigans.
 
 [00:01:18] Adam: Precisely.
 
@@ -92,11 +92,11 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:03:35] Adam: The first place I stayed in San Francisco for my brother's wedding in '88, and I remember thinking, this is the most beautiful city in the world. And like Gough and Lombard is a Shitty, terrible corner. I mean, that's okay. It's not a terrible corner, but it's not a great corner. It's not like anybody's taking pictures there and going, " This is classic San Francisco." But it wasn't until I moved here that I really started to understand how beautiful the city is in so many layers.
 
-[00:04:22] Jen: Yeah, I've had. There's a place that my uncle took us to years ago, City Lights Bookstore, which I love. And in the basement of that bookstore, there's a door in between shelves, so it's just bookshelves right up to the edge of this door, and the door is painted, and it says, " I am the door," and I I loved that, and I went back home when I was probably like sixteen or seventeen, and I painted it on my bedroom door. So my bedroom door back home where I grew up has this.
+[00:04:22] Jen: Yeah, I've had. There's a place that my uncle took us to years ago, City Lights Bookstore, which I love. And in the basement of that bookstore, there's a door in between shelves, so it's just bookshelves right up to the edge of this door, and the door is painted, and it says, " I am the door," and I I loved that, and I went back home when I was probably like 16 or 17, and I painted it on my bedroom door. So my bedroom door back home where I grew up has this.
 
 [00:04:47] Adam: It's a prop replica.
 
-[00:04:48] Jen: Yeah, from my visit to San Francisco, like you know, almost fifteen years ago.
+[00:04:48] Jen: Yeah, from my visit to San Francisco, like you know, almost 15 years ago.
 
 [00:04:53] Adam: That's fantastic.
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:08:53] Norm: Yeah,
 
-[00:08:54] Adam: there's okay. There's one hill on the East Nineties. I know about it, but Manhattan has no hills, and Quicksilver added some by filming in San Francisco.
+[00:08:54] Adam: there's okay. There's one hill on the East 90s. I know about it, but Manhattan has no hills, and Quicksilver added some by filming in San Francisco.
 
 [00:09:04] Jen: That's really funny.
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:09:59] Norm: is this show?
 
-[00:10:08] Adam: The very top end is the last is is a U2 tour, which is like eighty five trucks.
+[00:10:08] Adam: The very top end is the last is is a U2 tour, which is like 85 trucks.
 
 [00:10:14] Jen: What?
 
@@ -208,9 +208,9 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:10:16] Norm: semi trucks.
 
-[00:10:17] Adam: Semi trucks. It's it's that was I believe I was told at the time it was the largest tour in history. But Cirque du Soleil's got to travel with a lot of stuff, so I think it's like more than twenty. I think it's less than fifty. I'm going to say thirty five.
+[00:10:17] Adam: Semi trucks. It's it's that was I believe I was told at the time it was the largest tour in history. But Cirque du Soleil's got to travel with a lot of stuff, so I think it's like more than 20. I think it's less than 50. I'm going to say 35.
 
-[00:10:32] Norm: It is a seventy four
+[00:10:32] Norm: It is a 74
 
 [00:10:32] Adam: Oh!
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:10:37] Norm: Blew my mind.
 
-[00:10:38] Adam: Seventy four semi trucks
+[00:10:38] Adam: 74 semi trucks
 
 [00:10:41] Norm: of gear.
 
@@ -232,7 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:10:44] Norm: And they can deploy and start playing in two weeks.
 
-[00:10:53] Adam: In two weeks, fourteen days, seventy trucks, in fourteen days. That's like six. That's unloading six or seven trucks a day.
+[00:10:53] Adam: In two weeks, 14 days, 70 trucks, in 14 days. That's like six. That's unloading six or seven trucks a day.
 
 [00:11:02] Jen: That's, it's mind boggling to think about.
 
@@ -286,11 +286,11 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:12:35] Jen: Oh,
 
-[00:12:35] Norm: right. The the the the containers don't leave because they they they all stay there, and they're all numbered and becomes reference. So one of the things we learned is they build out like there's the big tent, and they build out a technical tent, which is their workshop. It becomes like their makerspace, and that is all out of one truck, the number 54. And every tour, because they have like you know three or four of these touring shows that go around the world. The fifty-four truck is always the workshop in every single city.
+[00:12:35] Norm: right. The the the the containers don't leave because they they they all stay there, and they're all numbered and becomes reference. So one of the things we learned is they build out like there's the big tent, and they build out a technical tent, which is their workshop. It becomes like their makerspace, and that is all out of one truck, the number 54. And every tour, because they have like you know three or four of these touring shows that go around the world. The 54 truck is always the workshop in every single city.
 
 [00:12:35] Adam: Is that superstition or just?
 
-[00:12:35] Norm: It's just the way. I think it's the way they account for it. So when when whatever logistics person they refer to, like where is our fifty-four? Where's the fifty-four in Japan right now? Oh, it's you know on this boat or on this airplane coming in, and it's so that the institutional knowledge they have for deploying these things can be retained.
+[00:12:35] Norm: It's just the way. I think it's the way they account for it. So when when whatever logistics person they refer to, like where is our 54? Where's the 54 in Japan right now? Oh, it's you know on this boat or on this airplane coming in, and it's so that the institutional knowledge they have for deploying these things can be retained.
 
 [00:13:28] Adam: I mean, on our measly little two truck tour that Jamie and I did, and then later Michael Stevens and I did, you could run into all sorts of weird problems. At one point, I got locked in the bus because the bus's pneumatic system broke and the door wouldn't open. I had to climb out this little driver's window. Another time, we had snow in Eastern Washington. Our trucks didn't get in till five p.m. and we still managed to make our eight p.m. show because the crew is amazing. But that's two trucks.
 
@@ -300,9 +300,9 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:14:07] Norm: Yes, right.
 
-[00:14:08] Adam: That that all of their energy in logistics is based on knowing precisely what the weather is and what it's likely to be. Huh. And I hadn't considered that, but I'll bet that Cirque du Soleil. I bet that with seventy-four trucks, you got to have a very granular understanding of the roads everywhere you go and the potential conditions.
+[00:14:08] Adam: That that all of their energy in logistics is based on knowing precisely what the weather is and what it's likely to be. Huh. And I hadn't considered that, but I'll bet that Cirque du Soleil. I bet that with 74 trucks, you got to have a very granular understanding of the roads everywhere you go and the potential conditions.
 
-[00:14:26] Norm: Well, and when you're erecting a giant tent for two thousand people, the four masts that's on one is for weather. Like they can detect they they know
+[00:14:26] Norm: Well, and when you're erecting a giant tent for 2,000 people, the four masts that's on one is for weather. Like they can detect they they know
 
 [00:14:26] Adam: oh wow
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:24:08] Norm: Yeah.
 
-[00:24:08] Adam: However, however, if I served this to you and I did not tell you, after like ten minutes, you go, " What is this?" Because it'd be like, " This is delicious sushi," and yet everything, it's just, it, it tells you that what sushi is about is not about the fish; it's about the texture in each bite and the, the, the, the flavor profile of the umami and the sweet and sour and the acid in each bite. And Shizen is world class sushi that just happens to not have fish.
+[00:24:08] Adam: However, however, if I served this to you and I did not tell you, after like 10 minutes, you go, " What is this?" Because it'd be like, " This is delicious sushi," and yet everything, it's just, it, it tells you that what sushi is about is not about the fish; it's about the texture in each bite and the, the, the, the flavor profile of the umami and the sweet and sour and the acid in each bite. And Shizen is world class sushi that just happens to not have fish.
 
 [00:24:52] Jen: Hmm. Yeah, I definitely want to look into that. People have been telling me about it, but I haven't had an opportunity to be like, " Oh, let me go get vegan sushi."
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:26:17] Adam: Tom Wolfe,
 
-[00:26:17] Jen: yeah. Who uh, he's he's writing about what like what is the right stuff? What uh, what does it take to be an astronaut? Like, what do you have? What type of personality? Um, and so it starts off talking about because a lot of them were fighter pilots, so it starts off talking about um the this really intense uh rigorous training that you have to go through as a fighter pilot and just how dangerous it is. And so he's talking about how they start off with a crew of like twenty people, this particular regiment, and just in training, they're not even in combat. Just in training, it is so dangerous. Like, if you make one little mistake, one little thing happens, and the crew whittles down to about eight people, and they keep going to funerals over and over again.
+[00:26:17] Jen: yeah. Who uh, he's he's writing about what like what is the right stuff? What uh, what does it take to be an astronaut? Like, what do you have? What type of personality? Um, and so it starts off talking about because a lot of them were fighter pilots, so it starts off talking about um the this really intense uh rigorous training that you have to go through as a fighter pilot and just how dangerous it is. And so he's talking about how they start off with a crew of like 20 people, this particular regiment, and just in training, they're not even in combat. Just in training, it is so dangerous. Like, if you make one little mistake, one little thing happens, and the crew whittles down to about eight people, and they keep going to funerals over and over again.
 
 [00:26:57] Jen: And it's just like it's you're immediately invested, and it's like thrilling. And I haven't even gotten to the part about the astronauts yet, but I highly, I highly recommend it.
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:27:38] Adam: by Taylor Hackford, which is an amazing,
 
-[00:27:41] Norm: wonderful watch. There is also a complimentary documentary that's on Netflix called " The Mercury Thirteen."
+[00:27:41] Norm: wonderful watch. There is also a complimentary documentary that's on Netflix called " The Mercury 13."
 
 [00:27:41] Adam: Oh,
 
@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:29:16] Jen: Yeah, or like Interstellar.
 
-[00:29:17] Norm: That's the sort of sad part, right? Where like you end with thirteen, and I mean there aren't many movies about Apollo programs these days.
+[00:29:17] Norm: That's the sort of sad part, right? Where like you end with 13, and I mean there aren't many movies about Apollo programs these days.
 
 [00:29:25] Adam: You could watch From the Earth to the Moon, the documentary series.
 

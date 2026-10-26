@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=rhaNoBx39Jc
 
 [00:02:10] Norm: Okay,
 
-[00:02:10] Adam: it was in the actual White House, and it's showcasing just this amazing ingenuity of kids. I last time I was there, these three like eleven-year-old boys in suits and ties were showing me how they used accelerometers in the iPhone to test the efficacy of football helmets.
+[00:02:10] Adam: it was in the actual White House, and it's showcasing just this amazing ingenuity of kids. I last time I was there, these three like 11-year-old boys in suits and ties were showing me how they used accelerometers in the iPhone to test the efficacy of football helmets.
 
 [00:02:28] Norm: Wow!
 
@@ -166,11 +166,11 @@ Episode URL: https://www.youtube.com/watch?v=rhaNoBx39Jc
 
 [00:06:17] Adam: They were clocked. This is back with the clockwork, right? Where you actually literally turned a clock. I've got one in one of my cabinets here, and it turned out there was no legislation that required parking meters to be accurate.
 
-[00:06:34] Will: Well, that was also when parking tickets were probably like eight dollars, right?
+[00:06:34] Will: Well, that was also when parking tickets were probably like $8, right?
 
 [00:06:37] Adam: But still,
 
-[00:06:38] Will: as opposed to these sixty dollar monsters.
+[00:06:38] Will: as opposed to these $60 monsters.
 
 [00:06:39] Adam: One would assume. I mean, one of the reasons you have government is to make sure that everyone's going to play by the rules, and these there was no there was there was no so. There is now legislation requiring parking meters to be accurate, and it's called Lammer’s Law.
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=rhaNoBx39Jc
 
 [00:09:35] Adam: We rarely have people towed. We have done it a few times when it's been egregious, like we can't get our car out. But, um, it's a nightmare. It's a constant battle.
 
-[00:09:43] Will: I, I used to live on Harrison Street, across from Costco. Oh, shit. And there was a giant. It was a bad parking neighborhood at the time because there were a lot of startups, and it was all like live work lofts. But people would park. In front of a driveway that had, I think, twelve cars parked in it, like a shared garage for the whole building.
+[00:09:43] Will: I, I used to live on Harrison Street, across from Costco. Oh, shit. And there was a giant. It was a bad parking neighborhood at the time because there were a lot of startups, and it was all like live work lofts. But people would park. In front of a driveway that had, I think, 12 cars parked in it, like a shared garage for the whole building.
 
 [00:10:00] Adam: Oh my god!
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=rhaNoBx39Jc
 
 [00:13:44] Norm: And they were building them at scale very cheaply. So how, how did you get hooked up with with this?
 
-[00:13:48] Will: A friend of a friend. So somebody said they they were looking for somebody, and somebody recommended me, and and I went in and met them a few weeks ago, and and it was we hit it off. But the interesting thing about the talk wasn't the talk so much as the questions I got afterwards. So this is a a club of, I mean, I would say that the median age was probably in the mid fifties, Mm-hmm, and there were people all the way up into their early nineties, and people as young as as probably Norm's age. The questions I got were fascinating because it was questions I we don't we don't get exposed to normals that often, yeah. And these were these were people they were asking the the Q and A at the end they used as an opportunity just to ask a nerd about general tech questions. So I got questions about, um, one of the first questions I got was about securing the Internet of Things, which I thought was fascinating,
+[00:13:48] Will: A friend of a friend. So somebody said they they were looking for somebody, and somebody recommended me, and and I went in and met them a few weeks ago, and and it was we hit it off. But the interesting thing about the talk wasn't the talk so much as the questions I got afterwards. So this is a a club of, I mean, I would say that the median age was probably in the mid 50s, Mm-hmm, and there were people all the way up into their early 90s, and people as young as as probably Norm's age. The questions I got were fascinating because it was questions I we don't we don't get exposed to normals that often, yeah. And these were these were people they were asking the the Q and A at the end they used as an opportunity just to ask a nerd about general tech questions. So I got questions about, um, one of the first questions I got was about securing the Internet of Things, which I thought was fascinating,
 
 [00:14:38] Adam: totally fascinating.
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=rhaNoBx39Jc
 
 [00:14:52] Adam: I mean, securing the Internet of Things is it's it's particularly getting me because I have lots of things that work like that. And you know they work great most of the time.
 
-[00:15:03] Will: Well, we we used it as an opportunity. I used it as an opportunity to talk about encryption and the value of encryption and and the value of things that are secured from the ground up from the get go versus things like Windows where they tack on internet security twenty years into the product's lifecycle.
+[00:15:03] Will: Well, we we used it as an opportunity. I used it as an opportunity to talk about encryption and the value of encryption and and the value of things that are secured from the ground up from the get go versus things like Windows where they tack on internet security 20 years into the product's lifecycle.
 
 [00:15:18] Adam: But and it's also it's a philosophy of security.
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=rhaNoBx39Jc
 
 [00:16:36] Will: and it was probably incredibly expensive, right?
 
-[00:16:37] Adam: Oh yeah, yeah, and on multiple levels, right? There was there was a system in place before I bought the house, and I've added to it. And it's one of these things of like you know the Chamberlain that that that opens a garage door can work 99 times out of a hundred, but that still means once a month you can't get into your goddamn house.
+[00:16:37] Adam: Oh yeah, yeah, and on multiple levels, right? There was there was a system in place before I bought the house, and I've added to it. And it's one of these things of like you know the Chamberlain that that that opens a garage door can work 99 times out of 100, but that still means once a month you can't get into your goddamn house.
 
 [00:16:37] Will: Yeah,
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=rhaNoBx39Jc
 
 [00:17:54] Will: So, for example, you can load up the Apple TV, go to the Plex remote, go go to you know start Plex and get straight into that. But it doesn't know how to talk to the Sonos, so you can't use the Sonos speakers or whatever the whatever the.
 
-[00:18:28] Adam: This is, this, I view this as like in ten years it will all be viewed as quaint problems of an emerging technology.
+[00:18:28] Adam: This is, this, I view this as like in 10 years it will all be viewed as quaint problems of an emerging technology.
 
 [00:18:34] Norm: Well, I also feel like as as nerds we go to extraordinary lengths to make things just a little bit more convenient in a way that maybe we actually don't need or actually will use. Like we'll wire things up. you know, so we can do have music follow us from room to room, or so.
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=rhaNoBx39Jc
 
 [00:20:32] Will: And and then a smart, really complex GUI that they designed that works on my phone, and like there's no. There's no kind of in between.
 
-[00:20:43] Adam: No, and this is actually also a pet peeve about the way you're communicating. You're the way your computer talks to you. Like when my computer says, " I can't do that," error code negative fifty, and I'm like, " You're spelling stuff out. Why are you giving me a number code that I have to go look up?"
+[00:20:43] Adam: No, and this is actually also a pet peeve about the way you're communicating. You're the way your computer talks to you. Like when my computer says, " I can't do that," error code -50, and I'm like, " You're spelling stuff out. Why are you giving me a number code that I have to go look up?"
 
 [00:21:00] Will: But, but then you can go look up because Windows does the opposite.
 

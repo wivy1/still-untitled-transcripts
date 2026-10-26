@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:04:25] Norm: Huge team effort. Yeah. You didn't feel like you had to do everything, but at the same time, while you could have done like 3D printing on the Walkman, you chose to do styrene build. You wanted to.
 
-[00:04:34] Adam: I thought that was a really fun one day build, and we haven't we haven't put that up yet. Yeah, so when we put that up, the thing I like about it is a lot of people look at that build and they’re like, ah, the $ 400 Walkman, and there are a lot of people are making resin ones that they sell on eBay and even Amazon for like 20 bucks. It's a really easy, great, high reward build. And by the way, we made we made a little, I think DXF of the graphic
+[00:04:34] Adam: I thought that was a really fun one day build, and we haven't we haven't put that up yet. Yeah, so when we put that up, the thing I like about it is a lot of people look at that build and they’re like, ah, the $ 400 Walkman, and there are a lot of people are making resin ones that they sell on eBay and even Amazon for like $20. It's a really easy, great, high reward build. And by the way, we made we made a little, I think DXF of the graphic
 
 [00:05:02] Norm: of the decal sheet
 
@@ -140,11 +140,11 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:05:12] Adam: Because this is one of those ones where cutting out nice, crisp, chrome letters just made the thing made your whole eye just goes. That's a real thing.
 
-[00:05:20] Will: Well, it was interesting because that was. I assume that that wasn't a 400 dollars Walkman before the movie came out. Probably
+[00:05:20] Will: Well, it was interesting because that was. I assume that that wasn't a $400 Walkman before the movie came out. Probably
 
 [00:05:25] Unknown (Adam or Will): No.
 
-[00:05:25] Adam: no, it was probably a hundred dollars Walkman. Walkmans were having bought. I bought one for my wife as a ten year anniversary present. I actually made a mixtape.
+[00:05:25] Adam: no, it was probably a $100 Walkman. Walkmans were having bought. I bought one for my wife as a 10 year anniversary present. I actually made a mixtape.
 
 [00:05:25] Norm: Aww.
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:05:44] Will: That's really cool,
 
-[00:05:45] Adam: but yeah, Walkman running original Walkman. Yeah, they were they weren't 400 dollars, but they're about a hundred bucks.
+[00:05:45] Adam: but yeah, Walkman running original Walkman. Yeah, they were they weren't $400, but they're about $100.
 
 [00:05:45] Will: Okay,
 
@@ -380,9 +380,9 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:11:13] Will: it's very real and painful in a way that I remember being like. You know
 
-[00:11:17] Norm: when you were a seventeen-year-old girl,
+[00:11:17] Norm: when you were a 17-year-old girl,
 
-[00:11:19] Will: yeah. When I was a seventeen-year-old girl,
+[00:11:19] Will: yeah. When I was a 17-year-old girl,
 
 [00:11:20] Norm: overachieving in high school.
 
@@ -606,15 +606,15 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:19:43] Will: Well, and and the thing that they do, the thing that they've done with Spider-Man really well in both the MCU and the Sony films, is that I mean, I guess they're they're both MCU in the Tom Holland era, is that they've made it really clear that he is aware of his of his limits as Spider-Man. Like he he has the choice at the end of of of Homecoming to become an Avenger and be like the universe's Spider-Man. He's like, I want to be your friendly neighborhood Spider-Man. I'm not ready for this yet. I want to go be a high school kid.
 
-[00:20:12] Norm: The Washington Monument was the tallest he'd ever climbed. He was more about five story buildings than hundred story buildings.
+[00:20:12] Norm: The Washington Monument was the tallest he'd ever climbed. He was more about five story buildings than 100 story buildings.
 
-[00:20:17] Will: Yeah, like there's no there's not even that moment from Spider-Verse where Miles Morales takes the leap of faith and. You know, falls into the into the city from the forty forty story building.
+[00:20:17] Will: Yeah, like there's no there's not even that moment from Spider-Verse where Miles Morales takes the leap of faith and. You know, falls into the into the city from the 40 40 story building.
 
 [00:20:17] Norm: Yep.
 
 [00:20:17] Will: Yeah, and and this movie continues to reinforce that. But this movie is about that struggle of him feeling like he needs to fill the void that was left by Tony Stark, and also find the father figure that Tony Stark that he lost when Tony Stark dies.
 
-[00:20:43] Adam: And also, he's a. I think that this the the desire to keep it small is is right. It's from some trauma, right? Like, and that's pretty clearly part of the character is his his sense of fortitude. Is that he wants? He needs to keep it small, and he needs to still somehow be sixteen. That's a tremendous amount of self awareness for a kid in the middle of adolescence who also happens to be an Avenger.
+[00:20:43] Adam: And also, he's a. I think that this the the desire to keep it small is is right. It's from some trauma, right? Like, and that's pretty clearly part of the character is his his sense of fortitude. Is that he wants? He needs to keep it small, and he needs to still somehow be 16. That's a tremendous amount of self awareness for a kid in the middle of adolescence who also happens to be an Avenger.
 
 [00:21:11] Norm: And to the credit of you know the Marvel Studios and the writers and the filmmakers, they can communicate all that with. Out having to show Ben Parker's Uncle Ben's death,
 
@@ -720,7 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:25:24] Norm: yeah
 
-[00:25:26] Norm: what I also like was that you know with the mysterious reveal right one of the best parts about the the comics whenever comics try to make like a superhero real they just add more support cast right? No, Iron Man the realistic version of Iron Man has like a team of one hundred technicians that helps him put him on and this is what they did for the villain a realistic version of how a villain works well he has a whole support team that he directs he's a director and they I love that him going back to the the the the steaming of the cape right that the vanity of that that that bit was so funny
+[00:25:26] Norm: what I also like was that you know with the mysterious reveal right one of the best parts about the the comics whenever comics try to make like a superhero real they just add more support cast right? No, Iron Man the realistic version of Iron Man has like a team of 100 technicians that helps him put him on and this is what they did for the villain a realistic version of how a villain works well he has a whole support team that he directs he's a director and they I love that him going back to the the the the steaming of the cape right that the vanity of that that that bit was so funny
 
 [00:25:56] Will: well that and the whole idea of his his actual supervillain costume being a 3D motion capture suit
 
@@ -784,7 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:28:22] Norm: right? Yeah,
 
-[00:28:24] Will: yeah. But but like Favreau Favreau is it's amazing because it's all of this is this thing that Favreau started twelve years ago. Yeah, like all of this spun out of one movie basically.
+[00:28:24] Will: yeah. But but like Favreau Favreau is it's amazing because it's all of this is this thing that Favreau started 12 years ago. Yeah, like all of this spun out of one movie basically.
 
 [00:28:38] Adam: Right. Let's see how this goes.
 
@@ -874,7 +874,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:31:57] Adam: and this one makes me sad that I don't know the actual story. I would love Marvel and Sony to solve their differences and for their collaboration to be as fruitful in the future as it has been in the past.
 
-[00:31:57] Will: I mean, they made I don't know billion dollars.
+[00:31:57] Will: I mean, they made I don't know $1 billion.
 
 [00:31:57] Adam: I know there's plenty of money to go around. I don't know what the deal is, but I.
 
@@ -926,7 +926,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:33:55] Norm: Yes.
 
-[00:33:56] Adam: Norm and I and Joey spent last week on the set of a thing which we can't talk about for I think like ten months.
+[00:33:56] Adam: Norm and I and Joey spent last week on the set of a thing which we can't talk about for I think like 10 months.
 
 [00:34:04] Norm: Something like that.
 
@@ -988,11 +988,11 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:36:50] Adam: And everyone there is having so they they are as excited as you want them to be about what they get to touch and fix.
 
-[00:36:57] Will: So when I went to the Garber facility twenty five years ago, probably which is up in Maryland, which is where they do like the big, it's where they like restored the Enola Gay and that kind of stuff. The people that were working there was were a mix of like young people that were employees and like retirees that were volunteering time,
+[00:36:57] Will: So when I went to the Garber facility 25 years ago, probably which is up in Maryland, which is where they do like the big, it's where they like restored the Enola Gay and that kind of stuff. The people that were working there was were a mix of like young people that were employees and like retirees that were volunteering time,
 
 [00:36:57] Adam: yeah,
 
-[00:36:57] Will: and just doing the kind of like the the the kind of the grunt work, like the small brushing and the Taking stuff off and putting it back on, and all that, and a lot of more ones that that had been at that time were had repaired those. What was it? A B nineteen, B twenty five. I can't remember. Anyway, World War Two era bombers because they served and were the mechanics for World War Two era bombers. It was so cool. So cool.
+[00:36:57] Will: and just doing the kind of like the the the kind of the grunt work, like the small brushing and the Taking stuff off and putting it back on, and all that, and a lot of more ones that that had been at that time were had repaired those. What was it? A B-19, B-25. I can't remember. Anyway, World War Two era bombers because they served and were the mechanics for World War Two era bombers. It was so cool. So cool.
 
 [00:37:35] Adam: The first time I saw the flying fortress and I saw the beautiful clear plastic gunner's ball on the underside. I saw one of those up close and I was like, " Oh my god! I understand another 30% of George Lucas's aesthetic."
 
@@ -1034,7 +1034,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:38:43] Adam: We have to end this podcast.
 
-[00:38:44] Will: Yeah, we're going on. Just let's just do another one. Just roll right into the next one. Marvel movies ranked one to twenty-five.
+[00:38:44] Will: Yeah, we're going on. Just let's just do another one. Just roll right into the next one. Marvel movies ranked 1 to 25.
 
 [00:38:50] Norm: We'll see you next time.
 

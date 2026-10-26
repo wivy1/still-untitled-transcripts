@@ -34,7 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:00:31] Adam: What was the temperature index in San Diego?
 
-[00:00:34] Norm: It was seventy-two.
+[00:00:34] Norm: It was 72.
 
 [00:00:34] Will: This is the
 
@@ -42,11 +42,11 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:00:35] Adam: It was great.
 
-[00:00:36] Adam: It was one hundred and six in Washington D.C.
+[00:00:36] Adam: It was 106 in Washington D.C.
 
 [00:00:38] Norm: and humid. I bet.
 
-[00:00:40] Adam: No, that's what it felt like to your body was one hundred between one hundred and three and one hundred and six.
+[00:00:40] Adam: No, that's what it felt like to your body was 100 between 103 and 106.
 
 [00:00:46] Norm: That's no good.
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:00:46] Will: and he was just like just sweat. It all it was gross.
 
-[00:00:57] Adam: So yeah. It was it was all like that, except it was also an amazing week because we were in DC celebrating Apollo's fiftieth anniversary.
+[00:00:57] Adam: So yeah. It was it was all like that, except it was also an amazing week because we were in DC celebrating Apollo's 50th anniversary.
 
 [00:01:07] Norm: How do you want to go through this? I want you to go first because I want to hear your stories first.
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:01:24] Will: There's nothing I've ever heard at this table that's made me happier than that.
 
-[00:01:27] Adam: And I have to say, I have, I have rarely encountered. It was just an amazing experience, right? Because this is like a hundred and eighty-year-old institution, which means you have the high potential for an entrenched bureaucracy in such an old institution, and that is not at all what we encountered. We encountered an organization that felt almost flat, where everyone we were dealing with. Had enthusiasm. They understood the mission. They were part of the whole process. They had authority. They had autonomy. They worked well together. Different departments. I mean, every it just was phenomenal.
+[00:01:27] Adam: And I have to say, I have, I have rarely encountered. It was just an amazing experience, right? Because this is like a 180-year-old institution, which means you have the high potential for an entrenched bureaucracy in such an old institution, and that is not at all what we encountered. We encountered an organization that felt almost flat, where everyone we were dealing with. Had enthusiasm. They understood the mission. They were part of the whole process. They had authority. They had autonomy. They worked well together. Different departments. I mean, every it just was phenomenal.
 
 [00:02:09] Will: I so I spent summers going to my grandparents in D.C. and my grandmother would take me every day. We'd hop on the metro and we'd ride up to a different museum.
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:04:15] Will: What? Oh, I didn't know that.
 
-[00:04:16] Adam: They have one of three surviving bicycles by them, and I want to tell you if you looked at this bicycle, you'd be like, 'Oh, this is a nice, like, what forty, fifty year old bicycle? No, one hundred and twenty years old.'
+[00:04:16] Adam: They have one of three surviving bicycles by them, and I want to tell you if you looked at this bicycle, you'd be like, 'Oh, this is a nice, like, what 40, 50 year old bicycle? No, 120 years old.'
 
 [00:04:28] Will: Well, it's like Douglas Adams' description of the the the people that were stuck in the cloud and figured out space flight, but they didn't really like all of that stuff. Seems like like we clearly did it,
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:04:28] Will: But it's incredible that they did it with wood struts and cloth.
 
-[00:04:41] Adam: Oh, so there’s that famous shot of the Wright Flyer just having taken off. I got a a tour of that photo by one of the employees, which was amazing. So, if you look at that photo, what you can see just behind the Wright Flyer on the ground. You can see where it was because there are footprints all the way around the silhouette of the wings and the body of the plane. So what you can see is that from where it was standing to where in the photo it's off the ground, it's like maybe ten feet. That's how fast that thing just lifted into the air, and it's all in that famous photo. That's the again. This is like I just spent the whole week getting this kind of deep download into all this all this beautiful stuff. I got to go downstairs underneath one of the old LOX rockets and look up at this big like twenty five inch wide showerhead for LOX to make the yeah it was it was thrilling. Um,
+[00:04:41] Adam: Oh, so there’s that famous shot of the Wright Flyer just having taken off. I got a a tour of that photo by one of the employees, which was amazing. So, if you look at that photo, what you can see just behind the Wright Flyer on the ground. You can see where it was because there are footprints all the way around the silhouette of the wings and the body of the plane. So what you can see is that from where it was standing to where in the photo it's off the ground, it's like maybe 10 feet. That's how fast that thing just lifted into the air, and it's all in that famous photo. That's the again. This is like I just spent the whole week getting this kind of deep download into all this all this beautiful stuff. I got to go downstairs underneath one of the old LOX rockets and look up at this big like 25 inch wide showerhead for LOX to make the yeah it was it was thrilling. Um,
 
 [00:05:39] Will: and and all those museums like the Air and Space Museum is incredible.
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:05:46] Will: Oh wow,
 
-[00:05:46] Adam: yeah, which is Okay. Okay. So. You know the Steinhart Aquarium has an incredible collection of specimens, over I think a million and a half specimens going back to 1850.
+[00:05:46] Adam: yeah, which is Okay. Okay. So. You know the Steinhart Aquarium has an incredible collection of specimens, over I think 1.5 million specimens going back to 1850.
 
 [00:06:01] Norm: That’s at
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:08:13] Will: It's it's it was it seemed like an incredible like just just how like how do you celebrate one of humanity's greatest achievements? Well, or if not humanity's greatest achievement,
 
-[00:08:23] Adam: and this was this was the Smithsonian was the one doing it right. This in conjunction with NASA, but it was the Smithsonian's party. They took over the whole mall. They had space themes exhibits across the mall all week. On Friday, I host helped host a NASA TV one hour program, which aired on the Science Channel as well about about all aspects of the fiftieth anniversary.
+[00:08:23] Adam: and this was this was the Smithsonian was the one doing it right. This in conjunction with NASA, but it was the Smithsonian's party. They took over the whole mall. They had space themes exhibits across the mall all week. On Friday, I host helped host a NASA TV one hour program, which aired on the Science Channel as well about about all aspects of the 50th anniversary.
 
 [00:08:50] Norm: In which you wore a tux and. The A7L is that right?
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:09:05] Unknown speaker: Wow!
 
-[00:09:05] Adam: I met some people I didn't realize I would meet who I have mutual friends with, so that was also awesome. But then that's me wearing a full tux at the gala. But immediately following the gala, I went out onto the mall because every night this last week they've had this incredible projection show. Fifty-nine productions. These guys that do projection mapping on large landmarks, really the best in the world at it, out of England, they built this unbelievable performance of projecting the Saturn V rocket and the moon launch onto the the the Washington Monument, and using this giant spire as a canvas in the sky. And there were moments in the projection performance. So the first thing you see is the Saturn V rocket projected actual. Perfectly full scale,
+[00:09:05] Adam: I met some people I didn't realize I would meet who I have mutual friends with, so that was also awesome. But then that's me wearing a full tux at the gala. But immediately following the gala, I went out onto the mall because every night this last week they've had this incredible projection show. 59 productions. These guys that do projection mapping on large landmarks, really the best in the world at it, out of England, they built this unbelievable performance of projecting the Saturn V rocket and the moon launch onto the the the Washington Monument, and using this giant spire as a canvas in the sky. And there were moments in the projection performance. So the first thing you see is the Saturn V rocket projected actual. Perfectly full scale,
 
 [00:09:55] Will: Moving [unclear: like like like something like this / like, like, it’s not moving like this]. You see the evaporation coming off of the tank, smoke and stuff.
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:10:48] Norm: So that that was the thing I didn't realize because I I thought that I knew it would take off and like the Saturn Five is. But 600 feet,
 
-[00:10:55] Will: three hundred and sixty-three. I think.
+[00:10:55] Will: 363. I think.
 
 [00:10:56] Norm: Yeah, it's two thirds the size of the memorial.
 
@@ -234,11 +234,11 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:11:37] Norm: no,
 
-[00:11:38] Adam: they did a tremendous job at building a really exciting narrative about the whole history of the Apollo space program using countdown clocks and archival footage and all the supporting material on side projections that were on, plus an incredible sound system. So at the end of the gala on Friday night, there were performances at 9:30, 10:30, 11:30. Uh, and I think 12:30. Yes, as well. So we saw the 10:30, 11:30, 12:30. So I had to leave the gala in my full tux, meet up with the tested crew, who had my spacesuit, and I didn't have anything interim. All I had was the tux or the A seven L. And I'm all, you know, so I'm sitting in the in the in the in the bleachers, watching the performance in my tux, and everyone's like, and you know, sometimes if you don't move too, if you don't start sweating, yeah, you can kind of maintain, yeah. So I'm in the tux. I'm moving sort of slowly, and after about half an hour, I saw Michael Giacchino, and he was like, " Aren't you sweating balls in that thing?" And I'm like, " Actually, no." And I'm kind of like getting off on looking this good in this heat, just wearing the full tux. Uh, one of the uh uh Nick, one of the organizers of this entire event went and found me a Apollo fiftieth t shirt, so I was able to wear that under the spacesuit, and we got some pictures of me. Right up next to the rocket, down there on the mall. That was just—I mean, we were up until like 1:30 in the morning, two in the morning.
+[00:11:38] Adam: they did a tremendous job at building a really exciting narrative about the whole history of the Apollo space program using countdown clocks and archival footage and all the supporting material on side projections that were on, plus an incredible sound system. So at the end of the gala on Friday night, there were performances at 9:30, 10:30, 11:30. Uh, and I think 12:30. Yes, as well. So we saw the 10:30, 11:30, 12:30. So I had to leave the gala in my full tux, meet up with the tested crew, who had my spacesuit, and I didn't have anything interim. All I had was the tux or the A seven L. And I'm all, you know, so I'm sitting in the in the in the in the bleachers, watching the performance in my tux, and everyone's like, and you know, sometimes if you don't move too, if you don't start sweating, yeah, you can kind of maintain, yeah. So I'm in the tux. I'm moving sort of slowly, and after about half an hour, I saw Michael Giacchino, and he was like, " Aren't you sweating balls in that thing?" And I'm like, " Actually, no." And I'm kind of like getting off on looking this good in this heat, just wearing the full tux. Uh, one of the uh uh Nick, one of the organizers of this entire event went and found me a Apollo 50th t shirt, so I was able to wear that under the spacesuit, and we got some pictures of me. Right up next to the rocket, down there on the mall. That was just—I mean, we were up until like 1:30 in the morning, two in the morning.
 
 [00:13:05] Will: How long did the show? The show ran for a couple hours, right?
 
-[00:13:08] Adam: No, the show. So the show—the actual projection show was like—I want to say like ten minutes.
+[00:13:08] Adam: No, the show. So the show—the actual projection show was like—I want to say like 10 minutes.
 
 [00:13:08] Will: Oh, really?
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:13:16] Adam: I mean, so like I'm watching it and I look over just as it finishes and it's bubba, and I'm like, " Oh, hey, man, how's it going?" And we had been corresponding about whether or not we were going to connect while we were in DC, and there he is like sitting right next to me, and I'm trying to talk to him, and I realize, " Oh, he's been crying because it's so moving." Yeah. It was like that was every single one of the performances kind of hit you in the gut like that.
 
-[00:13:40] Will: When—when last night I've been following this Apollo fiftieth account, which on Twitter, which has been brilliant,
+[00:13:40] Will: When—when last night I've been following this Apollo 50th account, which on Twitter, which has been brilliant,
 
 [00:13:40] Adam: hasn't it?
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:15:48] Norm: yeah.
 
-[00:15:49] Adam: So that one's not great, especially when you don't have a lot of fuel. The other one is you could go to the side and land to the side of the crater, but that has the same exact problem of you lose your." Your bearings. So the third one, which uses the most fuel, but is the one that has the most positive feedback, is just go all the way across. And you know, the the the this this it's just you realize what engine I don't know. I mean, I know that Buzz and Mike have answered these questions every day for fifty years, and yet their ability to continue to make the story thrilling is remarkable. It's a real gift to be able to do that and keep it fresh and really like believe in that mission of transmitting what a remarkable thing that it was.
+[00:15:49] Adam: So that one's not great, especially when you don't have a lot of fuel. The other one is you could go to the side and land to the side of the crater, but that has the same exact problem of you lose your." Your bearings. So the third one, which uses the most fuel, but is the one that has the most positive feedback, is just go all the way across. And you know, the the the this this it's just you realize what engine I don't know. I mean, I know that Buzz and Mike have answered these questions every day for 50 years, and yet their ability to continue to make the story thrilling is remarkable. It's a real gift to be able to do that and keep it fresh and really like believe in that mission of transmitting what a remarkable thing that it was.
 
 [00:16:41] Will: But at the same time, super mundane, right? Like they land, they get up, they're walking on the world, a new world for the first time, and Neil and Buzz have a conversation about like how much the lander sunk into the dust because they didn't understand, like we didn't know about the geology of the place
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:17:07] Adam: Was it Friday or Thursday? That was Thursday.
 
-[00:17:09] Adam: We did Project Egress. We assembled with a good team of some tested favorites: Kayte Sabicer, Sophie Wong, Mel Mel Ho, Jen Schachter, and Andrew Barth. All of us on stage assembling the forty-five pieces of the command module hatch, and it was exactly the calico exquisite corpse construction that we were hoping it would be.
+[00:17:09] Adam: We did Project Egress. We assembled with a good team of some tested favorites: Kayte Sabicer, Sophie Wong, Mel Mel Ho, Jen Schachter, and Andrew Barth. All of us on stage assembling the 45 pieces of the command module hatch, and it was exactly the calico exquisite corpse construction that we were hoping it would be.
 
 [00:17:34] Will: It was fascinating. Like I was sitting and watching.
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:17:53] Norm: Well, hats off to the Smithsonian's team because the place they put you in was a stage where people can basically stand all around you, yeah, and they were filming it because they were projecting, they were broadcasting locally.
 
-[00:18:04] Adam: So it's the Beyond Earth Gallery, and they have like. They have half a dozen remote cameras in there that they can change the angles and move them around. So, actually, at the end, here's here's what it was like working with the Smithsonian. At the end of it, we go to them and we're like, " So you guys got recorded a bunch of footage of there?" And they said, " Yeah." And they said, " Could we get maybe could we use that?" And he's like, " Have you got a hard drive?" And we hand him a hard drive, and ten minutes later, he hands us all the cameras' coverage of the footage.
+[00:18:04] Adam: So it's the Beyond Earth Gallery, and they have like. They have half a dozen remote cameras in there that they can change the angles and move them around. So, actually, at the end, here's here's what it was like working with the Smithsonian. At the end of it, we go to them and we're like, " So you guys got recorded a bunch of footage of there?" And they said, " Yeah." And they said, " Could we get maybe could we use that?" And he's like, " Have you got a hard drive?" And we hand him a hard drive, and 10 minutes later, he hands us all the cameras' coverage of the footage.
 
 [00:18:29] Will: I mean, whoever was doing the production on that did a really good job of keeping, like it's it's hard to to keep the thing that's interesting happening at any given moment in there, and they did a lovely job with it.
 
@@ -366,7 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:22:36] Will: Okay, which is you needed that space.
 
-[00:22:39] Adam: I I should have I should have shaved another fifty thou off the outside of the of the CNC MDF window frame, but that that is what it is.
+[00:22:39] Adam: I I should have I should have shaved another 50 thou off the outside of the of the CNC MDF window frame, but that that is what it is.
 
 [00:22:48] Will: The end result was absolutely lovely. I
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:23:58] Adam: No, I'm I'm terribly sorry. I can't remember all the makers off the top of my head. We'll put it in the
 
-[00:24:04] Will: forty five people out of my ten. [unclear: So / I’m so] disappointed in you.
+[00:24:04] Will: 45 people out of my 10. [unclear: So / I’m so] disappointed in you.
 
 [00:24:05] Norm: And now you want to build another one?
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:26:40] Will: Oh no!
 
-[00:26:40] Adam: So my room was eighty degrees. I look, it
+[00:26:40] Adam: So my room was 80 degrees. I look, it
 
 [00:26:59] Will: It felt nice after being outside all day.
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:29:26] Will: That's your shortest Comic Con ever, isn't it?
 
-[00:29:28] Norm: Yes. Wow. Yeah, in fifteen years. Um. Said it was. It was. You know, saying hi to friends.
+[00:29:28] Norm: Yes. Wow. Yeah, in 15 years. Um. Said it was. It was. You know, saying hi to friends.
 
 [00:29:34] Adam: Right. Yeah. You got to see. You got to see the folks from Weta.
 
@@ -530,13 +530,13 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:29:36] Unknown speaker: Yeah, cool.
 
-[00:29:36] Norm: They had some stuff from you know anniversary planet. It was the fiftieth anniversary of Comic Con. Did you realize that?
+[00:29:36] Norm: They had some stuff from you know anniversary planet. It was the 50th anniversary of Comic Con. Did you realize that?
 
 [00:30:07] Adam: No.
 
-[00:30:08] Norm: Comic Con fiftieth Comic Con. Fiftieth anniversary of Apollo 11.
+[00:30:08] Norm: Comic Con 50th Comic Con. 50th anniversary of Apollo 11.
 
-[00:30:12] Will: What was the first? The first Comic Con was probably like twenty guys in the basement of the Sheraton or something, right?
+[00:30:12] Will: What was the first? The first Comic Con was probably like 20 guys in the basement of the Sheraton or something, right?
 
 [00:30:15] Norm: It was a much smaller scale. Scale, yes, absolutely. But hung out with Kishore there.
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:32:00] Adam: Yeah, no, not bad. It's not a bad skill to have in a pinch. I have I have rescued several situations by being able to pick locks.
 
-[00:32:08] Will: It turns out, yeah, if you have that credit card lockpick set in your in your in your wallet. You can save somebody 300 bucks, no problem.
+[00:32:08] Will: It turns out, yeah, if you have that credit card lockpick set in your in your in your wallet. You can save somebody $300, no problem.
 
 [00:32:15] Adam: Yeah, if you ever meet, if you ever run into Kevin Mitnick, ask him for one of his business cards.
 

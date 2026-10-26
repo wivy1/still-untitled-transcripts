@@ -12,7 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:00:06] Norm: Still Untitled. The Adam Savage project is coming up real soon. Oh, we need your help real quick.
 
-[00:00:11] Will: Yeah, we need you to fill out a short anonymous survey. It'll take less than five minutes. It is completely anonymous, and it really helps the podcast. It will help us connect people who listen to the podcast and advertisers who want to advertise to people who listen to the podcast, so that the ads on the show make sense given the audience we have. And the best part is if you complete the survey and give them your email address, you'll be entered to win a 100 dollar gift card from Amazon.
+[00:00:11] Will: Yeah, we need you to fill out a short anonymous survey. It'll take less than five minutes. It is completely anonymous, and it really helps the podcast. It will help us connect people who listen to the podcast and advertisers who want to advertise to people who listen to the podcast, so that the ads on the show make sense given the audience we have. And the best part is if you complete the survey and give them your email address, you'll be entered to win a $100 gift card from Amazon.
 
 [00:00:33] Norm: That's pretty good, and this helps keep Still Untitled free to listen. So help us out. It'll take less than five minutes. Go to podsurvey. dot com slash Untitled. That's like the name of the show.
 
@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:00:55] Norm: That's exactly how you spell it. Go to podsurvey. dot com slash untitled and fill out the survey.
 
-[00:00:59] Will: They promise not to use your email address for anything nefarious. They won't loan it to anybody. Give it to anybody. All they're going to do is use it to email you if you win the hundred dollar gift card.
+[00:00:59] Will: They promise not to use your email address for anything nefarious. They won't loan it to anybody. Give it to anybody. All they're going to do is use it to email you if you win the $100 gift card.
 
 [00:01:07] Norm: All right. So that's it. Now on with the show.
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:04:49] Will: Literally, never happened.
 
-[00:04:50] Adam: Really, it's like getting a BB gun when you're ten.
+[00:04:50] Adam: Really, it's like getting a BB gun when you're 10.
 
 [00:04:51] Will: [unclear: Really? Yeah.] So the problem with traveling at the holidays is that everybody who's traveling never travels. It's all like like when you travel on Wednesday morning at six o'clock, you're with people who get on the plane all the time. They know the drill.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:18:00] Will: He was married.
 
-[00:18:01] Adam: He's Jamie's been married for almost thirty years.
+[00:18:01] Adam: He's Jamie's been married for almost 30 years.
 
 [00:18:04] Will: The whole time. Okay.
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:19:41] Adam: That's signaling. Yeah.
 
-[00:19:43] Will: It's it's it's a it's a forty five fifty year old level of signaling versus a twenty five year old level.
+[00:19:43] Will: It's it's it's a it's a 45 50 year old level of signaling versus a 25 year old level.
 
 [00:19:47] Adam: Twenty five. There's no signaling.
 

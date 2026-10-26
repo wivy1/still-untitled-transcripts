@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:05:41] Will: Yeah, bad things, man.
 
-[00:05:42] Adam: So I I knew that Hunter Thompson existed. I knew that Fear and Loathing in Las Vegas was a famous book, and I think I probably picked it up at nineteen, nineteen or twenty.
+[00:05:42] Adam: So I I knew that Hunter Thompson existed. I knew that Fear and Loathing in Las Vegas was a famous book, and I think I probably picked it up at 19, 19 or 20.
 
 [00:05:52] Will: It seems like the right age.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:14:32] Will: Oh, I can only imagine.
 
-[00:14:33] Adam: And Ali laughs his ass off, and they were literally like twenty minutes later. Ali's manager comes in, is like, " What's the no? You know, everyone's in trouble, including the champ."
+[00:14:33] Adam: And Ali laughs his ass off, and they were literally like 20 minutes later. Ali's manager comes in, is like, " What's the no? You know, everyone's in trouble, including the champ."
 
 [00:14:44] Will: Oh yeah. Well, I mean, the the thing about it was he was so he was so kind of the mainstream press didn't like Hunter Thompson.
 
@@ -622,7 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:23:08] Will: Well, no one has that. The voice is a very unique thing, and he he had a very unique voice.
 
-[00:23:13] Adam: He had a tremendous voice. It always felt like you were reading him, either essay or book. It always felt like you were just skating on the edge. Like this guy can't hold this together. What he's doing, and he'd wake up after like I've been awake for fifty five hours, so I popped a couple of Benzedrine and then some human adrenal extract, and then took a couple of ludes to calm myself down.
+[00:23:13] Adam: He had a tremendous voice. It always felt like you were reading him, either essay or book. It always felt like you were just skating on the edge. Like this guy can't hold this together. What he's doing, and he'd wake up after like I've been awake for 55 hours, so I popped a couple of Benzedrine and then some human adrenal extract, and then took a couple of ludes to calm myself down.
 
 [00:23:32] Will: Well, I mean, that's the thing is, there is a point two thirds of the way through Fear and Loathing in Las Vegas where you think, Oh, there is no way this is all going to wrap up. Like, there is no chance that this whole thing is going to pull together when when there is three different hotel bills and a destroyed rental car and. You know, it's it's a fantastic book.
 
@@ -642,7 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:24:22] Will: You strive to be Mike Doonesbury.
 
-[00:24:24] Adam: I do. I do. But yeah, Hunter Thompson had his was saturated in our culture at the time that I was nineteen, twenty years old.
+[00:24:24] Adam: I do. I do. But yeah, Hunter Thompson had his was saturated in our culture at the time that I was 19, 20 years old.
 
 [00:24:34] Will: So this is something you may know. Is is the character Gonzo on Muppets?
 

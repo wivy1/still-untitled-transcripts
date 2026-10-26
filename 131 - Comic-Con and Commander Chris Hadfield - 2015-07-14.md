@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:01:36] Adam: Yes.
 
-[00:01:36] Will: Thirty-six week
+[00:01:36] Will: 36 week
 
 [00:01:37] Adam: norm continues for giving some actual context to this.
 
@@ -80,9 +80,9 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:02:33] Norm: Yes,
 
-[00:02:33] Will: this is like your tenth year in a row, right?
+[00:02:33] Will: this is like your 10th year in a row, right?
 
-[00:02:35] Norm: Eleventh year.
+[00:02:35] Norm: 11th year.
 
 [00:02:36] Will: Yeah.
 
@@ -124,15 +124,15 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:03:42] Norm: And we have so much stuff going on that it's tough to get a sense of maybe like even 10% of what goes on at Comic Con. It is. It's still going on right now as we're recording this. Have you guys read online, seen what news has come out, or what? What are the big things?
 
-[00:04:01] Will: Affleck is directing a Batman movie. Which, like ten years ago, would have been the worst news ever, and now it's the only hope for the franchise.
+[00:04:01] Will: Affleck is directing a Batman movie. Which, like 10 years ago, would have been the worst news ever, and now it's the only hope for the franchise.
 
-[00:04:06] Adam: I think the town is a wonderful movie. He's a terrific director. He's great. J. J. Abrams took six thousand five hundred people out of a panel and showed them a concert of Star Wars music.
+[00:04:06] Adam: I think the town is a wonderful movie. He's a terrific director. He's great. J. J. Abrams took 6,500 people out of a panel and showed them a concert of Star Wars music.
 
-[00:04:16] Will: The sad, the sad thing is that Kevin Smith was right after that, and there is a shot of like looks like fifty people in the front of Hall H, and Kevin's doing his thing.
+[00:04:16] Will: The sad, the sad thing is that Kevin Smith was right after that, and there is a shot of like looks like 50 people in the front of Hall H, and Kevin's doing his thing.
 
 [00:04:25] Norm: And Hall H is the biggest panel where people wait in tents overnight,
 
-[00:04:29] Will: five thousand seats or something.
+[00:04:29] Will: 5,000 seats or something.
 
 [00:04:32] Adam: If you don't know about Comic Con, but you've ever read about it, what you've read about happened in Hall H.
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:05:24] Norm: Cinephile was the name of it. It was a celebration of film, our favorite films.
 
-[00:05:29] Adam: Now to give some backstory, this party started six or seven years ago. Of just as it started as a way for me to make sure I got to see my favorite people at Comic Con. So Discovery was renting me. Discovery was bringing us to Comic Con back then. They would rent me a hospitality suite, and I'd have as many of my friends as the hotel would allow, usually between forty and seventy. And then that party has grown. We rented a restaurant downstairs at the at the hotel after a few years, and then last year we were at Club in the Gaslight. We had about two hundred and fifty people. This year was at Fluxx in the Gaslight. We were at capacity at nine hundred and three.
+[00:05:29] Adam: Now to give some backstory, this party started six or seven years ago. Of just as it started as a way for me to make sure I got to see my favorite people at Comic Con. So Discovery was renting me. Discovery was bringing us to Comic Con back then. They would rent me a hospitality suite, and I'd have as many of my friends as the hotel would allow, usually between 40 and 70. And then that party has grown. We rented a restaurant downstairs at the at the hotel after a few years, and then last year we were at Club in the Gaslight. We had about 250 people. This year was at Fluxx in the Gaslight. We were at capacity at 903.
 
 [00:06:06] Will: Yeah, yeah, it was full all night. It was. It's the kind of party that quite. I mean. So here's the thing I love about the party we we do. This is the second year we've done it. It's the kind of party that I can't get into normally. So like it it was you know you you you always hear about Comic Con parties and it's always like oh that's for other people. We try to like premium members are all welcome. You have to RSVP, but come on in. And um, it's just a it's a lovely event. Yes, we have a good time. And yeah, I'll actually watch this one.
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:08:02] Norm: what?
 
-[00:08:03] Will: Yeah. So I it's not a foam style earplug. It's like a hearing aid style earplug. That's like you know. So, so you can talk with them in because the foam style earplugs you can't talk in. But for like twenty bucks, you can get a pair of earplugs that you can actually hear music through and talk. So I went to the the VIP bathroom in the back of the area, and I was in there for as the bouncer said, " Hey man, did you take three dumps while you were in there?"
+[00:08:03] Will: Yeah. So I it's not a foam style earplug. It's like a hearing aid style earplug. That's like you know. So, so you can talk with them in because the foam style earplugs you can't talk in. But for like $20, you can get a pair of earplugs that you can actually hear music through and talk. So I went to the the VIP bathroom in the back of the area, and I was in there for as the bouncer said, " Hey man, did you take three dumps while you were in there?"
 
 [00:08:25] Norm: Oh my goodness!
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:08:54] Adam: and he was probably like, oh,
 
-[00:08:55] Adam: you put the earplug in too far. Yeah, that's problem seventeen.
+[00:08:55] Adam: you put the earplug in too far. Yeah, that's problem 17.
 
 [00:08:57] Will: Yeah, we, yeah. So he's like, one of the one of the girl, one of the waiter waitresses that probably has tweezers. We'll we'll just stay here.
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:09:05] Norm: Picked you up and just like
 
-[00:09:06] Will: so. So like ten minutes later, somebody comes back with tweezers. He's like, I was like, I'll just go in the bathroom. He's like, no, you can't do that yourself.
+[00:09:06] Will: so. So like 10 minutes later, somebody comes back with tweezers. He's like, I was like, I'll just go in the bathroom. He's like, no, you can't do that yourself.
 
 [00:09:13] Adam: Turn my volume down just a little bit.
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:10:07] Norm: it's frankly it's a lot of nerds, but it's also in San Diego, and people like to party in San Diego. So we planned it better this year, so we had a good hour before the general admission where fans and test members could come and chat with you. And Adam, you met a ton of them.
 
-[00:10:24] Adam: Yeah, I spent about eighty minutes out front at the beginning of the party talking to premium members and people telling me about their stories, about stuff that they were making, troubles they were having, getting stuff done, balancing work and life. And you know, I love those conversations. It's like you know, you we talk about the stuff that we talk about, and we're kind of just responding to the world and responding to our own lives. And then people come back and let you know that what you are saying is resonating with them, and exactly the way that we're talking about it resonates with us too.
+[00:10:24] Adam: Yeah, I spent about 80 minutes out front at the beginning of the party talking to premium members and people telling me about their stories, about stuff that they were making, troubles they were having, getting stuff done, balancing work and life. And you know, I love those conversations. It's like you know, you we talk about the stuff that we talk about, and we're kind of just responding to the world and responding to our own lives. And then people come back and let you know that what you are saying is resonating with them, and exactly the way that we're talking about it resonates with us too.
 
 [00:10:55] Will: The reason we're talking about it is because we're sitting in the shop
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:12:23] Will: So it was found by the production team, but it's something that's hyper rare.
 
-[00:12:26] Adam: It's like some German quick release parachute harness buckle. It's a far out kind of [unclear: best / vessel]. It's the most esoteric prop piece, and when you can find them on eBay, they're about 800 dollars a piece.
+[00:12:26] Adam: It's like some German quick release parachute harness buckle. It's a far out kind of [unclear: best / vessel]. It's the most esoteric prop piece, and when you can find them on eBay, they're about $800 a piece.
 
 [00:12:37] Will: Wow!
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:15:45] Will: I I'm completely unsurprised. You you made you turned a closet into a spaceship.
 
-[00:15:51] Adam: I did actually. My my parents' bedroom closet was about five feet wide by about twelve feet long, and I took some cardboard and built a spaceship cockpit. But I I did it dropped away from the back wall, which I painted black with a star field and a fluorescent light, so I could sit in my cockpit and look at space.
+[00:15:51] Adam: I did actually. My my parents' bedroom closet was about five feet wide by about 12 feet long, and I took some cardboard and built a spaceship cockpit. But I I did it dropped away from the back wall, which I painted black with a star field and a fluorescent light, so I could sit in my cockpit and look at space.
 
 [00:16:12] Chris Hadfield: My brother and I had adjoining beds in a shared bedroom, but at night, when lights go out, we would both, in each of our beds, pull our knees up, which became the instrument panel in front of us. And we flew the most complex space missions ever, but entirely imaginary in the dark. But you needed you needed an instrument panel in front of you in order to give a feeling of reality to it.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:17:19] Chris Hadfield: Yeah, yeah.
 
-[00:17:19] Adam: He said, " I've got this vehicle. It runs really rough for the first twenty-five minutes, and then it doesn't make any sound at all."
+[00:17:19] Adam: He said, " I've got this vehicle. It runs really rough for the first 25 minutes, and then it doesn't make any sound at all."
 
 [00:17:25] Unknown speaker: That's
 
@@ -392,11 +392,11 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:20:00] Adam: Like oh wow. It was moving this that amount of heat. But then once I put fans in the helmet, which is really the thing I was trying to use the cooling to do, I was able to keep the visor clear and I only had to turn on the garment about you know two out of every five minutes. And I've got switches that are easily accessible in the backpacks that we can use to turn on both our blowers and our and our cooling units.
 
-[00:20:21] Chris Hadfield: When you come out of the pool training for a spacewalk. It's weird. You're working hard, so you have the thing turned up, keep you really cool. And then for like the last ten minutes, there's a quiet period. They're extricating you out of your suit, and almost everybody comes out of the suit hypothermic because they forget to turn the temperature back up.
+[00:20:21] Chris Hadfield: When you come out of the pool training for a spacewalk. It's weird. You're working hard, so you have the thing turned up, keep you really cool. And then for like the last 10 minutes, there's a quiet period. They're extricating you out of your suit, and almost everybody comes out of the suit hypothermic because they forget to turn the temperature back up.
 
 [00:20:36] Adam: Right.
 
-[00:20:21] Chris Hadfield: And so for the last ten minutes, right against your whole skin, you have ice cold water flowing for a while. So after a while, you learn that that it's a really effective way to chill your body down, especially you know on the exposed vessels by the skin.
+[00:20:21] Chris Hadfield: And so for the last 10 minutes, right against your whole skin, you have ice cold water flowing for a while. So after a while, you learn that that it's a really effective way to chill your body down, especially you know on the exposed vessels by the skin.
 
 [00:20:49] Adam: And I'd heard this from the Henson people. They've built cooling suits for like Bear in the Big Blue House. That costume has a cooling system built into it. And when Henson was first experimenting with it, they had trouble with their with their puppeteers getting hypothermic. And it gets so warm in those costumes. I mean, when the guy who played Godzilla was in the Godzilla suit, he they'd pour out a tea cup of sweat every five minutes he was in the suit. Oh. So you don't even think hypothermia would remotely be possible.
 

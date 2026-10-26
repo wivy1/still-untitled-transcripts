@@ -60,11 +60,11 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:02:34] Norm: exactly
 
-[00:02:34] Adam: one twenty eight gig.
+[00:02:34] Adam: 128 gig.
 
-[00:02:36] Norm: Oh, you have one twenty eight, I’m sixty four.
+[00:02:36] Norm: Oh, you have 128, I’m 64.
 
-[00:02:38] Will: Yeah, I only— sixty four is as much as I need. This is more maintenance.
+[00:02:38] Will: Yeah, I only— 64 is as much as I need. This is more maintenance.
 
 [00:02:41] Adam: I went fully crazy.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:05:09] Adam: So Wi-Fi assist. Tell me correctly. Is it? Only Wi-Fi does Wi-Fi Assist part of the new iOS or is it only work on the S phones? Okay, so I made my whole I went through my whole family and turned off all our Wi-Fi Assist, but we basically use 50% of our data plan in the six days following the launch of the new iOS.
 
-[00:05:28] Will: Yep, I used sixteen gigabytes in four days.
+[00:05:28] Will: Yep, I used 16 gigabytes in four days.
 
 [00:05:31] Adam: Yeah,
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:06:57] Norm: consensus.
 
-[00:06:59] Will: What is sixteen gigs?
+[00:06:59] Will: What is 16 gigs?
 
 [00:06:59] Adam: So, so who collected money? Who collected you use 16 gigs?
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:07:21] Adam: I was so close. I was like, Everybody's phone off.
 
-[00:07:24] Will: You know, they only charge like a ten cents a gigabyte or something. It's not super expensive.
+[00:07:24] Will: You know, they only charge like a $0.10 a gigabyte or something. It's not super expensive.
 
 [00:07:29] Adam: I know, but I got.
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:14:40] Will: Oh wow! In the Futurama sense,
 
-[00:14:42] Norm: yes, where Futurama has like really smart math and concepts. Here they they take like tropes from science fiction novels, parallel universes, multiple timelines, Inception, you know, and all these tropes, and write it into this twenty-three minute episode in this really really funny way.
+[00:14:42] Norm: yes, where Futurama has like really smart math and concepts. Here they they take like tropes from science fiction novels, parallel universes, multiple timelines, Inception, you know, and all these tropes, and write it into this 23 minute episode in this really really funny way.
 
 [00:15:01] Adam: Wow!
 
@@ -452,11 +452,11 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:16:02] Adam: okay that was the
 
-[00:16:04] Will: that's the premise of the show that he was on but now it's thirty years later and he's kind of washed up but maybe knows that he's washed up but also doesn't know that he's washed up it's a Will Arnett joint so like it's oh it's Will Arnett being Will Arnett
+[00:16:04] Will: that's the premise of the show that he was on but now it's 30 years later and he's kind of washed up but maybe knows that he's washed up but also doesn't know that he's washed up it's a Will Arnett joint so like it's oh it's Will Arnett being Will Arnett
 
 [00:16:15] Adam: and so it starts off really strong but isn't
 
-[00:16:18] Will: I like I, I haven't gotten all the way through the second season I know a lot of people really liked it I thought that the first like five or six episodes are spectacular but but yeah it's it's it's worth watching like it's it's fun it's like thirty minutes it's the kind of thing that I put on at ten o'clock if I want to watch something else before I go to sleep it's it's great for that
+[00:16:18] Will: I like I, I haven't gotten all the way through the second season I know a lot of people really liked it I thought that the first like five or six episodes are spectacular but but yeah it's it's it's worth watching like it's it's fun it's like 30 minutes it's the kind of thing that I put on at ten o'clock if I want to watch something else before I go to sleep it's it's great for that
 
 [00:16:35] Adam: okay and now speaking of animals hold on
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:20:01] Will: and like our brains, the the brains as you get higher up the evolutionary ladder, the brains are kind of super sets of the brains that came below. It's the reason we call the limbic system the reptile brain; it's because it is literally the reptile brain.
 
-[00:20:13] Adam: But when you watch elephants communicating with each other, and you realize that if you study them long enough, that elephants can recognize up to a thousand faces.
+[00:20:13] Adam: But when you watch elephants communicating with each other, and you realize that if you study them long enough, that elephants can recognize up to 1,000 faces.
 
 [00:20:22] Will: Wow!
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:22:09] Will: And the book is " Beyond Words: What Animals Think and Feel" by Carl Safina.
 
-[00:22:13] Adam: Yeah, and again, I'm a hundred, only 150 pages in. I just got it the other day. It's fantastic.
+[00:22:13] Adam: Yeah, and again, I'm 100, only 150 pages in. I just got it the other day. It's fantastic.
 
 [00:22:18] Will: Could take a horrible turn where the dogs rise up and murder us all. I don't know.
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:23:37] Norm: [unclear: borders / burgers]
 
-[00:23:37] Will: until you had the the the the you know specialized labor. So you didn't, so that everyone wasn't focused on the same ten things
+[00:23:37] Will: until you had the the the the you know specialized labor. So you didn't, so that everyone wasn't focused on the same 10 things
 
 [00:23:46] Adam: exactly:
 
@@ -780,7 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:27:57] Norm: Yes.
 
-[00:27:57] Will: And then the Tuesday after that, the twenty sixth or twenty seventh,
+[00:27:57] Will: And then the Tuesday after that, the 26th or 27th,
 
 [00:28:01] Norm: sold out.
 

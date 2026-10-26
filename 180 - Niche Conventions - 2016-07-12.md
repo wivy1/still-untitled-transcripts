@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:02:29] Rebecca: I love Minneapolis, but it costs the same amount to fly there as it would for me to fly to Nicaragua on a surf vacation.
 
-[00:02:37] Adam: Do you know one time? Have I told the story? So one time, Jamie and I had an appearance in Fresno. I'm not going to make this a Shaggy Dog story, no, I could. And it costs a fortune to fly to Fresno because the short California hops are super expensive. It was going to cost 1,900 bucks for two round trip tickets
+[00:02:37] Adam: Do you know one time? Have I told the story? So one time, Jamie and I had an appearance in Fresno. I'm not going to make this a Shaggy Dog story, no, I could. And it costs a fortune to fly to Fresno because the short California hops are super expensive. It was going to cost $1,900 for two round trip tickets
 
 [00:02:37] Rebecca: What?
 
@@ -68,7 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:02:37] Norm: Whoa.
 
-[00:02:37] Adam: which which cost a total of 1,800 dollars.
+[00:02:37] Adam: which which cost a total of $1,800.
 
 [00:03:13] Rebecca: That's awesome.
 
@@ -80,9 +80,9 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:03:23] Norm: How long was the flight?
 
-[00:03:25] Adam: Forty five minutes.
+[00:03:25] Adam: 45 minutes.
 
-[00:03:25] Norm: Forty five minutes by helicopter
+[00:03:25] Norm: 45 minutes by helicopter
 
 [00:03:27] Adam: from here to Fresno.
 
@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:03:33] Rebecca: yeah,
 
-[00:03:33] Adam: like less than two grand. That's totally reasonable way to get to Fresno.
+[00:03:33] Adam: like less than $2,000. That's totally reasonable way to get to Fresno.
 
 [00:03:36] Rebecca: Oh my god, do you guys want to go to Fresno right now?
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:05:14] Rebecca: Oh, good.
 
-[00:05:14] Adam: It turns out that like a, a, a certain number of CCs, I can't remember exactly what it is, but you use a syringe of like forty CCs of hydrogen peroxide will make most dogs is an emetic, makes most dogs vomit immediately, and then you feed them activated charcoal to soak it up. But we we went through this whole thing, cost a fortune.
+[00:05:14] Adam: It turns out that like a, a, a certain number of CCs, I can't remember exactly what it is, but you use a syringe of like 40 CCs of hydrogen peroxide will make most dogs is an emetic, makes most dogs vomit immediately, and then you feed them activated charcoal to soak it up. But we we went through this whole thing, cost a fortune.
 
 [00:05:14] Unknown speaker: Oh my God.
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:10:21] Norm: Yeah. Now there's going to be a full video about this whole project and the whole build, but how did you come out at the end of it?
 
-[00:10:27] Adam: I came out victorious by the seat of my pants, which turns out to be my brand. Just like I didn't plan it that way. So I had the Strandbeest that I built was with 12 legs, so six pairs of legs. Each leg has. Uh, one, two, three, four, five, six, seven, eight, nine, ten, eleven, twelve, thirteen, thirteen spars. Each leg has thirteen spars. Every spar has bushings at the end.
+[00:10:27] Adam: I came out victorious by the seat of my pants, which turns out to be my brand. Just like I didn't plan it that way. So I had the Strandbeest that I built was with 12 legs, so six pairs of legs. Each leg has. Uh, one, two, three, four, five, six, seven, eight, nine, 10, 11, 12, 13, 13 spars. Each leg has 13 spars. Every spar has bushings at the end.
 
 [00:10:53] Rebecca: What's a spar? What's a bushing?
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:18:34] Norm: exactly. How big was that SkepchickCon at Minneapolis?
 
-[00:18:36] Rebecca: Well, the the overall con is called Convergence, and that's like I think they're up to maybe eight thousand people.
+[00:18:36] Rebecca: Well, the the overall con is called Convergence, and that's like I think they're up to maybe 8,000 people.
 
 [00:18:43] Norm: That's a good number.
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:18:52] Rebecca: It's it's great. It's it's been great for us. We've been doing it for about a decade, and because it's a larger con, we are able to find a lot of new people who have never heard of us who just showed up for like a Star Trek panel, and then they wandered into our global warming panel with a bunch of awesome women on stage. You know, and we're like, oh, this is great. Where has this been all my life?
 
-[00:19:12] Norm: I mean, we talk a lot on the podcast about wanting to visit makerspaces, big and small. You know, from giant workshops to garages, and I think the same applies to conventions. Like there are so many conventions out there, gatherings that are, you know, from fifty people to two hundred people to even less than a thousand, fewer than a thousand people that are really interesting that most people don't cover and media doesn't cover.
+[00:19:12] Norm: I mean, we talk a lot on the podcast about wanting to visit makerspaces, big and small. You know, from giant workshops to garages, and I think the same applies to conventions. Like there are so many conventions out there, gatherings that are, you know, from 50 people to 200 people to even less than 1,000, fewer than 1,000 people that are really interesting that most people don't cover and media doesn't cover.
 
 [00:19:34] Adam: Well, I think it's also one of those secondary aspects of the web making the world a little smaller because not only does the internet allow people to find communities, but it allows them to gather those communities on short notice sometimes and. Share their enthusiasms in one place.
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:24:08] Adam: I wished I could have gone.
 
-[00:24:09] Norm: Yeah. So this is a set up stage. About fifty people showed up from this, you know, this online community of people who build props and costumes and even replica cars, and they brought their projects to have on display. And it was just like a full day long party where people showed off new projects or shared information about their projects and met each other in person for the first time.
+[00:24:09] Norm: Yeah. So this is a set up stage. About 50 people showed up from this, you know, this online community of people who build props and costumes and even replica cars, and they brought their projects to have on display. And it was just like a full day long party where people showed off new projects or shared information about their projects and met each other in person for the first time.
 
 [00:24:32] Adam: They also go. There's some secret projects too that people bring up there that like aren't necessarily for public consumption.
 
@@ -682,13 +682,13 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:26:06] Adam: It’s like a Jenny Holzer add-on.
 
-[00:26:07] Norm: Yeah. Okay. And the guy who built that one, building it for twenty years, Sean Bishop, he had talked about like twenty years ago, which again, that's in the '90s, I guess, right?
+[00:26:07] Norm: Yeah. Okay. And the guy who built that one, building it for 20 years, Sean Bishop, he had talked about like 20 years ago, which again, that's in the '90s, I guess, right?
 
-[00:26:20] Adam: No. Jesus, '90s was twenty years ago.
+[00:26:20] Adam: No. Jesus, '90s was 20 years ago.
 
-[00:26:22] Rebecca: Yeah. Yeah. Mid mid to late '90s were twenty years ago. You guys.
+[00:26:22] Rebecca: Yeah. Yeah. Mid mid to late '90s were 20 years ago. You guys.
 
-[00:26:27] Norm: The Rock. The Rock was twenty years ago.
+[00:26:27] Norm: The Rock. The Rock was 20 years ago.
 
 [00:26:30] Rebecca: Wow. Yeah, we're all old. Hey, kids. Yeah. On the internet, we're elderly.
 
@@ -808,7 +808,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:29:53] Rebecca: Little bit.
 
-[00:29:53] Adam: We we we've made a comprehensive list now of the costumes in my shop, and we're working through archiving them, serial numbering everything. We'll do a piece on this on tested, but I think the number is close to seventy complete costumes.
+[00:29:53] Adam: We we we've made a comprehensive list now of the costumes in my shop, and we're working through archiving them, serial numbering everything. We'll do a piece on this on tested, but I think the number is close to 70 complete costumes.
 
 [00:30:09] Rebecca: God, and that's just complete. That's not even like a random head here,
 
@@ -820,7 +820,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:30:16] Rebecca: right?
 
-[00:30:16] Adam: But yeah, it's a seventy complete full.
+[00:30:16] Adam: But yeah, it's a 70 complete full.
 
 [00:30:22] Rebecca: Yeah, that's awesome.
 

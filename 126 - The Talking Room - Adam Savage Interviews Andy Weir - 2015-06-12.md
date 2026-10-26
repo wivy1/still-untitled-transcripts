@@ -190,11 +190,11 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:10:42] Adam: right up here, and you kind of get this thing up and put it on there. It's crazy. So you you you posit here that they've mostly fixed the difficulty of moving around and of putting it on by yourself.
 
-[00:10:54] Andy Weir: Right, and that and that I I even I mentioned in the book, and that's another case where I'm a little hand wavy about it. It's like, oh, he can he can bend down, he can kneel down without too much trouble. If you ever watch the Apollo astronauts, I mean, they're I mean they they're trying to reach down with these little like. Grabber stick things, and then they stumble and fall over, and so I'm assuming that, like, you know, close to a hundred years of technological advancements since the Apollo days should be sufficient.
+[00:10:54] Andy Weir: Right, and that and that I I even I mentioned in the book, and that's another case where I'm a little hand wavy about it. It's like, oh, he can he can bend down, he can kneel down without too much trouble. If you ever watch the Apollo astronauts, I mean, they're I mean they they're trying to reach down with these little like. Grabber stick things, and then they stumble and fall over, and so I'm assuming that, like, you know, close to 100 years of technological advancements since the Apollo days should be sufficient.
 
 [00:11:22] Adam: Okay.
 
-[00:11:23] Adam: Oh, so is that what you're thinking that this might be about forty or fifty years in the future?
+[00:11:23] Adam: Oh, so is that what you're thinking that this might be about 40 or 50 years in the future?
 
 [00:11:26] Andy Weir: Actually, no. I so I'll tell you. Um, uh, I'll show to you. I'll show to you later. I can I can show you a video that I posted online. But I actually calculated the orbital trajectories that they take to get from Earth to Mars and from Mars back to Earth and all the stuff that happens in the book.
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:12:45] Andy Weir: Oh, well, I really enjoy doing research. I enjoy doing the science and sitting down doing the math. It's like that's fun to me.
 
-[00:12:52] Adam: Okay, but in looking to the history of NASA, are you is your reference library like twenty books, or a hundred books, or five hundred books?
+[00:12:52] Adam: Okay, but in looking to the history of NASA, are you is your reference library like 20 books, or 100 books, or 500 books?
 
 [00:13:00] Andy Weir: It's one computer, you know. So
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:16:57] Adam: poetry on the left and plays and movie screenplays on the right.
 
-[00:17:01] Andy Weir: There we go. But so I always wanted to be a writer, and then but I also like eating regularly, and I like having a place to live that is not a cardboard box in an alley, you know, stuff like that. So I'm a computer programmer. I was a computer programmer by trade. I came into some money in my late twenties because I worked for AOL and they laid me off. And they laid me off at a time that forced me to sell my stock options when they were at their peak, so I assure you, I would not have made a wise financial decision if I hadn't been forced to.
+[00:17:01] Andy Weir: There we go. But so I always wanted to be a writer, and then but I also like eating regularly, and I like having a place to live that is not a cardboard box in an alley, you know, stuff like that. So I'm a computer programmer. I was a computer programmer by trade. I came into some money in my late 20s because I worked for AOL and they laid me off. And they laid me off at a time that forced me to sell my stock options when they were at their peak, so I assure you, I would not have made a wise financial decision if I hadn't been forced to.
 
 [00:17:30] Adam: Wow!
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:18:08] Adam: Get feedback, and yeah,
 
-[00:18:09] Andy Weir: exactly. And so I did that for like ten years, just writing things, posting it up there, and slowly accumulating an audience. And so I had thousands of regular readers by the time I started writing The Martian. Which helps a lot because that started this word of mouth thing.
+[00:18:09] Andy Weir: exactly. And so I did that for like 10 years, just writing things, posting it up there, and slowly accumulating an audience. And so I had thousands of regular readers by the time I started writing The Martian. Which helps a lot because that started this word of mouth thing.
 
 [00:18:23] Adam: These readers, they come back to your site and see updates. You were serializing the writing process.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:18:44] Adam: yeah,
 
-[00:18:44] Andy Weir: stories. Conan Doyle. So anyway, a few years back, I wrote a short story called " The Egg," which was really popular, like millions and millions of page views, and people post the entire content. It's a thousand words long. It's like a page and a half, but people really liked it. It's a good digestible story for the internet era. It's something you can read in five minutes and be done with, and people liked it. So that brought a lot of readers to my site. Anyway, The Martian was just one of the things I wrote. It was just like, okay, I'm going to write a serial about a guy trapped on Mars. If you think about it, is it is kind of a 1950s Serial.
+[00:18:44] Andy Weir: stories. Conan Doyle. So anyway, a few years back, I wrote a short story called " The Egg," which was really popular, like millions and millions of page views, and people post the entire content. It's 1,000 words long. It's like a page and a half, but people really liked it. It's a good digestible story for the internet era. It's something you can read in five minutes and be done with, and people liked it. So that brought a lot of readers to my site. Anyway, The Martian was just one of the things I wrote. It was just like, okay, I'm going to write a serial about a guy trapped on Mars. If you think about it, is it is kind of a 1950s Serial.
 
 [00:19:21] Adam: Oh no, it's and it's relentless. Like each thing, you're like, oh, oh my god, this poor guy. So, did you put up a few a chapter at a time?
 
@@ -342,13 +342,13 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:21:21] Adam: Right.
 
-[00:21:21] Andy Weir: So they make their money off their content. So you must charge at least 99 cents. Well, basically, it works out to be the lowest you can set your share to is 30%, and the lowest price you can set is 99 cents. So I'm like, okay, 99 cents. My royalty is thirty thirty big pennies per copy. There you go. So I say, all right, everybody, now you can read it my website, or you can download it for free for your e reader here, or you can pay a buck to have Amazon put it on your e reader for you. Basically, think of it that way. And within a month or two, more people had bought it from Amazon than had downloaded it for free. Because
+[00:21:21] Andy Weir: So they make their money off their content. So you must charge at least $0.99. Well, basically, it works out to be the lowest you can set your share to is 30%, and the lowest price you can set is $0.99. So I'm like, okay, $0.99. My royalty is thirty thirty big pennies per copy. There you go. So I say, all right, everybody, now you can read it my website, or you can download it for free for your e reader here, or you can pay $1 to have Amazon put it on your e reader for you. Basically, think of it that way. And within a month or two, more people had bought it from Amazon than had downloaded it for free. Because
 
 [00:22:00] Adam: That's hilarious.
 
 [00:22:01] Adam: That's just the cost of convenience.
 
-[00:22:02] Andy Weir: Yes, the and I guess people a buck is not a big barrier to entry for a lot of people.
+[00:22:02] Andy Weir: Yes, the and I guess people $1 is not a big barrier to entry for a lot of people.
 
 [00:22:07] Adam: Well, I assume I assume it very quickly started getting reviews on Amazon.
 
@@ -360,11 +360,11 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:22:19] Adam: there's a lot.
 
-[00:22:19] Andy Weir: Well, I didn't even realize at the time how well it was selling. I was like, it's selling, but I don't know. You know, they have the daily reports, and it's like, oh, here's how many copies you've sold. I'm like, but I don't know what that means. I don't know. What good sales are or bad sales, or what, and it's like, oh, I'm selling about three hundred copies a day. I don't know what that means, and so I go. There's this forum that they had for all the KDP authors, where you're automatically a member and you can chat about it and stuff like that. And people are like, oh, today was a great day. I sold five copies of my book. I'm like, okay, I think then mine must be selling abnormally well. And then it made it into the like sci-fi top ten and you know technical top ten and stuff like that. Once it gets there, then it really spikes because
+[00:22:19] Andy Weir: Well, I didn't even realize at the time how well it was selling. I was like, it's selling, but I don't know. You know, they have the daily reports, and it's like, oh, here's how many copies you've sold. I'm like, but I don't know what that means. I don't know. What good sales are or bad sales, or what, and it's like, oh, I'm selling about 300 copies a day. I don't know what that means, and so I go. There's this forum that they had for all the KDP authors, where you're automatically a member and you can chat about it and stuff like that. And people are like, oh, today was a great day. I sold five copies of my book. I'm like, okay, I think then mine must be selling abnormally well. And then it made it into the like sci-fi top 10 and you know technical top 10 and stuff like that. Once it gets there, then it really spikes because
 
 [00:23:01] Adam: It makes the front page.
 
-[00:23:03] Andy Weir: Yeah, people are like, oh, I don't know what I want. What are the top ten sci-fi? Oh, I'll take it. And then from there, that got the attention of Random House, or Crown Publishing, which is part of Random House, and they said, you know, they wanted to make a a print edition. So there's an editor at at Crown named Julian Pavia, and he he was like, hmm, I want to make a print version of this book. I like it, but I wanna I wanna I want an opinion from someone outside the company. And so he talked to a colleague of his named David Fugate, and David's a literary agent, and he said, " David, I want you to take a look at this and tell me whether you think this is something that is publishable. I want external opinion." David read it and said, " Like, yes, I think it's publishable." Then he came to me and said, " Like, do you need an agent?" I'm like, " Yes," and he's like, " Okay." And he turns around to Julian, " Let's talk about how much you're going to pay for this."
+[00:23:03] Andy Weir: Yeah, people are like, oh, I don't know what I want. What are the top 10 sci-fi? Oh, I'll take it. And then from there, that got the attention of Random House, or Crown Publishing, which is part of Random House, and they said, you know, they wanted to make a a print edition. So there's an editor at at Crown named Julian Pavia, and he he was like, hmm, I want to make a print version of this book. I like it, but I wanna I wanna I want an opinion from someone outside the company. And so he talked to a colleague of his named David Fugate, and David's a literary agent, and he said, " David, I want you to take a look at this and tell me whether you think this is something that is publishable. I want external opinion." David read it and said, " Like, yes, I think it's publishable." Then he came to me and said, " Like, do you need an agent?" I'm like, " Yes," and he's like, " Okay." And he turns around to Julian, " Let's talk about how much you're going to pay for this."
 
 [00:23:51] Adam: Wow!
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:36:37] Adam: Yeah,
 
-[00:36:37] Andy Weir: and he's like, and you told me how long it took him to reduce all this hydrogen, so I know how much it's extremely exothermic to do that reaction, and from that I can calculate. Basically, he had enough information to calculate the temperature increase in the hab that would happen as a result of him doing it over the time specified. And he said like, you'd go up like four hundred kelvins, so he would have died. He would have like roasted himself alive. And I'm like, I didn't find out about that until like after it was already in print. So I'm like, well, I can't fix it. There there are a million ways I could have fixed that.
+[00:36:37] Andy Weir: and he's like, and you told me how long it took him to reduce all this hydrogen, so I know how much it's extremely exothermic to do that reaction, and from that I can calculate. Basically, he had enough information to calculate the temperature increase in the hab that would happen as a result of him doing it over the time specified. And he said like, you'd go up like 400 kelvins, so he would have died. He would have like roasted himself alive. And I'm like, I didn't find out about that until like after it was already in print. So I'm like, well, I can't fix it. There there are a million ways I could have fixed that.
 
 [00:37:05] Adam: Right.
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:37:50] Adam: Yeah,
 
-[00:37:50] Andy Weir: and I think they're used to reading like hand wavy, silly sci fi. So just something that takes it seriously at all to them gets an immediate plus fifty points.
+[00:37:50] Andy Weir: and I think they're used to reading like hand wavy, silly sci fi. So just something that takes it seriously at all to them gets an immediate plus 50 points.
 
 [00:37:59] Adam: Hadfield was totally. I mean, that was the thing he found the most exciting. He said to me, " I ran into him in Sydney, Australia, a few months ago, and he said, 'I want to find out who his source was at NASA because he knows things that are really hard to learn.'"
 
@@ -704,11 +704,11 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:41:34] Andy Weir: Correct.
 
-[00:41:34] Adam: They're gonna make it PG thirteen.
+[00:41:34] Adam: They're gonna make it PG-13.
 
 [00:41:36] Andy Weir: That's what they're shooting for.
 
-[00:41:36] Adam: Okay, so if it's PG thirteen, they get one f bomb.
+[00:41:36] Adam: Okay, so if it's PG-13, they get one f bomb.
 
 [00:41:40] Andy Weir: Yep.
 
@@ -722,7 +722,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:41:46] Adam: it's it's it's it's in the very beginning.
 
-[00:41:47] Andy Weir: Yeah, he mentioned he mentioned like we get one f word. We're using it in the first thirty seconds.
+[00:41:47] Andy Weir: Yeah, he mentioned he mentioned like we get one f word. We're using it in the first 30 seconds.
 
 [00:41:51] Adam: Yeah, exactly.
 
@@ -780,7 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:44:30] Andy Weir: You're dead. Yeah. You you need. You will either freeze to death or just not have enough power to make it to your destination in time.
 
-[00:44:37] Adam: So one of the problems I found most surprising in Watney's execution of a solution was the dust storm. Mostly it was there's a problem coming. I now understand what the problem is. I'm exhausted. It's been however many hundreds of days on Mars so far, and yet even despite the exhaustion, it was so astronaut like him to leave the monitors of the atmosphere eighty kilometers apart to be able to determine which direction the storm was moving in. That is the kind of solution that only a deeply inculcated astronaut of like this is only one solution, only one way to figure this out, and it's going to take me three days of staying in the same place. That was shocking to me,
+[00:44:37] Adam: So one of the problems I found most surprising in Watney's execution of a solution was the dust storm. Mostly it was there's a problem coming. I now understand what the problem is. I'm exhausted. It's been however many hundreds of days on Mars so far, and yet even despite the exhaustion, it was so astronaut like him to leave the monitors of the atmosphere 80 kilometers apart to be able to determine which direction the storm was moving in. That is the kind of solution that only a deeply inculcated astronaut of like this is only one solution, only one way to figure this out, and it's going to take me three days of staying in the same place. That was shocking to me,
 
 [00:45:22] Andy Weir: right? Because the whole point is like. Forward progress, forward progress, and now he's like, " God,
 
@@ -850,11 +850,11 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:48:40] Adam: Bridging whole eras
 
-[00:48:41] Andy Weir: astronaut, right? Okay. Um. He he's got a lot of interesting stories to him, but my favorite is Apollo 16 when they're launching. You know they have bio monitors on and they monitor you know everybody's heart rate and everything, breathing rate, heart rate, blood pressure, everything. Of course, during the launches, everybody's heart rate spikes, right? Right. So you go like Apollo 11 when it was launching Armstrong, Aldrin, Connors, their their Collins, sorry, um, their their heart rates like spiked up to one forty, one fifty.
+[00:48:41] Andy Weir: astronaut, right? Okay. Um. He he's got a lot of interesting stories to him, but my favorite is Apollo 16 when they're launching. You know they have bio monitors on and they monitor you know everybody's heart rate and everything, breathing rate, heart rate, blood pressure, everything. Of course, during the launches, everybody's heart rate spikes, right? Right. So you go like Apollo 11 when it was launching Armstrong, Aldrin, Connors, their their Collins, sorry, um, their their heart rates like spiked up to 140, 150.
 
 [00:49:11] Adam: Yeah.
 
-[00:49:11] Andy Weir: You know, normal resting heart rate is like sixty, seventy, right? Uh, John Young's on the Apollo 16 launch never got above seventy. So it's like what your heart rate is right now.
+[00:49:11] Andy Weir: You know, normal resting heart rate is like 60, 70, right? Uh, John Young's on the Apollo 16 launch never got above 70. So it's like what your heart rate is right now.
 
 [00:49:22] Adam: That's what he was pulling. What six Gs?
 
@@ -900,9 +900,9 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:51:43] Andy Weir: Because we could be very close together, or we can be like very far apart.
 
-[00:51:47] Adam: And what that's difference between what like fourteen minutes and twenty minutes?
+[00:51:47] Adam: And what that's difference between what like 14 minutes and 20 minutes?
 
-[00:51:50] Andy Weir: I think it can be. I think it it can be as high as like twenty two minutes and as low as like five.
+[00:51:50] Andy Weir: I think it can be. I think it it can be as high as like 22 minutes and as low as like five.
 
 [00:51:56] Adam: Wow.
 

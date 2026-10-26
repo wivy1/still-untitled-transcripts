@@ -10,11 +10,11 @@ Episode URL: https://www.youtube.com/watch?v=2TG_pm98W8c
 
 [00:00:04] Norm: Adam, it's really good to see you, man.
 
-[00:00:07] Adam: It is really good to see you, man. I am. We're recording this on this day, the day you're listening to it. If you're listening to it when it came out on Tuesday, and and last night our our friend and my colleague, MythBusters colleague and Industrial Light and Magic colleague, Grant Imahara, passed away. Um, and it is. I have been texting nonstop for the past fourteen hours with hundreds of people, and it's just feeling super important to have contact with people that I love and know and work with, and like all of that contact feels really, really important right now.
+[00:00:07] Adam: It is really good to see you, man. I am. We're recording this on this day, the day you're listening to it. If you're listening to it when it came out on Tuesday, and and last night our our friend and my colleague, MythBusters colleague and Industrial Light and Magic colleague, Grant Imahara, passed away. Um, and it is. I have been texting nonstop for the past 14 hours with hundreds of people, and it's just feeling super important to have contact with people that I love and know and work with, and like all of that contact feels really, really important right now.
 
 [00:00:52] Norm: Yeah, I'm so sorry for your loss. I mean, it's so sudden. It's yeah, it's it's crazy. I didn't know Grant as well as you. I only met him, you know, saw him a couple times a year at things like San Diego Comic Con or Dragon Con, and I know even outside of MythBusters, he was. We had a lot, you know, our friend circles, Venned, and he was such a massive, you know, fan and geek of all the things that we love, and I just love to, you know, hear about hear stories that.
 
-[00:01:29] Adam: Yeah, well, I mean, it's so it's. I was on a Zoom last night with fifty or sixty of Grant's friends from across the twenty-two or twenty-three years that I've known him. My friend Don Bies actually has known Grant since '93.
+[00:01:29] Adam: Yeah, well, I mean, it's so it's. I was on a Zoom last night with 50 or 60 of Grant's friends from across the 22 or 23 years that I've known him. My friend Don Bies actually has known Grant since '93.
 
 [00:01:47] Norm: Wow!
 

@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:01:19] Adam: The the diversity of the New York City Comic Con blows everything I've I've attended away. I mean,
 
-[00:01:25] Will: I mean, I was gonna say that is the thing about New York is like the subway can absorb a hundred thousand people in like six minutes. No big deal.
+[00:01:25] Will: I mean, I was gonna say that is the thing about New York is like the subway can absorb 100,000 people in like six minutes. No big deal.
 
 [00:01:31] Adam: Exactly.
 
@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:03:04] Adam: If you did get turned away, I am really sorry. It was a again; it was packed. We filled the room. It was delight. The same room we did the Star Trek StarTalk panel.
 
-[00:03:12] Norm: Yes, twenty two hundred people.
+[00:03:12] Norm: Yes, 2,200 people.
 
 [00:03:14] Adam: Wow, an awesome crowd. I love. I just love that crowd. Do
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:05:48] Will: that's cool.
 
-[00:05:48] Adam: Yeah, no, it was totally cool. Um, I went out on the on Saturday, my last day at the con, and put on an incredible mask that was built by my friend Steve Neill down in Los Angeles, who's a Old school effects tech cut his teeth with Rick Baker on animatronics and mask and gorilla stuff for you know thirty forty years, and Steve made a Moonwatcher mask. From Moonwatcher is the lead ape from 2001, a space Odyssey, and it's incredible with animatronics. So when you open the mouth, the lips curl back. It's totally mind blowing.
+[00:05:48] Adam: Yeah, no, it was totally cool. Um, I went out on the on Saturday, my last day at the con, and put on an incredible mask that was built by my friend Steve Neill down in Los Angeles, who's a Old school effects tech cut his teeth with Rick Baker on animatronics and mask and gorilla stuff for you know 30 40 years, and Steve made a Moonwatcher mask. From Moonwatcher is the lead ape from 2001, a space Odyssey, and it's incredible with animatronics. So when you open the mouth, the lips curl back. It's totally mind blowing.
 
 [00:06:22] Will: How does it? Does it?
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:18:15] Will: you see an IMAX in the fake IMAX at Lincoln Center, or no?
 
-[00:18:17] Adam: I saw it in IMAX at the AMC Twenty Five in Times Square.
+[00:18:17] Adam: I saw it in IMAX at the AMC 25 in Times Square.
 
 [00:18:20] Norm: It's fake IMAX. It's fake
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:19:43] Will: No, no, I, I, I know, I know. I am just saying, like that's the kind of thing that, like, the theater by theater could be different.
 
-[00:19:48] Norm: If you are watching in New York and you are going to AMC Twenty Five. Dolby Vision, 100%, and the audio.
+[00:19:48] Norm: If you are watching in New York and you are going to AMC 25. Dolby Vision, 100%, and the audio.
 
 [00:19:54] Adam: The audio is.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:20:21] Adam: Yeah,
 
-[00:20:21] Will: and when you watch it at home, even on like a sixty inch TV, it feels like toys fighting.
+[00:20:21] Will: and when you watch it at home, even on like a 60 inch TV, it feels like toys fighting.
 
 [00:20:21] Adam: Yeah.
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:20:45] Norm: So you're talking about that same idea applies to the cityscapes. I'm
 
-[00:20:48] Will: talking about the cityscapes. There are these incredible establishing shots of the different locations that they go, whether it's you know the the a desert or a you know Los Angeles or whatever, and there is so much detail in every single frame of what you can see in the city that I was just sitting there and I was like I I would pause this if I were able to and watch and just go up and and look at each quadrant of the screen and and kind of like take this whole thing in because because they layered like this is the other thing that I loved is it felt like they didn't do anything at least in those landscape shots with effects that they couldn't have done in the '80s with the same kind of techniques that Ridley and and and his team used on the first movie like the the compositing of the the dynamic billboards and all that stuff it seemed like it was it moved forward in time the appropriate number of years the twenty or thirty years that's between the first movie and the second movie but it didn't feel like they were they went CG crazy. I mean, I know it was all CG, but it felt like they, it was all stuff that could have been done practically.
+[00:20:48] Will: talking about the cityscapes. There are these incredible establishing shots of the different locations that they go, whether it's you know the the a desert or a you know Los Angeles or whatever, and there is so much detail in every single frame of what you can see in the city that I was just sitting there and I was like I I would pause this if I were able to and watch and just go up and and look at each quadrant of the screen and and kind of like take this whole thing in because because they layered like this is the other thing that I loved is it felt like they didn't do anything at least in those landscape shots with effects that they couldn't have done in the '80s with the same kind of techniques that Ridley and and and his team used on the first movie like the the compositing of the the dynamic billboards and all that stuff it seemed like it was it moved forward in time the appropriate number of years the 20 or 30 years that's between the first movie and the second movie but it didn't feel like they were they went CG crazy. I mean, I know it was all CG, but it felt like they, it was all stuff that could have been done practically.
 
 [00:21:50] Norm: Miniatures for the
 
@@ -934,7 +934,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:38:25] Norm: It’s got to be his face. It’s not with his wardrobe. Not with that t-shirt.
 
-[00:38:30] Will: Look, man, he's hanging out in the house. He's lounging around with his robot dog, having a thousand-dollar whiskey.
+[00:38:30] Will: Look, man, he's hanging out in the house. He's lounging around with his robot dog, having a $1,000 whiskey.
 
 [00:38:36] Norm: There are pictures
 
@@ -1024,7 +1024,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:42:14] Norm: in the film No, Sapper aged. [unclear speaker: Adam] No. Sapper, Sapper, absolutely aged.
 
-[00:42:18] Adam: Sapper Morton is twenty years old I don't think that he was aging I think they made him about that age.
+[00:42:18] Adam: Sapper Morton is 20 years old I don't think that he was aging I think they made him about that age.
 
 [00:42:22] Norm: No, no.
 
@@ -1500,7 +1500,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [01:03:42] Norm: Yeah.
 
-[01:03:42] Adam: And his lieutenant says, " I can get you out of this." Building alive, but you got forty-eight hours. So that was originally the script. Apparently, as written, was he reads a line from a, a, is it a Chekhov poem? It's a poem. I think it's a Chekhov poem. And Gosling was like, " I don't really understand that," and worked with Denny and apparently a dialogue coach. I'm trying to recall this. I've only read it once so far. So,
+[01:03:42] Adam: And his lieutenant says, " I can get you out of this." Building alive, but you got 48 hours. So that was originally the script. Apparently, as written, was he reads a line from a, a, is it a Chekhov poem? It's a poem. I think it's a Chekhov poem. And Gosling was like, " I don't really understand that," and worked with Denny and apparently a dialogue coach. I'm trying to recall this. I've only read it once so far. So,
 
 [01:03:42] Will: Jeez.
 
@@ -1586,7 +1586,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [01:08:50] Will: I I do have to say it's another Ridley Scott. Produced movie about Jesus of Aliens or Jesus of Replicants or Jesus of AI or yeah so here we go look robot Jesus
 
-[01:09:03] Adam: I I I think we should finish by I I want to talk about my extreme disappointment at its difficult opening weekend that Blade Runner had they were on track they were tracking at forty seven million and the film made thirty one million domestic
+[01:09:03] Adam: I I I think we should finish by I I want to talk about my extreme disappointment at its difficult opening weekend that Blade Runner had they were on track they were tracking at 47 million and the film made 31 million domestic
 
 [01:09:16] Will: so people not show up on Sunday
 
@@ -1618,7 +1618,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [01:09:59] Will: Yeah.
 
-[01:10:05] Norm: it's how we felt about Christopher Nolan ten years ago.
+[01:10:05] Norm: it's how we felt about Christopher Nolan 10 years ago.
 
 [01:10:09] Adam: Hey, I
 
@@ -1728,7 +1728,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [01:12:09] Will: Ooh.
 
-[01:12:09] Adam: which I submit are among it's one of the great film openings in history. Um, it begins with the desert discovery in the, uh, in the Sonoran Desert of the of the flight, the famous flight lost in 1940s of of airplanes, and they all seem brand new, uh, and, uh, it then continues to air traffic controllers in a control room hearing a plane have an encounter with a UFO. Just. Spielberg, young Spielberg, showing this incendiary talent, Um, and I just I love the idea of great film openings. You talk about the first fifteen minutes of Sicario. Agreed. Nilo Rodis-Jamero exhorted me to watch Laputa or Castle in the Sky in the early '90s. He sent me to Japan to buy a Japanese VHS so I could watch it. He goes, " You won't be able to. It's not subtitled, but it doesn't matter." He said, " In the opening of Castle in the Sky is maybe one of the greatest openings in film history."
+[01:12:09] Adam: which I submit are among it's one of the great film openings in history. Um, it begins with the desert discovery in the, uh, in the Sonoran Desert of the of the flight, the famous flight lost in 1940s of of airplanes, and they all seem brand new, uh, and, uh, it then continues to air traffic controllers in a control room hearing a plane have an encounter with a UFO. Just. Spielberg, young Spielberg, showing this incendiary talent, Um, and I just I love the idea of great film openings. You talk about the first 15 minutes of Sicario. Agreed. Nilo Rodis-Jamero exhorted me to watch Laputa or Castle in the Sky in the early '90s. He sent me to Japan to buy a Japanese VHS so I could watch it. He goes, " You won't be able to. It's not subtitled, but it doesn't matter." He said, " In the opening of Castle in the Sky is maybe one of the greatest openings in film history."
 
 [01:13:20] Adam: Oh, you’re thinking about
 

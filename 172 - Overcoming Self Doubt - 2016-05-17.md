@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:02:58] Adam: Oh, fascinating!
 
-[00:02:59] Will: And I, I, I say this because I have a three year old and I've watched WALL-E probably a hundred times in the last year.
+[00:02:59] Will: And I, I, I say this because I have a three year old and I've watched WALL-E probably 100 times in the last year.
 
 [00:02:59] Unknown speaker: Sure.
 
@@ -138,7 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:04:12] Adam: Yeah, Jenny Cam.
 
-[00:04:13] Will: Yeah, there was a there was a follow up. Like, hey what happened to this girl twenty years later? I saw that.
+[00:04:13] Will: Yeah, there was a there was a follow up. Like, hey what happened to this girl 20 years later? I saw that.
 
 [00:04:17] Adam: I read that
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:14:58] Adam: to me, yeah, it's getting back into the shop and continuing to make, despite the fact that it doesn't feel like I know what I am doing.
 
-[00:15:04] Will: I I think that's a lot of the Yeah, yeah. like when I when I look when you look at novelists who are really successful. I mean, there, there’s two, there’s two opposite ends of that spectrum. Like there are many things, right? There is people that sit on one end that that write when they feel like writing and they produce some unbelievable work and and it's good, but it's a it's not at a workman like pace. On the other end, You have people like Scalzi who sits down and writes three or four thousand words every day or something insane, and and cranks out two awesome books a year on a bad year.
+[00:15:04] Will: I I think that's a lot of the Yeah, yeah. like when I when I look when you look at novelists who are really successful. I mean, there, there’s two, there’s two opposite ends of that spectrum. Like there are many things, right? There is people that sit on one end that that write when they feel like writing and they produce some unbelievable work and and it's good, but it's a it's not at a workman like pace. On the other end, You have people like Scalzi who sits down and writes 3,000 or 4,000 words every day or something insane, and and cranks out two awesome books a year on a bad year.
 
 [00:15:04] Adam: Yeah.
 

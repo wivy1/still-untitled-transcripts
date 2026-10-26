@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:04:04] Adam: Yep,
 
-[00:04:04] Will: like in the South and and the Northeast as a kid, and and just by osmosis, you you get you get the feel, and it's it's stuff that you kind of don't notice as a whole all the time, but you'll notice that like oh this this these joints are too good, so these dovetails are too good. This is probably made by a machine in the in the maybe even like the late 1800s as a knockoff of the thing that would have been a hundred years older that you actually want.
+[00:04:04] Will: like in the South and and the Northeast as a kid, and and just by osmosis, you you get you get the feel, and it's it's stuff that you kind of don't notice as a whole all the time, but you'll notice that like oh this this these joints are too good, so these dovetails are too good. This is probably made by a machine in the in the maybe even like the late 1800s as a knockoff of the thing that would have been 100 years older that you actually want.
 
 [00:04:04] Adam: Yes,
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:13:03] Norm: It gets you. It gets you out more, but not necessarily.
 
-[00:13:06] Adam: You know, my my director Steve and I were talking about this last week that someday I'll be done making MythBusters, and I think one of the first things that's going to happen is I'm going to get fat because on MythBusters I am out and in the field three days a week, rushing around and doing stuff every week, forty weeks a year.
+[00:13:06] Adam: You know, my my director Steve and I were talking about this last week that someday I'll be done making MythBusters, and I think one of the first things that's going to happen is I'm going to get fat because on MythBusters I am out and in the field three days a week, rushing around and doing stuff every week, 40 weeks a year.
 
 [00:13:24] Will: It's amazing the difference between just like walking and standing versus sitting at a desk all day.
 
@@ -378,9 +378,9 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:14:44] Adam: [unclear: Um,/—] The third part takes place on Earth.
 
-[00:14:46] Will: Five thousand years in the future.
+[00:14:46] Will: 5,000 years in the future.
 
-[00:14:48] Norm: Five thousand years
+[00:14:48] Norm: 5,000 years
 
 [00:14:48] Will: after the hard rain.
 
@@ -394,7 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:14:55] Adam: You saw it coming.
 
-[00:14:56] Norm: I saw it coming once they jumped to, um, uh, Once they jumped to two years, it took to make the to do the maneuver, and it's only like forty people, or you know, like a dozen people left.
+[00:14:56] Norm: I saw it coming once they jumped to, um, uh, Once they jumped to two years, it took to make the to do the maneuver, and it's only like 40 people, or you know, like a dozen people left.
 
 [00:15:07] Adam: You figured out that Seveneves was going to be seven.
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:15:11] Adam: Ah, well, you.
 
-[00:15:12] Will: But the but the the for me the crying started with there are forty people left, right? Out of all of what we built.
+[00:15:12] Will: But the but the the for me the crying started with there are 40 people left, right? Out of all of what we built.
 
 [00:15:19] Adam: For me, it started with that there were seven, and I really like just just the reveal that. Yeah,
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:16:56] Norm: Yes, and then maybe the, uh, Tav is supposed to be, you know, Stephenson's view of like what blogging [unclear: and and/and, and, and] popular science has become on in the blogosphere.
 
-[00:17:06] Will: I felt like I felt like that entire arc. We didn't talk about this when we talked about this a couple of weeks ago, but I felt like the Tavist arc and the the rise of the social network in the capsules in the cloud was a very strong indictment of modern social media and the the kind of Gawker style blog that has developed over the last twenty years.
+[00:17:06] Will: I felt like I felt like that entire arc. We didn't talk about this when we talked about this a couple of weeks ago, but I felt like the Tavist arc and the the rise of the social network in the capsules in the cloud was a very strong indictment of modern social media and the the kind of Gawker style blog that has developed over the last 20 years.
 
 [00:17:25] Adam: Well, Again, especially the the pointless. I mean, Neal makes it really clear his politics on the matter. The pointless echo chamber of opinion movement that Julia engenders the moment she arrives,
 
@@ -470,11 +470,11 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:17:43] Will: And and [unclear: I,/—] it's been a while since I read this, Ada. Was she Ieda? Like her, I thought. I thought even worse than Julia was the Ieda character. Her her manipulation of the willful ignorance. This we did talk about this a little bit. Like the the rise of modern American conservatism,
 
-[00:18:00] Adam: and it was fascinating to me as they went five thousand years in the future that you had a culture built on a suspicious approach to that type of [unclear: well, some help./some healthy.]
+[00:18:00] Adam: and it was fascinating to me as they went 5,000 years in the future that you had a culture built on a suspicious approach to that type of [unclear: well, some help./some healthy.]
 
-[00:18:14] Will: [unclear: It/Well, it] was racism. Yeah, I mean, it was it was look, it was it was unabashed racism. Yeah, these people, these people are opportunists. These people help everyone. These people. Yeah, and that that's like I found that part. Well, first off, I loved the idea that they had spent a significant portion of the last five thousand years blasting comets back onto the surface and doing things, reseeding it to make Earth habitable, making these doing these massive engineering projects on a multi generational scale.
+[00:18:14] Will: [unclear: It/Well, it] was racism. Yeah, I mean, it was it was look, it was it was unabashed racism. Yeah, these people, these people are opportunists. These people help everyone. These people. Yeah, and that that's like I found that part. Well, first off, I loved the idea that they had spent a significant portion of the last 5,000 years blasting comets back onto the surface and doing things, reseeding it to make Earth habitable, making these doing these massive engineering projects on a multi generational scale.
 
-[00:18:41] Adam: And if you're going to jump five thousand years. In the future, [unclear: I/Yeah. Right.] you're going to wonder, well, how how do these things progress? At what point do they reach the kind of point of no return of the ring around Earth? Because when they jump five thousand years in the future, humanity still living 99.9% of it in space in a ring that.
+[00:18:41] Adam: And if you're going to jump 5,000 years. In the future, [unclear: I/Yeah. Right.] you're going to wonder, well, how how do these things progress? At what point do they reach the kind of point of no return of the ring around Earth? Because when they jump 5,000 years in the future, humanity still living 99.9% of it in space in a ring that.
 
 [00:18:58] Norm: Billions and
 
@@ -496,11 +496,11 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:19:42] Adam: Oh, he's I mean the most. Optimistic disaster novel ever written. Actually, because it, because of the big reveal at the end.
 
-[00:19:48] Norm: Yes, and when you think of it, the reveal being five thousand years later, humanity is one. We've if we have survived for five thousand years and repopulated a point, any measure. If you look, we've we've had more than our current civilization. Have we're talking about 3000 BC to 2000 AD now? It could have ended just there. We made it. We did.
+[00:19:48] Norm: Yes, and when you think of it, the reveal being 5,000 years later, humanity is one. We've if we have survived for 5,000 years and repopulated a point, any measure. If you look, we've we've had more than our current civilization. Have we're talking about 3000 BC to 2000 AD now? It could have ended just there. We made it. We did.
 
 [00:19:48] Will: Yeah.
 
-[00:19:48] Norm: And now, just looking forward, and the consequences is what the whole third part is. The consequence is not only in the personalities and humanity as multiple races, but from a technological standpoint, what does instead of going through an Earth-based development and evolution of of how we are, you know, we’ve grown technologically, how that world in the future grew over five thousand years from a space-based from a from mechanical base engineering perspective.
+[00:19:48] Norm: And now, just looking forward, and the consequences is what the whole third part is. The consequence is not only in the personalities and humanity as multiple races, but from a technological standpoint, what does instead of going through an Earth-based development and evolution of of how we are, you know, we’ve grown technologically, how that world in the future grew over 5,000 years from a space-based from a from mechanical base engineering perspective.
 
 [00:20:37] Will: But I mean,
 
@@ -584,11 +584,11 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:24:52] Adam: Fellowship of the Ring.
 
-[00:24:52] Norm: Exactly, it's very fellowship like, and you use that as a way to tell the world. But my favorite parts were then recollecting and filling in the gaps of the five thousand years using the videotapes of like, oh, it is, it is your Dinah Day, you know, your your Eve Day, and so we'll watch the videos, and this is a big lesson, and that fills up that first two hundred years after the end of the first two books that we don't get.
+[00:24:52] Norm: Exactly, it's very fellowship like, and you use that as a way to tell the world. But my favorite parts were then recollecting and filling in the gaps of the 5,000 years using the videotapes of like, oh, it is, it is your Dinah Day, you know, your your Eve Day, and so we'll watch the videos, and this is a big lesson, and that fills up that first 200 years after the end of the first two books that we don't get.
 
 [00:25:27] Adam: Yeah.
 
-[00:25:27] Will: Well, just the thought that they had a record, or at least even a partial record, of, hey, here's what the last five thousand years were like. I mean, you assume that going forward, we're going to have a record of everything, right? We're making more data every year than we made in all of human history before that, and that's presumably going to continue for at least a while.
+[00:25:27] Will: Well, just the thought that they had a record, or at least even a partial record, of, hey, here's what the last 5,000 years were like. I mean, you assume that going forward, we're going to have a record of everything, right? We're making more data every year than we made in all of human history before that, and that's presumably going to continue for at least a while.
 
 [00:25:46] Norm: And they said they ran out of tape.
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:25:46] Norm: they ran out of storage.
 
-[00:25:48] Will: Well, and then the hard drives start failing, and you know the the nothing that we build. This is occasionally we get talked to folks who work at Long Now on the on the ten thousand year clock, and like when people build something to last for a long time, now it lasts for twenty years or a hundred years. Thinking about stuff on the scale of of you know five millennia is is is terrifying. Frankly, it's it's beyond our ability to comprehend. So I I I really like I I found the book wonderful. I hope that there's a TV series or something that continues..
+[00:25:48] Will: Well, and then the hard drives start failing, and you know the the nothing that we build. This is occasionally we get talked to folks who work at Long Now on the on the 10,000 year clock, and like when people build something to last for a long time, now it lasts for 20 years or 100 years. Thinking about stuff on the scale of of you know five millennia is is is terrifying. Frankly, it's it's beyond our ability to comprehend. So I I I really like I I found the book wonderful. I hope that there's a TV series or something that continues..
 
 [00:26:19] Norm: I think it would be like a movie, you know, a three movie. But even as a as a movie, the the tone and what the first two books you know is this combination of Interstellar and Gravity and The Martian. It's so tonally different than the third book. It's the third part of the book that to to make that into some type of popular media would be very difficult.
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:27:38] Will: oh right right theater theater is the first thing that comes back after the apocalypse
 
-[00:27:41] Adam: right. And I really believe, and when I say theater, I don't mean putting on full costumes and doing a dance routine, but I mean telling each other stories and making those stories have a greater impact. The development of storytelling, theater is just the the the the the natural extension of storytelling, [unclear: Storytelling/—] as film is, as any other art form is. And I would be interested to see what kind of art would survive after five thousand years. What it would look like. What it would feel.
+[00:27:41] Adam: right. And I really believe, and when I say theater, I don't mean putting on full costumes and doing a dance routine, but I mean telling each other stories and making those stories have a greater impact. The development of storytelling, theater is just the the the the the natural extension of storytelling, [unclear: Storytelling/—] as film is, as any other art form is. And I would be interested to see what kind of art would survive after 5,000 years. What it would look like. What it would feel.
 
 [00:28:10] Norm: And how storytelling informs the culture,
 
@@ -654,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:28:32] Norm: yeah,
 
-[00:28:32] Norm: and that's something that could only be told over time, over time, and that's what they recognize, like. Fables from five thousand years ago,
+[00:28:32] Norm: and that's something that could only be told over time, over time, and that's what they recognize, like. Fables from 5,000 years ago,
 
 [00:28:47] Will: but also the CP the pingers wouldn't if they if they evolved to live in the water, they lose the ability to write, so their their tradition becomes oral at that point. I would think,
 
@@ -706,7 +706,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:30:13] Adam: I want more of that third world. I want the third world, the third part of the book.
 
-[00:30:19] Will: Five thousand years.
+[00:30:19] Will: 5,000 years.
 
 [00:30:20] Adam: I want sequels, uh. You know, and I love the idea that it could potentially become a television series. I would take. I like this universe so much. I would take spinoff books and spinoff games. I mean, I I'm kind of really fascinated by it. Yeah.
 
@@ -786,7 +786,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:33:09] Will: Right.
 
-[00:33:09] Will: When you're talking about something that takes five thousand years, you're looking at fifty or sixty generations or more
+[00:33:09] Will: When you're talking about something that takes 5,000 years, you're looking at 50 or 60 generations or more
 
 [00:33:22] Norm: Right.
 
@@ -812,9 +812,9 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:34:11] Will: First sentence,
 
-[00:34:11] Adam: and then the book spans five thousand years, which isn't in the first sentence. But I knew that, so I kept finding myself reading part two, wondering how long is part two going to be. When I first started part two, I thought this is going to be pretty short. We're going to get there pretty quickly.
+[00:34:11] Adam: and then the book spans 5,000 years, which isn't in the first sentence. But I knew that, so I kept finding myself reading part two, wondering how long is part two going to be. When I first started part two, I thought this is going to be pretty short. We're going to get there pretty quickly.
 
-[00:34:34] Will: I thought part two would span five thousand years.
+[00:34:34] Will: I thought part two would span 5,000 years.
 
 [00:34:36] Norm: Yes, it would be a jump, and the fact that it's a jump,
 
@@ -838,13 +838,13 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:35:04] Adam: No, I think I actually think of her as heavier than that. I think of Julia as as a as a more heavy set woman, like and like, you know. [unclear: I/I’m.]
 
-[00:35:16] Norm: I had Cherry Jones from Twenty Four.
+[00:35:16] Norm: I had Cherry Jones from 24.
 
 [00:35:17] Adam: Cherry Jones would be brilliant
 
-[00:35:19] Norm: because [unclear: she was,/—] she played the president in Twenty Four. also.
+[00:35:19] Norm: because [unclear: she was,/—] she played the president in 24. also.
 
-[00:35:22] Adam: Cherry Jones would be absolutely perfect. Cherry Jones is um, her she is, uh, partners with the woman from uh Studio Sixty on the Sunset Strip um the the female star, [unclear: Uh,/—] she's also a, [unclear: a/—] long time muse and a, [unclear: a/—] cast member of John Patrick Shanley's plays. I saw her here in San Francisco in, uh, Proof. Hmm. But she'd be wonderful. That's perfect.
+[00:35:22] Adam: Cherry Jones would be absolutely perfect. Cherry Jones is um, her she is, uh, partners with the woman from uh Studio 60 on the Sunset Strip um the the female star, [unclear: Uh,/—] she's also a, [unclear: a/—] long time muse and a, [unclear: a/—] cast member of John Patrick Shanley's plays. I saw her here in San Francisco in, uh, Proof. Hmm. But she'd be wonderful. That's perfect.
 
 [00:35:46] Will: I don’t know if you could get seven women working in Hollywood today.
 

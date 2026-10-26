@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:03:10] Norm: He did talk about the, the waterfall, the city of Theed. Uh, but the thing I specifically wanted to ask you about was the, the pod racing palace. Did you work on that at all? Or the stadium?
 
-[00:03:21] Adam: The stadium. I did not. That, that happened about, about eight or ten months before I showed up.
+[00:03:21] Adam: The stadium. I did not. That, that happened about, about 8 or 10 months before I showed up.
 
 [00:03:26] Norm: Ah, so the, the fun story he told was that when they were building that stadium, and this is the, the big Jabba stadium—
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:06:22] Will: Wait, that was a real thing?
 
-[00:06:22] Adam: John Goodson on making a sixteen-foot-long Chrome Queen Ship for camera.
+[00:06:22] Adam: John Goodson on making a 16-foot-long Chrome Queen Ship for camera.
 
 [00:06:22] Unknown speaker: Wow.
 
@@ -548,11 +548,11 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:19:47] Norm: Unintentional, totally unintentional.
 
-[00:19:48] Will: But September issue is great because it shows you the the the the the work that goes into making a four hundred page magazine,
+[00:19:48] Will: But September issue is great because it shows you the the the the the work that goes into making a 400 page magazine,
 
 [00:19:56] Adam: right?
 
-[00:19:56] Will: Five hundred page magazine, which is amazing. You get to see, uh, a character that you don't see in the real world, a character that you probably saw portrayed in * The Devil Wears Prada* portrayed in the real world.
+[00:19:56] Will: 500 page magazine, which is amazing. You get to see, uh, a character that you don't see in the real world, a character that you probably saw portrayed in * The Devil Wears Prada* portrayed in the real world.
 
 [00:20:07] Adam: By the way, I'm going to do a shout out here for * The Devil Wears Prada*. I love that.
 
@@ -602,9 +602,9 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:20:57] Will: excellent documentaries because apparently you can just scoop them up by the by the thousand.
 
-[00:21:01] Norm: oh yeah they're cheap for HBO or for Netflix to get rights to as opposed to a blockbuster film and distribution for documentary films because they don't make prints they don't make four thousand prints that they do for movies you have to either wait you know be aware of these documentaries or see them when they're in your town or likely find them on HBO or Netflix.
+[00:21:01] Norm: oh yeah they're cheap for HBO or for Netflix to get rights to as opposed to a blockbuster film and distribution for documentary films because they don't make prints they don't make 4,000 prints that they do for movies you have to either wait you know be aware of these documentaries or see them when they're in your town or likely find them on HBO or Netflix.
 
-[00:21:20] Adam: It is worth noting here that when talking HBO, HBO is one of the great producers of documentary films over the past thirty years. Yeah. Sheila Nevins over there is like an incredible
+[00:21:20] Adam: It is worth noting here that when talking HBO, HBO is one of the great producers of documentary films over the past 30 years. Yeah. Sheila Nevins over there is like an incredible
 
 [00:21:35] Will: Grace Coddington.
 
@@ -804,7 +804,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:25:33] Will: Yeah.
 
-[00:25:33] Adam: You know, here's a little shout out to the post on Happy Birthday, supposedly hopefully becoming public domain, which it should have been for the last hundred years.
+[00:25:33] Adam: You know, here's a little shout out to the post on Happy Birthday, supposedly hopefully becoming public domain, which it should have been for the last 100 years.
 
 [00:25:43] Will: Although I have to say. I mean, I mean, it's going to be a bummer to go to Chevys or Chili's or TGI Fridays or Chuck E. Cheese.
 
@@ -968,7 +968,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:30:39] Will: Gravity's Rainbow.
 
-[00:30:40] Adam: Yeah. Uh, well, I mean, Gravity's Rainbow, Vineland, a million other wonderful, weird, and The Crying of Lot Forty Nine, uh, Don DeLillo, also another famously reclusive writer.
+[00:30:40] Adam: Yeah. Uh, well, I mean, Gravity's Rainbow, Vineland, a million other wonderful, weird, and The Crying of Lot 49, uh, Don DeLillo, also another famously reclusive writer.
 
 [00:30:51] Will: Yeah, recluses are hard to interview, I would think.
 

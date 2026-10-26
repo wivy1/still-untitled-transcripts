@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:00:40] Norm: Origin Stories.
 
-[00:00:41] Adam: Origin Syfy Twenty Five Origin Stories. So
+[00:00:41] Adam: Origin Syfy 25 Origin Stories. So
 
 [00:00:43] Will: you had Neil Gaiman, Chris Hardwick. I've listened to a bunch of them so far.
 
@@ -96,11 +96,11 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:03:10] Will: That's terrible.
 
-[00:03:10] Norm: It's interesting because for some of this fifteen interviews that you did, many of them were people that you were either acquainted with or friends with, that you had good rapport with. But some of them were the first time you've met them, and you were learning. I mean, the whole thing was to discuss love of science fiction and their own personal origin stories. You learn any interesting things?
+[00:03:10] Norm: It's interesting because for some of this 15 interviews that you did, many of them were people that you were either acquainted with or friends with, that you had good rapport with. But some of them were the first time you've met them, and you were learning. I mean, the whole thing was to discuss love of science fiction and their own personal origin stories. You learn any interesting things?
 
 [00:03:28] Adam: Completely, no, no, no. So, I said this in a lot of the press, but Syfy didn't Syfy came to the first meeting with me about this podcast without a list of people they were hoping I'd interview. Well,
 
-[00:03:38] Will: they want, I mean, I hope I would hope with your network of people they would come in and say, pick your twenty five favorite science fiction people, right?
+[00:03:38] Will: they want, I mean, I hope I would hope with your network of people they would come in and say, pick your 25 favorite science fiction people, right?
 
 [00:03:46] Adam: It wasn't even like that. They were just like, we don't have, we don't want to impose any. Outside thing on this, we want to work it out with you, and so I, you know, I called up the people that I knew, people like Jonathan Frakes and Neil Gaiman, and you know the guys at ILM, Doug Chiang, John, John Knoll,
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:05:53] Adam: Yeah,
 
-[00:05:53] Will: was like super interesting to go back and see that through the lens of fifty years in the past.
+[00:05:53] Will: was like super interesting to go back and see that through the lens of 50 years in the past.
 
 [00:05:53] Unknown speaker: Yeah.
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:06:46] Norm: No, and and it just you can talk about the same topic. From so many different directions, so different ways.
 
-[00:06:51] Adam: Absolutely, and there, of course, in a lot of the early tweets this weekend when this went live, people were like, " How did you not interview so and so? How did you how did you miss so and so?" And the answer is, like, when you make a list of fifteen people to try and cover the scope of science fiction, you're going to lose. There's nothing you can possibly do. I could host this podcast for twenty years and not not hit everybody.
+[00:06:51] Adam: Absolutely, and there, of course, in a lot of the early tweets this weekend when this went live, people were like, " How did you not interview so and so? How did you how did you miss so and so?" And the answer is, like, when you make a list of 15 people to try and cover the scope of science fiction, you're going to lose. There's nothing you can possibly do. I could host this podcast for 20 years and not not hit everybody.
 
 [00:07:14] Will: There's an infinity of people.
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:07:16] Will: Yeah,
 
-[00:07:16] Norm: and it would be. I think it would it would miss the point to just just get the fifteen people that immediately come to mind,
+[00:07:16] Norm: and it would be. I think it would it would miss the point to just just get the 15 people that immediately come to mind,
 
 [00:07:16] Adam: Right?
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:07:50] Adam: right?
 
-[00:07:50] Will: What like what's your like I go through and listen to podcasts that they do with other people because it's always like if you do a forty minute podcast with somebody, you're going to get past the first five minutes of interview questions. I'm kind of curious what your prep process is
+[00:07:50] Will: What like what's your like I go through and listen to podcasts that they do with other people because it's always like if you do a 40 minute podcast with somebody, you're going to get past the first five minutes of interview questions. I'm kind of curious what your prep process is
 
 [00:08:27] Will: for a
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:12:54] Will: so it was just just the Saturday that worked for your schedule. I mean, I assume you were shooting Mythbusters at that point, right?
 
-[00:12:58] Adam: So we decided. We decided. We yes, I was shooting Mythbusters. We decided we wanted to get married at the Marin Headlands Art Center in Marin, in the Marin Headlands, and it's a magnificent space. And we said this is like April of 2004, and we're like, we'd love to get married sometime in the next ten months. And they're like, really? And we're like, yeah. And they're like, there is nothing. And I'm like, nothing. I'm like, well, we've got some Sundays. I'm like, no, no, no, no. We're not going to make our people travel on a Sunday. We want a Saturday. We want a classic wedding day. And they're like, yeah, there's nothing. And I went, I have this special thing where when someone says no too fast, I ask again.
+[00:12:58] Adam: So we decided. We decided. We yes, I was shooting Mythbusters. We decided we wanted to get married at the Marin Headlands Art Center in Marin, in the Marin Headlands, and it's a magnificent space. And we said this is like April of 2004, and we're like, we'd love to get married sometime in the next 10 months. And they're like, really? And we're like, yeah. And they're like, there is nothing. And I'm like, nothing. I'm like, well, we've got some Sundays. I'm like, no, no, no, no. We're not going to make our people travel on a Sunday. We want a Saturday. We want a classic wedding day. And they're like, yeah, there's nothing. And I went, I have this special thing where when someone says no too fast, I ask again.
 
 [00:13:36] Will: Yeah.
 
@@ -314,13 +314,13 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:14:11] Adam: 400 million seconds. That's how long we've been married. Nice.
 
-[00:14:14] Will: And it does not feel that long. 11 days is a million seconds, right?
+[00:14:14] Will: And it does not feel that long. 11 days is 1 million seconds, right?
 
 [00:14:16] Adam: 11, yeah, give or take.
 
 [00:14:17] Will: Yeah. Wow, that's a lot of 11 days.
 
-[00:14:19] Adam: yeah, 27 and a half years is a billion seconds.
+[00:14:19] Adam: yeah, 27 and a half years is 1 billion seconds.
 
 [00:14:23] Will: Yeah, yeah. I'm I'm not going to see my I mean my second billion. I got 10 years on, still 12 years on.
 
@@ -338,13 +338,13 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:15:08] Will: which requires a
 
-[00:15:08] Adam: thousand seconds per hour.
+[00:15:08] Adam: 1,000 seconds per hour.
 
-[00:15:09] Will: A thousand? No, because an hour is thirty-six hundred seconds, right? So you're looking at like it's mega seconds, I guess. I no, it's a tenth of a meg. It’s a hundred thousand.
+[00:15:09] Will: 1,000? No, because an hour is 3,600 seconds, right? So you're looking at like it's mega seconds, I guess. I no, it's a tenth of a meg. It’s 100,000.
 
 [00:15:19] Adam: So a second's still a second.
 
-[00:15:20] Will: hundred kiloseconds is basically a day. Ah, hundred twenty-five kiloseconds is basically a day.
+[00:15:20] Will: 100 kiloseconds is basically a day. Ah, 125 kiloseconds is basically a day.
 
 [00:15:24] Norm: So the base unit is still derived from our orbit around the sun, but
 
@@ -382,15 +382,15 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:16:12] Norm: It's so funny because the past two podcasts we've talked about projects that we have not filmed. Right. We'll do some filming here and there around, and I think we're going to talk about another one today. You have on table.
 
-[00:16:21] Adam: Oh yes, yes the the the DL forty four blaster. You
+[00:16:21] Adam: Oh yes, yes the the the DL 44 blaster. You
 
 [00:16:25] Will: guys did one of these a few years ago. We
 
-[00:16:27] Adam: built Norms, which is often mistaken for mine. Yeah. Like people are like, I loved your DL forty four build. I'm like, technically that was Norms, and they're like, I didn't hear anything you just said.
+[00:16:27] Adam: built Norms, which is often mistaken for mine. Yeah. Like people are like, I loved your DL 44 build. I'm like, technically that was Norms, and they're like, I didn't hear anything you just said.
 
 [00:16:36] Will: Norm Norm spent a long time collecting the parts to do that, as I recall.
 
-[00:16:39] Adam: Um. So this is my build, and Norm turned me on to a company selling an all aluminum airsoft version of a DL forty of a of a broomhandle Mauser.
+[00:16:39] Adam: Um. So this is my build, and Norm turned me on to a company selling an all aluminum airsoft version of a DL 40 of a of a broomhandle Mauser.
 
 [00:16:50] Norm: Dave Goldberg sent me the tip. A friend who was the VFX supervisor on Con Air.
 
@@ -486,11 +486,11 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:19:35] Adam: The Greedo Killer is different than this one.
 
-[00:19:37] Will: You assume that like when he leaves the Millennium Falcon each morning, he just has a rack of DL forty fours and he picks the one that he wants, right? It's like this one goes with my outfit today, so
+[00:19:37] Will: You assume that like when he leaves the Millennium Falcon each morning, he just has a rack of DL 44s and he picks the one that he wants, right? It's like this one goes with my outfit today, so
 
 [00:19:45] Norm: and of course where I am when the new movie comes out. It's gotta be in the film, right? I mean, I guess he the
 
-[00:19:51] Adam: new the Force Awakens one, the Force Awakens one is a MGC base DL forty four,
+[00:19:51] Adam: new the Force Awakens one, the Force Awakens one is a MGC base DL 44,
 
 [00:19:58] Norm: and which is also different than the one they used in like the poster,
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:20:26] Adam: Huh? I didn't know that.
 
-[00:20:27] Will: Just like the Millennium Falcon was cobbled together out of a what YT twenty three thousand
+[00:20:27] Will: Just like the Millennium Falcon was cobbled together out of a what YT 23000
 
 [00:20:32] Norm: or something. Yeah. Oh, the I don't know. This is spoiler territory, but the idea is that we hopefully will see in the new film the Millennium Falcon actually hauling,
 
@@ -550,13 +550,13 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:21:07] Will: It's really expensive and really big.
 
-[00:21:08] Norm: It's 800 dollars.
+[00:21:08] Norm: It's $800.
 
-[00:21:10] Adam: It's seven and a half thousand pieces.
+[00:21:10] Adam: It's 7,500 pieces.
 
-[00:21:12] Norm: Yeah, fifteen hundred more pieces than the previous one.
+[00:21:12] Norm: Yeah, 1,500 more pieces than the previous one.
 
-[00:21:15] Adam: It's like ten cents a piece.
+[00:21:15] Adam: It's like $0.10 a piece.
 
 [00:21:16] Will: It's both.
 
@@ -570,11 +570,11 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:21:20] Will: Oh, okay. I just did the math.
 
-[00:21:20] Norm: When people is is Lego is this Lego set overpriced? Well, is it ten cents a piece? Yeah, it is. Ah, okay, I guess that's fair.
+[00:21:20] Norm: When people is is Lego is this Lego set overpriced? Well, is it $0.10 a piece? Yeah, it is. Ah, okay, I guess that's fair.
 
 [00:21:27] Will: But usually the Star Wars ones are a little bit more because of the license, I think. But
 
-[00:21:30] Norm: but the reviewers will say you know ten cents a piece, but two hundred of these pieces are like or tracks of a tread or tiny tiles. Like then you're not getting really good money.
+[00:21:30] Norm: but the reviewers will say you know $0.10 a piece, but 200 of these pieces are like or tracks of a tread or tiny tiles. Like then you're not getting really good money.
 
 [00:21:38] Will: [unclear: Not agree / The Sandcrawler, not agreeing on it].
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:22:27] Adam: How How was it working on an actual commercial production?
 
-[00:22:29] Will: So I'd never worked on an actual commercial before, and that was one of the hardest days I've ever like like. When we work on tested, it's a small crew, and it's like three or four people, and like. Shit goes wrong, and it's just kind of the way things go when you work with a small crew. And everybody's everybody's pretty chill about it, and you like roll on. On this commercial shoot, there are like twenty five people there, and
+[00:22:29] Will: So I'd never worked on an actual commercial before, and that was one of the hardest days I've ever like like. When we work on tested, it's a small crew, and it's like three or four people, and like. Shit goes wrong, and it's just kind of the way things go when you work with a small crew. And everybody's everybody's pretty chill about it, and you like roll on. On this commercial shoot, there are like 25 people there, and
 
 [00:22:52] Adam: still a very tiny crew for commercials.
 
@@ -754,7 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:27:15] Adam: No, that's not okay. That's really loud.
 
-[00:27:19] Norm: Ten,
+[00:27:19] Norm: 10,
 
 [00:27:20] Will: Oh, you're running half power.
 
@@ -826,7 +826,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:29:25] Will: So the water comes off of the glass. So
 
-[00:29:27] Adam: I go, " Yeah, I noticed that. Isn't that funny?" And she and she then goes off my wife on a like a ten minute tirade of, " I am," she says, " when I think about holding a glass of." Of water that has moisturized to the outside of the glass, like the bottom of that glass is really pretty much maybe the cleanest thing in this room. Like it's not going anywhere. Goes from the dishwasher to get filled, and then I put it on. So how is the coaster dirty? How in what possible permutation did you get dirt from you onto a thing that no one ever needs to touch that only is ever touched by the cleanest thing in this room?
+[00:29:27] Adam: I go, " Yeah, I noticed that. Isn't that funny?" And she and she then goes off my wife on a like a 10 minute tirade of, " I am," she says, " when I think about holding a glass of." Of water that has moisturized to the outside of the glass, like the bottom of that glass is really pretty much maybe the cleanest thing in this room. Like it's not going anywhere. Goes from the dishwasher to get filled, and then I put it on. So how is the coaster dirty? How in what possible permutation did you get dirt from you onto a thing that no one ever needs to touch that only is ever touched by the cleanest thing in this room?
 
 [00:30:08] Will: Yes.
 
@@ -886,7 +886,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:31:30] Will: There's also there's also a bunch of resources that that represent local charities, specifically designed for hurricane shelters and stuff like that. You posted a good link the other night for a basketball player. I think
 
-[00:31:40] Norm: Tim Duncan from the U.S. Virgin Islands. He's matching up to a million dollars. I just went. I went to my Amazon order page and I looked at on that page the things that I bought that I did not need and took that amount. And I said, okay, that's how I'm going to donate because, like, I didn't need. Why do I need those things?
+[00:31:40] Norm: Tim Duncan from the U.S. Virgin Islands. He's matching up to $1 million. I just went. I went to my Amazon order page and I looked at on that page the things that I bought that I did not need and took that amount. And I said, okay, that's how I'm going to donate because, like, I didn't need. Why do I need those things?
 
 [00:31:40] Will: Right, right, right.
 

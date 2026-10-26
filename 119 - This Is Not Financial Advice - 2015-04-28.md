@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:02:07] Adam: Yeah.
 
-[00:02:07] Will: So, you know, if if we're gonna say, hey, these are public use spaces, or or you know, whatever it happens to be, what's the best way to use this the water? I don't necessarily think it is getting rid of—. Like I joke about the almonds, but I don't think it necessarily is letting all the almonds die because we've already spent in many cases ten or twenty. I mean, those are trees that will produce for a very long time, take ten, twenty years, and the one gallon per almond is some is some cost over the life of the tree, not per almond every year.
+[00:02:07] Will: So, you know, if if we're gonna say, hey, these are public use spaces, or or you know, whatever it happens to be, what's the best way to use this the water? I don't necessarily think it is getting rid of—. Like I joke about the almonds, but I don't think it necessarily is letting all the almonds die because we've already spent in many cases ten or twenty. I mean, those are trees that will produce for a very long time, take 10, 20 years, and the one gallon per almond is some is some cost over the life of the tree, not per almond every year.
 
 [00:02:36] Adam: Right.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:04:21] Norm: Turn off, taking all the green space away.
 
-[00:04:24] Adam: Well, you know, as as as far as talking to talking about consequences, I was talking with the kids this morning. We were we were going over some tax stuff. So every now and then, Juliet hands me some forms, some breakdowns from our from our tax records, and says, " Can you look over these and tell me if they are all corporate expenses? Let's just make sure." So going through the granularity and thing two says, " Why do you have to?" Is it really bad to spend money from your corporate card on non-corporate stuff? And so we start to explain the tax system, and then we start to explain also why you need to keep track of that stuff. Like keeping track is the lifeblood of not getting behind financially. Yeah. And then we start telling them, man, like you'll get a bank account, and they'll just start sending you credit cards in the mail that say, " Sign this," and immediately you have 3,000 dollars, which you don't have to pay off for a long time,
+[00:04:24] Adam: Well, you know, as as as far as talking to talking about consequences, I was talking with the kids this morning. We were we were going over some tax stuff. So every now and then, Juliet hands me some forms, some breakdowns from our from our tax records, and says, " Can you look over these and tell me if they are all corporate expenses? Let's just make sure." So going through the granularity and thing two says, " Why do you have to?" Is it really bad to spend money from your corporate card on non-corporate stuff? And so we start to explain the tax system, and then we start to explain also why you need to keep track of that stuff. Like keeping track is the lifeblood of not getting behind financially. Yeah. And then we start telling them, man, like you'll get a bank account, and they'll just start sending you credit cards in the mail that say, " Sign this," and immediately you have $3,000, which you don't have to pay off for a long time,
 
 [00:05:24] Will: forever. Forever. If you pay the minimum payment, yeah.
 
@@ -230,25 +230,25 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:07:16] Will: No. No. Explain that.
 
-[00:07:18] Adam: Okay. So let's say you have a hundred dollars in your bank account.
+[00:07:18] Adam: Okay. So let's say you have $100 in your bank account.
 
 [00:07:20] Will: Yeah.
 
-[00:07:20] Adam: And you write one check for ninety and eight checks for five dollars each or three dollars each.
+[00:07:20] Adam: And you write one check for ninety and eight checks for $5 each or $3 each.
 
 [00:07:26] Will: So you're overdrawn.
 
-[00:07:27] Adam: You're overdrawn by maybe a dollar. What it will do is it could pay off five checks and blow out the ninety, and then you pay one overdraft fee. But no, it'll pay off the ninety and overdraft you on all the others so that they can charge you multiple. They literally have algorithms that do that so that you pay the most.
+[00:07:27] Adam: You're overdrawn by maybe $1. What it will do is it could pay off five checks and blow out the ninety, and then you pay one overdraft fee. But no, it'll pay off the ninety and overdraft you on all the others so that they can charge you multiple. They literally have algorithms that do that so that you pay the most.
 
 [00:07:46] Will: And then they probably hit you with the fees as well too. Right.
 
-[00:07:48] Adam: And the fees are the fees are what. It's like a standard fee. It's going to be like 35 dollars, and then there's an amount on the check that it takes— it takes a percentage of. It can be hundreds of dollars.
+[00:07:48] Adam: And the fees are the fees are what. It's like a standard fee. It's going to be like $35, and then there's an amount on the check that it takes— it takes a percentage of. It can be hundreds of dollars.
 
 [00:08:00] Will: Oh yeah. The the um well okay just to be clear
 
 [00:08:03] Adam: they don't know any of that stuff
 
-[00:08:05] Will: if you if your bank changes your credit card payment date and that stuff regularly without telling you you should get a new bank like I've had Bank of America for twenty years and have never had that happen.
+[00:08:05] Will: if you if your bank changes your credit card payment date and that stuff regularly without telling you you should get a new bank like I've had Bank of America for 20 years and have never had that happen.
 
 [00:08:14] Adam: Our Amex bills due date just changed again. It's you know it's just the fact that it happens out there in the world is something everybody needs to be aware of Yeah. because I remember being a kid and starting to like I got a checking account and I started getting credit cards in the mail and I had one and I signed it and got a credit card I felt really grown up I didn't spend anything on it for months and then
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:08:48] Will: it's not like a magazine subscription
 
-[00:08:50] Adam: I got in so much trouble. I mean it took me years to pay off that original. 2,500 dollar.
+[00:08:50] Adam: I got in so much trouble. I mean it took me years to pay off that original. $2,500.
 
 [00:08:56] Unknown speaker: Wow!
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:09:07] Adam: yeah,
 
-[00:09:07] Will: like that uncle gives you when you turn fifteen.
+[00:09:07] Will: like that uncle gives you when you turn 15.
 
 [00:09:10] Adam: I actually read it.
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:09:35] Adam: No,
 
-[00:09:35] Will: you have to find that out for yourself, and the earlier you find that out, the better off you are. One one of our friends, Brian, made a had a revelation when he turned about thirty, I think, where he realized that realized that if he kept his expenses low, he could literally do anything he wanted. Because he had reached a point in his in his life where he was able to earn money without necessarily going to an office every day,
+[00:09:35] Will: you have to find that out for yourself, and the earlier you find that out, the better off you are. One one of our friends, Brian, made a had a revelation when he turned about 30, I think, where he realized that realized that if he kept his expenses low, he could literally do anything he wanted. Because he had reached a point in his in his life where he was able to earn money without necessarily going to an office every day,
 
 [00:09:58] Adam: yeah.
 
@@ -316,11 +316,11 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:10:50] Norm: that's incredible. And they said it was it was the most liberating thing ever. Everyone says that.
 
-[00:10:54] Adam: Did you guys ever get in trouble and use consumer credit counselors? Do you know about this service? This is kind of amazing. When you if you end up if you end up with a lot of credit card debt from multiple credit cards, it can be very, very, very difficult, not impossible, to get out from under that. If you have let's say some past dues of thirty, sixty, or ninety days, they will be coming after you. They will be compounding fees and penalties, et cetera. So there is a group. It's a nonprofit, I believe, called Consumer Credit Counseling Services. They actually were, if I'm not incorrect about my history, formed by the credit card companies to help people get out of default. And the way it works is because Consumer Credit Counselors has a terrific record. What they'll do is you go to them and you say, " I owe money on these five credit cards. It's 18,000 dollars in debt." My minimum monthly payment is 1,800 dollars a month, and I can't make that.
+[00:10:54] Adam: Did you guys ever get in trouble and use consumer credit counselors? Do you know about this service? This is kind of amazing. When you if you end up if you end up with a lot of credit card debt from multiple credit cards, it can be very, very, very difficult, not impossible, to get out from under that. If you have let's say some past dues of thirty, sixty, or 90 days, they will be coming after you. They will be compounding fees and penalties, et cetera. So there is a group. It's a nonprofit, I believe, called Consumer Credit Counseling Services. They actually were, if I'm not incorrect about my history, formed by the credit card companies to help people get out of default. And the way it works is because Consumer Credit Counselors has a terrific record. What they'll do is you go to them and you say, " I owe money on these five credit cards. It's $18,000 in debt." My minimum monthly payment is $1,800 a month, and I can't make that.
 
 [00:11:53] Will: Right.
 
-[00:11:53] Adam: They go to the credit card companies and negotiate with them as on as a block, and say, " Can you freeze the?" And they get most of them to freeze the interest. That's giant. Then they get them to accept. They say, " What can you pay?" Then you work with them. Okay, you can pay you know 900 dollars a month. Then they figure out and they go and negotiate with all four of the companies that you owe money to, and say, " He can only pay two hundred here. He can pay one hundred and sixty here. He can pay this and this."
+[00:11:53] Adam: They go to the credit card companies and negotiate with them as on as a block, and say, " Can you freeze the?" And they get most of them to freeze the interest. That's giant. Then they get them to accept. They say, " What can you pay?" Then you work with them. Okay, you can pay you know $900 a month. Then they figure out and they go and negotiate with all four of the companies that you owe money to, and say, " He can only pay two hundred here. He can pay one hundred and sixty here. He can pay this and this."
 
 [00:12:24] Will: And but the interest isn't isn't running anymore, so the clock's not ticking, and you're at least not accruing more debt. You're actually not.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:13:38] Norm: it's not even even numbers,
 
-[00:13:40] Adam: right? And this whole like I think I have 100 dollars in the bank. Like that doesn't.
+[00:13:40] Adam: right? And this whole like I think I have $100 in the bank. Like that doesn't.
 
 [00:13:45] Norm: Yeah, let me Venmo something. Nope, overdrawn. Yeah,
 
@@ -374,7 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:14:17] Adam: Yes. What is this new mic stand? I love this.
 
-[00:14:19] Will: Um I didn't want to carry the thirty-pound one.
+[00:14:19] Will: Um I didn't want to carry the 30-pound one.
 
 [00:14:21] Adam: That's that's great. We should have all of those.
 
@@ -410,11 +410,11 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:14:52] Adam: I'm like this has one job, which is to hold a microphone, which it shouldn't make any noise.
 
-[00:14:56] Will: This is a 35 dollar one, and I put silicone, the lithium grease on the on the joints when I got it, and it was quiet for a long time. It doesn't have like the smooth fluid movement.
+[00:14:56] Will: This is a $35 one, and I put silicone, the lithium grease on the on the joints when I got it, and it was quiet for a long time. It doesn't have like the smooth fluid movement.
 
 [00:15:06] Adam: Yeah.
 
-[00:15:06] Will: The RØDE ones that I got for the office that are 99 dollars each.
+[00:15:06] Will: The RØDE ones that I got for the office that are $99 each.
 
 [00:15:12] Adam: Yeah.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:16:18] Adam: You really need to know that. Yeah, you know, my son the other day we were driving and he was he's very car oriented. Thing two is
 
-[00:16:26] Will: well, he's he's sixteen years old,
+[00:16:26] Will: well, he's he's 16 years old,
 
 [00:16:28] Adam: but I mean he really like he gets a Car and Driver and he knows all the specs of all the cars. And so we're driving, we're talking about the car, and he's like, " Yeah, you get a lot of value for your money for that car, big expensive car." And I was like, " I would I would be careful about saying things like that. You kind of sound like a little rich kid." He was like, " Oh my god, I'm so sorry. I don't want I get that. Thank you for telling me." Which is awesome.
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:17:38] Adam: instantly. Yeah.
 
-[00:17:39] Will: You know, five ten percent of the car at minimum. Um, and usually if they get you into financing, you're going to be making you know that's that's not a great choice. generally.
+[00:17:39] Will: You know, 5-10% of the car at minimum. Um, and usually if they get you into financing, you're going to be making you know that's that's not a great choice. generally.
 
 [00:17:47] Adam: That's true.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:18:17] Will: All that stuff. A lot of the computer stuff
 
-[00:18:18] Adam: they could afford. which would still be a ten-year-old car, still very workable.
+[00:18:18] Adam: they could afford. which would still be a 10-year-old car, still very workable.
 
 [00:18:22] Will: Yeah,
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:18:26] Adam: the cheapness and expense of buying an older nice car, but working on it and fixing it up and the things.
 
-[00:18:34] Will: I think I told the story about my dad getting a 300 dollars CJ three for me and us working on it together.
+[00:18:34] Will: I think I told the story about my dad getting a $300 CJ three for me and us working on it together.
 
 [00:18:39] Adam: That's amazing.
 
@@ -622,7 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:21:47] Adam: Yes. Precisely,
 
-[00:21:48] Will: one dollar at a time. It turns out
+[00:21:48] Will: $1 at a time. It turns out
 
 [00:21:50] Adam: exactly.
 

@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:05:22] Norm: Yeah.
 
-[00:05:22] Will: Like, like look at look at what you can do with Google Photos or Apple Photos now, where they're doing machine learning on the images and doing image recognition, where I can type, you know, dog and dog catching frisbee, and it will give me every picture of my dog catching a frisbee that I've taken over the last thirteen years.
+[00:05:22] Will: Like, like look at look at what you can do with Google Photos or Apple Photos now, where they're doing machine learning on the images and doing image recognition, where I can type, you know, dog and dog catching frisbee, and it will give me every picture of my dog catching a frisbee that I've taken over the last 13 years.
 
 [00:05:38] Adam: Amazing.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:10:38] Adam: you couldn't do that.
 
-[00:10:39] Will: Like they would run like ten episodes of the season, and then the new the new season would start. It was it was it was a dark time for TV watching.
+[00:10:39] Will: Like they would run like 10 episodes of the season, and then the new the new season would start. It was it was it was a dark time for TV watching.
 
 [00:10:45] Adam: I've been I've been going back and watching something which I I had watched part of the pilot and didn't think much of it, and then at a friend's vigorous recommendation, my wife and I have started watching The Americans.
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:15:38] Norm: and also him doing a halo jump, jumping out of a back of a
 
-[00:16:03] Will: C one thirty or something,
+[00:16:03] Will: C 130 or something,
 
 [00:16:04] Norm: yeah, like a A forty four thousand or some some crazy jet, and that's all being filmed in real time. They had those stunts written on paper. They knew they were going to do that, and they wrote a movie around that, and You know, it's 98% on Rotten Tomatoes.
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:16:44] Unknown speaker: Yeah.
 
-[00:16:44] Norm: At the end, like we need, we have five minutes left to get this shot before people need to go. He talks about in the podcast. They had fifteen minutes to shoot certain scenes, and if it gone one minute over, that's another 300,000 dollars.
+[00:16:44] Norm: At the end, like we need, we have five minutes left to get this shot before people need to go. He talks about in the podcast. They had 15 minutes to shoot certain scenes, and if it gone one minute over, that's another $300,000.
 
 [00:16:44] Unknown speaker: Yeah,
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:17:00] Norm: next day.
 
-[00:17:01] Will: Oh my god. When I've done, like we did some commercial shoots and stuff like that last year, and it's not anywhere near like 300,000 dollars a minute if you go over. But like, there's a when you have when you have union actors and you like you're you're.
+[00:17:01] Will: Oh my god. When I've done, like we did some commercial shoots and stuff like that last year, and it's not anywhere near like $300,000 a minute if you go over. But like, there's a when you have when you have union actors and you like you're you're.
 
 [00:17:01] Norm: Your crew
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:19:17] Will: comedy or musical. Yeah, get it right.
 
-[00:19:18] Norm: Why they feel like they need to do this? Because they currently they have one top film, and the public holds this institution in such high regard, and the ranking, right? The the fact that first it was what five films that got nominated, now ten films, and of that one singular film. Now we all know here every top film list is made of five films and ten films, or every top ten list is made of fifty films.
+[00:19:18] Norm: Why they feel like they need to do this? Because they currently they have one top film, and the public holds this institution in such high regard, and the ranking, right? The the fact that first it was what five films that got nominated, now 10 films, and of that one singular film. Now we all know here every top film list is made of five films and 10 films, or every top 10 list is made of 50 films.
 
 [00:19:18] Adam: Oh yeah.
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:19:18] Norm: And what does that? That means so many things to so many different people.
 
-[00:19:59] Will: And they've been over the what eighty years that they've been doing this. Sometimes they get it really right, but more often than not, when you look, if you look back at the movies from the '50s and '60s, they messed up more often than not. Back then, for sure,
+[00:19:59] Will: And they've been over the what 80 years that they've been doing this. Sometimes they get it really right, but more often than not, when you look, if you look back at the movies from the '50s and '60s, they messed up more often than not. Back then, for sure,
 
 [00:20:12] Adam: Yeah,
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:20:26] Unknown speaker: Oh, you can absolutely do that.
 
-[00:20:28] Adam: I think that I had a theory when I read that, and the internet had this, and Twitter had its way with the Academy of saying things like, " Oh yeah, what about the category of best movie no one under forty three has seen?"
+[00:20:28] Adam: I think that I had a theory when I read that, and the internet had this, and Twitter had its way with the Academy of saying things like, " Oh yeah, what about the category of best movie no one under 43 has seen?"
 
 [00:20:40] Will: Yeah, I liked. I liked. Let's see, least popular movie, which is what they're going to rename best best unpopular movie, which they're going to rename the new
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:21:48] Adam: [unclear: I’ll / You don’t have to] answer that question.
 
-[00:21:49] Will: But that's not a billion dollar movie. No,
+[00:21:49] Will: But that's not a $1 billion movie. No,
 
 [00:21:51] Adam: no, it can't just be money. It
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:22:03] Will: tomato meter?
 
-[00:22:03] Will: Do we mean it the tomato meter? I is like is the Last Jedi a popular film? It made a billion dollars. Seems a little divisive.
+[00:22:03] Will: Do we mean it the tomato meter? I is like is the Last Jedi a popular film? It made $1 billion. Seems a little divisive.
 
 [00:22:13] Norm: But I was just also
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:22:57] Norm: It loves being in the '20s. I forever stuck in the '20s.
 
-[00:23:01] Will: So here is the thing: a lot of the criticism of a popular movie category is are the exact same things that we said ten years ago when they rolled out the Best Animated Feature category, right? And and with a few exceptions, they've done a pretty good job with that.
+[00:23:01] Will: So here is the thing: a lot of the criticism of a popular movie category is are the exact same things that we said 10 years ago when they rolled out the Best Animated Feature category, right? And and with a few exceptions, they've done a pretty good job with that.
 
 [00:23:01] Unknown speaker: Mm-hmm.
 
@@ -806,7 +806,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:27:42] Adam: It doesn't stick the landing. It's not terrible. It just doesn't stick the landing. So, so that's why I think Ragnarok, which is amazing.
 
-[00:27:48] Will: Ragnarok is perfect all the way through. I've watched Ragnarok probably ten times now. Like Netflix has become the Thor Ragnarok channel in my house, and is it is it is
+[00:27:48] Will: Ragnarok is perfect all the way through. I've watched Ragnarok probably 10 times now. Like Netflix has become the Thor Ragnarok channel in my house, and is it is it is
 
 [00:27:57] Norm: And
 
@@ -814,7 +814,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:28:04] Will: It's probably the lowest box office of all these movies, isn't it?
 
-[00:28:06] Norm: Uh, not number eight, but uh, it made more way more than Coco. Okay. Coco is number thirteen. Coco,
+[00:28:06] Norm: Uh, not number eight, but uh, it made more way more than Coco. Okay. Coco is number 13. Coco,
 
 [00:28:06] Unknown speaker: Coco came out at the end of the year, though.
 
@@ -824,7 +824,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:28:19] Adam: Yeah.
 
-[00:28:19] Will: And B, it takes a character that had been overly serious and makes him a comic comic foil, and then makes him a tragic hero, all in one like ninety minute roller coaster.
+[00:28:19] Will: And B, it takes a character that had been overly serious and makes him a comic comic foil, and then makes him a tragic hero, all in one like 90 minute roller coaster.
 
 [00:28:19] Adam: Yeah.
 
@@ -834,7 +834,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:28:19] Will: Like it's it's a it's an astounding piece
 
-[00:28:50] Adam: of work. I I was blown away by I'm always blown away by the by the tightness. I mean, they're so famous about their story attention, but I'm always blown away by Pixar's the tightness and it's almost like every one of their plots is a Swiss watch. The way Coco leads you to leads one to believe in the beginning, the first five minutes, you're like, oh, I kind of see what how this movie's going to go, and then. Thirty minutes later, you're like, I have no idea what's going to happen.
+[00:28:50] Adam: of work. I I was blown away by I'm always blown away by the by the tightness. I mean, they're so famous about their story attention, but I'm always blown away by Pixar's the tightness and it's almost like every one of their plots is a Swiss watch. The way Coco leads you to leads one to believe in the beginning, the first five minutes, you're like, oh, I kind of see what how this movie's going to go, and then. 30 minutes later, you're like, I have no idea what's going to happen.
 
 [00:29:16] Will: Yeah.
 
@@ -946,7 +946,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:31:25] Will: Yeah, like
 
-[00:31:25] Adam: I've watched that one ten times.
+[00:31:25] Adam: I've watched that one 10 times.
 
 [00:31:26] Norm: So is it between like Deadpool and Rogue One?
 
@@ -1234,7 +1234,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:37:24] Will: Winter Soldier wins that hands down. Winter Soldier is a perfect film. Guardians is good, but it's not perfect. Guardians is real plotty and and and like they go a lot of places that just set up stuff for future movies. Like they set up stuff that happened in Infinity War.
 
-[00:37:37] Norm: Guardians made so much more money, almost a hundred million more.
+[00:37:37] Norm: Guardians made so much more money, almost 100 million more.
 
 [00:37:40] Will: Not who makes the most money. This isn’t the Grammys
 
@@ -1286,7 +1286,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:38:46] Will: I was expecting you to say she's like three feet tall or like seven feet tall. I wasn't sure which one.
 
-[00:38:50] Adam: She had a she had like a protective spell around her. You didn't feel like you could traipse within ten feet of her. She glows from the inside, and she was really gorgeous.
+[00:38:50] Adam: She had a she had like a protective spell around her. You didn't feel like you could traipse within 10 feet of her. She glows from the inside, and she was really gorgeous.
 
 [00:39:00] Will: That's awesome.
 

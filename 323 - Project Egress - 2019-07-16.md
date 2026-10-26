@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:02:30] Adam: Let's let Jen explain Project Egress.
 
-[00:02:33] Jen Schachter: Sure. Yeah. So we're undertaking a sort of I don't know our own honorary hatch replica, an artistic replica. It's a sculpture of the original command module hatch, which has a lot of historical significance, a lot of engineering significance. So. The story basically is that Apollo 1 was was supposed to be going to the moon, and they were on the the landing platform, the launch platform, doing a routine test, and the there was an electrical fire that erupted inside of the cabin, and the atmosphere inside the cabin was pure oxygen because that's what they did at the time, and so the fire ignited really rapidly, and the the hatch that was on that command module was designed to open in about sixty to ninety seconds in ideal conditions. Long story short, they were not able to exit from the command module in time,
+[00:02:33] Jen Schachter: Sure. Yeah. So we're undertaking a sort of I don't know our own honorary hatch replica, an artistic replica. It's a sculpture of the original command module hatch, which has a lot of historical significance, a lot of engineering significance. So. The story basically is that Apollo 1 was was supposed to be going to the moon, and they were on the the landing platform, the launch platform, doing a routine test, and the there was an electrical fire that erupted inside of the cabin, and the atmosphere inside the cabin was pure oxygen because that's what they did at the time, and so the fire ignited really rapidly, and the the hatch that was on that command module was designed to open in about 60 to 90 seconds in ideal conditions. Long story short, they were not able to exit from the command module in time,
 
 [00:03:25] Unknown speaker: Exactly.
 
@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:12:13] Jen Schachter: Yeah, yeah, almost.
 
-[00:12:14] Adam: And yeah, you came up with the title " Project Egress," which I totally love. I think it's I think it's the perfect title for this. And you really brought in all of these spaces and and curated this group. The way in which this draws this community close to help celebrate this incredible thing, it moves me. And even more, I cannot wait till next Thursday when we get together and. Assemble all forty-six pieces of this thing from all across the from all across the globe. We hope it goes okay. We brought a lot of tools and glue and double stick tape and things to fix things that might not have worked. I mean, something's going to go cattywampus at some point.
+[00:12:14] Adam: And yeah, you came up with the title " Project Egress," which I totally love. I think it's I think it's the perfect title for this. And you really brought in all of these spaces and and curated this group. The way in which this draws this community close to help celebrate this incredible thing, it moves me. And even more, I cannot wait till next Thursday when we get together and. Assemble all 46 pieces of this thing from all across the from all across the globe. We hope it goes okay. We brought a lot of tools and glue and double stick tape and things to fix things that might not have worked. I mean, something's going to go cattywampus at some point.
 
 [00:12:55] Jen Schachter: Yeah, yeah, and we ran into that with Rosie too. I mean, we're like sawing off edges of 3D prints and packing tape around the arm. I mean, like, well, hopefully it'll be a little a little step above that for the Smithsonian, but we'll make it work.
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:17:09] Jen Schachter: Well, if you are not going to be a Comic Con, you sort of have to do an Adam Incognito somewhere else, right?
 
-[00:17:13] Adam: I do, I do. It's required. I am not going to Comic Con for the first time in twelve years. I am sad about that, but I am psyched about why.
+[00:17:13] Adam: I do, I do. It's required. I am not going to Comic Con for the first time in 12 years. I am sad about that, but I am psyched about why.
 
 [00:17:22] Norm: And then, in terms of the other things happening, I think we can say that SFMOMA is doing something interesting. They have an exhibit. They’ve announced
 

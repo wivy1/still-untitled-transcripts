@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:06:01] Will: and and debunker of bunk,
 
-[00:06:03] Adam: debunker of bunk, but lover of mystery. Phil did an amazing talk at TAM a few years ago, talking about ten things we don't know about the solar system. Really, really current things like we don't know what this mark on Venus is. We don't know why that moves in that way.
+[00:06:03] Adam: debunker of bunk, but lover of mystery. Phil did an amazing talk at TAM a few years ago, talking about 10 things we don't know about the solar system. Really, really current things like we don't know what this mark on Venus is. We don't know why that moves in that way.
 
 [00:06:18] Will: We don't know anything about Venus. It turns out.
 
@@ -268,11 +268,11 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:09:03] Adam: tizzy in a tizzy.
 
-[00:09:05] Will: And my aunt replies six minutes later. She's like, " Yeah, it's probably a Polaris missile test." When I lived in San Diego, we saw that stuff all the time, and that was like twenty years ago.
+[00:09:05] Will: And my aunt replies six minutes later. She's like, " Yeah, it's probably a Polaris missile test." When I lived in San Diego, we saw that stuff all the time, and that was like 20 years ago.
 
 [00:09:13] Adam: I love your aunt.
 
-[00:09:14] Will: So she lives. Just to be clear, my aunt is one of the. She's one of my favorite people in the world. She lived in San Diego for a long time, has had like twenty five different jobs. Turns out she doesn't really like working very much. She's like working with people.
+[00:09:14] Will: So she lives. Just to be clear, my aunt is one of the. She's one of my favorite people in the world. She lived in San Diego for a long time, has had like 25 different jobs. Turns out she doesn't really like working very much. She's like working with people.
 
 [00:09:26] Adam: She doesn’t like working with people?
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:10:32] Adam: Oh.
 
-[00:10:33] Will: and when you go out and you take the twenty minutes and let your eyes actually adjust,
+[00:10:33] Will: and when you go out and you take the 20 minutes and let your eyes actually adjust,
 
 [00:10:36] Adam: Yeah.
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:11:55] Adam: Yep.
 
-[00:11:55] Will: The Dyson sphere around the star that's one hundred, eleven hundred, fifteen hundred light years away—
+[00:11:55] Will: The Dyson sphere around the star that's 100, 1,100, 1,500 light years away—
 
 [00:12:01] Adam: the potential Dyson sphere.
 
@@ -418,9 +418,9 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:13:00] Will: Yeah, tornado sharks.
 
-[00:13:01] Adam: You know, one of my best friends is obsessed with Ian Ziering and Beverly Hills Nine Hundred Two One Zero, and I met him on the carpet at Comic Con this year for the Syfy party, and took a picture with him, and sent it to her, and she just wrote back, " I'm dead."
+[00:13:01] Adam: You know, one of my best friends is obsessed with Ian Ziering and Beverly Hills 90210, and I met him on the carpet at Comic Con this year for the Syfy party, and took a picture with him, and sent it to her, and she just wrote back, " I'm dead."
 
-[00:13:16] Will: There's a lot of people. There's a lot of people that have a deep connection to Nine Hundred Two One Zero. My wife is one of them.
+[00:13:16] Will: There's a lot of people. There's a lot of people that have a deep connection to 90210. My wife is one of them.
 
 [00:13:21] Adam: I grew up watching BH Niner. I mean, grew up. I mean, like when I moved out here in the '90s, it's what we did.
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:15:58] Adam: running into the coat closet and getting on our hands and knees as if that would help in any way.
 
-[00:16:02] Will: We would all get in the hallway in the center of center building away from glass windows, and they duck and cover us, and we'd stay there for like forty-five minutes sometimes.
+[00:16:02] Will: We would all get in the hallway in the center of center building away from glass windows, and they duck and cover us, and we'd stay there for like 45 minutes sometimes.
 
 [00:16:10] Adam: And then you hear that siren sound. That was, yeah, I was doing that in second grade, which would be mid '70s.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:17:01] Adam: No, I know only in our country. Damn it!
 
-[00:17:03] Will: The the I I see we didn't have a whole lot of the Cold War stuff. I my assumption would be if I saw one missile flying over, hey, everything's cool. If you see twenty missiles flying over, that's when things get real bad.
+[00:17:03] Will: The the I I see we didn't have a whole lot of the Cold War stuff. I my assumption would be if I saw one missile flying over, hey, everything's cool. If you see 20 missiles flying over, that's when things get real bad.
 
 [00:17:16] Adam: The thing I remember so in when I was junior in high school, somehow I managed to convince my parents to let me have the old black and white television in my room, so I watched it all night long.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:17:28] Will: until the until the American flag flies.
 
-[00:17:31] Adam: And back then, late at night, you could watch Evening at the Improv. So I remember seeing a nineteen-year-old Jim Carrey in his early, early, early stand-up and stuff like that. But I remember one comedian, comedian, had a joke. Where she asked a kid, " She oh, you're a kid in the audience. Hey, how old are you? Fourteen. Fourteen, huh? Wow, that means by the time you're sixteen, you'll be dead." And the point of her joke, I feel like I've said this on the podcast.
+[00:17:31] Adam: And back then, late at night, you could watch Evening at the Improv. So I remember seeing a 19-year-old Jim Carrey in his early, early, early stand-up and stuff like that. But I remember one comedian, comedian, had a joke. Where she asked a kid, " She oh, you're a kid in the audience. Hey, how old are you? 14. 14, huh? Wow, that means by the time you're 16, you'll be dead." And the point of her joke, I feel like I've said this on the podcast.
 
 [00:18:00] Will: We haven't talked about this.
 

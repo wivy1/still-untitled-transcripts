@@ -64,9 +64,9 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:01:02] Adam: [unclear: Spoiler for / It’s a heavily spoilerized podcast.]
 
-[00:01:04] Steph: There's a reason. It grossed over a billion dollars, right?
+[00:01:04] Steph: There's a reason. It grossed over $1 billion, right?
 
-[00:01:06] Norm: 1.2 billion international.
+[00:01:06] Norm: $1.2 billion international.
 
 [00:01:07] Will: They did okay. They had a good week,
 
@@ -198,11 +198,11 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:06:34] Will: How long does that take?
 
-[00:06:34] Adam: well, um, I average. A pretty good average of twenty-five pages an hour.
+[00:06:34] Adam: well, um, I average. A pretty good average of 25 pages an hour.
 
 [00:06:34] Will: Okay.
 
-[00:06:34] Adam: So I think all in all, it was a six-hour day, a six-hour day, and a two-hour day. So about fourteen, fifteen hours.
+[00:06:34] Adam: So I think all in all, it was a six-hour day, a six-hour day, and a two-hour day. So about 14, 15 hours.
 
 [00:06:34] Will: That's not too bad.
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:08:15] Will: Is it? Is there somebody in there listening and saying? I have a lot of questions about this I can ask you.
 
-[00:08:19] Adam: Oh, okay. So they give me a producer who's on a Skype on a computer. So he's watching. He's in LA. He's watching me do it. He’s done a thousand audio books.
+[00:08:19] Adam: Oh, okay. So they give me a producer who's on a Skype on a computer. So he's watching. He's in LA. He's watching me do it. He’s done 1,000 audio books.
 
 [00:08:19] Unknown speaker: Wow.
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:10:12] Unknown speaker: [unclear: And so all / And we didn’t get] permission,
 
-[00:10:12] Adam: all five hosts, Kari, Tory, Grant, Jamie, and I had to then sit down in a sound booth for like ten or fifteen minutes each and say hair cream, hair cream, hair cream, hair cream, in every possible way they could, so that the editors could cut it all together.
+[00:10:12] Adam: all five hosts, Kari, Tory, Grant, Jamie, and I had to then sit down in a sound booth for like 10 or 15 minutes each and say hair cream, hair cream, hair cream, hair cream, in every possible way they could, so that the editors could cut it all together.
 
 [00:10:31] Will: That's funny. It's really good.
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:14:00] Steph: We got to do a behind the scenes tour, which was pretty incredible. We
 
-[00:14:04] Adam: saw what was it like an eight by sixteen foot laser cutter etcher that can cut steel.
+[00:14:04] Adam: saw what was it like an 8 by 16 foot laser cutter etcher that can cut steel.
 
 [00:14:11] Will: Wow. Really?
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:22:08] Steph: Yeah, that's great.
 
-[00:22:10] Will: How, like, how do you feel? Like, I mean, one of the criticisms of the maker movement early on was that it was it was the you know the craftspeople, the the holders of the of the woodworking, and this was the, it seems, I don't mean to pick on the woodworkers, but it seems like the woodworkers that complained to the folks at Make Magazine and other places early on was that you know makers are kind of come in and learn just as much as they need to do the project that they need, and then move on rather than taking ten thousand hours and delving down and learning, you know, all the mastery of you know Japanese joinery or whatever, whatever esoteric knowledge you were looking for. I mean, do you feel like that's still a thing, or? you think that we’ve moved past that now?
+[00:22:10] Will: How, like, how do you feel? Like, I mean, one of the criticisms of the maker movement early on was that it was it was the you know the craftspeople, the the holders of the of the woodworking, and this was the, it seems, I don't mean to pick on the woodworkers, but it seems like the woodworkers that complained to the folks at Make Magazine and other places early on was that you know makers are kind of come in and learn just as much as they need to do the project that they need, and then move on rather than taking 10,000 hours and delving down and learning, you know, all the mastery of you know Japanese joinery or whatever, whatever esoteric knowledge you were looking for. I mean, do you feel like that's still a thing, or? you think that we’ve moved past that now?
 
 [00:22:49] Adam: I, look, I, there is always going to be people who jealously protect their fiefdom. Actually, I, I interview Nick Offerman in this book, and he talks about being a theater carpenter in Chicago, where for years and years and years he didn't have a woodworking bench because he considered that a little too frou frou for someone who's making theater flats. And it wasn't until later, and he and I were, were, were commiserating because both of us came late to fine woodworking. I, you know, only in the past year and a half have I started to really make all of my joints super solid and took the extra time to dowel and rabbet and join and glue and make things really refined. Because well, now I am starting to see some of the things I built early on fall apart. Yeah. And I start to there is an elegance to that deep dive, but I am also a huge fan of the learning just enough to get this project done and moving on. I am a serial skill collector, and I am mediocre at almost everything I do. So, I don't agree with craftspeople who are like you shouldn't build a mandolin until you've trained for. Like, go buy a mandolin kit. I one of my I I remember meeting a musician who liked the man loved the mandolin so much he bought a kit and then ended up making four or five mandolins over a period of years. And the satisfaction he got out of that, I I wouldn't want to take one iota of that satisfaction away from him because he was you know supposedly not doing it in the crafts person way.
 
@@ -548,7 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:30:32] Steph: Yeah, and you know, I think what I am really happy about is that you know, of course, when you're in a In a role like that, you know that you, you know, the calendar is is really driving a sense of urgency, right? Like you are either going to be there for four years or you are going to be there for eight years, but you know you are not going to be there forever, right? So you are really there. There is this, and you probably felt too like a certain sense of electricity and energy because people are just working their butts off because they know that
 
-[00:31:03] Adam: In a building where you couldn't tell what time of day it was because everyone was at their desk whether it was ten a ten a m. or ten p m.
+[00:31:03] Adam: In a building where you couldn't tell what time of day it was because everyone was at their desk whether it was 10 a 10 a m. or 10 p m.
 
 [00:31:09] Steph: Yeah, yeah, yeah. There, there were sometimes we, you know, camped out, and there may have been some overnight, you know.
 
@@ -590,9 +590,9 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:33:42] Steph: yeah, it was. We started talking about what does it take to actually make the maker movement more inclusive and broaden access to maker education, particularly for for students. And so, a number of organizations got together to create an initiative called the Make for All Initiative. And what we did was we launched a national call for commitments earlier this year to ask organizations whether you're a maker space or you're a community college or you're a company or a foundation. Tell us what what is your goal in the next year? What's your goal in the next two years around broadening access to maker centered learning? How do you want to help your community broaden broaden access and enable more more of the youth [unclear: in your / and senior] community to have access to the makerspaces or just Just engage in making in some way. So we're actually going to announce those new initiatives at NOMCon. So also, that's another reason why you might want to want to come out to Chattanooga to hear about those initiatives.
 
-[00:34:46] Will: And so, I mean, one of the other questions we get a lot is teachers, librarians, school administrators want to know what they can what they can do if there are grants available, how they can like where they should start because it's kind of daunting, right? Like you think about a makerspace and you think, oh, it should have a lathe and a mill and a laser cutter and a Cricut and a sewing machine and all these other different things. And it's it's like you look you add it up and all of a sudden you spend a hundred thousand dollars. And and there's other easier ways to get started, right?
+[00:34:46] Will: And so, I mean, one of the other questions we get a lot is teachers, librarians, school administrators want to know what they can what they can do if there are grants available, how they can like where they should start because it's kind of daunting, right? Like you think about a makerspace and you think, oh, it should have a lathe and a mill and a laser cutter and a Cricut and a sewing machine and all these other different things. And it's it's like you look you add it up and all of a sudden you spend $100,000. And and there's other easier ways to get started, right?
 
-[00:35:14] Adam: Well, and then there, I mean, and there's also there are as many different kinds of makerspaces as there are people who started them because each one is a philosophy, right? That's actually one of the things that I thought was surprising when I visited Think Box in Cleveland was that they don't have a table saw. In a seven-story, 50,000,000-dollar endowed makerspace, they don't have a table saw because their philosophy is: this isn't where you come and do the finish work. This is where you come and do the prototype. Oh. However, you can walk into Thinkbox off the street and be laser cutting in five minutes.
+[00:35:14] Adam: Well, and then there, I mean, and there's also there are as many different kinds of makerspaces as there are people who started them because each one is a philosophy, right? That's actually one of the things that I thought was surprising when I visited Think Box in Cleveland was that they don't have a table saw. In a seven-story, $50 million endowed makerspace, they don't have a table saw because their philosophy is: this isn't where you come and do the finish work. This is where you come and do the prototype. Oh. However, you can walk into Thinkbox off the street and be laser cutting in five minutes.
 
 [00:35:14] Will: Wow.
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:37:21] Steph: yeah, or needs, right? So you want to be able to kind of allocate for limited resources, minimal resources, and you know,
 
-[00:37:28] Will: everything from like a tool lending library where everybody chucks in some tools up to your 50,000,000 dollar amazing fab lab.
+[00:37:28] Will: everything from like a tool lending library where everybody chucks in some tools up to your $50 million amazing fab lab.
 
 [00:37:34] Adam: It's all look the. Whatever the future holds, it's going. We'll be better off if we have raised a great generation of digital natives who know how to manipulate the incredible inventions and tools that we've built,
 

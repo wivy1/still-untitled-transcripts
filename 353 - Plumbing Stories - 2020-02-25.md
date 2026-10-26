@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:05:29] Norm: And, and, you know, we visit a lot of shops in LA, and in LA, a lot of shops are big open warehouse spaces because they're storage, and you see everything in one or two rooms. You know, molds are happening here, paintings happening here, and because it's like a rabbit warren, and because it's like a university, it really feels like you know Hogwarts. Um,
 
-[00:05:45] Adam: It also feels like the old Industrial Light and Magic because ILM was the same thing. It was George bought all the buildings on either side of Kerner Boulevard for like half a kilometer, and every building was one of ours. You know, that was the building you went to go get yelled at in. That was the building in which you had to push a million dollar model across the street to go film with it. Literally, you'd be pushing a million dollar model into traffic.
+[00:05:45] Adam: It also feels like the old Industrial Light and Magic because ILM was the same thing. It was George bought all the buildings on either side of Kerner Boulevard for like half a kilometer, and every building was one of ours. You know, that was the building you went to go get yelled at in. That was the building in which you had to push a $1 million model across the street to go film with it. Literally, you'd be pushing a $1 million model into traffic.
 
 [00:06:08] Norm: And so there are different departments, you know.
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:06:11] Norm: there are hundreds of people who work there, and
 
-[00:06:13] Adam: Over four hundred people working.
+[00:06:13] Adam: Over 400 people working.
 
 [00:06:15] Will: Wow, really?
 
@@ -190,11 +190,11 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:06:41] Will: okay.
 
-[00:06:41] Adam: Uh, and, uh, at this Friday drinks, you know, they make announcements about how the company is doing. They celebrated the eighty-third baby born to a Weta staff member since its inception.
+[00:06:41] Adam: Uh, and, uh, at this Friday drinks, you know, they make announcements about how the company is doing. They celebrated the 83rd baby born to a Weta staff member since its inception.
 
 [00:06:52] Will: That's so cool.
 
-[00:06:53] Adam: eighty-three babies.
+[00:06:53] Adam: 83 babies.
 
 [00:06:54] Norm: Yeah, wow.
 
@@ -218,11 +218,11 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:07:20] Will: that's awesome.
 
-[00:07:21] Adam: We love sharing all the stories about how difficult and fun everything is. I got to do some. We shot some pieces of like I got to work with Jules, their head painter, on a rapid fire. What was that? Twenty five minutes tops.
+[00:07:21] Adam: We love sharing all the stories about how difficult and fun everything is. I got to do some. We shot some pieces of like I got to work with Jules, their head painter, on a rapid fire. What was that? 25 minutes tops.
 
 [00:07:34] Norm: It was almost an hour.
 
-[00:07:36] Adam: Was it almost an hour? It felt like twenty five minutes.
+[00:07:36] Adam: Was it almost an hour? It felt like 25 minutes.
 
 [00:07:38] Norm: You had some, and that was the thing. Like we went with the plan because you've watched our people out there have watched our video series. Every time we've been to Weta, it's different. The first time we went 2016, it was very specifically we're covering these film projects they were working on. It was Ghost in the Shell. We had you embedded with Peter Lyon to make a sword essentially a two day one day build there, and then the last time we went in 2018, it was a full week for a project that we initiated, which was the short film
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:14:08] Norm: Slow.
 
-[00:14:08] Adam: Felt like fourteen four dial up.
+[00:14:08] Adam: Felt like 14.4 dial up.
 
 [00:14:09] Norm: We were on the same flight back, Adam.
 
@@ -578,11 +578,11 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:18:26] Will: yeah, you guys did. Like, I came in to a scene.
 
-[00:18:31] Adam: You came in at eleven to do this podcast, and we were like, " We're gonna have to pause." And you were like, " I have a hard out.
+[00:18:31] Adam: You came in at 11 to do this podcast, and we were like, " We're gonna have to pause." And you were like, " I have a hard out.
 
 [00:18:37] Will: I am such a pain in the ass."
 
-[00:18:39] Adam: No, no, that's that's we have all done this, and you said today I have a hard out, and we said this plumbing repair should take ten minutes,
+[00:18:39] Adam: No, no, that's that's we have all done this, and you said today I have a hard out, and we said this plumbing repair should take 10 minutes,
 
 [00:18:45] Will: and I somewhere
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:19:09] Adam: They get wet and wild in a hurry.
 
-[00:19:12] Will: Well, and and like your minimum. Cost of a of a of a expert emergency repair for a plumber in the Bay Area is between five hundred and a thousand dollars, in my experience. Yeah,
+[00:19:12] Will: Well, and and like your minimum. Cost of a of a of a expert emergency repair for a plumber in the Bay Area is between $500 and $1,000, in my experience. Yeah,
 
 [00:19:21] Adam: it's it's real. Yeah,
 
@@ -616,9 +616,9 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:19:28] Unknown speaker (Will or Norm): Yes,
 
-[00:19:28] Adam: and lining them up. So, but there is always something you don't expect. Like you know, you'll turn off the water, and you think it's only going to be for ten minutes. But as you are trying to undo the spigot that you are about to replace on the system, the nipple holding it on cracks, and all of a sudden you have to pull out the welder and weld the thing to that, and then spray some Kroil on there and let it soak for an hour, and then you can hit it with a mallet and slowly you start to like I've been there with all of that stuff, and that's what you pay an expert for. They can see those mistakes before, before you cause them, and they also go to the hardware store once, whereas every home plumber goes to the hardware store like seven times for any repair, no matter how small.
+[00:19:28] Adam: and lining them up. So, but there is always something you don't expect. Like you know, you'll turn off the water, and you think it's only going to be for 10 minutes. But as you are trying to undo the spigot that you are about to replace on the system, the nipple holding it on cracks, and all of a sudden you have to pull out the welder and weld the thing to that, and then spray some Kroil on there and let it soak for an hour, and then you can hit it with a mallet and slowly you start to like I've been there with all of that stuff, and that's what you pay an expert for. They can see those mistakes before, before you cause them, and they also go to the hardware store once, whereas every home plumber goes to the hardware store like seven times for any repair, no matter how small.
 
-[00:20:09] Will: Well, so my all-time worst—I've made a bad mistake plumbing error was the night before Thanksgiving. We had. I think twenty people coming that year, so we had a table set up in the backyard for a bazillion people, and we, an unnamed person in our family, ran a bunch of potato peels down the garbage disposal, and the potato.
+[00:20:09] Will: Well, so my all-time worst—I've made a bad mistake plumbing error was the night before Thanksgiving. We had. I think 20 people coming that year, so we had a table set up in the backyard for a bazillion people, and we, an unnamed person in our family, ran a bunch of potato peels down the garbage disposal, and the potato.
 
 [00:20:30] Adam: Is that bad?
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:21:16] Adam: Is it long enough? Is the question.
 
-[00:21:18] Will: It's eleven o'clock at night right now. This is where we're starting this moment. We have one bathroom in the house. We have twenty people coming the next day. So, like, I'm thinking, if I don't fix this, we're going to cancel Thanksgiving for twenty people. So, or we'll have to move someplace else. So we, so I get the snake. I snake nothing. No love.
+[00:21:18] Will: It's 11 o'clock at night right now. This is where we're starting this moment. We have one bathroom in the house. We have 20 people coming the next day. So, like, I'm thinking, if I don't fix this, we're going to cancel Thanksgiving for 20 people. So, or we'll have to move someplace else. So we, so I get the snake. I snake nothing. No love.
 
 [00:21:32] Adam: Yeah.
 
@@ -678,9 +678,9 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:22:19] Adam: Home Depot,
 
-[00:22:19] Will: really? They open twenty four.
+[00:22:19] Will: really? They open 24.
 
-[00:22:22] Adam: They some Home Depots are open twenty four seven.
+[00:22:22] Adam: They some Home Depots are open 24/7.
 
 [00:22:24] Will: I so what I did.
 
@@ -696,7 +696,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:22:39] Will: yeah, that was two years ago. Now
 
-[00:22:41] Adam: the the about, God, at this point, twenty five years ago, I was living down at the end of Hunters Point on Yosemite Street. Um, now denizens of Hunters Point will know Yosemite is where the police station is. There was no police station there back when I lived there. Um, there was no. I think there's even a big box store down there. No, but I was in this mattress factory, and
+[00:22:41] Adam: the the about, God, at this point, 25 years ago, I was living down at the end of Hunters Point on Yosemite Street. Um, now denizens of Hunters Point will know Yosemite is where the police station is. There was no police station there back when I lived there. Um, there was no. I think there's even a big box store down there. No, but I was in this mattress factory, and
 
 [00:23:05] Will: like you lived in the mattress factory.
 
@@ -704,7 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:23:09] Will: Yeah,
 
-[00:23:09] Adam: twenty two hundred square feet, and it wasn't meant for living. So. There was just a water pipe sticking out of the floor, so I attached that water pipe and I brazed it to a water heater, and I lived out my fantasy of living inside the movie Diva, which I don't know if you've ever seen. And I had a bathtub in the middle of my living room.
+[00:23:09] Adam: 2,200 square feet, and it wasn't meant for living. So. There was just a water pipe sticking out of the floor, so I attached that water pipe and I brazed it to a water heater, and I lived out my fantasy of living inside the movie Diva, which I don't know if you've ever seen. And I had a bathtub in the middle of my living room.
 
 [00:23:26] Will: That sounds awesome.
 
@@ -724,9 +724,9 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:24:28] Unknown speaker (Will or Norm): Yeah,
 
-[00:24:28] Adam: and I think we went through forty to pick up all the water.
+[00:24:28] Adam: and I think we went through 40 to pick up all the water.
 
-[00:24:31] Will: Two thousand square feet of two inches of water—that is an unbelievable amount of water.
+[00:24:31] Will: 2,000 square feet of two inches of water—that is an unbelievable amount of water.
 
 [00:24:34] Adam: And running into the like, I'm shoving rags to keep it from running down the hole into the clothing. And they're banging on the door, and we're like, " We're sorry." Oh, that was that was
 
@@ -760,13 +760,13 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:25:46] Will: Yeah,
 
-[00:25:46] Adam: Um, and then I will be sliding back through Denver, where thing one lives, because, um, my boys turned twenty one recently. Yeah, Um, very exciting.
+[00:25:46] Adam: Um, and then I will be sliding back through Denver, where thing one lives, because, um, my boys turned 21 recently. Yeah, Um, very exciting.
 
 [00:25:58] Will: Wow, they were.
 
 [00:25:59] Adam: I know
 
-[00:26:00] Will: thirteen. I think when we first met them.
+[00:26:00] Will: 13. I think when we first met them.
 
 [00:26:03] Norm: Yeah, math checks out.
 
@@ -778,7 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:26:07] Will: 2012.
 
-[00:26:07] Adam: Oh, in 2012, yeah, they were thirteen years old. Yeah, right.
+[00:26:07] Adam: Oh, in 2012, yeah, they were 13 years old. Yeah, right.
 
 [00:26:10] Norm: Yeah, wow. And then you will be. We're not doing a like the most. Most of the team aren't going, but there will be something. To reveal,
 
@@ -816,7 +816,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:27:16] Adam: I know. I know that was awesome.
 
-[00:27:17] Norm: in there in the cabinet. There's a shot of it in the video. Like they have, they have to remake the paper, right? And the guy's like, " We have specifically sixty-five sheets of the Reynolds pamphlet,
+[00:27:17] Norm: in there in the cabinet. There's a shot of it in the video. Like they have, they have to remake the paper, right? And the guy's like, " We have specifically 65 sheets of the Reynolds pamphlet,
 
 [00:27:26] Adam: And they chose, and they chose all these specific pieces of paper. Like the the the when she burns the letter,
 
@@ -906,7 +906,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:32:38] Will: Is it Any particular version or all versions?
 
-[00:32:39] Norm: It's forty different portrayals of Alice through the history of cinema, because the story of Alice predates cinema, and it's surreal. It's interactive. They have projection mapping, and it's at the Te Papa till March 8.
+[00:32:39] Norm: It's 40 different portrayals of Alice through the history of cinema, because the story of Alice predates cinema, and it's surreal. It's interactive. They have projection mapping, and it's at the Te Papa till March 8.
 
 [00:32:54] Adam: How amazing!
 
@@ -938,7 +938,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:33:45] Norm: Well, what's going on new in your world?
 
-[00:33:47] Will: Uh, new episode of Tech Pod is out this week. It's a Q and A episode. We've done we we made a ranking of Windowses over the last two weeks. Windowses. We started with Windows 3.0, maybe 3.1, and went all and and like talked through like it's it was interesting to go through and talk through twenty five thirty years of of of you know what was the dominant operating system for a really long time, still is,
+[00:33:47] Will: Uh, new episode of Tech Pod is out this week. It's a Q and A episode. We've done we we made a ranking of Windowses over the last two weeks. Windowses. We started with Windows 3.0, maybe 3.1, and went all and and like talked through like it's it was interesting to go through and talk through 25 30 years of of of you know what was the dominant operating system for a really long time, still is,
 
 [00:34:09] Norm: yeah,
 
@@ -948,4 +948,4 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:34:30] Will: Thanks, everybody.
 
-[00:34:32] Norm: Hey, everybody. Norm here. Thanks for listening to the podcast. And before I let you go, I need your help. Tested and Still Untitled needs your help in order to keep this show going. We need the help of great advertisers, and we want to make sure those advertisers are the ones you actually want to hear about. So please go to podsurvey dot com slash untitled and take a quick anonymous survey that will help us get to know you better. That way, we can make sure that we're bringing on advertisers who are relevant to you. And once you've completed this quick survey, you can enter for a chance to win a 100 dollar Amazon gift card. Terms and conditions apply. Once again, that's podsurvey dot com slash untitled. Thank you so much for listening to the show. Thank you for your continued support. Really appreciate you filling out this survey, and we'll see you next time.
+[00:34:32] Norm: Hey, everybody. Norm here. Thanks for listening to the podcast. And before I let you go, I need your help. Tested and Still Untitled needs your help in order to keep this show going. We need the help of great advertisers, and we want to make sure those advertisers are the ones you actually want to hear about. So please go to podsurvey dot com slash untitled and take a quick anonymous survey that will help us get to know you better. That way, we can make sure that we're bringing on advertisers who are relevant to you. And once you've completed this quick survey, you can enter for a chance to win a $100 Amazon gift card. Terms and conditions apply. Once again, that's podsurvey dot com slash untitled. Thank you so much for listening to the show. Thank you for your continued support. Really appreciate you filling out this survey, and we'll see you next time.

@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:00:28] Norm: The door open and unrolled like a like a mat, like a yoga mat.
 
-[00:00:31] Adam: Actually, Jamie Hyneman and I used to have long discussions. Jamie, because both of us is like, you know, you get into a small fender bender with a painted fiberglass bumper, and it's like two and a half thousand bucks to repair that dumb thing. And we're like, why aren't why don't cars have like four feet of pillows where you do like boom and keep going?
+[00:00:31] Adam: Actually, Jamie Hyneman and I used to have long discussions. Jamie, because both of us is like, you know, you get into a small fender bender with a painted fiberglass bumper, and it's like $2,500 to repair that dumb thing. And we're like, why aren't why don't cars have like four feet of pillows where you do like boom and keep going?
 
 [00:00:49] Bill: Yeah, then it becomes a game.
 
@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:02:44] Norm: Your first time at open bar.
 
-[00:02:45] Adam: Oh, it was ridiculous, and I woke up so so hungover and so bad that I got in the the seven, ten passenger van to head to Pisa Airport. And when I got to Pisa Airport, I mean, I'm just lying and moaning on one of the bench seats. And we get to Pisa Airport, and the door opens up, and I just immediately throw up. Projectile vomit out the door onto the street of Pisa Airport, and then I look up and I make sure that no one's recognized me. So okay, so I go into the airport. I visit the bathroom. We go to the ticket counter. We get our tickets. I visit the bathroom. We go through security. I visit the bathroom. We get onto the plane, and now people are loading into the plane, and I am feeling that there may be a need soon.
+[00:02:45] Adam: Oh, it was ridiculous, and I woke up so so hungover and so bad that I got in the the 7, 10 passenger van to head to Pisa Airport. And when I got to Pisa Airport, I mean, I'm just lying and moaning on one of the bench seats. And we get to Pisa Airport, and the door opens up, and I just immediately throw up. Projectile vomit out the door onto the street of Pisa Airport, and then I look up and I make sure that no one's recognized me. So okay, so I go into the airport. I visit the bathroom. We go to the ticket counter. We get our tickets. I visit the bathroom. We go through security. I visit the bathroom. We get onto the plane, and now people are loading into the plane, and I am feeling that there may be a need soon.
 
 [00:03:34] Norm: Oh no!
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:08:04] Adam: On a geological.
 
-[00:08:04] Bill: Yeah, about thirty years after that. So yeah, that's my jam. I build props and costumes. Obviously, I'm well at home in this wonderful cave of.
+[00:08:04] Bill: Yeah, about 30 years after that. So yeah, that's my jam. I build props and costumes. Obviously, I'm well at home in this wonderful cave of.
 
 [00:08:13] Adam: This is your San Francisco shop.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:16:34] Adam: what a shocker.
 
-[00:16:35] Bill: Yeah. I know. But it's four floor mats for like seven dollars.
+[00:16:35] Bill: Yeah. I know. But it's four floor mats for like $7.
 
 [00:16:39] Norm: Yeah.
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:16:41] Norm: So for people getting started, that's still a good place to.
 
-[00:16:43] Bill: But still, like you might get a half inch thick piece of foam, two feet wide, four feet long for fifteen bucks. And if you're making a sword that's four feet long, and you don't have to join glue edges together or anything, you just whoop whoop cut it out. Right.
+[00:16:43] Bill: But still, like you might get a half inch thick piece of foam, two feet wide, four feet long for $15. And if you're making a sword that's four feet long, and you don't have to join glue edges together or anything, you just whoop whoop cut it out. Right.
 
 [00:16:58] Adam: You could draw a seam and put a little rod up the middle of it, fiberglass rod.
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:19:22] Bill: Oh yeah, but I definitely did.
 
-[00:19:25] Adam: But I also kind of went to school on other people's dime. Like one of the earliest, actually, one of the earliest deals that I regularly made. So San Francisco in the early '90s, big theater town, and theaters are famous for never having any dough. So they'd be like, " Could you make us a bucket that looks like it's full of water for maybe 75 bucks? You know, it'd be like dirt cheap." So one of the things I would do with a lot of smaller theaters that were even smaller than that is I would say, " I'll build your prop for free if you pay for materials," and then and I get to keep the prop when it's done. So I invest in it because I want to make something that I want. I get materials for my shop, and the labor is. I'm just having fun.
+[00:19:25] Adam: But I also kind of went to school on other people's dime. Like one of the earliest, actually, one of the earliest deals that I regularly made. So San Francisco in the early '90s, big theater town, and theaters are famous for never having any dough. So they'd be like, " Could you make us a bucket that looks like it's full of water for maybe $75? You know, it'd be like dirt cheap." So one of the things I would do with a lot of smaller theaters that were even smaller than that is I would say, " I'll build your prop for free if you pay for materials," and then and I get to keep the prop when it's done. So I invest in it because I want to make something that I want. I get materials for my shop, and the labor is. I'm just having fun.
 
 [00:20:04] Bill: Oh yeah, I still have. We did the District Nine gun three or four years ago,
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:20:19] Norm: That was a project where you taught yourself that process.
 
-[00:20:21] Bill: Absolutely, and it didn't. It was like a thousand dollars worth of silicone, and we worked with Smooth On, and they they they supplied the silicone. So I made that mold, and probably a dozen more. And I think I still it's probably not good anymore, but I think I still have some of that silicone kicking around.
+[00:20:21] Bill: Absolutely, and it didn't. It was like $1,000 worth of silicone, and we worked with Smooth On, and they they they supplied the silicone. So I made that mold, and probably a dozen more. And I think I still it's probably not good anymore, but I think I still have some of that silicone kicking around.
 
 [00:20:37] Adam: But I mean, you know that that labor. I don't think it's that you undervalue your labor in the beginning. I think that because you are young and it is a very renewable resource, that it makes sense to bury your labor into your projects.
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:21:18] Adam: So I called up. There's a wonderful designer who's been riding Jack at Twitter really hard for the last few months, Mike Monteiro. He's an amazing designer, and he writes a lot on design and how to deal with clients, how to charge. So I called him up, and I was like, " Hey, this young designer." And Mike gave me counsel in that, and I have given others, as I'm sure you guys both have, about like what is X worth? What is this thing that I do for a living worth? Because yeah, at the beginning, you have no idea. I remember making a prototype for Galoob, and they were like, " We've got $ 1,800 to pay for this prototype," and I was like, " What a score!" And I like barely broke even on that thing.
 
-[00:21:58] Bill: I I did a Kickstarter a few years ago. I designed a space gun kit, and I think it made like 30 grand, which was astonishing.
+[00:21:58] Bill: I I did a Kickstarter a few years ago. I designed a space gun kit, and I think it made like $30,000, which was astonishing.
 
 [00:22:08] Adam: Right.
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:22:23] Adam: Oh, really?
 
-[00:22:23] Bill: because I just remember the two years of it was thirteen pieces per kit.
+[00:22:23] Bill: because I just remember the two years of it was 13 pieces per kit.
 
 [00:22:29] Adam: Oh,
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:22:43] Norm: Kickstarter success.
 
-[00:22:44] Adam: Yeah. So so back in the day, I had a loft space, and a guy I knew who was a television producer called me up, and he goes, " Hey, um, I need to build some flats. Could I rent your space to build some flats?" And I said, " Yeah." And he's like, " Cool, I'm willing to pay this." And I was like, " Cool, all right, 200 bucks a day to rent my thing." And he's like, " Now I'm hoping that you can do the building." And I was like, " What?" He's like, " No, I'm willing to pay. I'm willing to pay." And it was a full room set, a full room as a set. And I think he wanted to pay me like nine grand or something like that. No, wait, yeah, something like that. And to me, that sounded like an absolute Midas King's ransom worth of money. But I called up my friend Todd Bright. Was an experienced scenic artist, and I was like, " Todd, what's wrong with this picture?" And he's like, " Oh, they're totally screwing you. That is easily a 20,000 dollar job, and not even forget about the show. They are totally screwing you, given the who it was and what they were doing it for, because it was for a big corporate job." And he's like, " And thank God he counseled me through negotiating a reasonable price for this."
+[00:22:44] Adam: Yeah. So so back in the day, I had a loft space, and a guy I knew who was a television producer called me up, and he goes, " Hey, um, I need to build some flats. Could I rent your space to build some flats?" And I said, " Yeah." And he's like, " Cool, I'm willing to pay this." And I was like, " Cool, all right, $200 a day to rent my thing." And he's like, " Now I'm hoping that you can do the building." And I was like, " What?" He's like, " No, I'm willing to pay. I'm willing to pay." And it was a full room set, a full room as a set. And I think he wanted to pay me like $9,000 or something like that. No, wait, yeah, something like that. And to me, that sounded like an absolute Midas King's ransom worth of money. But I called up my friend Todd Bright. Was an experienced scenic artist, and I was like, " Todd, what's wrong with this picture?" And he's like, " Oh, they're totally screwing you. That is easily a $20,000 job, and not even forget about the show. They are totally screwing you, given the who it was and what they were doing it for, because it was for a big corporate job." And he's like, " And thank God he counseled me through negotiating a reasonable price for this."
 
 [00:23:52] Norm: Wow.
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:24:14] Norm: Yeah.
 
-[00:24:14] Bill: Figuring out what your day rate should be—that was something it took me forever to learn. Was that any project takes at least one day, even the simplest thing, and you might say this prop is like a hundred dollar prop, but it's going to take me a day, and I can't survive on a hundred dollars a day. No. I can't pay for my shop. I can't pay for the supplies, so I have to charge at least X amount.
+[00:24:14] Bill: Figuring out what your day rate should be—that was something it took me forever to learn. Was that any project takes at least one day, even the simplest thing, and you might say this prop is like a $100 prop, but it's going to take me a day, and I can't survive on $100 a day. No. I can't pay for my shop. I can't pay for the supplies, so I have to charge at least X amount.
 
 [00:24:41] Adam: Yeah.
 
@@ -534,11 +534,11 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:24:53] Norm: and the only way it works is at scale.
 
-[00:24:55] Adam: Back when I was freelancing, I took I took on both Jamie Hyneman and Industrial Light and Magic used the same number to bid a person day, and it was 500 bucks. And that covered the person, the space, the insurance, the workman's comp, and all of that. And I, my freelancing years, which was about fifteen years freelancing, I always bid stuff out at that all in that increment one one and a half days, thousand bucks.
+[00:24:55] Adam: Back when I was freelancing, I took I took on both Jamie Hyneman and Industrial Light and Magic used the same number to bid a person day, and it was $500. And that covered the person, the space, the insurance, the workman's comp, and all of that. And I, my freelancing years, which was about 15 years freelancing, I always bid stuff out at that all in that increment one one and a half days, $1,000.
 
 [00:25:22] Bill: Yep.
 
-[00:25:22] Adam: And again, it sounds like a lot of money when you think, " Wow, I'm going to charge someone 2,000 bucks for something that takes me four days." That sounds like a lot because I've never been paid a thousand dollars a day to do anything or 500 dollars a day to do anything. And in the end, you will find you're not rolling in the dough
+[00:25:22] Adam: And again, it sounds like a lot of money when you think, " Wow, I'm going to charge someone $2,000 for something that takes me four days." That sounds like a lot because I've never been paid $1,000 a day to do anything or $500 a day to do anything. And in the end, you will find you're not rolling in the dough
 
 [00:25:40] Norm: because you're not working necessarily
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:27:14] Bill: Oh yeah, yeah,
 
-[00:27:15] Norm: yeah. You know, you can only make so many commissions for and for individuals to meet at DragonCon to hand off a prop. But if you're going to make a blueprint or a pattern, that's you know five or ten dollars for a blueprint can go a long way.
+[00:27:15] Norm: yeah. You know, you can only make so many commissions for and for individuals to meet at DragonCon to hand off a prop. But if you're going to make a blueprint or a pattern, that's you know $5 or $10 for a blueprint can go a long way.
 
 [00:27:27] Bill: You can help a lot more people. Our goal is to help people have that experience for themselves to get them along the road to start their journey into prop and costume making. I do very much enjoy seeing someone with a prop that I made and seeing them just elated with it in their costume, walking around at DragonCon. There's people I see every year at DragonCon who have props that I made, and they still bring them out. They they're seven years ago, they still bring them out. That does bring me an incredible amount of joy. I
 

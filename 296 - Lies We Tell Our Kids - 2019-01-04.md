@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:02:03] Will: Oh.
 
-[00:02:04] Adam: Oh man! And it's like it's choking me up right now, just a little bit. And it is like such a, it's a protest song about motherhood and about dedication, and it's a beautiful song and about fighting the power and speaking truth to power. And with my kids being twenty and now regularly dining with them and talking to them about their lives and their futures, the older that your kids get, the more you remember what it was like to be that age.
+[00:02:04] Adam: Oh man! And it's like it's choking me up right now, just a little bit. And it is like such a, it's a protest song about motherhood and about dedication, and it's a beautiful song and about fighting the power and speaking truth to power. And with my kids being 20 and now regularly dining with them and talking to them about their lives and their futures, the older that your kids get, the more you remember what it was like to be that age.
 
 [00:02:31] Will: I mean, that that that is the one thing that is has is striking me. My daughter's six now; turned six this month, and like it is, it we've reached the period in her life that I can remember what it was like to be five.
 
@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:02:57] Adam: No, no.
 
-[00:02:57] Will: Yeah, no. That's the funny thing. Like I, I remember, like I sent my mom a note the morning after Christmas, and I was like, " Mom, I, you know, I just, I never really appreciated how hard you and Dad worked to make like Christmas a thing, because like Gina and I looked up at the end of the night on the twenty fifth, and we're just like, man, I am, I feel like I've been kicked in the head like four or five times today, because you know we were up all night that night before putting stuff together, and and yeah, like like and then making food and having people over and the whole it was it's a lot,
+[00:02:57] Will: Yeah, no. That's the funny thing. Like I, I remember, like I sent my mom a note the morning after Christmas, and I was like, " Mom, I, you know, I just, I never really appreciated how hard you and Dad worked to make like Christmas a thing, because like Gina and I looked up at the end of the night on the 25th, and we're just like, man, I am, I feel like I've been kicked in the head like four or five times today, because you know we were up all night that night before putting stuff together, and and yeah, like like and then making food and having people over and the whole it was it's a lot,
 
 [00:03:24] Adam: yeah,
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:06:10] Adam: And then you say you start to hear the fireworks and the gunshots, and then I I was asleep by 12:05. It was a super super chill New Year's.
 
-[00:06:19] Will: We so this was the year my daughter asked to stay up. Like previous, this is the first year she's been aware that it's a thing, and she's like, " Can I stay up late and ring in the New Year?" I'm like, " Yeah, sure." And about 10:55, she was starting to fade, and my wife looked over and she said, " Hey, you know, it's almost midnight, isn't it?" I said, " No, it's like five till 11 because I'm a dope." Oh. But she was asleep. She was totally zonked, so she completely missed. I was like, " Oh no, no, it's it's five minutes." So we went outside in the backyard and started blowing the horns and stuff at 11 o'clock, and and. Thankfully, two people in my neighborhood had must have had a similar situation because they rang in the the Denver New Year at eleven p.m. with a couple of fireworks. She was like, you know, I kind of expected there to be more fireworks, and then she went right to sleep. Didn’t.
+[00:06:19] Will: We so this was the year my daughter asked to stay up. Like previous, this is the first year she's been aware that it's a thing, and she's like, " Can I stay up late and ring in the New Year?" I'm like, " Yeah, sure." And about 10:55, she was starting to fade, and my wife looked over and she said, " Hey, you know, it's almost midnight, isn't it?" I said, " No, it's like five till 11 because I'm a dope." Oh. But she was asleep. She was totally zonked, so she completely missed. I was like, " Oh no, no, it's it's five minutes." So we went outside in the backyard and started blowing the horns and stuff at 11 o'clock, and and. Thankfully, two people in my neighborhood had must have had a similar situation because they rang in the the Denver New Year at 11 p.m. with a couple of fireworks. She was like, you know, I kind of expected there to be more fireworks, and then she went right to sleep. Didn’t.
 
 [00:07:02] Norm: Nice,
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:12:22] Adam: Well, you're only ever. I mean, you're only ever a couple of feet above your crash pad.
 
-[00:12:26] Will: And the one in the one over here, you get like fifteen, twenty feet.
+[00:12:26] Will: And the one in the one over here, you get like 15, 20 feet.
 
 [00:12:28] Adam: Oh, I haven't been to that one.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:12:36] Norm: M e r u. It's on Netflix.
 
-[00:12:37] Adam: It's a Netflix show, and it's about these three world-class Climbers climbing a heretofore unclimbed peak in the Himalayas, 22,000 foot. The problem with this is it is like this 6,000 foot face where the last two and a half thousand feet is just this smooth granite shark fin.
+[00:12:37] Adam: It's a Netflix show, and it's about these three world-class Climbers climbing a heretofore unclimbed peak in the Himalayas, 22,000 foot. The problem with this is it is like this 6,000 foot face where the last 2,500 feet is just this smooth granite shark fin.
 
 [00:13:01] Norm: Oh God! In the snow, what in the like in the cold?
 
@@ -352,11 +352,11 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:13:05] Adam: And so it's a it's a documentary about two different attempts at this climb.
 
-[00:13:11] Will: It can't be 22,000 feet, can it? Isn't Everest eighteen?
+[00:13:11] Will: It can't be 22,000 feet, can it? Isn't Everest 18?
 
-[00:13:14] Adam: No, Everest is twenty-nine.
+[00:13:14] Adam: No, Everest is 29.
 
-[00:13:15] Will: Twenty-nine. Okay.
+[00:13:15] Will: 29. Okay.
 
 [00:13:16] Adam: And wow! So there was one attempt in 2008, and then another attempt much more recently, which is what the film is about. But about half the film is 2008 attempt, which is it's mind blowing in and of itself
 
@@ -374,13 +374,13 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:14:00] Will: I, you know, I'm I, like I can tell you right now, I don't think I can watch this because I'm already stressed out just hearing about it,
 
-[00:14:06] Adam: dude. It is so. What these guys go through, they run out of. Here's just one thing I'll tell you. They on their first attempt, they run out of food on day five, and they're up there for another ten days.
+[00:14:06] Adam: dude. It is so. What these guys go through, they run out of. Here's just one thing I'll tell you. They on their first attempt, they run out of food on day five, and they're up there for another 10 days.
 
 [00:14:18] Will: Time to eat, Jimmy.
 
 [00:14:18] Norm: So what is what is more intense? Because I haven't seen Free Solo yet. Free Solo is about.
 
-[00:14:24] Adam: I haven't seen Free Solo yet either. But you and I both watched. We just checked before the podcast. We both watched that ten-minute doco from Jimmy Chin and his wife about filming it.
+[00:14:24] Adam: I haven't seen Free Solo yet either. But you and I both watched. We just checked before the podcast. We both watched that 10-minute doco from Jimmy Chin and his wife about filming it.
 
 [00:14:33] Norm: Yes, so
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:16:00] Adam: I'm not sure that's an I'm not sure that's an accurate boiling down. I think it's more that he wants to be concerned only with the climb, and on a difficult spot where he starts to realize my friends might watch me die, his mind is not on the climb. So it's not that one is more valuable to him than the other. It's about maintaining a perfect concentration. I think. I think I haven't done. I haven't free soloed El Cap.
 
-[00:16:26] Will: Like like thinking about the kind of focus and and concentration and intensity you would have to have to do something like this, like. I mean, I I'm sure I'm not a I'm not a good climber, but I'm sure that if you spend ten thousand hours climbing, then you get to the point that climbing up the side of a normal mountain is is like walking down the street for one of us, right? Yeah, you just do it, and then you you like you said, Norm, you know when you get to the hard part, and you know you need to focus. But I think that there's a level of complexity to this that that that doesn't account for in in that you know most of what we do is you know semi evolved primates doesn't involve putting your finger in the wrong place and then dying because of that,
+[00:16:26] Will: Like like thinking about the kind of focus and and concentration and intensity you would have to have to do something like this, like. I mean, I I'm sure I'm not a I'm not a good climber, but I'm sure that if you spend 10,000 hours climbing, then you get to the point that climbing up the side of a normal mountain is is like walking down the street for one of us, right? Yeah, you just do it, and then you you like you said, Norm, you know when you get to the hard part, and you know you need to focus. But I think that there's a level of complexity to this that that that doesn't account for in in that you know most of what we do is you know semi evolved primates doesn't involve putting your finger in the wrong place and then dying because of that,
 
 [00:17:07] Adam: right? Yes, it's true. The stakes are not 100%
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:18:31] Adam: Well, and and if you wanna if you if you wanna look at I've seen film break a lot of excellent people because the stakes in film feel kind of crazy.
 
-[00:18:41] Will: I mean, it's a huge machine with ten thousand people.
+[00:18:41] Will: I mean, it's a huge machine with 10,000 people.
 
 [00:18:44] Adam: Yeah, people staring at you while you're trying to get your gag done, and it's costing X number of dollars per minute. And I just remember finding when I was 24 that that situation made me calmer rather than more stressed out.
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:19:09] Adam: Yeah,
 
-[00:19:10] Will: and then once we got there, it just became about getting each shot and and getting getting the work done and doing what we could do to make it easier for everyone, figuring out solutions on the fly. But it wasn't I wasn't worried about the fact that it was costing 30,000 dollars an hour or a minute or whatever whatever our spend was.
+[00:19:10] Will: and then once we got there, it just became about getting each shot and and getting getting the work done and doing what we could do to make it easier for everyone, figuring out solutions on the fly. But it wasn't I wasn't worried about the fact that it was costing $30,000 an hour or a minute or whatever whatever our spend was.
 
 [00:19:25] Adam: Right. So right, what you're bringing up that I realize is is It's basically about where you can achieve total focus. So Honnold can achieve total focus in the most extreme circumstances that many people can picture.
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:21:38] Adam: Yeah.
 
-[00:21:38] Will: Um, but when I added it to my DVR and went to look for it last night at ten o'clock, I was like, " I'm going to watch this show now." It's going to be on, I think, Discovery on the fifth.
+[00:21:38] Will: Um, but when I added it to my DVR and went to look for it last night at 10 o'clock, I was like, " I'm going to watch this show now." It's going to be on, I think, Discovery on the fifth.
 
 [00:21:48] Adam: Yeah.
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:27:00] Norm: turns out it's BB8.
 
-[00:27:02] Will: I mean, but but but like they went within what 10,000 kilometers or something of moving of an object that is a thousand kilometers across, going 50,000 kilometers an hour, a minute, a second.
+[00:27:02] Will: I mean, but but but like they went within what 10,000 kilometers or something of moving of an object that is 1,000 kilometers across, going 50,000 kilometers an hour, a minute, a second.
 
 [00:27:12] Adam: Right. It's like using a bullet with a GoPro on it to go film another bullet. Like about
 
@@ -608,7 +608,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:28:11] Adam: Really,
 
-[00:28:11] Norm: it is a bombastic combination of every blockbuster that's come out in the past ten years.
+[00:28:11] Norm: it is a bombastic combination of every blockbuster that's come out in the past 10 years.
 
 [00:28:16] Will: On a scale of
 
@@ -672,7 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:29:54] Norm: But you have Ingrid Bergman. You had Sean Connery's in the in the '70s one, and it's so it's really fun to see.
 
-[00:30:00] Will: We've got to be coming up on the fortieth anniversary of people bitching about the MTVization of film at this point, right?
+[00:30:00] Will: We've got to be coming up on the 40th anniversary of people bitching about the MTVization of film at this point, right?
 
 [00:30:06] Adam: I guess you might be right
 
@@ -848,7 +848,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:34:31] Norm: Yes,
 
-[00:34:31] Adam: and I used to do that for several months. I did that every night between like eleven and two a.m.
+[00:34:31] Adam: and I used to do that for several months. I did that every night between like 11 and 2 a.m.
 
 [00:34:37] Norm: Oh my god!
 

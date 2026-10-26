@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:01:23] Will: Tops or bottoms?
 
-[00:01:25] Adam: Actually, number one and thirty-two, a top and a bottom on my right side.
+[00:01:25] Adam: Actually, number 1 and 32, a top and a bottom on my right side.
 
 [00:01:28] Will: Wow, weird.
 
@@ -60,11 +60,11 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:02:39] Adam: yeah, it was for work. And in the middle of the Bahamas, the toothache. Now I've been taking Vicodin, and I can't stand that stuff. I mean, yes, it helps with the pain, but ibuprofen is more reliable to me. However, the pain was so extreme, up and down over the last month, vacillating between three and five.
 
-[00:02:58] Will: On the ten scale,
+[00:02:58] Will: On the 10 scale,
 
-[00:02:58] Adam: on the ten scale. So five will ruin your day.
+[00:02:58] Adam: on the 10 scale. So five will ruin your day.
 
-[00:03:01] Will: It's it's funny because like toothaches are something that were an incredibly common problem. Let's say fifty or a hundred years ago.
+[00:03:01] Will: It's it's funny because like toothaches are something that were an incredibly common problem. Let's say fifty or 100 years ago.
 
 [00:03:06] Adam: Yeah,
 
@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:03:45] Norm: That's a seven.
 
-[00:03:46] Adam: That was a seven. No, this was a five. Yeah. So I had to leave the Bahamas twenty-four hours early. My dentist, she's amazing. I love her. I will not tell you her name because she's mine. We love her. Weirdly, She's like actually a friend.
+[00:03:46] Adam: That was a seven. No, this was a five. Yeah. So I had to leave the Bahamas 24 hours early. My dentist, she's amazing. I love her. I will not tell you her name because she's mine. We love her. Weirdly, She's like actually a friend.
 
 [00:04:03] Will: When you find a good dentist, it is it is a person to bring into your life and make it make integral to both of each other.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:10:38] Adam: and they really managed to do. I really appreciated that the trailer showed a lot that did not spoil nearly any of the film for me.
 
-[00:10:47] Will: So the thing that I love the most about this is that. It's clear George Miller had spent the last twenty-five years thinking about this world, right?
+[00:10:47] Will: So the thing that I love the most about this is that. It's clear George Miller had spent the last 25 years thinking about this world, right?
 
 [00:10:54] Adam: Yeah,
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:12:39] Norm: so
 
-[00:12:40] Adam: he's like in his twenties in the first.
+[00:12:40] Adam: he's like in his 20s in the first.
 
 [00:12:42] Will: Yeah, and Mad
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:15:16] Adam: Yes,
 
-[00:15:16] Norm: and then and then it's a car chase. You know, car chase, punk car chase, and you know, to be fair, that first ten minutes where he gets branded, and you know, you get to find out that that citadel that they're all in with the war boys. The lens is on him.
+[00:15:16] Norm: and then and then it's a car chase. You know, car chase, punk car chase, and you know, to be fair, that first 10 minutes where he gets branded, and you know, you get to find out that that citadel that they're all in with the war boys. The lens is on him.
 
 [00:15:30] Adam: Yeah,
 
@@ -678,7 +678,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:26:59] Will: but she's trained by Thanos. She should be a an ultimate badass in the universe, right?
 
-[00:27:03] Adam: Right, right. She gives away her plan the moment she's in prison to people she met fifteen minutes ago.
+[00:27:03] Adam: Right, right. She gives away her plan the moment she's in prison to people she met 15 minutes ago.
 
 [00:27:08] Will: Yeah,
 
@@ -748,7 +748,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:29:48] Will: Please
 
-[00:29:48] Adam: Fury Road. It deserves it deserves your ten bucks. Go see. I wasn't a big fan of it in 3D. Frankly,
+[00:29:48] Adam: Fury Road. It deserves it deserves your $10. Go see. I wasn't a big fan of it in 3D. Frankly,
 
 [00:29:55] Norm: I didn't watch it in 3D.
 
@@ -806,7 +806,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:32:18] Will: Mallory Ortberg on the Toast wrote, " I think my favorite thing about this, which is like, look, it's a it's an incredibly sparse, you know, resource free wasteland. Yet somehow we have plenty of plenty of solder to glue skulls on everything. We’re— We’re we have a guy whose only job on the on the chase is to play electric guitar, and also that electric guitar shoots fire.
 
-[00:32:39] Adam: Not only that, that entire rig actually worked. All those speakers played music, and those drummers were drumming at seventy miles an hour through the desert.
+[00:32:39] Adam: Not only that, that entire rig actually worked. All those speakers played music, and those drummers were drumming at 70 miles an hour through the desert.
 
 [00:32:47] Will: That is awesome.
 

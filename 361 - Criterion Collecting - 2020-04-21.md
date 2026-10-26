@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:01:42] Adam: also turning off a breaker and changing a light switch is a very satisfying home operation.
 
-[00:01:47] Will: Yeah, it's like it's like twenty minutes if everything goes right, and it feels really good when it's done. And then we have these fancy new light switches, which is really nice.
+[00:01:47] Will: Yeah, it's like it's like 20 minutes if everything goes right, and it feels really good when it's done. And then we have these fancy new light switches, which is really nice.
 
 [00:01:54] Adam: Right, and trying to read the tiny, tiny, tiny, minuscule, microscopic print on the Lutron. Poster that comes with every switch in 45 languages, the Rosetta Stone of Lutron.
 
@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:09:21] Norm: yeah. Some of them, the the actual bookcase is too narrow, and it makes you look diminutive. Adam, you have a nice wide bookcase.
 
-[00:09:30] Adam: You know, so the fourteen Billy bookcases that are displaying my collection in the other room. I'm in the office of the cave right now. Um, this is actually, yeah, this is my little sanctum here, and it hasn't always been. In fact, for most of my time in the cave, this has been a sort of a catch-all room. But in this moment, I need a lot of quietude, and the shop can be hot or cold, and it can also be noisy. So I've been doing a lot more of my Zoom calling in here, and I spent some time last week making this room a lot nicer. So, um. These are there's two Billy bookcases here, and notice I built across the top of them, because one of my axioms about storage and shelving is there's always more room on the Z axis if you're looking. And then I've got a a white lit Billy for some super special stuff I have in here. Norm, I guess I should do a show and tell of my office.
+[00:09:30] Adam: You know, so the 14 Billy bookcases that are displaying my collection in the other room. I'm in the office of the cave right now. Um, this is actually, yeah, this is my little sanctum here, and it hasn't always been. In fact, for most of my time in the cave, this has been a sort of a catch-all room. But in this moment, I need a lot of quietude, and the shop can be hot or cold, and it can also be noisy. So I've been doing a lot more of my Zoom calling in here, and I spent some time last week making this room a lot nicer. So, um. These are there's two Billy bookcases here, and notice I built across the top of them, because one of my axioms about storage and shelving is there's always more room on the Z axis if you're looking. And then I've got a a white lit Billy for some super special stuff I have in here. Norm, I guess I should do a show and tell of my office.
 
 [00:10:29] Norm: Yeah, and I just wrote that down because that axiom would make a great T-shirt.
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:11:03] Adam: It's so. It was. It was my mom. My parents had one of these, and the sound it makes when you hit the key is one of the most satisfying. And it's all mechanical. It's a mechanical computer. It's an amazing piece of equipment.
 
-[00:11:16] Will: My first office job was in. Everybody had those on their desks. Well, everybody that did real work had those on their desks, and it was at a congressman's office, and they had a knob on the side that you could type a letter into, and it would type whoever typed the letter into program and had to type it exactly right, because it would you know if you made a mistake it would backspace the mistakes too, and you could do up to like thirty letters that were mechanically stored in the typewriter. It was amazing. Amazing,
+[00:11:16] Will: My first office job was in. Everybody had those on their desks. Well, everybody that did real work had those on their desks, and it was at a congressman's office, and they had a knob on the side that you could type a letter into, and it would type whoever typed the letter into program and had to type it exactly right, because it would you know if you made a mistake it would backspace the mistakes too, and you could do up to like 30 letters that were mechanically stored in the typewriter. It was amazing. Amazing,
 
 [00:11:44] Adam: crazy, crazy.
 
@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:12:28] Norm: Now it feels like the perfect time to realize if you would ever make use of your bookcase, right? Like some people have books, and I know, like Will, you did a big purge years ago. I remember because you went full digital. You went with e-books, But if a month of staying and sheltering at home hasn't gotten you to your physical archive of whether it's DVDs, Blu-rays, books, magazines. Then maybe you're not keeping it there for for the right reason.
 
-[00:12:57] Adam: Hmm. We had actually just done. Julia and I had just done a book purge. We had gotten rid of I think about twelve or fifteen linear feet of books.
+[00:12:57] Adam: Hmm. We had actually just done. Julia and I had just done a book purge. We had gotten rid of I think about 12 or 15 linear feet of books.
 
 [00:13:06] Norm: Wow.
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:17:27] Will: look, everyone involved, I like. Yeah,
 
-[00:17:29] Adam: Cassavetes is really, really important in American filmmaking, and not not outside of film school doesn't get a lot of play, doesn't make a lot of top ten lists. But like he's one of the sort of architects of the independent film business. He was doing independent film before it was called that, and the the actors that he worked with early in his career, who then because of their incredible acting skills became big stars. I mean, there's this joke about how in the '70s they learned that ugly people could be movie stars.
+[00:17:29] Adam: Cassavetes is really, really important in American filmmaking, and not not outside of film school doesn't get a lot of play, doesn't make a lot of top 10 lists. But like he's one of the sort of architects of the independent film business. He was doing independent film before it was called that, and the the actors that he worked with early in his career, who then because of their incredible acting skills became big stars. I mean, there's this joke about how in the '70s they learned that ugly people could be movie stars.
 
 [00:18:02] Will: But it's true.
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:18:45] Norm: you have the Criterion Collection, and I'm gonna do this as a sales pitch for that because the Criterion Channel is a really awesome streaming service that I think everyone should should try at least for the two weeks that it's free.
 
-[00:18:59] Adam: It's amazing. It's totally amazing. I managed to get it up on my Samsung TV, which is tricky because the Samsung televisions don't have a Criterion app. I had to buy a Roku box. It doesn't work just using the Roku channel on the Samsung. I had to buy a Roku box, which was cheap. It was like twenty bucks, and through Roku, I was able to sign on to my Criterion and have it. And I watched Wong Kar-wai's In the Mood for Love, Until the End of the World, Seven Samurai, yeah, all that within the first couple of weeks of having it. It's fantastic.
+[00:18:59] Adam: It's amazing. It's totally amazing. I managed to get it up on my Samsung TV, which is tricky because the Samsung televisions don't have a Criterion app. I had to buy a Roku box. It doesn't work just using the Roku channel on the Samsung. I had to buy a Roku box, which was cheap. It was like $20, and through Roku, I was able to sign on to my Criterion and have it. And I watched Wong Kar-wai's In the Mood for Love, Until the End of the World, Seven Samurai, yeah, all that within the first couple of weeks of having it. It's fantastic.
 
 [00:19:33] Will: Well, the Kurosawa collection on there is the thing I started browsing at first, and and I've seen almost all of one, probably not almost all, because there's a bazillion of them. But I've seen a lot of the Kurosawa Samurai movies, and I'd never seen the crime movies before.
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:27:37] Will: Really?
 
-[00:27:38] Norm: And the exterior shots of the city is the best looking footage because he paid for high quality thirty five mil B roll that they shot custom and there's a great shot of him and the other guy throwing a football in Golden Gate Park where they you know used to have like the the Alice concerts and and that's that's all San Francisco. There's the thing that I always find is the disconnect between the exterior stuff and the interior stuff. Right, you can have great exterior if it's really shot and not shot as in it's in San Francisco. You know that one street in L A. that looks like it's a S F alley or something, but like yeah, that stuff is always better than any of the interior stuff because interiors hardly match and rarely match.
+[00:27:38] Norm: And the exterior shots of the city is the best looking footage because he paid for high quality 35 mil B roll that they shot custom and there's a great shot of him and the other guy throwing a football in Golden Gate Park where they you know used to have like the the Alice concerts and and that's that's all San Francisco. There's the thing that I always find is the disconnect between the exterior stuff and the interior stuff. Right, you can have great exterior if it's really shot and not shot as in it's in San Francisco. You know that one street in L A. that looks like it's a S F alley or something, but like yeah, that stuff is always better than any of the interior stuff because interiors hardly match and rarely match.
 
 [00:28:19] Adam: There was a during the whole. I mean, maybe you didn't watch Beverly Hills 90210 with the with the fervor that I did, but there during the whole Emily Valentine section of BH9er, they Brandon went to her apartment in San Francisco, and they perfectly chose a San Francisco type apartment for her apartment. What is that ridiculous yet weirdly enjoyable Mark Ruffalo ghost film with Reese Witherspoon? That's another one in which she lives in a nice quintessential San Francisco apartment.
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:29:44] Adam: yeah.
 
-[00:29:45] Will: It's it's on like the the the obviously the famous stretch of Lombard Street. That's the windiest street in the world, and it's you know a 25,000,000 dollar house now, probably.
+[00:29:45] Will: It's it's on like the the the obviously the famous stretch of Lombard Street. That's the windiest street in the world, and it's you know a $25 million house now, probably.
 
 [00:29:53] Adam: Right. Of course.
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:33:49] Norm: All right. I'm going to share some links in the description for where people can find the movie. Again, Criterion Channel's easiest way if it's available in your country.
 
-[00:33:59] Adam: And and also, if you go and sign up for Criterion Channel and you find a lost film you haven't seen in a long time or you discover something new, we'd love to hear about it in the comments. The Criterion people don't realize this, and Amazon seems to have a lot of movies, but there are still video stores around the world that have. Ten times as many movies as Amazon has available, right? Like there's a lot of films being lost in the streaming. For instance, Valley Girl just went to streaming for the first time.
+[00:33:59] Adam: And and also, if you go and sign up for Criterion Channel and you find a lost film you haven't seen in a long time or you discover something new, we'd love to hear about it in the comments. The Criterion people don't realize this, and Amazon seems to have a lot of movies, but there are still video stores around the world that have. 10 times as many movies as Amazon has available, right? Like there's a lot of films being lost in the streaming. For instance, Valley Girl just went to streaming for the first time.
 
 [00:34:28] Norm: Wow, really?
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:35:31] Adam: Will, what are you? What's coming up?
 
-[00:35:33] Will: We've got this week on the TechPod. Brad and I talked about projects that we've been doing while we've been sheltering in place. So, Brad is building a MiSTer, which is an FPGA-based, like like old video game hardware emulator. So, it it it it basically reconfigures the FPGA, which is a CPU that you can make reconfigure the circuitry inside, and it mimics a SNES or Genesis or all the way through like modern, more modern arcade systems and stuff like that. I talked about lighting and like like doing fixing the lights. I I had LEDs dimmed to the point that I had to replace them, which is the way I didn't realize, but the way LED bulbs die is Over time, they just gradually decrease in luminance until eventually you're standing in your kitchen trying to chop stuff, and you're like, " Man, it's dark in here. What the hell's going on?" And I replaced one of the bulbs. I was like, " Oh shit, these are ten years old now, so probably it's about time." And yeah, and that that turned out to be the problem. So, you know, really exciting stuff. But but and then we got into some we got into some other stuff as well. So there's there's a bunch of good projects and stuff in there.
+[00:35:33] Will: We've got this week on the TechPod. Brad and I talked about projects that we've been doing while we've been sheltering in place. So, Brad is building a MiSTer, which is an FPGA-based, like like old video game hardware emulator. So, it it it it basically reconfigures the FPGA, which is a CPU that you can make reconfigure the circuitry inside, and it mimics a SNES or Genesis or all the way through like modern, more modern arcade systems and stuff like that. I talked about lighting and like like doing fixing the lights. I I had LEDs dimmed to the point that I had to replace them, which is the way I didn't realize, but the way LED bulbs die is Over time, they just gradually decrease in luminance until eventually you're standing in your kitchen trying to chop stuff, and you're like, " Man, it's dark in here. What the hell's going on?" And I replaced one of the bulbs. I was like, " Oh shit, these are 10 years old now, so probably it's about time." And yeah, and that that turned out to be the problem. So, you know, really exciting stuff. But but and then we got into some we got into some other stuff as well. So there's there's a bunch of good projects and stuff in there.
 
 [00:36:42] Adam: Fabulous.
 

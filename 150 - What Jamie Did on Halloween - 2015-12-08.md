@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:03:02] Will: Oh,
 
-[00:03:02] Norm: I am watching it three times the first weekend, twice in seventy millimeter IMAX.
+[00:03:02] Norm: I am watching it three times the first weekend, twice in 70 millimeter IMAX.
 
 [00:03:07] Adam: I will still be on tour when it comes out.
 
@@ -84,9 +84,9 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:03:29] Adam: What date does it open?
 
-[00:03:29] Will: This is seventeen
+[00:03:29] Will: This is 17
 
-[00:03:30] Norm: seven p.m.. on the seventeenth.
+[00:03:30] Norm: seven p.m.. on the 17th.
 
 [00:03:32] Adam: which is
 
@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:03:42] Norm: What Adam is asking for, like three tickets.
 
-[00:03:44] Adam: no. Here is the thing: is I am actually on the sixteenth. I am performing, I think, in Portland, Oregon. On the eighteenth, I am performing in Fresno, California, and on the nineteenth. We are doing our last show here in San Francisco, and that is the last Jamie show. It's the last Adam and Jamie touring show. It's this the end of everything.
+[00:03:44] Adam: no. Here is the thing: is I am actually on the 16th. I am performing, I think, in Portland, Oregon. On the 18th, I am performing in Fresno, California, and on the 19th. We are doing our last show here in San Francisco, and that is the last Jamie show. It's the last Adam and Jamie touring show. It's this the end of everything.
 
 [00:04:09] Will: Yeah,
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:04:10] Will: at the end you are gonna murder Jamie live on stage.
 
-[00:04:14] Adam: But on the seventeenth, I don't have anything to do. It's actually a day off
+[00:04:14] Adam: But on the 17th, I don't have anything to do. It's actually a day off
 
 [00:04:18] Norm: between the Portland and Fresno? Are you actually traveling through San Francisco?
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:04:24] Norm: Oh my goodness!
 
-[00:04:25] Will: What an amazing San Francisco Fresno the eighteenth. The fates are aligned. They're they're dueling. Um. Hey,
+[00:04:25] Will: What an amazing San Francisco Fresno the 18th. The fates are aligned. They're they're dueling. Um. Hey,
 
 [00:04:33] Adam: nice. Well done, Will.
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:09:26] Norm: With the Props, and
 
-[00:09:27] Adam: I haven't gone to look at them. I only saw the Han Solo one, which seems to show what looks like a modified DL forty four with a machined flat bottom
+[00:09:27] Adam: I haven't gone to look at them. I only saw the Han Solo one, which seems to show what looks like a modified DL-44 with a machined flat bottom
 
 [00:09:36] Norm: machined flat bottom, which is nice, but also it has the magazine, so it's not exactly the same as the old one.
 
@@ -390,9 +390,9 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:11:30] Adam: Let's see. One, two, three, four.
 
-[00:11:33] Will: It would be each one of these stacks is two grand because it looks like they're twenty.
+[00:11:33] Will: It would be each one of these stacks is $2,000 because it looks like they're 20.
 
-[00:11:37] Adam: Well, no, no, no. So the that's ten grand right there. Those are hundred dollar chips. Yeah. So I've got six and twelve, and there's a hundred. So I have twelve hundred of these chips in all the denominations that they are in the movie Rounders, the greatest poker movie. I love it. It doesn't reflect. I look. It's it's poker. It's it's poker philosophy is a little off, but it's a brilliant, dramatic film. I love it.
+[00:11:37] Adam: Well, no, no, no. So the that's $10,000 right there. Those are $100 chips. Yeah. So I've got 6 and 12, and there's 100. So I have 1,200 of these chips in all the denominations that they are in the movie Rounders, the greatest poker movie. I love it. It doesn't reflect. I look. It's it's poker. It's it's poker philosophy is a little off, but it's a brilliant, dramatic film. I love it.
 
 [00:12:01] Will: Yes.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:12:21] Will: Did you go through a poker phase? Did you play poker?
 
-[00:12:23] Adam: I did. We played poker for several years with some friends every Sunday night, and I actually have a set of custom chips I had made called Sunday Night Chips in the denominations we played in. Forty dollar buy-in. Um,
+[00:12:23] Adam: I did. We played poker for several years with some friends every Sunday night, and I actually have a set of custom chips I had made called Sunday Night Chips in the denominations we played in. $40 buy-in. Um,
 
 [00:12:35] Will: that's a good. That's a good. That's the right stakes.
 
@@ -430,15 +430,15 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:12:51] Will: It was all in.
 
-[00:12:51] Adam: If you had 200 bucks in your stack and you were up against another stack that big, you could go all in.
+[00:12:51] Adam: If you had $200 in your stack and you were up against another stack that big, you could go all in.
 
 [00:12:55] Will: Nice
 
 [00:12:56] Adam: power moves.
 
-[00:12:56] Will: This is these are like eleven and a half inch, eleven and a half gram chips. These are nice.
+[00:12:56] Will: This is these are like 11.5 inch, 11.5 gram chips. These are nice.
 
-[00:13:00] Adam: These are heavy. These are real professionally made. We once in my home poker game had four jacks. He flopped four jacks. This is we play no limit hold'em with a fifty cent one dollar buy-in.
+[00:13:00] Adam: These are heavy. These are real professionally made. We once in my home poker game had four jacks. He flopped four jacks. This is we play no limit hold'em with a $0.50/$1 buy-in.
 
 [00:13:13] Will: Okay.
 
@@ -492,11 +492,11 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:15:10] Adam: It is totally unpredictable, and we've you know it was it was a lovely game for a while, but we've been thinking lately we've got to do it again. And I think in January I'm going to start up a regular night game because it's really fun to do. Have you had a poker game?
 
-[00:15:22] Will: We had future when we were making magazines. We had a weekly game. It was like Tuesday night after work, and we would play until ten or eleven o'clock at night, and it was like a twenty dollars buy-in because you know we were journalists. Yeah, forty dollars. I mean that's that's like a week's salary.
+[00:15:22] Will: We had future when we were making magazines. We had a weekly game. It was like Tuesday night after work, and we would play until ten or eleven o'clock at night, and it was like a $20 buy-in because you know we were journalists. Yeah, $40. I mean that's that's like a week's salary.
 
 [00:15:35] Adam: That's two articles.
 
-[00:15:36] Will: Yeah, the oh, that's too close, man. The the the but yeah, it was we would play we played. I want to say we played limit for a long time, and then we occasionally, if people felt like they were going to stay around, we play a tournament. So we we do a twenty dollars buy in, and then winner takes all, and you could do rebuys once.
+[00:15:36] Will: Yeah, the oh, that's too close, man. The the the but yeah, it was we would play we played. I want to say we played limit for a long time, and then we occasionally, if people felt like they were going to stay around, we play a tournament. So we we do a $20 buy in, and then winner takes all, and you could do rebuys once.
 
 [00:15:53] Adam: We never did it. I think we we maybe did a tournament once, where immediately after three people were out, they just started a side game.
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:20:18] Will: I figured it would be a Kubrick, but I wasn't sure which one.
 
-[00:20:20] Adam: But you know, at the same time, visiting, you know, what would it have been like to watch an under thirty year old Steven Spielberg directing Jaws and solving those problems on a day to day basis and basically. Inventing the mod, the a genre of film with that movie.
+[00:20:20] Adam: But you know, at the same time, visiting, you know, what would it have been like to watch an under 30 year old Steven Spielberg directing Jaws and solving those problems on a day to day basis and basically. Inventing the mod, the a genre of film with that movie.
 
 [00:20:39] Norm: It'd be every. Why isn't the shark working today? Why isn't the shark working today?
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:22:43] Norm: What you're actually going to get out of it.
 
-[00:22:44] Adam: It's quite fascinating to read early episodes versus. Sorry, it's quite fascinating to read early issues of Cinefex versus late issues of Cinefex. If you read up to like issue, probably I don't know, sixty or something like that, you're getting a lot of unvarnished stuff.
+[00:22:44] Adam: It's quite fascinating to read early episodes versus. Sorry, it's quite fascinating to read early issues of Cinefex versus late issues of Cinefex. If you read up to like issue, probably I don't know, 60 or something like that, you're getting a lot of unvarnished stuff.
 
 [00:23:01] Will: Oh, really?
 
@@ -760,7 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:30:14] Unknown speaker: Oh my gosh.
 
-[00:29:29] Will: You put you screw belts into the edges, and it'll track back and forth. And you can you you can use it to make a huge giant router table that you can then use to break down a sheet of plywood. Wow, it is incredible. It's a little bit expensive. I think it's three or four grand. But
+[00:29:29] Will: You put you screw belts into the edges, and it'll track back and forth. And you can you you can use it to make a huge giant router table that you can then use to break down a sheet of plywood. Wow, it is incredible. It's a little bit expensive. I think it's $3,000 or $4,000. But
 
 [00:30:28] Adam: we have to we have to look into that.
 
@@ -800,7 +800,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:31:02] Will: Oh, damn, I'm smooth.
 
-[00:31:04] Norm: Crossing fingers that you're available that seventeenth, December 17.
+[00:31:04] Norm: Crossing fingers that you're available that 17th, December 17.
 
 [00:31:07] Adam: We're gonna we're gonna work that out.
 

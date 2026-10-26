@@ -14,7 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:00:37] Will: I, I, I was already through the point of just making that decision before I realized I had not contracted. So,
 
-[00:00:42] Norm: apologies for the late podcast this week. We're recording. We've decided to wait till four twenty to record the podcast.
+[00:00:42] Norm: apologies for the late podcast this week. We're recording. We've decided to wait till 4/20 to record the podcast.
 
 [00:00:42] Will: Woo! Dude!
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:04:34] Will: that's in your wheelhouse,
 
-[00:04:42] Adam: right? Ten years ago,
+[00:04:42] Adam: right? 10 years ago,
 
 [00:04:42] Will: yeah.
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:09:09] Adam: who knows
 
-[00:09:18] Norm: the trailer form factor. The ninety second now two and a half minute trailer is just a piece of anthropology in the history, the chronology of filmmaking.
+[00:09:18] Norm: the trailer form factor. The 90 second now two and a half minute trailer is just a piece of anthropology in the history, the chronology of filmmaking.
 
 [00:09:18] Adam: Yeah,
 
@@ -350,7 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:13:09] Will: the visual like I read this. This is a script that I read years ago because Jon Spaihts has done. He wrote Doctor Strange last year. it’s a really good script,
 
-[00:13:16] Adam: you read the script that Keanu Reeves had been developing for ten years. Yeah, I want to read that.
+[00:13:16] Adam: you read the script that Keanu Reeves had been developing for 10 years. Yeah, I want to read that.
 
 [00:13:20] Norm: Yeah, I have that
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:15:00] Norm: Right, the background. The
 
-[00:15:01] Adam: background is yes, the ship of people in hypersleep are heading on a hundred and twenty journey, a hundred, a hundred and twenty year journey to a new Earth.
+[00:15:01] Adam: background is yes, the ship of people in hypersleep are heading on a 120 journey, a 100, a 120 year journey to a new Earth.
 
 [00:15:07] Norm: Right. And Chris Pratt plays,
 
@@ -418,9 +418,9 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:15:23] Norm: Malfunction.
 
-[00:15:31] Will: He has ninety years on the voyage to go when he wakes up,
+[00:15:31] Will: He has 90 years on the voyage to go when he wakes up,
 
-[00:15:33] Norm: and he's he's like thirty something years old. He's going to die. So the The conflict comes in in that he decides to wake up a fellow passenger.
+[00:15:33] Norm: and he's he's like 30 something years old. He's going to die. So the The conflict comes in in that he decides to wake up a fellow passenger.
 
 [00:15:40] Adam: He decides not to kill himself.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:22:16] Will: So then it's a thriller rather than a romance.
 
-[00:22:18] Norm: Exactly, and that's how yeah, and and I think it does work that way, but I disagree. I disagree. I think I think that is a fair way to edit what's already been done, but I think it betrays the intent of the film, which is. It wasn't intended. It wasn't intended to be a thriller and a horror. If you wanted to make a thriller and a horror, yes, you could make it that way. But I would rather try to save the film and make it more thought provoking, with the intent that Jon Spaihts had in the film. And there are a couple a couple ways that I think, as I watched this film, that I would have either changed or ended it. And people have thrown these suggestions out. Also, one I think would have been cool to have a reveal to show wake from her perspective as well, but reveal that he woke up not one year ago, but like twenty years ago
+[00:22:18] Norm: Exactly, and that's how yeah, and and I think it does work that way, but I disagree. I disagree. I think I think that is a fair way to edit what's already been done, but I think it betrays the intent of the film, which is. It wasn't intended. It wasn't intended to be a thriller and a horror. If you wanted to make a thriller and a horror, yes, you could make it that way. But I would rather try to save the film and make it more thought provoking, with the intent that Jon Spaihts had in the film. And there are a couple a couple ways that I think, as I watched this film, that I would have either changed or ended it. And people have thrown these suggestions out. Also, one I think would have been cool to have a reveal to show wake from her perspective as well, but reveal that he woke up not one year ago, but like 20 years ago
 
 [00:23:03] Will: or eight years. [unclear: Like really, like / like a really like / Right, right, right] and
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:23:41] Norm: Yeah,
 
-[00:23:42] Adam: I mean, she's a wonderful actress, and I love her, and she deserves her Oscar. But as a romantic lead, she's like what, like twenty four?
+[00:23:42] Adam: I mean, she's a wonderful actress, and I love her, and she deserves her Oscar. But as a romantic lead, she's like what, like 24?
 
 [00:23:48] Norm: Like when I was reading the script, it in my mind was like Michelle Monaghan. Someone like
 
@@ -732,17 +732,17 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:27:14] Norm: they have one day with each other every every every year and so by the end of the film
 
-[00:27:19] Adam: [unclear: ninety / You romantic, I love that]
+[00:27:19] Adam: [unclear: 90 / You romantic, I love that]
 
 [00:27:20] Norm: years later they are
 
 [00:27:22] Will: married last year.
 
-[00:27:23] Norm: they they they are ninety years old they get to see the landing of the ship
+[00:27:23] Norm: they they they are 90 years old they get to see the landing of the ship
 
 [00:27:23] Adam: yeah
 
-[00:27:23] Norm: and everyone wakes up and they are two old people because they've each have the time they needed the forty five years and they say spend one day with each other
+[00:27:23] Norm: and everyone wakes up and they are two old people because they've each have the time they needed the 45 years and they say spend one day with each other
 
 [00:27:34] Will: and then they both die holding hands but
 
@@ -870,7 +870,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:31:39] Adam: Josh, my lighting guy on the tour, was playing it every every single day.
 
-[00:31:43] Will: Well, and the fact that it's on the switch, so you can like just chuck it in your bag when you're on the train or whatever. Have ten minutes, you can load it up and go fishing.
+[00:31:43] Will: Well, and the fact that it's on the switch, so you can like just chuck it in your bag when you're on the train or whatever. Have 10 minutes, you can load it up and go fishing.
 
 [00:31:49] Adam: I wanted to point out that I keep forgetting to mention this, but my mom listens to this podcast.
 

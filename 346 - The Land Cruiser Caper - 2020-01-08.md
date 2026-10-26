@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:03:24] Unknown speaker: Oh, wow.
 
-[00:03:26] Will: and it's really cool. It's it's it's like very cool if you are ten. It's you look at it and you’re like, oh man,
+[00:03:26] Will: and it's really cool. It's it's it's like very cool if you are 10. It's you look at it and you’re like, oh man,
 
 [00:03:32] Norm: where do they store that stuff? I
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:03:36] Unknown speaker: You got it. You got it.
 
-[00:03:37] Will: How we found out about it, yeah, Um. but it was it was it just looked like a nightmare to set up and take down. I was just looking. I was like, this is this is like a solid ten days of work. It looks like
+[00:03:37] Will: How we found out about it, yeah, Um. but it was it was it just looked like a nightmare to set up and take down. I was just looking. I was like, this is this is like a solid 10 days of work. It looks like
 
 [00:03:47] Norm: Don’t take it down.
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:04:26] Will: It was.
 
-[00:04:26] Will: It seemed like the video made it look very fast. I did not spend 300 dollars on the Christmas lights to find out.
+[00:04:26] Will: It seemed like the video made it look very fast. I did not spend $300 on the Christmas lights to find out.
 
 [00:04:33] Norm: That difficult of a problem.
 
@@ -280,11 +280,11 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:07:00] Will: It seems like a low percentage car. That has to be a
 
-[00:07:01] Adam: fairly rare item. I don’t know whether that means there’s ten or fifty here, or
+[00:07:01] Adam: fairly rare item. I don’t know whether that means there’s 10 or 50 here, or
 
-[00:07:06] Will: like two hundred, or
+[00:07:06] Will: like 200, or
 
-[00:07:06] Adam: two hundred. But I came home from the police station and I was typing up a tweet that was going to announce to Land Cruiser owners the countrywide, " Hey, here's my engine number, my VIN number. This Land Cruiser is stolen. Keep an eye out for it." And I felt fairly confident I would see my cruiser again,
+[00:07:06] Adam: 200. But I came home from the police station and I was typing up a tweet that was going to announce to Land Cruiser owners the countrywide, " Hey, here's my engine number, my VIN number. This Land Cruiser is stolen. Keep an eye out for it." And I felt fairly confident I would see my cruiser again,
 
 [00:07:25] Will: yeah,
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:09:28] Will: Okay.
 
-[00:09:28] Adam: I think that when he when he so I I can't see his face on my ring camera because ring cameras suck, but I could see him hotwire the car and drive away. So I could hear that he could drive a stick. I know it's a he. I could see his body shape, and he left the house at four a.m. about ten minutes before four a.m. and the neighbors didn't hear him grinding the car into the mud until about six after six. So there's a couple of hours where he's driving around the city.
+[00:09:28] Adam: I think that when he when he so I I can't see his face on my ring camera because ring cameras suck, but I could see him hotwire the car and drive away. So I could hear that he could drive a stick. I know it's a he. I could see his body shape, and he left the house at four a.m. about 10 minutes before four a.m. and the neighbors didn't hear him grinding the car into the mud until about six after six. So there's a couple of hours where he's driving around the city.
 
 [00:09:59] Norm: Yeah.
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:12:24] Will: Yeah.
 
-[00:12:24] Adam: And they were like, if we pull it, it could tip over. And I said, actually, decidedly not. It's in a hole that's making it face thirty degrees, but the ground is only at like eighteen degrees. So the moment you pull it back, it's going to go level up. And they were like, well, if you are willing to take responsibility, and I’m like, well, Yeah, sure, go do it. And we did it, and it was fine. It worked perfectly.
+[00:12:24] Adam: And they were like, if we pull it, it could tip over. And I said, actually, decidedly not. It's in a hole that's making it face 30 degrees, but the ground is only at like 18 degrees. So the moment you pull it back, it's going to go level up. And they were like, well, if you are willing to take responsibility, and I’m like, well, Yeah, sure, go do it. And we did it, and it was fine. It worked perfectly.
 
 [00:12:45] Will: Come back out and build a fence the next day if it doesn't work out.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:12:59] Adam: Well, so math, mathematically, if you want to reduce the couch problem, which is an irregular object moving around a corner in a confined space. There is still not yet, and I think Matt Parker from Numberphile visiting San Francisco again soon. So I'll have to double check with him. But I think there is still not yet a definitive proof for N shape to get around X corner, Y corner. To that, yes, it's possible or not possible. It is a way thornier problem than you think it is. The couch down the hall, couch up the stairs.
 
-[00:13:37] Will: Yeah, up the ninety degree turn.
+[00:13:37] Will: Yeah, up the 90 degree turn.
 
 [00:13:39] Unknown speaker: Yeah.
 
@@ -564,7 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:18:38] Adam: Dude, electronic candles. I mean, I know we just did my one day build with the flame bulb, but electronic candles is something we haven't covered, and they're amazing.
 
-[00:18:44] Will: There's there's so much cool work happening in everything from like those tea lights that IKEA sells for like 75 cents each.
+[00:18:44] Will: There's there's so much cool work happening in everything from like those tea lights that IKEA sells for like $0.75 each.
 
 [00:18:51] Adam: Yeah,
 
@@ -908,13 +908,13 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:28:28] Adam: What?
 
-[00:28:28] Norm: It is a one hour, fifty-eight minute movie. It tells essentially the two-hour adventure of these two soldiers, British soldiers, who have a mission to do behind the no man's land to start in the trenches, World War One, 1917, in no man's land on the British side, and they have to end up on another front line.
+[00:28:28] Norm: It is a one hour, 58 minute movie. It tells essentially the two-hour adventure of these two soldiers, British soldiers, who have a mission to do behind the no man's land to start in the trenches, World War One, 1917, in no man's land on the British side, and they have to end up on another front line.
 
 [00:28:49] Will: Dude, Wonder Woman did that in like two minutes.
 
 [00:28:51] Norm: Well, geographically,
 
-[00:28:54] Adam: there's a lot of versions of this movie that last ninety seconds.
+[00:28:54] Adam: there's a lot of versions of this movie that last 90 seconds.
 
 [00:28:56] Will: Yeah, I was gonna say.
 
@@ -1008,7 +1008,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:32:34] Adam: It's got a momentum,
 
-[00:32:35] Norm: and the first I would say ten minutes is them working through these walking through these trenches and having their conversations, and it's exhausting. But there's also not a lot going on because it's a different part of the front line, and so you have the soldiers kind of going about their lives, and it's like, well, I don't know if I want to watch. You know, the two guys having a 15 minute conversation. I want to get to the action, but I think that's all intentional because by the time you get to the action, you want the quiet moments, just like in the war.
+[00:32:35] Norm: and the first I would say 10 minutes is them working through these walking through these trenches and having their conversations, and it's exhausting. But there's also not a lot going on because it's a different part of the front line, and so you have the soldiers kind of going about their lives, and it's like, well, I don't know if I want to watch. You know, the two guys having a 15 minute conversation. I want to get to the action, but I think that's all intentional because by the time you get to the action, you want the quiet moments, just like in the war.
 
 [00:33:03] Adam: Right, right,
 
@@ -1040,7 +1040,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:34:01] Norm: It's more kind of casino.
 
-[00:34:02] Adam: Ish, but it's basically, I. It's enjoyable, ish. Jennifer Lopez is amazing. I've been a fan of her since the beginning. She's phenomenal actress, and she does great in it. But this movie feels like it was directed by a couple of fifteen-year-olds. It is. 28 minutes into the film before you see a woman wearing normal street clothes.
+[00:34:02] Adam: Ish, but it's basically, I. It's enjoyable, ish. Jennifer Lopez is amazing. I've been a fan of her since the beginning. She's phenomenal actress, and she does great in it. But this movie feels like it was directed by a couple of 15-year-olds. It is. 28 minutes into the film before you see a woman wearing normal street clothes.
 
 [00:34:26] Will: So slightly less horny than cats.
 
@@ -1136,7 +1136,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:39:56] Norm: One takeaway I had was I want to see him. I know he's limited number of films he wants to direct.
 
-[00:40:00] Adam: He says he wants to do ten, and that's it. This is the ninth. This is
+[00:40:00] Adam: He says he wants to do 10, and that's it. This is the ninth. This is
 
 [00:40:03] Norm: yeah, yeah.
 

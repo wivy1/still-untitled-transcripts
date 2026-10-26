@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=fwM1wYjqiDw
 
 [00:02:31] Adam: To a degree, that's almost hard to parse how good her timing actually is.
 
-[00:02:31] Will: So, yeah, it's like I I record her show. It's on our TiVo, partly because my wife likes it, but partly because when she has an interview with somebody interesting, on she asks softball questions ninety ninety percent of the time. But she's she's a really really good interviewer.
+[00:02:31] Will: So, yeah, it's like I I record her show. It's on our TiVo, partly because my wife likes it, but partly because when she has an interview with somebody interesting, on she asks softball questions 90 90% of the time. But she's she's a really really good interviewer.
 
 [00:02:31] Adam: She's
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=fwM1wYjqiDw
 
 [00:04:40] Will: Yes.
 
-[00:04:40] Adam: Their budget, if the headline on Reddit is correct, their budget was like 300 dollars for makeup for that whole film.
+[00:04:40] Adam: Their budget, if the headline on Reddit is correct, their budget was like $300 for makeup for that whole film.
 
 [00:04:58] Norm: Well, does, does Matthew McConaughey in makeup this year?
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=fwM1wYjqiDw
 
 [00:05:00] Adam: and actually Jared Leto and Matthew McConaughey are both shockingly brilliant.
 
-[00:05:09] Norm: So someone told you ten years ago Matthew McConaughey was going to win an Oscar for acting.
+[00:05:09] Norm: So someone told you 10 years ago Matthew McConaughey was going to win an Oscar for acting.
 
 [00:05:09] Adam: Hold on,
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=fwM1wYjqiDw
 
 [00:14:39] Unknown speaker: Mm-hmm.
 
-[00:14:39] Adam: and those each go in a folder by the name of that item. Okay. And so then I'll make compendium drawings where I call out each of those. That's what these are all called. So when I go back in, so my my Often when I'm done with a project, what started out as a single folder for pictures becomes like 75 subfolders of all the subcategories. And there will be drawings because I do like to do drawings. And I do this project I'm working on involves a lot of cloth and patterns, and those patterns all need to be drawn full scale, and those get put into a book. So I I have kept a long book of this of the process of building this, basically a Moleskine graph book, a full eight and a half by eleven Moleskine graph paper book, and I I have about a dozen of those for different projects because they're really good for for working in. But as far as bridging this gap between making drawings that are illustrations of what I'm doing as well as sort of feeding the beast, the obsession, this is new and it's it's it's kind of feels like an awesome. Like as soon as we leave the studio, we're like, oh, this is awesome. I'm going to leave here, I'm going to go home, order some dinner, and sit down.
+[00:14:39] Adam: and those each go in a folder by the name of that item. Okay. And so then I'll make compendium drawings where I call out each of those. That's what these are all called. So when I go back in, so my my Often when I'm done with a project, what started out as a single folder for pictures becomes like 75 subfolders of all the subcategories. And there will be drawings because I do like to do drawings. And I do this project I'm working on involves a lot of cloth and patterns, and those patterns all need to be drawn full scale, and those get put into a book. So I I have kept a long book of this of the process of building this, basically a Moleskine graph book, a full 8.5 by 11 Moleskine graph paper book, and I I have about a dozen of those for different projects because they're really good for for working in. But as far as bridging this gap between making drawings that are illustrations of what I'm doing as well as sort of feeding the beast, the obsession, this is new and it's it's it's kind of feels like an awesome. Like as soon as we leave the studio, we're like, oh, this is awesome. I'm going to leave here, I'm going to go home, order some dinner, and sit down.
 
 [00:15:58] Norm: Are you using graph paper?
 

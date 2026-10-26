@@ -258,9 +258,9 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:10:54] Adam: and it feels it feels like we're guardians of something really special,
 
-[00:11:04] Ryan Kiser: absolutely. And like you're talking about the expo, you know, and and you know, you know, we're kind of in this, you know, this box. You know, we we make stuff, we put it out, and we read comments. But like, you know, you get somebody that comes up, and and you know, we had all these props set up, and people like, I remember that video, I remember this video, and there's just the again, it's the genuine just love of just like, wow, I learned how to do this because of this, and like that's like priceless. Yeah. There's, I mean, the worst day in the world turned around after you know ten minutes with somebody from college. You know,
+[00:11:04] Ryan Kiser: absolutely. And like you're talking about the expo, you know, and and you know, you know, we're kind of in this, you know, this box. You know, we we make stuff, we put it out, and we read comments. But like, you know, you get somebody that comes up, and and you know, we had all these props set up, and people like, I remember that video, I remember this video, and there's just the again, it's the genuine just love of just like, wow, I learned how to do this because of this, and like that's like priceless. Yeah. There's, I mean, the worst day in the world turned around after you know 10 minutes with somebody from college. You know,
 
-[00:11:32] Adam: 100%. I um I was I was it was a little rough having Totoro out of my house for a whole weekend. The weekend of the Crunchyroll Expo, I am really glad that like hundreds and hundreds of people got pictures with Totoro. Um, this Friday, my friend Stephen's band, the Morning Line, played a show at the Makeout Room, and was that Friday or Saturday? I'm thinking I can't honestly remember. It was one of those two days. Anyway, the Morning Line was. Fabulous! It was a great show. It was all our friends at the makeout room. We brought them all back to the house because, again, it was still eighty on the deck.
+[00:11:32] Adam: 100%. I um I was I was it was a little rough having Totoro out of my house for a whole weekend. The weekend of the Crunchyroll Expo, I am really glad that like hundreds and hundreds of people got pictures with Totoro. Um, this Friday, my friend Stephen's band, the Morning Line, played a show at the Makeout Room, and was that Friday or Saturday? I'm thinking I can't honestly remember. It was one of those two days. Anyway, the Morning Line was. Fabulous! It was a great show. It was all our friends at the makeout room. We brought them all back to the house because, again, it was still 80 on the deck.
 
 [00:12:07] Norm: Right.
 
@@ -316,13 +316,13 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:13:26] Norm: Subcultures within subcultures can be built over the course of a Labor Day weekend. We weren't there, but I mean, the costumes that come out DragonCon are probably some of the best.
 
-[00:13:36] Adam: DragonCon is. I'm I'm not going to say that it makes many other cons I've been to feel like amateur night because it totally doesn't. But there is a there is a saturation to the cosplay at DragonCon that is really unique. It is a it's a smaller con on average about forty thousand people go
+[00:13:36] Adam: DragonCon is. I'm I'm not going to say that it makes many other cons I've been to feel like amateur night because it totally doesn't. But there is a there is a saturation to the cosplay at DragonCon that is really unique. It is a it's a smaller con on average about 40,000 people go
 
 [00:13:56] Norm: and it's it's a different type of structure.
 
 [00:13:59] Adam: Downtown Atlanta,
 
-[00:14:00] Norm: right? It is. Open ballrooms, open atriums of interconnected hotels, as opposed to an exhibit floor with booths to buy stuff. This is a three-day long, seventy-two-hour party.
+[00:14:00] Norm: right? It is. Open ballrooms, open atriums of interconnected hotels, as opposed to an exhibit floor with booths to buy stuff. This is a three-day long, 72-hour party.
 
 [00:14:00] Adam: Yeah,
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:25:09] Norm: without seeing how it can be developed.
 
-[00:26:01] Adam: Oh no, no, no! I read a detailed, like, thousand-word article about how stupid it was to set Wonder Woman in World War One.
+[00:26:01] Adam: Oh no, no, no! I read a detailed, like, 1,000-word article about how stupid it was to set Wonder Woman in World War One.
 
 [00:26:01] Norm: Right, right.
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:26:01] Norm: yeah.
 
-[00:26:01] Adam: Like before anyone had seen any pictures of anything, and someone's like, " Well, I need to spend a thousand words telling you why this should never happen, and this film will fail."
+[00:26:01] Adam: Like before anyone had seen any pictures of anything, and someone's like, " Well, I need to spend 1,000 words telling you why this should never happen, and this film will fail."
 
 [00:26:24] Norm: Well, did you hear about the the six stages of fandom? Right, it's like I love this, um, I, I love this, I own this,
 

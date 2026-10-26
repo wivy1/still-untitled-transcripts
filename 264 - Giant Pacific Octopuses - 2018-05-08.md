@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:04:54] Will: The I know that for a while, the like as the Soviet Union was collapsing, the Russian hardware was available at. Fire sale prices, but that was, I think, when I was in college. For the most part, I
 
-[00:05:03] Adam: think a while back, a few years ago, you could still buy a so-called Russian suit for about 20,000 bucks, but no longer.
+[00:05:03] Adam: think a while back, a few years ago, you could still buy a so-called Russian suit for about $20,000, but no longer.
 
 [00:05:03] Will: Yeah,
 
@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:05:33] Will: yeah right and and moving on to the real one seems like a natural progression to me, so it's not not surprising.
 
-[00:05:39] Adam: I have this ultimate goal to like line up twenty spacesuits all in in one room.
+[00:05:39] Adam: I have this ultimate goal to like line up 20 spacesuits all in in one room.
 
 [00:05:45] Will: You gotta be close.
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:07:27] Will: Like how far are we talking about digging? We're going to go center of the planet or
 
-[00:07:30] Norm: sixteen feet?
+[00:07:30] Norm: 16 feet?
 
 [00:07:30] Will: Okay,
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:07:33] Will: That's a substantial because like previously we mostly just scrape on the surface and drill down a little bit.
 
-[00:07:37] Adam: It's it's it's. I love the high low aspect of this because what they're doing to like send something to Mars to drill sixteen feet into the surface is a gargantuan engineering feat. And yet you could also phrase it like we're going to drill no farther into Mars than your high school bedroom.
+[00:07:37] Adam: It's it's it's. I love the high low aspect of this because what they're doing to like send something to Mars to drill 16 feet into the surface is a gargantuan engineering feat. And yet you could also phrase it like we're going to drill no farther into Mars than your high school bedroom.
 
 [00:07:53] Will: Yeah, and the
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:07:55] Will: Look, look.
 
-[00:07:55] Norm: I might even be wrong. I might be sixteen inches.
+[00:07:55] Norm: I might even be wrong. I might be 16 inches.
 
 [00:08:02] Norm: I had not a lot of sleep these past couple of days.
 
@@ -352,11 +352,11 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:11:31] Will: Did it like get light or anything?
 
-[00:11:33] Norm: No. Well, this we we heard the countdown, so like people are like, " Oh, you got you're there. You must like the sense of anticipation." And yes, everyone was waiting there with their gear, and you know the military is running it; it's on their base, and you hear a little bit of their comms. We're checking Twitter like everyone else. We're like checking Twitter, checking the website for the updates because we have no tapping into. You can't tap into comms, so we're like, okay, Twitter says it's on track. You know they had the lowest visibility, but it's fine. And then the count, you know, once it was a 405. Start, and then they were right on time. You know, the countdown, then a fifteen-minute planned break, then the minute countdown. Everyone's quietly, all the lights turn off, and then all the spotlights turn down, and everyone's quietly counting down, and then it launched, and we were about four miles away, and we saw nothing.
+[00:11:33] Norm: No. Well, this we we heard the countdown, so like people are like, " Oh, you got you're there. You must like the sense of anticipation." And yes, everyone was waiting there with their gear, and you know the military is running it; it's on their base, and you hear a little bit of their comms. We're checking Twitter like everyone else. We're like checking Twitter, checking the website for the updates because we have no tapping into. You can't tap into comms, so we're like, okay, Twitter says it's on track. You know they had the lowest visibility, but it's fine. And then the count, you know, once it was a 405. Start, and then they were right on time. You know, the countdown, then a 15-minute planned break, then the minute countdown. Everyone's quietly, all the lights turn off, and then all the spotlights turn down, and everyone's quietly counting down, and then it launched, and we were about four miles away, and we saw nothing.
 
 [00:11:33] Will: No light.
 
-[00:11:33] Norm: [Norm] We saw nothing. [Unknown speaker] We saw nothing. [Norm] It wasn't until maybe ten seconds later,
+[00:11:33] Norm: [Norm] We saw nothing. [Unknown speaker] We saw nothing. [Norm] It wasn't until maybe 10 seconds later,
 
 [00:12:23] Will: California coastal fog,
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:14:16] Unknown speaker (Adam or Will): Nice.
 
-[00:14:16] Norm: our cheapest iPhone and GoPro took the exact same imagery as the 50,000 dollar camera next to us, which was blackness.
+[00:14:16] Norm: our cheapest iPhone and GoPro took the exact same imagery as the $50,000 camera next to us, which was blackness.
 
 [00:15:28] Will: I was gonna say there was a really good article on. I think it was on Tested. It was one of Terry's articles the other day about the one of the guys who's a rocket photographer and based out of Florida. It seemed like mostly.
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:15:40] Norm: Oh, there's some there's some people there who like it's a if you live in that area, whether it's Southern California or Central Coast, take advantage of it because NASA. If you can, if you work for your school newspaper or something, I met a 15 year old, and this was his like fifth rocket launch that he got to be a professional photographer.
 
-[00:15:57] Will: Even like they they have a program where people who have like social media accounts that are act like they're not looking for people with hundred thousand followers, they're looking for people who are active. An interesting tweet about space a lot,
+[00:15:57] Will: Even like they they have a program where people who have like social media accounts that are act like they're not looking for people with 100,000 followers, they're looking for people who are active. An interesting tweet about space a lot,
 
 [00:15:57] Norm: yeah,
 
@@ -878,7 +878,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:31:40] Will: Yes, and also, oh, two tips for Maker Faire: if you're going for the first time, park offsite. Like, look at look on their website beforehand. There's all sorts of offsite parking locations. They're coming down 101, 280, or from the south, wherever you would come there. They have buses that run constantly. It's very humane. It's much better way to get there than to try to park on location.
 
-[00:32:01] Adam: Over a hundred thousand people are attending.
+[00:32:01] Adam: Over 100,000 people are attending.
 
 [00:32:03] Will: It's madness,
 

@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=IIRMysBP1qA
 
 [00:01:07] Will: Yeah, cooking the brontosaurus burger outside.
 
-[00:01:09] Adam: No, yes, precisely. Just don't order the ribs that are really big, because otherwise your car will tip over. Um, no, uh, I don't love the term man cave, but I, I started— I was just going to call this my shop. I've called everything my shop. I've, I've had, you know, rooms like this. I've had fifteen of them in my life so far, and, um, I, I've called them shops, and I have always referred to them. I've always referred to all of my shops as possibility engines.
+[00:01:09] Adam: No, yes, precisely. Just don't order the ribs that are really big, because otherwise your car will tip over. Um, no, uh, I don't love the term man cave, but I, I started— I was just going to call this my shop. I've called everything my shop. I've, I've had, you know, rooms like this. I've had 15 of them in my life so far, and, um, I, I've called them shops, and I have always referred to them. I've always referred to all of my shops as possibility engines.
 
 [00:01:37] Norm: That's very Reed Richards of you. Yeah.
 
@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=IIRMysBP1qA
 
 [00:03:39] Adam: Right, and you know, look, my, my family is my whole focus in, in life. You know, one of the things I'm most grateful for on MythBusters is that, uh, even though we shoot a really crazy, grueling schedule, I've never missed dinner. You know, my, my kids know me, and I'm home every day by six, and that's really important to me. And actually, finding a balance of shop life to home life was something that took me years to do. And in a way, it's as simple as when I'm here, I am not escaping from my family. I am— they're never out of my mind. I'm just— this is just a space where I regroup and where I, you know, refuel.
 
-[00:04:18] Will: Well, and, and part of the thing about living in San Francisco is even if you have— no matter where you live in San Francisco, there's not a space that's this big in, in most normal people's houses that you could devote to putting a lathe and putting a couple of mills and having disc grinders and then having just space to hang twenty-five lightsabers.
+[00:04:18] Will: Well, and, and part of the thing about living in San Francisco is even if you have— no matter where you live in San Francisco, there's not a space that's this big in, in most normal people's houses that you could devote to putting a lathe and putting a couple of mills and having disc grinders and then having just space to hang 25 lightsabers.
 
 [00:04:34] Adam: Well, I, I need for, for my creative process, I need a, a visual cacophony. All of my shops, which I'm working on an article for Tested right now—
 
@@ -98,9 +98,9 @@ Episode URL: https://www.youtube.com/watch?v=IIRMysBP1qA
 
 [00:04:45] Adam: Of a, of a tour of my shops through the year.
 
-[00:04:48] Norm: You said you had fifteen of them. That's very specific. Like—
+[00:04:48] Norm: You said you had 15 of them. That's very specific. Like—
 
-[00:04:50] Adam: Well, I, I think that, I think I've counted fifteen. I think I have pictures of seven of them.
+[00:04:50] Adam: Well, I, I think that, I think I've counted 15. I think I have pictures of seven of them.
 
 [00:04:50] Norm: Okay.
 
@@ -120,27 +120,27 @@ Episode URL: https://www.youtube.com/watch?v=IIRMysBP1qA
 
 [00:06:17] Will: Okay, um, I do that.
 
-[00:06:19] Adam: I do— whenever I have to make lots of notes and really sort of work something out, that is what my office is for. I also do a lot of post-processing on my photos. I've got, you know, fifty thousand photographs, like we all do.
+[00:06:19] Adam: I do— whenever I have to make lots of notes and really sort of work something out, that is what my office is for. I also do a lot of post-processing on my photos. I've got, you know, 50,000 photographs, like we all do.
 
 [00:06:25] Unknown speaker: Yeah.
 
-[00:06:31] Adam: Um, so I do a lot of— I print stuff out of there. Um, some of my props are paper props, so I've got a big, uh, thirteen by nineteen large-format printer in there, and that's where I do that kind of graphic work.
+[00:06:31] Adam: Um, so I do a lot of— I print stuff out of there. Um, some of my props are paper props, so I've got a big, uh, 13 by 19 large-format printer in there, and that's where I do that kind of graphic work.
 
 [00:06:44] Will: Cool.
 
 [00:06:45] Norm: So for someone, I mean, you've always said that people, whether you call it a man cave or not, everyone should have a space, you know, where they can be creative, where they can hold their stuff. I mean, does one feed the other, where, you know, you need that space first, so you can allow yourself to collect stuff? Like if my space is, you know, small office and that is my man cave, I am kind of limited by the dimensions of the room. Like I'm never going to buy a giant, you know, R2-D2 or C-3PO because the space doesn't afford it.
 
-[00:07:12] Adam: That's— well, I mean, it also depends on the kind of person that you are. I'm— I joke that I'm a high-functioning hoarder, but that's not really true. I'm totally capable of throwing shit out. Uh, but, you know, I do. I, I am a serial collector of things. I'm a collector of collections. I mean, if, if I can have fifty of something, I'm like, “Oh, I gotta have that.”
+[00:07:12] Adam: That's— well, I mean, it also depends on the kind of person that you are. I'm— I joke that I'm a high-functioning hoarder, but that's not really true. I'm totally capable of throwing shit out. Uh, but, you know, I do. I, I am a serial collector of things. I'm a collector of collections. I mean, if, if I can have 50 of something, I'm like, “Oh, I gotta have that.”
 
-[00:07:34] Will: Well, I mean, just, just literally, if you're listening to the audio version of this, I'm going to paint a little bit of a word picture here, okay? Because in my field of view, I see two stormtrooper heads. Like I said, maybe fifteen, probably lightsaber hilts. Uh, does that seem right?
+[00:07:34] Will: Well, I mean, just, just literally, if you're listening to the audio version of this, I'm going to paint a little bit of a word picture here, okay? Because in my field of view, I see two stormtrooper heads. Like I said, maybe 15, probably lightsaber hilts. Uh, does that seem right?
 
-[00:07:48] Adam: Two, four, six, eight, ten, twelve, fourteen, sixteen, eighteen, twenty, twenty-one, twenty-two, twenty-three, twenty-four.
+[00:07:48] Adam: Two, four, six, eight, 10, 12, 14, 16, 18, 20, 21, 22, 23, 24.
 
 [00:07:57] Norm: Oh my goodness!
 
 [00:07:58] Adam: Within my field of view.
 
-[00:07:59] Will: Twenty-four lightsaber hilts, a whole selection of samurai swords. Oh, and, and also, uh, what looks like maybe like a small claymore. I don't know what the bottom one is. I don't know. It's like a two-handed—
+[00:07:59] Will: 24 lightsaber hilts, a whole selection of samurai swords. Oh, and, and also, uh, what looks like maybe like a small claymore. I don't know what the bottom one is. I don't know. It's like a two-handed—
 
 [00:08:09] Adam: The bottom one is Strider's sword from Lord of the Rings.
 
@@ -188,11 +188,11 @@ Episode URL: https://www.youtube.com/watch?v=IIRMysBP1qA
 
 [00:11:02] Will: Yeah.
 
-[00:11:02] Adam: You will have more intimate relationships than people like this here, but these people will know you in a specific way because they knew you when you were forming. And that same thing about, you know, the movies that came out when we were twelve and thirteen. For me, it's Raiders and Star Wars and Close Encounters and things like that. Um, those were so primordially important to just the whole way that I think from a cultural level and from the fantasy life that I, that I enjoy.
+[00:11:02] Adam: You will have more intimate relationships than people like this here, but these people will know you in a specific way because they knew you when you were forming. And that same thing about, you know, the movies that came out when we were 12 and 13. For me, it's Raiders and Star Wars and Close Encounters and things like that. Um, those were so primordially important to just the whole way that I think from a cultural level and from the fantasy life that I, that I enjoy.
 
 [00:11:29] Will: Do, do you think that those movies? Because see, the thing, the thing that's interesting to me is you're just a few years older than I am. I think like five or six years older than I am.
 
-[00:11:35] Adam: Turning forty-five this year.
+[00:11:35] Adam: Turning 45 this year.
 
 [00:11:36] Will: So seven, but there, thereabouts. I mean, we're in the same—
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=IIRMysBP1qA
 
 [00:12:11] Norm: Yeah, because that to you is the only movie.
 
-[00:12:14] Adam: It is. That's— you know, I, I, I will have a longer discussion about movies, but one of the things I discovered when trying to answer what are my top ten favorite movies is actually there's three or four categories of favorite movies because there's movies that I could sit and watch right now.
+[00:12:14] Adam: It is. That's— you know, I, I, I will have a longer discussion about movies, but one of the things I discovered when trying to answer what are my top 10 favorite movies is actually there's three or four categories of favorite movies because there's movies that I could sit and watch right now.
 
 [00:12:29] Will: Yeah, over and over again.
 

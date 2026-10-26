@@ -344,11 +344,11 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:13:53] Will: Years ago, right around the time, I think right around the time we started working with you, Adam, Amtrak started doing writers in residence programs where, like, you can they do writers and artists and all sorts of different stuff, but they they basically give you a pass to go wherever you want on the train system for a month or three months or something. And the only thing they want out of you is to make like sit and look out the window and make stuff. Oh, yeah. It seemed it seemed really good.
 
-[00:14:18] Adam: It's um, unlike any other form of travel, it is the actual traveling that's the fun part. Airplanes are amazing. We get into these inflated aluminum bubbles and rocket across in these terrible seats. Even up front, they're terrible seats. They're less terrible to be sure, but they're still terrible. And the airplanes have a model. Airlines have a model in which all their customers, the moment they're done providing their services, their customers run from them. That's how bad this service is. Everyone, get going! And like taxis, cars, limos, ten-pass vans, electric vehicles, bicycles—all these are fine and useful ways to travel. But for some reason, I just remember being in Seattle on my honeymoon, and my wife and I were like, " Oh, tomorrow we go home. Tomorrow we get a twenty-one-hour ride because there is something about this."
+[00:14:18] Adam: It's um, unlike any other form of travel, it is the actual traveling that's the fun part. Airplanes are amazing. We get into these inflated aluminum bubbles and rocket across in these terrible seats. Even up front, they're terrible seats. They're less terrible to be sure, but they're still terrible. And the airplanes have a model. Airlines have a model in which all their customers, the moment they're done providing their services, their customers run from them. That's how bad this service is. Everyone, get going! And like taxis, cars, limos, 10-pass vans, electric vehicles, bicycles—all these are fine and useful ways to travel. But for some reason, I just remember being in Seattle on my honeymoon, and my wife and I were like, " Oh, tomorrow we go home. Tomorrow we get a 21-hour ride because there is something about this."
 
 [00:15:15] Kayte: Yeah.
 
-[00:15:15] Adam: There's the the fact that we're I you know even on this trip we'll be the youngest people on the train by ten or fifteen years. Yeah, a lot of older folks. Um, the dining car is all four tops, and if you're a couple, there you have to sit with other people because they got to cycle the whole train through.
+[00:15:15] Adam: There's the the fact that we're I you know even on this trip we'll be the youngest people on the train by 10 or 15 years. Yeah, a lot of older folks. Um, the dining car is all four tops, and if you're a couple, there you have to sit with other people because they got to cycle the whole train through.
 
 [00:15:34] Adam: So you're always meeting new people, which is kind of which is amazing. But then, really, for most train trips, the view out the window hasn't changed in 120 years.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:16:23] Adam: yeah.
 
-[00:16:23] Will: And like I as I was riding, I was like, oh man, like not only am I seeing stuff that hasn't changed in a hundred years, but also I'm seeing stuff that you're never going to be able to see from the road. Right. And and I somehow was in a vehicle that was moving for four hours without seeing McDonald's, which is also has its own special appeal. Like if. It felt like you were someplace that you don't normally get to see,
+[00:16:23] Will: And like I as I was riding, I was like, oh man, like not only am I seeing stuff that hasn't changed in 100 years, but also I'm seeing stuff that you're never going to be able to see from the road. Right. And and I somehow was in a vehicle that was moving for four hours without seeing McDonald's, which is also has its own special appeal. Like if. It felt like you were someplace that you don't normally get to see,
 
 [00:16:45] Kayte: right?
 
@@ -510,11 +510,11 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:20:45] Will: I have a copy of that still,
 
-[00:20:46] Adam: and said, " Just take a look at how good Steven Spielberg even at the what was he like thirty five?
+[00:20:46] Adam: and said, " Just take a look at how good Steven Spielberg even at the what was he like 35?
 
 [00:20:53] Will: Not even that probably.
 
-[00:20:53] Adam: Yeah, somewhere around there, early thirties. Look at how good he is at framing. You don't need sound or color, and everything you need to know in this movie is communicated.
+[00:20:53] Adam: Yeah, somewhere around there, early 30s. Look at how good he is at framing. You don't need sound or color, and everything you need to know in this movie is communicated.
 
 [00:21:05] Kayte: Wow,
 
@@ -614,11 +614,11 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:26:32] Will: Yes, and then then he gets it faster with more intensity from George Lucas on Empire. Um, yeah, yeah. Well, I mean, I feel like that's as good as place as any to wrap it up.
 
-[00:26:43] Adam: Um, I I did want to say one thing. Uh, I I my wife and I are big fans of this romantic comedy called The Jane Austen Book Club. Um, weirdly, we've shown it to several different people over the years because we we really enjoy it. It's a great script. It's an amazing cast of Amy Brenneman and Maria Bello and Kathy Baker. I mean, Jimmy Smits. It's a phenomenal cast. It's a really good script, and in it, one of the characters suggests to another, " Oh, you should read," because they're all reading Jane Austen. He suggests to a woman that brought him into the Jane Austen book club, " You should read Ursula Le Guin. I think you'd really like her." And it had been so long since I've I've read I think one or two Ursula Le Guin books when I was eighteen or nineteen. So I picked up Left Hand of Darkness, and it has been rocking my world,
+[00:26:43] Adam: Um, I I did want to say one thing. Uh, I I my wife and I are big fans of this romantic comedy called The Jane Austen Book Club. Um, weirdly, we've shown it to several different people over the years because we we really enjoy it. It's a great script. It's an amazing cast of Amy Brenneman and Maria Bello and Kathy Baker. I mean, Jimmy Smits. It's a phenomenal cast. It's a really good script, and in it, one of the characters suggests to another, " Oh, you should read," because they're all reading Jane Austen. He suggests to a woman that brought him into the Jane Austen book club, " You should read Ursula Le Guin. I think you'd really like her." And it had been so long since I've I've read I think one or two Ursula Le Guin books when I was 18 or 19. So I picked up Left Hand of Darkness, and it has been rocking my world,
 
 [00:27:35] Will: really
 
-[00:27:37] Adam: blowing my mind. Huh? The idea is that humanity has at this point in the future spread out to you know dozens of not like something like eighty planets. It's been going for thousands of years, tens of thousands of years, and there's kind of a benevolent group of planets that sort of manage manage themselves. It's not a government. There are no rules. There's no enforcement. What's that?
+[00:27:37] Adam: blowing my mind. Huh? The idea is that humanity has at this point in the future spread out to you know dozens of not like something like 80 planets. It's been going for thousands of years, tens of thousands of years, and there's kind of a benevolent group of planets that sort of manage manage themselves. It's not a government. There are no rules. There's no enforcement. What's that?
 
 [00:28:03] Will: An anarcho-syndicalist commune?
 
@@ -726,7 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:32:02] Will: this feels, this feels, yes.
 
-[00:32:06] Adam: Oh, also, the thousand shot Nerf gun went live yesterday.
+[00:32:06] Adam: Oh, also, the 1,000 shot Nerf gun went live yesterday.
 
 [00:32:09] Kayte: Oh yeah,
 
@@ -740,11 +740,11 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:32:18] Will: It's like
 
-[00:32:19] Adam: it has a magazine hopper that shoots a hundred rounds.
+[00:32:19] Adam: it has a magazine hopper that shoots 100 rounds.
 
 [00:32:21] Will: Yeah, and it shoots them really fast. We used one at the live show to do the William Tell bit, the the the switch perspective William Tell bit a few years ago.
 
-[00:32:27] Adam: So this is fully automatic, so it'll shoot a hundred shots without stopping. So I modified it into a magazine that held ten times that many.
+[00:32:27] Adam: So this is fully automatic, so it'll shoot 100 shots without stopping. So I modified it into a magazine that held 10 times that many.
 
 [00:32:35] Will: Of course,
 

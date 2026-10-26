@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:06:06] Simone: Yeah, and it's like because I always I've always felt really guilty like putting a lot of time into building things that I don't have an end goal for, or yeah, like not making doing things efficiently enough. But the fallacy about that, or the thing that really doesn't make sense about that, is that I don't feel guilty for like scrolling on Twitter, and that I have to justify that. Like nobody's going to ask me like Why are you spending time scrolling on Twitter? But if I spend time building a teeth wall, I mean, now I'm at a stage where people don't really question it because they're like, Oh, Simone does what Simone does. But before, like, I always had to have a reason to do it, and I feel like you shouldn't need a reason to create things, unless the things are really evil.
 
-[00:06:48] Adam: Um, I I got a version of this when I quit smoking about ten years ago. I quit smoking several times, but the last the the the final time was about ten twelve years ago, and one of the things that happened was. I had no moments of reflection during the day because I wasn't going somewhere to take five minutes to do this thing that I did.
+[00:06:48] Adam: Um, I I got a version of this when I quit smoking about 10 years ago. I quit smoking several times, but the last the the the final time was about 10 12 years ago, and one of the things that happened was. I had no moments of reflection during the day because I wasn't going somewhere to take five minutes to do this thing that I did.
 
 [00:07:09] Simone: Yeah,
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:15:31] Norm: Oh, God, pop artists, modern artists, all the time, right? That's yeah, they get stuck in that. But which part of the product development journey did you find that you enjoyed the most? Prototyping, you know, logistics, you know, the product, the packaging design, or that you didn't think—know that you would enjoy that you liked?
 
-[00:15:50] Simone: I think yeah, just seeing the the prototyping and seeing the product come together. From, I mean, I, I did the first Every Day Calendar as a project for Tested, right? And it was just something I did for myself, yeah. And it had 365 switches, which I tried to explore if it would work as a product. But the BOM cost is fucking ridiculous. Like it would be like a thousand dollar product because you can't have mechanical switches. Or 365 of anything gets really, really expensive. Um, so yeah, just seeing it come together and kind of developing the use case for it, I really like. I like crafting the message for it and like doing all the graphic design for it as well. Um, I mean, I've always thought of myself as aesthetically challenged, um, but I designed the front board or the front plate of the Every Day Calendar. And
+[00:15:50] Simone: I think yeah, just seeing the the prototyping and seeing the product come together. From, I mean, I, I did the first Every Day Calendar as a project for Tested, right? And it was just something I did for myself, yeah. And it had 365 switches, which I tried to explore if it would work as a product. But the BOM cost is fucking ridiculous. Like it would be like a $1,000 product because you can't have mechanical switches. Or 365 of anything gets really, really expensive. Um, so yeah, just seeing it come together and kind of developing the use case for it, I really like. I like crafting the message for it and like doing all the graphic design for it as well. Um, I mean, I've always thought of myself as aesthetically challenged, um, but I designed the front board or the front plate of the Every Day Calendar. And
 
 [00:16:40] Adam: this beautiful thing. This made me so happy.
 
@@ -144,13 +144,13 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:20:25] Adam: Um, is there? I know we're a long way from being quote past this, but is there something you've missed about COVID that you really look forward to besides just hugging your friends and hanging out and having dinner?
 
-[00:20:38] Simone: I mean, my family. I have a six-month nephew that I haven't gotten to meet. Yeah, we have like the first grandchild in our family. I was the youngest person in our family up until six months ago, and I'm almost thirty. Um, so yeah, I haven't been able to go back to Sweden for almost a year, and usually I go back like three times a year, um, to to see my family. So that and like seeing my grandma, she's sad and lonely and doesn't like being quarantined. So mostly, yeah, just just seeing family and like honestly, just meeting new people. I've been trying to. Like reach out to people or like acquaintances and like go for walks outside because I just crave seeing people that I don't know and we don't really have a an effortless way of doing that anymore. Um, so that just getting to like getting to know people, I miss. What about you guys? What about you, Norm?
+[00:20:38] Simone: I mean, my family. I have a six-month nephew that I haven't gotten to meet. Yeah, we have like the first grandchild in our family. I was the youngest person in our family up until six months ago, and I'm almost 30. Um, so yeah, I haven't been able to go back to Sweden for almost a year, and usually I go back like three times a year, um, to to see my family. So that and like seeing my grandma, she's sad and lonely and doesn't like being quarantined. So mostly, yeah, just just seeing family and like honestly, just meeting new people. I've been trying to. Like reach out to people or like acquaintances and like go for walks outside because I just crave seeing people that I don't know and we don't really have a an effortless way of doing that anymore. Um, so that just getting to like getting to know people, I miss. What about you guys? What about you, Norm?
 
 [00:21:33] Norm: You know, honestly, I'm so introverted. I'm. I think I had this conversation with someone I knew. Like, like yes, we make videos and we put ourselves out there, but the most uncomfortable I am is actually in person at conventions, at events, and so I've been relishing some you know at home time and forced at home time with the kids. So that's a
 
 [00:21:55] Adam: you've been getting a lot done in the house. You've been getting you've been really really doing some cool shit.
 
-[00:21:59] Norm: Lots of rearranging the office nonstop and putting together IKEA furniture. Who knew IKEA can ship you as much as you want to order for fifty bucks, which is insane. Yeah, I've had like a thousand pounds of furniture and boxes come in, cardboard, MDF, and all for fifty bucks.
+[00:21:59] Norm: Lots of rearranging the office nonstop and putting together IKEA furniture. Who knew IKEA can ship you as much as you want to order for $50, which is insane. Yeah, I've had like 1,000 pounds of furniture and boxes come in, cardboard, MDF, and all for $50.
 
 [00:22:18] Adam: Oh my gosh!
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:26:11] Simone: Yeah,
 
-[00:26:12] Adam: and you know, a, a million boxes for nine hundred thousand categories of things. I'm trying to break it down to like seventy-five boxes.
+[00:26:12] Adam: and you know, a, a million boxes for nine hundred thousand categories of things. I'm trying to break it down to like 75 boxes.
 
 [00:26:20] Simone: Yeah, I feel like it must be even harder because for me, like most of the stuff in my shop is just junk, but like all of the stuff in the cave just feels so valuable.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:34:23] Adam: Well, Simone, thank you so much for joining us today. It's so good to see you, my friend. Um, good luck on the move to LA, and let's let's let's have you back on the podcast in three months and check in and see how it's going.
 
-[00:34:33] Simone: Oh yeah. Oh my god, I can't even imagine where I will have turned thirty. I turned thirty soon, or November 1, so soonish. But yeah, there's just so many things happening.
+[00:34:33] Simone: Oh yeah. Oh my god, I can't even imagine where I will have turned 30. I turned 30 soon, or November 1, so soonish. But yeah, there's just so many things happening.
 
 [00:34:43] Adam: You are almost precisely the age of the amount of time I've lived in San Francisco.
 

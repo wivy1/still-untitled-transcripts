@@ -166,13 +166,13 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:04:42] Adam: that's um,
 
-[00:04:43] Will: yeah. It turns out you don't have eyes back there, and you're going to get shot. The the thing I've tried lately is dead eye, which means it turns the auto aim off. But it also is much more forgiving on the beat. And the and the and the accuracy scoring, so like you get way more two hundred pointses, right? But you also have to shoot like four or five shots to to actually land one, even on the single shot guys.
+[00:04:43] Will: yeah. It turns out you don't have eyes back there, and you're going to get shot. The the thing I've tried lately is dead eye, which means it turns the auto aim off. But it also is much more forgiving on the beat. And the and the and the accuracy scoring, so like you get way more 200 pointses, right? But you also have to shoot like four or five shots to to actually land one, even on the single shot guys.
 
 [00:05:04] Adam: What um, uh, what is your act? But when you had auto aim turned on, what is your what is your accuracy rate?
 
 [00:05:10] Will: 80%.
 
-[00:05:10] Adam: Yeah, I am hitting eighty pretty consistently.
+[00:05:10] Adam: Yeah, I am hitting 80 pretty consistently.
 
 [00:05:14] Norm: Yeah,
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:15:18] Will: Hidden Fortress.
 
-[00:15:18] Adam: including yeah, Hidden Fortress is spectacular and clearly one of the main influences. There are also ancillary characters in Kurosawa's films that C-3PO and R2D2 are absolutely mirroring. And Favreau, who created Mandalorian, has seems to have taken the same direction. So Lone Wolf and Cub is this, I think, fourteen movie series in Japan.
+[00:15:18] Adam: including yeah, Hidden Fortress is spectacular and clearly one of the main influences. There are also ancillary characters in Kurosawa's films that C-3PO and R2D2 are absolutely mirroring. And Favreau, who created Mandalorian, has seems to have taken the same direction. So Lone Wolf and Cub is this, I think, 14 movie series in Japan.
 
 [00:15:39] Will: Good God!
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:19:51] Adam: right?
 
-[00:19:53] Will: It's the the thing that I love about this is they took something that's familiar, you know, the Boba Fett armor that has massive extended universe stories, and I get I guess the Jango Fett if we want to talk about that. But but they take this this Concept of like the warrior caste, and instead of like filling in a plot hole, right? Which Star Wars has tended to do recently. Like, hey, do you want to know what what the hell why the Kessel Run was twelve parsecs? We can make a movie about that.
+[00:19:53] Will: It's the the thing that I love about this is they took something that's familiar, you know, the Boba Fett armor that has massive extended universe stories, and I get I guess the Jango Fett if we want to talk about that. But but they take this this Concept of like the warrior caste, and instead of like filling in a plot hole, right? Which Star Wars has tended to do recently. Like, hey, do you want to know what what the hell why the Kessel Run was 12 parsecs? We can make a movie about that.
 
 [00:20:20] Will: Or
 
@@ -498,17 +498,17 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:21:37] Adam: He scares me today in his role from Jack Reacher.
 
-[00:21:40] Will: Terrifying, right? Um. But yeah, no, he's he's spectacular. The kind of uh Taika Waititi as uh Ig Eleven. Is that right?
+[00:21:40] Will: Terrifying, right? Um. But yeah, no, he's he's spectacular. The kind of uh Taika Waititi as uh IG-11. Is that right?
 
 [00:21:49] Adam: Oh, is that who that is?
 
 [00:21:50] Will: Yeah, that's Taika Waititi.
 
-[00:21:52] Adam: I think it's Ig Eighty Eight.
+[00:21:52] Adam: I think it's IG-88.
 
-[00:21:53] Will: No, IG Eighty Eight is from Empire Strikes Back. This is a different, completely different robot.
+[00:21:53] Will: No, IG-88 is from Empire Strikes Back. This is a different, completely different robot.
 
-[00:21:57] Adam: Watching Ig Ig Eleven was a mag is a mag is one is a robot in the first episode.
+[00:21:57] Adam: Watching Ig IG-11 was a mag is a mag is one is a robot in the first episode.
 
 [00:22:03] Will: First episode.
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:23:02] Norm: You don't get that ever in Star Wars because everything is. I mean, unless you watch the Clone Wars stuff, but in live action Star Wars, you don't get quiet moments, and it is slower pace.
 
-[00:23:12] Adam: And I, you know, I noted that the second episode was only about thirty-three minutes.
+[00:23:12] Adam: And I, you know, I noted that the second episode was only about 33 minutes.
 
 [00:23:16] Norm: Yeah.
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:26:08] Will: Yeah.
 
-[00:26:09] Norm: Points for Will, so there's a lot of backlash. All every episode Simpson, I think Disney has come out to say that starting next year they're going to reformat the Simpsons, the four by three, and not sixteen by nine, because right now it's as it is broadcast on cable, which is scaled up to HD, but you get lose the top and the bottom, and you lose many jokes. Oh,
+[00:26:09] Norm: Points for Will, so there's a lot of backlash. All every episode Simpson, I think Disney has come out to say that starting next year they're going to reformat the Simpsons, the four by three, and not 16 by nine, because right now it's as it is broadcast on cable, which is scaled up to HD, but you get lose the top and the bottom, and you lose many jokes. Oh,
 
 [00:26:26] Will: the the famous example is the
 
@@ -654,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:26:58] Will: yeah, it's great. All right.
 
-[00:26:58] Norm: And she comes from a family of Imagineers, and it is unprecedented access into Imagineering and the history. You see, there's footage, archival footage from the '50s of. Anaheim being being orange groves and being bulldozed and them building the twenty foot mounds around the edge of the perimeter of Disneyland and then laying down the railroad track
+[00:26:58] Norm: And she comes from a family of Imagineers, and it is unprecedented access into Imagineering and the history. You see, there's footage, archival footage from the '50s of. Anaheim being being orange groves and being bulldozed and them building the 20 foot mounds around the edge of the perimeter of Disneyland and then laying down the railroad track
 
 [00:27:22] Adam: Amazing wow.
 
@@ -692,7 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:28:53] Adam: It's beautiful, yeah. It's a beautifully made show, and I'm really excited about where it's going to go. It's one of my favorite trilogies of fantasy novels.
 
-[00:29:01] Will: It's—I love. I love that we're talking about TV shows that are airing every week instead of getting dumped twenty five at a time or ten at a time or whatever. So that you hammer through them as fast as possible and have no time to think about.
+[00:29:01] Will: It's—I love. I love that we're talking about TV shows that are airing every week instead of getting dumped 25 at a time or 10 at a time or whatever. So that you hammer through them as fast as possible and have no time to think about.
 
 [00:29:13] Adam: Do you know who else watches TV and doesn't binge? It is Wil Wheaton.
 
@@ -710,7 +710,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:29:50] Will: Spoilers.
 
-[00:29:51] Norm: Thirty years old.
+[00:29:51] Norm: 30 years old.
 
 [00:29:52] Will: Yeah, yeah. I'm stoked that I'm stoked that people are making TV that's not binge TV, and that you you want to think about something.
 
@@ -760,7 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:32:35] Adam: You know, and and because there's an aspect of when I'm standing there, like I've said this before, all these transition spaces in the games where you're kind of waiting for something to happen, I'm finding those really lovely, and I would love to just spend some more time in them.
 
-[00:32:50] Will: Yeah, it's it's um it's well one of the things that's always striking is that like my VR room is a ten by ten foot room, right?
+[00:32:50] Will: Yeah, it's it's um it's well one of the things that's always striking is that like my VR room is a 10 by 10 foot room, right?
 
 [00:32:56] Adam: Right.
 

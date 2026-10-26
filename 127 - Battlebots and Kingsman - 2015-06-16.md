@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:01:10] Adam: Yeah.
 
-[00:01:10] Norm:  When the official license replicas came out, and it's it's great to get tangible in person. What's cool is at Celebration, you know, we talked about Anovos releasing their official or announcing their officially licensed Stormtrooper armor. They are also doing a helmet run for the original trilogy helmets, a hundred bucks. 
+[00:01:10] Norm:  When the official license replicas came out, and it's it's great to get tangible in person. What's cool is at Celebration, you know, we talked about Anovos releasing their official or announcing their officially licensed Stormtrooper armor. They are also doing a helmet run for the original trilogy helmets, $100. 
 
 [00:01:10] Adam: Really.
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:01:41] Adam: Oh my gosh.
 
-[00:01:42] Norm: And all the parts you've got to put it together, but a hundred bucks. 
+[00:01:42] Norm: And all the parts you've got to put it together, but $100. 
 
 [00:01:42] Adam: That’s amazing.
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:04:32] Will:  like people from the community up here, and it was just a bunch of people who got together and they wanted to do something that was fun, so they built some robots and then destroyed them with each other.
 
-[00:04:45] Adam: And it was before there was any science to it of like figuring out how you would deal with opponents. People strapped electric drills, they strapped chainsaws. It was, you know, I was there. When it was realized how powerful a simple powerful wedge could be, Jamie's design of Blendo was the very first robot to use rotational energy as a weapon, and it was astonishingly powerful. And a lot of people know this story, but we entered Blendo into the original Robot Wars twice, and each time, even though he passed [unclear speaker/wording: it was a lot of people who were able to use it and it was a lot of people who were able to] all the safety checks, after his first battle in each of the two Robot Wars Blendo participated in, he threw pieces of his opponents up and over the ten-foot barriers and into the audience, and thus was judged too dangerous to compete and awarded a first prize in lieu of competition, commensurate with the other first prize to be given two years in a row. We were legendary,
+[00:04:45] Adam: And it was before there was any science to it of like figuring out how you would deal with opponents. People strapped electric drills, they strapped chainsaws. It was, you know, I was there. When it was realized how powerful a simple powerful wedge could be, Jamie's design of Blendo was the very first robot to use rotational energy as a weapon, and it was astonishingly powerful. And a lot of people know this story, but we entered Blendo into the original Robot Wars twice, and each time, even though he passed [unclear speaker/wording: it was a lot of people who were able to use it and it was a lot of people who were able to] all the safety checks, after his first battle in each of the two Robot Wars Blendo participated in, he threw pieces of his opponents up and over the 10-foot barriers and into the audience, and thus was judged too dangerous to compete and awarded a first prize in lieu of competition, commensurate with the other first prize to be given two years in a row. We were legendary,
 
 [00:05:49] Will: so
 
@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:08:03] Norm: It's really interesting that you said that you saw the development of the strategies throughout the first couple of years of Wars when people developed things like the flipper, the wedge robots, and then also the spinners. And what was really cool to see in this incarnation of BattleBots is a lot of builders they didn't go back exactly to those same techniques. They wanted to, as engineers, experiment with a new type of grabber robot, a new type of flipper robot. They had more technologies available to them, different power systems. They could develop and iterate their in CAD their designs much quicker. These were built in a very short time frame, so it was really cool. It was like it's a literal test, not only of their robot against other robot, but of just their design principles.
 
-[00:08:44] Will: The thing you said is super key, though. Like in the twelve years since BattleBots was on TV, last we've seen lots of smaller scale competitions, nothing quite on this level. 
+[00:08:44] Will: The thing you said is super key, though. Like in the 12 years since BattleBots was on TV, last we've seen lots of smaller scale competitions, nothing quite on this level. 
 
 [00:08:44] Norm: Yeah,
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:09:04] Adam: yeah,
 
-[00:09:04] Will:  all four have their own, all six have their own motors because, you know, with the lipo, there's plenty of space. The other thing is the motors have gotten both more powerful and a lot cheaper in the last twelve years. 
+[00:09:04] Will:  all four have their own, all six have their own motors because, you know, with the lipo, there's plenty of space. The other thing is the motors have gotten both more powerful and a lot cheaper in the last 12 years. 
 
 [00:09:04] Adam: Yeah.
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:09:59] Adam: Yeah, exactly. So the second year, we called them up long before and we said you should have a roof on your arena, and they didn't. And again, piece went up and over, and again the exact same thing happened. So I was very happy when Trey Roski and his team put on BattleBots that their Battle Dome had a roof, and that roof existed because of Blendo. Let me just make that really, really clear.
 
-[00:10:19] Will: So, so the new Battle Box, the thing that they built for this one, was a steel cage. I think forty or sixty feet on a side. I can't remember how dimensionally how big it was. Inch and a quarter Lexan.
+[00:10:19] Will: So, so the new Battle Box, the thing that they built for this one, was a steel cage. I think 40 or 60 feet on a side. I can't remember how dimensionally how big it was. Inch and a quarter Lexan.
 
 [00:10:19] Adam: Inch and a quarter.
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:10:34] Adam: Oh, that'll stop just about anything.
 
-[00:10:36] Will: I mean, that was their thought. It's only inch and a quarter for eight or ten feet or something, and then it's thinner as you get higher because most of the impact
+[00:10:36] Will: I mean, that was their thought. It's only inch and a quarter for 8 or 10 feet or something, and then it's thinner as you get higher because most of the impact
 
 [00:10:41] Adam: [unclear: is/It’s] going to be glancing angles at that point.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:13:53] Adam: yeah, exactly.
 
-[00:13:53] Will:  When he his stuff all has like incredibly organic flowing movement. It's absolutely gorgeous to watch. I could have stood, I like, I actually did, literally stand next to him and watch the trophy stand for ten or fifteen minutes just because it's so pretty.
+[00:13:53] Will:  When he his stuff all has like incredibly organic flowing movement. It's absolutely gorgeous to watch. I could have stood, I like, I actually did, literally stand next to him and watch the trophy stand for 10 or 15 minutes just because it's so pretty.
 
 [00:14:17] Adam: And like he's also incredibly approachable and loves talking about how he came to the design, how he you know how he uses all sorts of new technologies. Mark has been custom programming RC controllers for decades, and so all of these new advances of Arduino, he has embraced those 3D printing and all of that stuff just to an incredibly high art form.
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:23:23] Adam: Oh, okay, yeah.
 
-[00:23:23] Will:  So when the first Dalton movie came out, I was probably ten or twelve. It was 1987.
+[00:23:23] Will:  So when the first Dalton movie came out, I was probably 10 or 12. It was 1987.
 
 [00:23:36] Adam: That was.
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:23:37] Will: Um, we we recorded all of TBS ran all of the previous Bonds back to back over like three days or four days or whatever, and we recorded them all and watched them over a couple of weeks. Because it was something he wanted to share with me.
 
-[00:23:56] Adam: Someone pointed out right now that it's twenty four weeks until the new Bond film comes out, and that you could actually now watch one Bond film a week to catch yourself up.
+[00:23:56] Adam: Someone pointed out right now that it's 24 weeks until the new Bond film comes out, and that you could actually now watch one Bond film a week to catch yourself up.
 
 [00:24:06] Will: It's not a bad idea.
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:27:38] Adam: Right, right, right.
 
-[00:27:38] Norm:  What would the billionaire twenty-two year old do [unclear: if he would destroy the world/if you destroyed the world]? [unclear: He would obviously/You obviously] save his the superstars that he loves, idols. My problem, I think, and I thought you were going for my problem. That you thought my problem would be the very last scene with the the girl, the princess, the unnecessary, you know.
+[00:27:38] Norm:  What would the billionaire 22 year old do [unclear: if he would destroy the world/if you destroyed the world]? [unclear: He would obviously/You obviously] save his the superstars that he loves, idols. My problem, I think, and I thought you were going for my problem. That you thought my problem would be the very last scene with the the girl, the princess, the unnecessary, you know.
 
 [00:28:17] Will: Oh,
 

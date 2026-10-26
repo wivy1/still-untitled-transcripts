@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:04:57] Jeremy: How long ago was that?
 
-[00:04:58] Adam: Like six or seven years. I've had hearing aids for over ten years, but the the last pair, you know, [unclear: ∅ / I], I’m missing a lot of the low end, which is not common. Most people who have hearing loss from, you know, sounds lose their high end, and hearing aids have been designed to replicate that. I'm not missing the high end; I'm missing the low end, and that's a little harder. So I bought the best brand for that, but it would adjust for you know being in conversation in my house. But then I go to a restaurant; it was a nightmare. And to get a different mode, you have to make another appointment with the audiologist for like five weeks from now, and then go in and tune it, and then go out, and it's like, are you kidding me? This is how I have to do this this ridiculous appointment process. So I'm buying these new hearing aids that I can adjust their equalization from my phone.
+[00:04:58] Adam: Like six or seven years. I've had hearing aids for over 10 years, but the the last pair, you know, [unclear: ∅ / I], I’m missing a lot of the low end, which is not common. Most people who have hearing loss from, you know, sounds lose their high end, and hearing aids have been designed to replicate that. I'm not missing the high end; I'm missing the low end, and that's a little harder. So I bought the best brand for that, but it would adjust for you know being in conversation in my house. But then I go to a restaurant; it was a nightmare. And to get a different mode, you have to make another appointment with the audiologist for like five weeks from now, and then go in and tune it, and then go out, and it's like, are you kidding me? This is how I have to do this this ridiculous appointment process. So I'm buying these new hearing aids that I can adjust their equalization from my phone.
 
 [00:05:41] Jeremy: Oh, that's awesome!
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:07:07] Norm: Wow!
 
-[00:07:07] Adam: The bad ones, maybe a couple of days. And I've bought new ones out of the package from the drugstore that like failed inside of thirty-six hours.
+[00:07:07] Adam: The bad ones, maybe a couple of days. And I've bought new ones out of the package from the drugstore that like failed inside of 36 hours.
 
 [00:07:15] Jeremy: I wonder how long until they're just inductively charged, and you just pop them next to your bedside at nighttime.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:08:55] Norm: Reacher?
 
-[00:08:55] Adam: [unclear: So / That’s a / The] Way of the Gun has one of my favorite movie quotes in the world, in which James Caan says, " 15,000,000 dollars—that's not money. Money's what you get out of the ATM machine. 15,000,000 dollars is a motive with a universal adapter on it."
+[00:08:55] Adam: [unclear: So / That’s a / The] Way of the Gun has one of my favorite movie quotes in the world, in which James Caan says, " $15 million—that's not money. Money's what you get out of the ATM machine. $15 million is a motive with a universal adapter on it."
 
 [00:09:09] Norm: [unclear: Nice / Uh]. Jack Reacher, as a character in the books, is absurd, though. Right? If to cast someone who would fit the physical description, it would have to be like The Rock.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:09:51] Norm: That's like a basketball player.
 
-[00:09:52] Adam: He’s but he’s like two fifty, so he’s a he’s a lanky, muscular. Version of that. He's not necessarily traditionally handsome, but rugged and good-looking in a way that the ladies in the in the in the books clearly like. His his romances in the books are for the largest part age-appropriate and usually [unclear: it’s very quite quite pure. Like he he / it’s very quite quite like. He he] hooks up with people who you like as characters. They're never just stand-ins or some sort of reward for getting the bad guy. I appreciate the romantic entanglements of Jack Reacher. There's a couple of novels where he sleeps with the girls way too young and they're creepy. But besides that,
+[00:09:52] Adam: He’s but he’s like 250, so he’s a he’s a lanky, muscular. Version of that. He's not necessarily traditionally handsome, but rugged and good-looking in a way that the ladies in the in the in the books clearly like. His his romances in the books are for the largest part age-appropriate and usually [unclear: it’s very quite quite pure. Like he he / it’s very quite quite like. He he] hooks up with people who you like as characters. They're never just stand-ins or some sort of reward for getting the bad guy. I appreciate the romantic entanglements of Jack Reacher. There's a couple of novels where he sleeps with the girls way too young and they're creepy. But besides that,
 
 [00:10:31] Norm: but isn't one of the appeals of the book is the way the he problem solves and how every action is dissected?
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:18:09] Adam: I
 
-[00:18:09] Adam: really appreciated that. That that was like I was really sad about that, and that that was exactly the right amount of lightening of the mood, and I think that Ricky would have loved that. Um, one last thing about Ricky Jay is that when we went to do the card showdown, [unclear: because when we went / was when we, when we went] to do the showdown, I was effectively directing this sequence, and so Ricky said, " What do you want to do?" And I said, " Well, let's face off. I'll say ten paces, and you'll go. 
+[00:18:09] Adam: really appreciated that. That that was like I was really sad about that, and that that was exactly the right amount of lightening of the mood, and I think that Ricky would have loved that. Um, one last thing about Ricky Jay is that when we went to do the card showdown, [unclear: because when we went / was when we, when we went] to do the showdown, I was effectively directing this sequence, and so Ricky said, " What do you want to do?" And I said, " Well, let's face off. I'll say 10 paces, and you'll go. 
 
 [00:18:09] Unknown speaker (Adam or Jeremy): Let’s do it."
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:21:11] Adam, possibly Norm: Right, right.
 
-[00:21:11] Jeremy: But you can do it with your own gear. Like you can buy a ten dollar NFC reader writer, and it turns out these cards and stickers cost fifty cents.
+[00:21:11] Jeremy: But you can do it with your own gear. Like you can buy a $10 NFC reader writer, and it turns out these cards and stickers cost $0.50.
 
 [00:21:20] Norm: And the sticker is the antenna. Right.
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:22:29] Jeremy: Does it still work?
 
-[00:22:31] Adam: It still works right now. If you leave it plugged in for too long, the sound cuts out, so you have to unplug it for ten seconds and then replug it in. But yeah, those reed switches are still working. But I think out of we ended up needing three. I had to solder five to get those three because I destroyed a couple.
+[00:22:31] Adam: It still works right now. If you leave it plugged in for too long, the sound cuts out, so you have to unplug it for 10 seconds and then replug it in. But yeah, those reed switches are still working. But I think out of we ended up needing three. I had to solder five to get those three because I destroyed a couple.
 
 [00:22:48] Jeremy: And even all that work of soldering three only gets you like nine cards.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:24:38] Unknown speaker (Norm or Jeremy): right
 
-[00:24:38] Norm: at you know 5,000,000 dollars.
+[00:24:38] Norm: at you know $5 million.
 
 [00:24:48] Unknown speaker: The market will bear,
 
@@ -556,9 +556,9 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:24:56] Norm: Because it's it's absurd. Because you can't, no one watching this could relate. To these people who are
 
-[00:25:01] Adam: spending three, five, ten million dollars, Yes.
+[00:25:01] Adam: spending $3 million, $5 million, $10 million, Yes.
 
-[00:25:03] Norm: and the people hawking and the artists who think their work is worth that much, I mean, there's this one plot point I'll talk about in which one of the auctioneers talks, or one of the the Sotheby's people says that you know, around Central Park there's high rises, and in these apartment buildings they know for sure that on certain floors there are multiple floors with exact same piece of artwork, like a limited run on the exact same wall, you know, five, ten million dollars each on each floor, because that's what these people barter in. Like, it's what my what my neighbor has three stories below me because I am in a 50,000,000 dollar apartment building. Well, I got to have that same vase or the same painting.
+[00:25:03] Norm: and the people hawking and the artists who think their work is worth that much, I mean, there's this one plot point I'll talk about in which one of the auctioneers talks, or one of the the Sotheby's people says that you know, around Central Park there's high rises, and in these apartment buildings they know for sure that on certain floors there are multiple floors with exact same piece of artwork, like a limited run on the exact same wall, you know, $5 million, $10 million each on each floor, because that's what these people barter in. Like, it's what my what my neighbor has three stories below me because I am in a $50 million apartment building. Well, I got to have that same vase or the same painting.
 
 [00:25:41] Adam: Seriously,
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:28:54] Jeremy: He's He's lost 10%.
 
-[00:28:55] Norm: Yeah, ten feet.
+[00:28:55] Norm: Yeah, 10 feet.
 
 [00:28:55] Norm: You
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:30:56] Adam: I’ve
 
-[00:30:56] Adam: got space gloves. I've got yeah, I've got early gauntlets that I made when I was. Twenty-five. Yeah,
+[00:30:56] Adam: got space gloves. I've got yeah, I've got early gauntlets that I made when I was. 25. Yeah,
 
 [00:31:02] Norm: sounds like a future-tested video.
 

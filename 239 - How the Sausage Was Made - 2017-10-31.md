@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:01:09] Adam: Wow! And and and and to be clear, like this is multiple events over five or six weeks, or is it just a month?
 
-[00:01:15] Kishore: It's usually about fifty events over ten days. This year we're two weeks long
+[00:01:15] Kishore: It's usually about 50 events over 10 days. This year we're two weeks long
 
 [00:01:15] Adam: Fuck.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:14:36] Adam: No, she said, " I feel like I understood something a little deeper about you."
 
-[00:14:41] Norm: Yeah, I think that was the thing for a lot of our presenters that, like, once even throughout our rehearsals, it wasn't until the moment of with a thousand people in the audience that they got to be their best.
+[00:14:41] Norm: Yeah, I think that was the thing for a lot of our presenters that, like, once even throughout our rehearsals, it wasn't until the moment of with 1,000 people in the audience that they got to be their best.
 
 [00:14:41] Adam: I, I.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:27:22] Kishore: just honest.
 
-[00:27:22] Adam: Angela Bassett is a goddess. And then we also showed her New York. I love you. And when you realize that these three shows exist on a continuum of a single show in twenty episodes.
+[00:27:22] Adam: Angela Bassett is a goddess. And then we also showed her New York. I love you. And when you realize that these three shows exist on a continuum of a single show in 20 episodes.
 
 [00:27:42] Norm: Yeah.
 
@@ -592,7 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:30:10] Kishore: It still spoke to her.
 
-[00:30:16] Adam: Of course, it's. In fact, actually, I think it may speak more strongly to my mom, who's like who came of her. My mom was born in 1935. She's eighty-three, but she's deeply and she was deeply part of the the scene in New York in the in the late '50s and mostly the '60s. So that like these guys, both Louis and Aziz, are referring deeply to American cinema and foreign cinema in the in the '60s. Right, they're they're looking at Jean Luc Godard. Jean Luc Godard, yes, they're looking at Godard. They're looking at filmmakers like like Fassbinder, and also I see Cassavetes in their work. I see you know it's really it's thrilling how much they're getting to stretch those muscles, and I mean I'll I'll wager Aziz is like, hey man, I am being paid to learn how to be a filmmaker. This is great.
+[00:30:16] Adam: Of course, it's. In fact, actually, I think it may speak more strongly to my mom, who's like who came of her. My mom was born in 1935. She's 83, but she's deeply and she was deeply part of the the scene in New York in the in the late '50s and mostly the '60s. So that like these guys, both Louis and Aziz, are referring deeply to American cinema and foreign cinema in the in the '60s. Right, they're they're looking at Jean Luc Godard. Jean Luc Godard, yes, they're looking at Godard. They're looking at filmmakers like like Fassbinder, and also I see Cassavetes in their work. I see you know it's really it's thrilling how much they're getting to stretch those muscles, and I mean I'll I'll wager Aziz is like, hey man, I am being paid to learn how to be a filmmaker. This is great.
 
 [00:31:10] Norm: Yeah, I hope he I hope he's happy in real life because he's not happy on the show.
 
@@ -606,7 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:31:38] Norm: Yeah,
 
-[00:31:41] Kishore: it always comes back to Master of None on this podcast. That's like the twentieth time it's appeared here.
+[00:31:41] Kishore: it always comes back to Master of None on this podcast. That's like the 20th time it's appeared here.
 
 [00:31:47] Adam: Is it really?
 
@@ -622,13 +622,13 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:31:51] Adam: Yep.
 
-[00:31:51] Norm: I love going. I mean, just on Twitter, just so many clever, clever costumes I've seen this year. So please share those on the site, and we'll be back. I think one more week before you go on tour, Adam. Brain Candy Live kicks off November. Fourteenth, I believe,
+[00:31:51] Norm: I love going. I mean, just on Twitter, just so many clever, clever costumes I've seen this year. So please share those on the site, and we'll be back. I think one more week before you go on tour, Adam. Brain Candy Live kicks off November. 14th, I believe,
 
 [00:32:16] Adam: in Providence, Rhode Island.
 
 [00:32:16] Norm: Yep.
 
-[00:32:16] Adam: Twenty-four cities between then and December 10.
+[00:32:16] Adam: 24 cities between then and December 10.
 
 [00:32:22] Kishore: And then you're taking it overseas.
 

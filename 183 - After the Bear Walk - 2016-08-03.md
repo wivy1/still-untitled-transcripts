@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:00:52] Will: Yeah.
 
-[00:00:52] Adam: It was awesome. But really, the most awesome thing was. My costume had been completed. My bear costume had been completed about ten days before Comic Con, and so I had time to because I'm also not shooting a TV show full time to clean my shop. So we left for Comic Con, and my shop was totally clean.
+[00:00:52] Adam: It was awesome. But really, the most awesome thing was. My costume had been completed. My bear costume had been completed about 10 days before Comic Con, and so I had time to because I'm also not shooting a TV show full time to clean my shop. So we left for Comic Con, and my shop was totally clean.
 
 [00:01:16] Will: And typically, like last year when we left for Comic Con, I remember Norm and I were loading up a truck, and and Danica, and I think Joey came by. We're loading up a truck and like wrapping costumes for the party and all that stuff. Literally in the moments before we left,
 
@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:01:47] Will: Well, you had other stuff going on. I
 
-[00:01:48] Adam: did. I did. No, to be sure, it's just been really nice because the last week I've spent doing a lot of shop infrastructure. I found these great LED lights. These like LED, they basically replace a forty-inch fluorescent. And they're as bright. They're thirty bucks at the local place, Discount Builders, and I bought, I think, eight of them.
+[00:01:48] Adam: did. I did. No, to be sure, it's just been really nice because the last week I've spent doing a lot of shop infrastructure. I found these great LED lights. These like LED, they basically replace a 40-inch fluorescent. And they're as bright. They're $30 at the local place, Discount Builders, and I bought, I think, eight of them.
 
 [00:02:08] Will: They don't hum or flicker.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:03:57] Will: Nice
 
-[00:03:57] Adam: and. Because we're like two fifteen-year-olds, like editing this this fun, excruciating fundraiser video. The woman that was in charge of the fundraiser had this; her top teeth were covered in lipstick, and I think we actually zoomed in on her teeth.
+[00:03:57] Adam: and. Because we're like two 15-year-olds, like editing this this fun, excruciating fundraiser video. The woman that was in charge of the fundraiser had this; her top teeth were covered in lipstick, and I think we actually zoomed in on her teeth.
 
 [00:03:57] Will: Oh no,
 
@@ -270,9 +270,9 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:10:03] Norm: Yeah.
 
-[00:10:03] Will: Was it the normal like hundred degree surface of the Sun Comic Con, or was it nice?
+[00:10:03] Will: Was it the normal like 100 degree surface of the Sun Comic Con, or was it nice?
 
-[00:10:08] Adam: No, it was like eighty degrees, but 75% humidity.
+[00:10:08] Adam: No, it was like 80 degrees, but 75% humidity.
 
 [00:10:11] Norm: Yeah. So Joey and I are already doing our like navigation, our weaving around, stealthy weaving, and then Team Two, which we sent ahead of time. So like people don't realize this is a big production for us. Like from the packing,
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:10:46] Will: This is my job.
 
-[00:10:47] Norm: Ten seconds before Adam picks it up,
+[00:10:47] Norm: 10 seconds before Adam picks it up,
 
 [00:10:49] Will: I understand the theory.
 
@@ -352,11 +352,11 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:12:13] Will: Well, and and just like it's an accessible costume if people want to make it. It's not a super expensive costume, right?
 
-[00:12:18] Adam: Well, so what we're going to do is there's a place that I now know about that I can send my patterns to, and the patterns are pretty straightforward. I'm going to send my patterns to this place and they'll turn them into a PDF, which we'll put up on tested in the next couple of weeks. The head is so the body, the two arms, two legs, and the body is ten pieces of fabric.
+[00:12:18] Adam: Well, so what we're going to do is there's a place that I now know about that I can send my patterns to, and the patterns are pretty straightforward. I'm going to send my patterns to this place and they'll turn them into a PDF, which we'll put up on tested in the next couple of weeks. The head is so the body, the two arms, two legs, and the body is 10 pieces of fabric.
 
 [00:12:18] Will: Wow,
 
-[00:12:18] Adam: that's it. It's six yards of fur, ten pieces. Really, really straightforward. the The claws can be made in a bunch of different ways. It's all really accessible. The head is more complex, of course. I think there's like eleven pieces of fabric in the head alone, but we'll publish all those pieces. And then yeah, and the body, the the form is all corset boning, but I'm experimenting with rattan for a next one. Um, because it's really, really lightweight. It's really simple. The whole costume weighed ten pounds.
+[00:12:18] Adam: that's it. It's six yards of fur, 10 pieces. Really, really straightforward. the The claws can be made in a bunch of different ways. It's all really accessible. The head is more complex, of course. I think there's like 11 pieces of fabric in the head alone, but we'll publish all those pieces. And then yeah, and the body, the the form is all corset boning, but I'm experimenting with rattan for a next one. Um, because it's really, really lightweight. It's really simple. The whole costume weighed 10 pounds.
 
 [00:12:18] Will: That's amazing.
 
@@ -442,7 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:14:47] Adam: yeah,
 
-[00:14:47] Will: and then the gradual evolution of that over the last it's got to be almost ten years now or more.
+[00:14:47] Will: and then the gradual evolution of that over the last it's got to be almost 10 years now or more.
 
 [00:14:47] Adam: It's wonderful.
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:17:15] Norm: I have not finished the rest of the series.
 
-[00:17:17] Adam: Let me tell you that the rest of the show gets better and better and better. And I don't know how they did it budgetarily, but the effects also get better and better and better as the season, as the ten episode season arc progresses. So they do lots of like languorous. I think they really thought like, what if this was an oil rig platform? How would we shoot that? And then they just shot it like that. And so there's lots of contextual spatial shooting in terms of letting you understand the the universe that they're in.
+[00:17:17] Adam: Let me tell you that the rest of the show gets better and better and better. And I don't know how they did it budgetarily, but the effects also get better and better and better as the season, as the 10 episode season arc progresses. So they do lots of like languorous. I think they really thought like, what if this was an oil rig platform? How would we shoot that? And then they just shot it like that. And so there's lots of contextual spatial shooting in terms of letting you understand the the universe that they're in.
 
 [00:17:46] Norm: Like I I interviewed the production designer for that show, and he said, for in terms of like stage space for TV show, it was one of the biggest he'd ever work on because there's so many different environments.
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:17:59] Norm: Yeah, Canada.
 
-[00:18:00] Adam: So the other thing about the Expanse. Interview panel is that the cast is not only terrific, and again, over the ten episodes, they get better and better and better. The writing gets better, like the characters really develop.
+[00:18:00] Adam: So the other thing about the Expanse. Interview panel is that the cast is not only terrific, and again, over the 10 episodes, they get better and better and better. The writing gets better, like the characters really develop.
 
 [00:18:16] Will: The characters don't kind of meet up every each other until the end of the fourth or fifth episode.
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:22:45] Will: I mean, that's got to be a hard one, right?
 
-[00:22:46] Adam: It's it's exhausting because it's. I think even if the if the ball is this wide, yeah, it's like ten feet long.
+[00:22:46] Adam: It's it's exhausting because it's. I think even if the if the ball is this wide, yeah, it's like 10 feet long.
 
 [00:22:46] Will: Yeah, it's ridiculous.
 
@@ -758,7 +758,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:26:54] Norm: and just like watching that movie, you have to appreciate like the amount of skill a director has. He's a very subdued person. I very briefly met him at the the the fan event we went to, but like there's so much going on in his head to be able to orchestrate like storytelling and action. And just manage and be a leader in that role.
 
-[00:27:14] Adam: Yeah, and watching, yeah, it was amazing watching a scoring session because there'd be a bit where we'd watch we'd watch the orchestra record ba ba bum, ba ba bum, da da da, ba ba ba and it’s as like things are happening, and they'll finish a you know two and a half minutes bit of music, and then Justin will turn to Michael and say, " Hey, when he opens the door, can we get a little more like punch out of the violins?" And Michael will be like, " Yes," and then he'll push a button and go, " Can we get mezzo forte at seventy nine?" Oh my god, so cool! And then you know a whole bunch of like violinists to reach out and mark their score, and they play it again, and it's totally different.
+[00:27:14] Adam: Yeah, and watching, yeah, it was amazing watching a scoring session because there'd be a bit where we'd watch we'd watch the orchestra record ba ba bum, ba ba bum, da da da, ba ba ba and it’s as like things are happening, and they'll finish a you know two and a half minutes bit of music, and then Justin will turn to Michael and say, " Hey, when he opens the door, can we get a little more like punch out of the violins?" And Michael will be like, " Yes," and then he'll push a button and go, " Can we get mezzo forte at 79?" Oh my god, so cool! And then you know a whole bunch of like violinists to reach out and mark their score, and they play it again, and it's totally different.
 
 [00:27:49] Will: Wow! I just like he did the score for Inside Out, which is I think my favorite score of the last several years, far and away.
 
@@ -788,7 +788,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:28:59] Will: that’s awesome.
 
-[00:29:00] Adam: some real diehard, awesome, awesome Comic Con fans, and and Jay Justice is a legend, and she's hand built over seventy costumes. She also runs this thing, LGBT HQ, which provides safe spaces for people at. Cons, she's an activist, she's an advocate, and Deborah is just one of my great friends and one of my heroes. She did Raiders, she did Thriller, and Deborah was Deborah was amazing because I asked her to talk about the brilliance of Dorothy's dress from The Wizard of Oz because she's seen the real thing and it was in her exhibit. And I won't spoil the story because it's up on the site, but she really made it a beautiful story and kept on actually bringing the the panel back to the storytelling that exists within the making of a costume and how that costume gets paired with an actor.
+[00:29:00] Adam: some real diehard, awesome, awesome Comic Con fans, and and Jay Justice is a legend, and she's hand built over 70 costumes. She also runs this thing, LGBT HQ, which provides safe spaces for people at. Cons, she's an activist, she's an advocate, and Deborah is just one of my great friends and one of my heroes. She did Raiders, she did Thriller, and Deborah was Deborah was amazing because I asked her to talk about the brilliance of Dorothy's dress from The Wizard of Oz because she's seen the real thing and it was in her exhibit. And I won't spoil the story because it's up on the site, but she really made it a beautiful story and kept on actually bringing the the panel back to the storytelling that exists within the making of a costume and how that costume gets paired with an actor.
 
 [00:29:52] Will: She's so good,
 
@@ -948,7 +948,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:33:28] Will: We just said it was five months though.
 
-[00:33:30] Norm: Well, no, the patterns will be in a couple of weeks, but the the video of that build will be is going to be on the site, and then we're basically wrapped up with Comic Con coverage. We had so much stuff we shot; I think twenty videos at Comic Con. So please rewatch all that stuff.
+[00:33:30] Norm: Well, no, the patterns will be in a couple of weeks, but the the video of that build will be is going to be on the site, and then we're basically wrapped up with Comic Con coverage. We had so much stuff we shot; I think 20 videos at Comic Con. So please rewatch all that stuff.
 
 [00:33:44] Will: Are you still trickling out stuff from New Zealand, Australia, or is that going to be a while?
 

@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:00:20] Will: Okay, so that's like three quarters of San Francisco.
 
-[00:00:22] Adam: You know, it's it's actually great. It took forty minutes to drive this morning because San Franciscans all lose their minds in the rain.
+[00:00:22] Adam: You know, it's it's actually great. It took 40 minutes to drive this morning because San Franciscans all lose their minds in the rain.
 
 [00:00:32] Will: Totally true. Karl the Fog this morning tweeted, and and just to be clear, we realize the irony of complaining about weather here on the West Coast when right now,
 
@@ -28,9 +28,9 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:00:43] Norm: We're complaining about the people.
 
-[00:00:43] Will: And right now, on the East Coast, it's what like negative two hundred. Basically, you walk outside, your eyelashes freeze. Dennis Quaid turns into an ice sculpture right in front of you, and it's all over. There's nothing you can do.
+[00:00:43] Will: And right now, on the East Coast, it's what like negative 200. Basically, you walk outside, your eyelashes freeze. Dennis Quaid turns into an ice sculpture right in front of you, and it's all over. There's nothing you can do.
 
-[00:00:58] Norm: There are parts of the country where one day it's like three degrees, the next day it's fifty, and If we had that in San Francisco, that would be the apocalypse.
+[00:00:58] Norm: There are parts of the country where one day it's like three degrees, the next day it's 50, and If we had that in San Francisco, that would be the apocalypse.
 
 [00:01:06] Adam: We would all lose our minds. I mean, every once every five years, when the pipes freeze here, and everyone loses their.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:08:34] Adam: Um, I would.
 
-[00:08:36] Norm: I and then say your child at this point because you have a you have eighteen year olds. You have a youngin.
+[00:08:36] Norm: I and then say your child at this point because you have a you have 18 year olds. You have a youngin.
 
 [00:08:36] Will: Look,
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:13:00] Adam: that was a great Golden Globes on an activist front in every way.
 
-[00:13:04] Will: I I love my way of watching like everything but the Academy Awards now is just to sit in Twitter and watch the clips as they come up, so I can watch the entire thing in about eighteen minutes.
+[00:13:04] Will: I I love my way of watching like everything but the Academy Awards now is just to sit in Twitter and watch the clips as they come up, so I can watch the entire thing in about 18 minutes.
 
 [00:13:12] Adam: That's why I like Deadspin for seeing how soccer's doing.
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:14:26] Will: So yeah, it's fine. We can spoil away.
 
-[00:14:27] Norm: Well, let's let's do a couple minutes of non-spoilery talk. It's been so the background for The Shape of Water. Guillermo del Toro. It's his tenth film. He has done you know previous to this. I think his last two films were Crimson Peak and then Pacific Rim. And this is apparently an idea that he had festering in his head while the making of Pacific Rim, kind of like the the Universal monster movie he's always wanted to make.
+[00:14:27] Norm: Well, let's let's do a couple minutes of non-spoilery talk. It's been so the background for The Shape of Water. Guillermo del Toro. It's his 10th film. He has done you know previous to this. I think his last two films were Crimson Peak and then Pacific Rim. And this is apparently an idea that he had festering in his head while the making of Pacific Rim, kind of like the the Universal monster movie he's always wanted to make.
 
 [00:14:53] Adam: He said it to me. It was his version of. Creature from the Black Lagoon,
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:16:16] Norm: and the movie's out. And it is an adult fairy tale.
 
-[00:16:27] Adam: It is. I loved watching Guillermo shut down the music, trying to play him off, and he turned and said, " No music, no music. It's been twenty-five years. Stop it."
+[00:16:27] Adam: It is. I loved watching Guillermo shut down the music, trying to play him off, and he turned and said, " No music, no music. It's been 25 years. Stop it."
 
 [00:16:39] Will: Like he's one of the direct. He's one of those directors that, for me, is usually like a. I'm going to be in the theater. Like I'm going to see this movie in the theater, right? Like
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:17:19] Will: Mm hmm.
 
-[00:17:19] Adam: I did a set of interviews with Guillermo for Criterion last year, and he gave me, I think, fifteen or sixteen films to watch before the interview, and it was such a masterclass in seeing how amazing film history has been in these corners that you don't know about. So he's yeah, all of this he brings to bear on every project, and it might be a giant tentpole action adventure movie, or it might be like this, a really, really beautiful, small, intimate monster film that is unique
+[00:17:19] Adam: I did a set of interviews with Guillermo for Criterion last year, and he gave me, I think, 15 or 16 films to watch before the interview, and it was such a masterclass in seeing how amazing film history has been in these corners that you don't know about. So he's yeah, all of this he brings to bear on every project, and it might be a giant tentpole action adventure movie, or it might be like this, a really, really beautiful, small, intimate monster film that is unique
 
 [00:17:54] Norm: and very clearly he is a visual artist, like from his sketchbooks, which he's in his Cabinet of Curiosities book. You get a lot of his sketches, whereas, like you know, Tarantino, who. Made an equivalent number of films, I want to say, close to it. You know, you you kind of know what you get with a Tarantino film in the texture of the dialogue, like right. You know, you are going to get Tarantino.
 

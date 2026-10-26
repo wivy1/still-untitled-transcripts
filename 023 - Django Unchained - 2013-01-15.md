@@ -20,9 +20,9 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:00:21] Will: That was really smart. I— mine's sitting right over there. I really wish I I'd gotten it before we started this because it's it's brisk. It's San Francisco cold, which is a whole different kind of cold.
 
-[00:00:29] Adam: It is. It's a it's a it's a it's a wussy cold according to the rest of the world, but in San Francisco we're very upset about these forty-degree days.
+[00:00:29] Adam: It is. It's a it's a it's a it's a wussy cold according to the rest of the world, but in San Francisco we're very upset about these 40-degree days.
 
-[00:00:38] Will: Yeah, it's it's forty degrees here is worse than twenty everywhere else I've ever lived.
+[00:00:38] Will: Yeah, it's it's 40 degrees here is worse than 20 everywhere else I've ever lived.
 
 [00:00:43] Adam: Well, that's because you don't ever have the right clothes. And personally, my house, I'm not used to heating it.
 
@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:01:03] Adam: It's still. It's. It's just not. It's trying to get used to us.
 
-[00:01:06] Will: The Nest doesn't know my. It doesn't work with my heating system. I have that old, a, heating system. It uses this millivolt thing. You can't. You. You can just get the eight-dollar one off the shelf at Lowe's. That's the. That's the most fancy thermostat I can get.
+[00:01:06] Will: The Nest doesn't know my. It doesn't work with my heating system. I have that old, a, heating system. It uses this millivolt thing. You can't. You. You can just get the $8 one off the shelf at Lowe's. That's the. That's the most fancy thermostat I can get.
 
 [00:01:18] Adam: No, I'm sorry.
 
@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:01:30] Will: Norm went back for more.
 
-[00:01:32] Adam: I even took my um my new uh Tarantino adepts, my thirteen-year-old twins, to see Django, which I recognize is a questionable decision, but I I will get to it later why I think it was a good one.
+[00:01:32] Adam: I even took my um my new uh Tarantino adepts, my 13-year-old twins, to see Django, which I recognize is a questionable decision, but I I will get to it later why I think it was a good one.
 
 [00:01:44] Norm: I don't think it's questionable. It's intentional parenting choice.
 
@@ -66,11 +66,11 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:01:51] Adam: One others might not agree with.
 
-[00:01:52] Will: When I was thirteen, there were no Tarantino movies yet, right? Norm, you were you were young enough to grow up.
+[00:01:52] Will: When I was 13, there were no Tarantino movies yet, right? Norm, you were you were young enough to grow up.
 
 [00:01:58] Norm: Pulp Fiction.
 
-[00:01:59] Will: Pulp Fiction was when you were thirteen years old, right?
+[00:01:59] Will: Pulp Fiction was when you were 13 years old, right?
 
 [00:02:01] Norm: It was. Probably when I was younger than that, but that was one of the first. I I think I was exposed to, uh, Natural Born Killers was probably my first.
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:02:14] Norm: I never understood why they call it Pulp Fiction, and then it all makes sense now, of course.
 
-[00:02:18] Will: Yeah, twenty years later. Um. So, so do we like Django? What's what's the feeling around the table?
+[00:02:18] Will: Yeah, 20 years later. Um. So, so do we like Django? What's what's the feeling around the table?
 
 [00:02:23] Adam: I love Django.
 
@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:05:54] Will: Oh yeah.
 
-[00:05:55] Adam: Right, like, like a, like a ten-year-old kid.
+[00:05:55] Adam: Right, like, like a, like a 10-year-old kid.
 
 [00:05:57] Norm: Yet at the same time, larger than life because he's wearing the Blue Boy costume. Right.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:10:00] Norm: But also they're both revenge stories and they're both revisionist history stories.
 
-[00:10:03] Adam: Well, but I mean, even more than that, I don't think that he thinks of. I, I feel like, this is total speculation on my part, I feel like he's merely thinking, "How can I make someone who's totally badass and place them in one of the worst positions possible?" A Jew in Europe during World War Two, a black dude during, during, during slavery in America. You know, it's like a lot of people don't know about it, but I think it's kind of like a lot of, like, um, uh, uh, there's a Doris Lessing wrote a great series of five, uh, science fiction novels called Canopus and Argos Archives. They're totally seminal and really amazing. And in one of them, how do I put this? I want to tell the story quickly. Uh, it's about, it's a field reports on Earth and other planets within the universe by the benevolent race, the Canopeans, that oversee the universe. And so the first book called Shikasta is a field report on Earth from thirty thousand years in the past until about one hundred and fifty years in the future, when the whole world holds the white men on trial for crimes against humanity.
+[00:10:03] Adam: Well, but I mean, even more than that, I don't think that he thinks of. I, I feel like, this is total speculation on my part, I feel like he's merely thinking, "How can I make someone who's totally badass and place them in one of the worst positions possible?" A Jew in Europe during World War Two, a black dude during, during, during slavery in America. You know, it's like a lot of people don't know about it, but I think it's kind of like a lot of, like, um, uh, uh, there's a Doris Lessing wrote a great series of five, uh, science fiction novels called Canopus and Argos Archives. They're totally seminal and really amazing. And in one of them, how do I put this? I want to tell the story quickly. Uh, it's about, it's a field reports on Earth and other planets within the universe by the benevolent race, the Canopeans, that oversee the universe. And so the first book called Shikasta is a field report on Earth from 30,000 years in the past until about 150 years in the future, when the whole world holds the white men on trial for crimes against humanity.
 
 [00:11:01] Will: Okay.
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:13:40] Will: It's a real bad day.
 
-[00:13:41] Adam: Forty-five minutes or more than that of very little actual violence or action going on, but because of that opening sequence and the intensity of it, you are, you, you are still kind of on edge the whole time, and when that scene hits, it's almost like a relief, and it's the worst thing you could have. I remember thinking in the theater, "Is this going to be as bad as I think it's going to be? Oh my God, it's so much worse than I thought."
+[00:13:41] Adam: 45 minutes or more than that of very little actual violence or action going on, but because of that opening sequence and the intensity of it, you are, you, you are still kind of on edge the whole time, and when that scene hits, it's almost like a relief, and it's the worst thing you could have. I remember thinking in the theater, "Is this going to be as bad as I think it's going to be? Oh my God, it's so much worse than I thought."
 
 [00:14:03] Norm: And then there is a great moment of catharsis with the sword.
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:23:21] Norm: Um, but Schultz finds them in the middle of, of Texas.
 
-[00:23:26] Will: Thirty miles from anything.
+[00:23:26] Will: 30 miles from anything.
 
 [00:23:27] Norm: A guy riding a stagecoach. Right. The stagecoach is an interesting story because it's only there because he couldn't ride the horse. Yeah. Injured. Uh, that's the origin of that tooth. But it's very, it's very much, you know, Cinderella and with the stagecoach, and as Schultz seemingly is infallible with his plans, he has his pocketbook with unlimited money. He tells Django kill this guy, kill that guy, and then he only dies because he chooses to at the very end.
 
@@ -550,7 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:26:29] Norm: Every interview.
 
-[00:26:30] Adam: I would. I, I, I would love to meet him someday and, and talk for about twenty hours.
+[00:26:30] Adam: I would. I, I, I would love to meet him someday and, and talk for about 20 hours.
 
 [00:26:35] Will: So I went and watched Blazing Saddles after I saw Django.
 

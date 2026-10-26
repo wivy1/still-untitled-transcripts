@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:05:29] Adam: policy problem.
 
-[00:05:31] Will: Yeah, well, it's a, yeah, yeah, it's a combination. Yes, we don't build enough houses for the number of people who live here, so a single room, what, one bedroom apartment costs 4,000 dollars a month,
+[00:05:31] Will: Yeah, well, it's a, yeah, yeah, it's a combination. Yes, we don't build enough houses for the number of people who live here, so a single room, what, one bedroom apartment costs $4,000 a month,
 
 [00:05:40] Adam: yeah,
 
@@ -134,15 +134,15 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:07:05] Will: It was the last episode, the one that you swung across the pit, or last season where you swung across
 
-[00:07:09] Adam: The, the, second to last season, I believe. And yeah, I swung across the pit on this. the The whip was built by Ron Morgan, son of David Morgan, uh, David Morgan, incredible whip maker and teacher to a whole generation of whip makers in the United States, has a wonderful company up in Washington State. They import kangaroo hide. They sell whips. They and David Morgan famously made all the whips for all the Raiders films, and it, an incredible craftsman and an incredible piece of work, and valuable to me, mostly for its sentimental value that it was and it was in my cruiser because I had taken it out on a Savage Builds shoot. It was like, oh, if we have a big outdoor space, I'll I'll practice cracking my whip. Like, why not? Where I can do it safely? Because this sounds like a you know twenty-two rifle going off.
+[00:07:09] Adam: The, the, second to last season, I believe. And yeah, I swung across the pit on this. the The whip was built by Ron Morgan, son of David Morgan, uh, David Morgan, incredible whip maker and teacher to a whole generation of whip makers in the United States, has a wonderful company up in Washington State. They import kangaroo hide. They sell whips. They and David Morgan famously made all the whips for all the Raiders films, and it, an incredible craftsman and an incredible piece of work, and valuable to me, mostly for its sentimental value that it was and it was in my cruiser because I had taken it out on a Savage Builds shoot. It was like, oh, if we have a big outdoor space, I'll I'll practice cracking my whip. Like, why not? Where I can do it safely? Because this sounds like a you know .22 rifle going off.
 
-[00:07:54] Will: Well, yeah, you go out to Dolores Park and crack a fourteen-foot whip. You're going to kill somebody.
+[00:07:54] Will: Well, yeah, you go out to Dolores Park and crack a 14-foot whip. You're going to kill somebody.
 
 [00:07:58] Adam: Not that brings up a whole specific kind of crazy.
 
 [00:08:01] Will: Yeah.
 
-[00:08:01] Adam: So look, it's certainly feasible for me to reach back out to the Morgans and commission another whip. They had they they built it to our specs. They can build another one to our specs, and I could put another one in my collection, and I probably will. Um, so again, when something like this happens, it's it's sad making because I don't like the idea of someone going through my stuff. And weirdly, okay, this is the weird part of what they stole. Up in my cruiser, I have one of these top shelves above the windshield that they sell for forty series Land Cruisers. And in that shelf, I had put a, um, an old, uh, eight day winding aircraft clock, plus some switches for some of the various features around. And I had three screens that matched. That were connected to three cameras on the outside of the car that helped me drive, park, and maneuver.
+[00:08:01] Adam: So look, it's certainly feasible for me to reach back out to the Morgans and commission another whip. They had they they built it to our specs. They can build another one to our specs, and I could put another one in my collection, and I probably will. Um, so again, when something like this happens, it's it's sad making because I don't like the idea of someone going through my stuff. And weirdly, okay, this is the weird part of what they stole. Up in my cruiser, I have one of these top shelves above the windshield that they sell for 40 series Land Cruisers. And in that shelf, I had put a, um, an old, uh, eight day winding aircraft clock, plus some switches for some of the various features around. And I had three screens that matched. That were connected to three cameras on the outside of the car that helped me drive, park, and maneuver.
 
 [00:08:51] Will: Because, because it's a right drive car.
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:10:34] Norm: yeah, Volpin was a judge there.
 
-[00:10:35] Adam: Was one of the judges wearing a mind-blowingly beautiful Fallout four, and actually, all four judges were dressed really neat and awesome, and they were. Fabulous about giving great perspective on the costumes, the sixteen costumes that made the finals, and it was really fun. My co-host was Anna Prosser Robinson, who's a producer for Twitch and also an on-screen talent. Again, the whole team I dealt with at Twitch was fabulous. The production managers, the stage people, they were super professional, super buttoned down, really easy to deal with.
+[00:10:35] Adam: Was one of the judges wearing a mind-blowingly beautiful Fallout four, and actually, all four judges were dressed really neat and awesome, and they were. Fabulous about giving great perspective on the costumes, the 16 costumes that made the finals, and it was really fun. My co-host was Anna Prosser Robinson, who's a producer for Twitch and also an on-screen talent. Again, the whole team I dealt with at Twitch was fabulous. The production managers, the stage people, they were super professional, super buttoned down, really easy to deal with.
 
 [00:11:12] Will: It was at San Diego Comic Con.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:15:26] Adam: and she had made the rock she lay upon, and she had armor on, and Harrison pointed out that she had armor made in some places out of silicone, in some places it was made out of urethane, and in some places it was 3D printed, and the color matched on all three of them. And he's like, that's really hard. And the thing is, is that before cosplay. Only a very small subset of people in the film industry and perhaps some other industries knew no weird esoteric things like that. Like multiple different textures and materials are hard to color match to each other, but you end up with this community that's beautifully supporting each other by transferring and trading this kind of information.
 
-[00:16:08] Will: Well, and the thing that makes me happy, and the thing that we always said when we were when you were doing cosplay photos at Maximum PC in 2009, 2000 and earlier, is that like the cosplay we said this before here, it has to hold up to a much higher level of scrutiny than a lot of film props because you're looking at it from two feet away with your eyes instead of looking at it with a fifty millimeter lens from thirty feet away.
+[00:16:08] Will: Well, and the thing that makes me happy, and the thing that we always said when we were when you were doing cosplay photos at Maximum PC in 2009, 2000 and earlier, is that like the cosplay we said this before here, it has to hold up to a much higher level of scrutiny than a lot of film props because you're looking at it from two feet away with your eyes instead of looking at it with a 50 millimeter lens from 30 feet away.
 
 [00:16:29] Norm: And you have zero control of the lighting.
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:16:52] Adam: Yeah.
 
-[00:16:53] Will: is off the charts, like unbelievable, and and I don't think I think if that show had come out twenty years before, you wouldn't have seen that because they would have just banged out a dress, painted on the the markings, and been like, " This has only been in the shop for two seconds from twenty feet away."
+[00:16:53] Will: is off the charts, like unbelievable, and and I don't think I think if that show had come out 20 years before, you wouldn't have seen that because they would have just banged out a dress, painted on the the markings, and been like, " This has only been in the shop for two seconds from 20 feet away."
 
 [00:17:06] Adam: There is some old Matthew Broderick film. I can't remember which one it is, but it's really bad. Godzilla, in which the sword, it’s not even one of them.
 
@@ -342,11 +342,11 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:19:39] Adam: It was great.
 
-[00:19:40] Will: It's the thing that amazes me about that about Twitch in general is how and I've been streaming for like two years on Twitch now, three years or something on Twitch. Is is how like obviously you see all the channels that have like sixty thousand people watching, and that has all the problems that large scale internet has.
+[00:19:40] Will: It's the thing that amazes me about that about Twitch in general is how and I've been streaming for like two years on Twitch now, three years or something on Twitch. Is is how like obviously you see all the channels that have like 60,000 people watching, and that has all the problems that large scale internet has.
 
 [00:19:55] Adam: Right.
 
-[00:19:55] Will: But there's millions and millions and millions of channels that anywhere from like five to five hundred or a thousand people watch, and the communities that form around those channels are are unlike anything I've seen on the internet on the modern internet.
+[00:19:55] Will: But there's millions and millions and millions of channels that anywhere from like 5 to 500 or 1,000 people watch, and the communities that form around those channels are are unlike anything I've seen on the internet on the modern internet.
 
 [00:20:08] Adam: That's really cool, and I'm really interested. So this is a call for some information from this cast. I'm curious about maker channels on Twitch. I'm curious about people's favorite maker streams. I'd like to take a look at these.
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:24:52] Norm: Okay.
 
-[00:24:52] Will: who like can't control. She took— when she gets stressed out, she turns into a blob, which I can identify with. And then there is a woman that has like sixty-five personalities, and each personality has a different superpower, and it's just like the best bad gimmick for for one-off gags that I've ever seen. Like it's it's it's really fun and silly and kind of heartfelt and sweet and yeah, it's it's not what I was expecting.
+[00:24:52] Will: who like can't control. She took— when she gets stressed out, she turns into a blob, which I can identify with. And then there is a woman that has like 65 personalities, and each personality has a different superpower, and it's just like the best bad gimmick for for one-off gags that I've ever seen. Like it's it's it's really fun and silly and kind of heartfelt and sweet and yeah, it's it's not what I was expecting.
 
 [00:25:21] Adam: So while signing autographs at Phoenix Fan Fusion Con, I did a long signing. It's like four, three and a half, four hours. Several hundred people, and when you are doing that, you you end up accidentally misspelling a bunch of names.
 

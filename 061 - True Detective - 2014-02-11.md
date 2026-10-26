@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:04:07] Adam: I don't think it was.
 
-[00:04:09] Will: I thought it was long. Usually, like the the target length is about twenty minutes.
+[00:04:09] Will: I thought it was long. Usually, like the the target length is about 20 minutes.
 
 [00:04:12] Adam: Okay.
 
@@ -816,9 +816,9 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:22:38] Adam: Oh, really?
 
-[00:22:38] Will: Only I thought there was ten
+[00:22:38] Will: Only I thought there was 10
 
-[00:22:38] Norm: or ten episodes of the season. He's the showrunner, lead writer, and so it's it's not like one of those shows. Like when you talk to Vince Gilligan, you know they did at Writers' Room, they had their plot points and
+[00:22:38] Norm: or 10 episodes of the season. He's the showrunner, lead writer, and so it's it's not like one of those shows. Like when you talk to Vince Gilligan, you know they did at Writers' Room, they had their plot points and
 
 [00:23:21] Norm: made stuff
 
@@ -874,13 +874,13 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:25:29] Adam: Yeah, I can't find it.
 
-[00:25:29] Norm: Regardless, it's only been three episodes so far as of when we're recording this, and with eight episodes, five five more episodes. I mean, it doesn't feel rushed, but it's also not moving at like a twenty four episode glaciers pace.
+[00:25:29] Norm: Regardless, it's only been three episodes so far as of when we're recording this, and with eight episodes, five five more episodes. I mean, it doesn't feel rushed, but it's also not moving at like a 24 episode glaciers pace.
 
 [00:25:29] Adam: Right, right, right.
 
 [00:25:29] Norm: It's you're eight hours.
 
-[00:25:51] Will: Well, that was always the problem with twenty four is that is that they had a good ten hours of content and had twenty four hours to fill.
+[00:25:51] Will: Well, that was always the problem with 24 is that is that they had a good 10 hours of content and had 24 hours to fill.
 
 [00:25:59] Norm: Yeah.
 
@@ -896,7 +896,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:26:04] Adam: Really.
 
-[00:26:04] Will: No pooping in twenty four. CTU doesn't have a bathroom. It turns out.
+[00:26:04] Will: No pooping in 24. CTU doesn't have a bathroom. It turns out.
 
 [00:26:11] Norm: He he even had sex?
 

@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:02:26] Norm: it's been a while.
 
-[00:02:28] Will: Well, you know, superhero movies only come out twelve months a year now, so it's it's tough to tough
+[00:02:28] Will: Well, you know, superhero movies only come out 12 months a year now, so it's it's tough to tough
 
 [00:02:28] Norm: That’s right.
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:04:29] Norm: Yeah, well,
 
-[00:04:30] Adam: sorry about that. Oh, it’s all good. For for a lot of movies, the plot is paramount, and we talk about plot holes and plot difficulties and suspensions of disbelief and such like that. And you know, there's a standard trope that by page eleven or fifteen, you need to know the whole thing of what's about to happen in the movie, so you're invested. And both Guardians films are—I was thinking about this in the middle of the sequel—are much more like you're just jumping into a world, and there is a kind of some thing to do, but it's more just like people are doing what they do.
+[00:04:30] Adam: sorry about that. Oh, it’s all good. For for a lot of movies, the plot is paramount, and we talk about plot holes and plot difficulties and suspensions of disbelief and such like that. And you know, there's a standard trope that by page 11 or 15, you need to know the whole thing of what's about to happen in the movie, so you're invested. And both Guardians films are—I was thinking about this in the middle of the sequel—are much more like you're just jumping into a world, and there is a kind of some thing to do, but it's more just like people are doing what they do.
 
 [00:05:00] Will: Well, they're character pieces.
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:05:31] Adam: it's such a peaceful, lovely respite, and that's a repeated refrain within the film. This this kind of silent part.
 
-[00:06:15] Will: I think of that as the, and I I say this without malice. I think of it as the Simpsonization of of media, right? Like if you think about before Simpsons, comedies, sitcoms had laugh tracks, and there was always a joke, beat, audience laughs, home audience laughs, and you move on. Then the Simpsons just came on and packed three times as many jokes into twenty three minutes as anybody had ever done before. And the temptation to do that with this movie had to be there, and the restraint that they showed in in giving the characters kind of room to breathe
+[00:06:15] Will: I think of that as the, and I I say this without malice. I think of it as the Simpsonization of of media, right? Like if you think about before Simpsons, comedies, sitcoms had laugh tracks, and there was always a joke, beat, audience laughs, home audience laughs, and you move on. Then the Simpsons just came on and packed three times as many jokes into 23 minutes as anybody had ever done before. And the temptation to do that with this movie had to be there, and the restraint that they showed in in giving the characters kind of room to breathe
 
 [00:06:15] Adam: Yeah.
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:15:59] Unknown speaker: Star Lord,
 
-[00:15:59] Adam: Peter Quill, Star Lord, in a car with Star Lord's mom, and so it's clearly it's the '70s, and they're They're doing the so it's Kurt Russell in his twenties,
+[00:15:59] Adam: Peter Quill, Star Lord, in a car with Star Lord's mom, and so it's clearly it's the '70s, and they're They're doing the so it's Kurt Russell in his 20s,
 
 [00:16:09] Will: and they're listening to Brandy.
 

@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:03:16] Adam: Let's start from the beginning.
 
-[00:03:18] Will: Yeah, it it it reminds me a lot of if you ever read The Hunt for Red October, which was Tom Clancy's first book, and it was something he had spent like twelve years or something researching and figuring out how submarines work. And he wrote these incredibly detailed, long narrative sequences about interesting failures inside machines, complex machinery. Like that's the thing that stands out to me about about it's a spy book, but that's that's interesting to me. Andy Weir does a lot of the same kind of stuff with The Martian, but it's told mostly from the first person.
+[00:03:18] Will: Yeah, it it it reminds me a lot of if you ever read The Hunt for Red October, which was Tom Clancy's first book, and it was something he had spent like 12 years or something researching and figuring out how submarines work. And he wrote these incredibly detailed, long narrative sequences about interesting failures inside machines, complex machinery. Like that's the thing that stands out to me about about it's a spy book, but that's that's interesting to me. Andy Weir does a lot of the same kind of stuff with The Martian, but it's told mostly from the first person.
 
 [00:03:45] Adam: It's mostly from the first person, and the thing that's remarkable about it is on the the broadest overview. And I haven't been able to really talk to anyone about it because I keep. Just telling people to read it, and then I make sure I tell them nothing because the less you know, the better.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:04:02] Adam: Yeah.
 
-[00:04:02] Will: The audiobook's like ten hours long.
+[00:04:02] Will: The audiobook's like 10 hours long.
 
 [00:04:09] Adam: I read it on my flight to New to Australia, and then I just listened to the podcast. So, while I was in Australia, I was lucky enough to actually have breakfast. My wife and I had breakfast with Chris Hadfield and his wife Helena, and they are lovely, lovely people. And Helena said Chris had read it, but but Helena had actually listened to it and said that the the the audiobook is fantastic because the reader, the guy who reads it, whose name escapes me right now, but it's we can put it up on our on a website. He does all the characters.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:09:43] Will: Like. Like like talking about the calories,
 
-[00:09:45] Adam: calories, right? He's like he has enough food for four hundred days, but he has to survive for at least nine hundred and fifty days if he's going to wait until the other crew comes back to the
+[00:09:45] Adam: calories, right? He's like he has enough food for 400 days, but he has to survive for at least 950 days if he's going to wait until the other crew comes back to the
 
 [00:09:54] Will: next mission.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:11:33] Norm: Yeah. Eight month journey.
 
-[00:11:34] Adam: Eight month journey. And NASA is late in informing them that their crewman is still alive because they're worried about their morale because they won't be able to do anything about it. And when he finds out, when the main character finds out, he's like, he writes, " Are you fucking kidding me? Tell them already." And he's told by the NASA guy, " Hey, please watch your language. There's a billion people reading every single one of your missives from Mars." And his next missive is, " Hey boobies,"
+[00:11:34] Adam: Eight month journey. And NASA is late in informing them that their crewman is still alive because they're worried about their morale because they won't be able to do anything about it. And when he finds out, when the main character finds out, he's like, he writes, " Are you fucking kidding me? Tell them already." And he's told by the NASA guy, " Hey, please watch your language. There's 1 billion people reading every single one of your missives from Mars." And his next missive is, " Hey boobies,"
 
 [00:12:01] Norm: with a
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:12:38] Will: I thought I I actually like that. I like like the the bit when he finds when he's when he because he part of it is he has a lot of dead time too. Like he does a lot of hard work and then has a lot of time where he has to just wait for stuff to happen. Right,
 
-[00:12:49] Adam: and sit for twelve hours waiting for his batteries to charge.
+[00:12:49] Adam: and sit for 12 hours waiting for his batteries to charge.
 
 [00:12:52] Will: Oh yeah,
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:14:22] Norm: And then you have the thing like from Moon, where it's the isolation and what that does to you, and how do you pass time? You know, doing your errands, becoming a space trucker, a space farmer.
 
-[00:14:31] Adam: And and every bit of it is is riveting. I was so I read it the first time, like I said, I've been listening to it. I just finished listening to it the second time, and I found in both cases, it's repeatedly hilarious and also moving in almost oscillating, uh, what do you call it, moments, right? So there's there's a point in which you realize how much a billion people will be watching the attempt to rescue him from Mars.
+[00:14:31] Adam: And and every bit of it is is riveting. I was so I read it the first time, like I said, I've been listening to it. I just finished listening to it the second time, and I found in both cases, it's repeatedly hilarious and also moving in almost oscillating, uh, what do you call it, moments, right? So there's there's a point in which you realize how much 1 billion people will be watching the attempt to rescue him from Mars.
 
 [00:15:00] Norm: Things that unite humanity,
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:15:19] Adam: And then there's this funny stuff when he's driving. He ends up having to drive 3,000 kilometers from one landing site  to another.
 
-[00:15:25] Will: Which is what like like a thousand miles?
+[00:15:25] Will: Which is what like like 1,000 miles?
 
 [00:15:27] Adam: No, it's like 1,700 miles.
 
@@ -398,11 +398,11 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:15:27] Adam: 1,800 miles—it's a long journey,
 
-[00:15:32] Will: right? Well, and it's in ninety-kilometer chunks. Isn’t that amazing, or less in many cases?
+[00:15:32] Will: right? Well, and it's in 90-kilometer chunks. Isn’t that amazing, or less in many cases?
 
 [00:15:36] Adam: And and he's as he's driving, he starts naming stuff that for himself. He's like, " Screw it! I'm the first one to see this. I'm calling this the Watney Triangle."
 
-[00:15:45] Will: There's there's a couple of moments where where he he's like, " Well, I guess this is the first time anybody's done this," and and they just keep piling up, right? Um, the the idea, like the bit about him growing crops. So he he he realizes early on that he only has enough food to get through a couple hundred days, and he needs enough food to get almost a thousand days. And because it's a long-term mission to see how things grow and explore soil science and stuff like that, they actually have packets of earth soil complete with all the flora and fauna.
+[00:15:45] Will: There's there's a couple of moments where where he he's like, " Well, I guess this is the first time anybody's done this," and and they just keep piling up, right? Um, the the idea, like the bit about him growing crops. So he he he realizes early on that he only has enough food to get through a couple hundred days, and he needs enough food to get almost 1,000 days. And because it's a long-term mission to see how things grow and explore soil science and stuff like that, they actually have packets of earth soil complete with all the flora and fauna.
 
 [00:15:45] Adam: Yeah, yeah.
 
@@ -500,11 +500,11 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:19:19] Adam: Yeah. Well, during his 2,000 kilometer trip—
 
-[00:19:21] Will: There's a there's a wonderful moment where you don't exactly know what he's doing. You know he's going to go on a test drive to see how the rover does over a long period of time. And it's a long trip; it's like twenty or thirty days or something like that. And midway through, Andy Weir like lets you know, " Oh, he's going for the Pathfinder, which was the like, or what, 2000 maybe? I guess is when it landed around there, 2002."
+[00:19:21] Will: There's a there's a wonderful moment where you don't exactly know what he's doing. You know he's going to go on a test drive to see how the rover does over a long period of time. And it's a long trip; it's like 20 or 30 days or something like that. And midway through, Andy Weir like lets you know, " Oh, he's going for the Pathfinder, which was the like, or what, 2000 maybe? I guess is when it landed around there, 2002."
 
 [00:19:45] Adam: So now it's a decades old. He doesn't actually ever give you the year that this book is  happening.
 
-[00:19:48] Will: No, it's an indeterminate period of time in the future. It seemed like at most thirty years in the future.
+[00:19:48] Will: No, it's an indeterminate period of time in the future. It seemed like at most 30 years in the future.
 
 [00:19:52] Adam: But he also doesn't. Let's make this really clear. There's nothing in the book where he leaps towards an impossible, a technology that's currently impossible.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:20:19] Norm: Right, because there's no way anyone in current EVA suits could
 
-[00:20:21] Adam: get in and out in ten minutes.
+[00:20:21] Adam: get in and out in 10 minutes.
 
 [00:20:23] Norm: Could also like load up boulders.  and actually do mechanical work.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:20:30] Will: You've seen one. Well, I mean, but but there's work going on at NASA right now toward that end. That is the end goal of the current work on  suits.
 
-[00:20:35] Adam: Absolutely. So he posits that that's been perfected, and you can get in and out of an EVA suit in ten minutes
+[00:20:35] Adam: Absolutely. So he posits that that's been perfected, and you can get in and out of an EVA suit in 10 minutes
 
 [00:20:41] Will: yourself
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:21:09] Norm: those seem like a little. The fact that you have interior space, and
 
-[00:21:16] Adam: again, though, when he's talking about it, remember he says it takes two hundred and fifty seconds to get through to drill a hole, each hole through the fiberglass shell, which means it's got to be. Dimensionally super thick at the same time as it's lightweight, so it's layers of carbon fiber and some filler in order to be
+[00:21:16] Adam: again, though, when he's talking about it, remember he says it takes 250 seconds to get through to drill a hole, each hole through the fiberglass shell, which means it's got to be. Dimensionally super thick at the same time as it's lightweight, so it's layers of carbon fiber and some filler in order to be
 
 [00:21:37] Adam: able to maintain an
 
@@ -622,7 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:23:30] Adam: I got teary a whole  bunch of times in this book.
 
-[00:23:31] Will: Oh, I was. And the the so then, okay, so then midway through, there's a success. There's a there's an attempt to send a probe with food to cover the gap because even with the potatoes, yes, even with successful potato growth, he's not going to have enough calories to last for the next Mars mission. At that point, they say, " Okay, we'll take a big booster. We're going to load it up as fast as we can with food and radios and stuff, and blast it off to him. And then it blows up thirty seconds after it takes off.
+[00:23:31] Will: Oh, I was. And the the so then, okay, so then midway through, there's a success. There's a there's an attempt to send a probe with food to cover the gap because even with the potatoes, yes, even with successful potato growth, he's not going to have enough calories to last for the next Mars mission. At that point, they say, " Okay, we'll take a big booster. We're going to load it up as fast as we can with food and radios and stuff, and blast it off to him. And then it blows up 30 seconds after it takes off.
 
 [00:23:58] Norm: contact  scenario.
 
@@ -730,7 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:27:27] Will: but you had to do it. I get it.
 
-[00:27:29] Norm: That I think would be better translated in movie form because we're talking about the crew, which already spent, you know, eight months getting there, did not get the full thirty days they wanted on Mars, and then had to spend eight months getting back. And they have the moments of the family, but you never get that one shot which you can, I guess, is best done visually, where they finally see home again.
+[00:27:29] Norm: That I think would be better translated in movie form because we're talking about the crew, which already spent, you know, eight months getting there, did not get the full 30 days they wanted on Mars, and then had to spend eight months getting back. And they have the moments of the family, but you never get that one shot which you can, I guess, is best done visually, where they finally see home again.
 
 [00:27:48] Will: And then they're going to have to blast bye-bye.
 
@@ -772,7 +772,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:29:26] Adam: I think the
 
-[00:29:27] Adam: movie's going to end up being. Almost like fifty-fifty, if not a little more on Earth,
+[00:29:27] Adam: movie's going to end up being. Almost like 50-50, if not a little more on Earth,
 
 [00:29:32] Norm: because you need the supporting  cast.
 
@@ -834,7 +834,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:32:18] Norm: Yeah.
 
-[00:32:18] Adam: chucked in a hundred and sixty page screenplay.
+[00:32:18] Adam: chucked in a 160 page screenplay.
 
 [00:32:31] Norm: I also think the ending.
 
@@ -884,7 +884,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:35:18] Adam: No, 3,200 kilometers.
 
-[00:35:18] Will: 1,600 miles. Um, he has to get up in the morning, pack up twenty-seven presumably large solar panels,
+[00:35:18] Will: 1,600 miles. Um, he has to get up in the morning, pack up 27 presumably large solar panels,
 
 [00:35:44] Adam: half a meter, half a square meter each.
 
@@ -894,13 +894,13 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:35:50] Will: stack them. Yeah, get everything ready to go. That that is preceded and and posteated by EVA taking off his suit, folding in his bedroom that he built just so he could stand up while he's on this trip without a spacesuit on.
 
-[00:36:03] Adam: Then has to bring into the airlock and fold up and put back in his rover every single day for ninety-five days
+[00:36:03] Adam: Then has to bring into the airlock and fold up and put back in his rover every single day for 95 days
 
 [00:36:09] Will: or something like that. He has to
 
-[00:36:11] Norm: fifty days, yeah.
+[00:36:11] Norm: 50 days, yeah.
 
-[00:36:11] Will: Make his potato. Yeah, take his multivitamin, and then drive 25 kilometers an hour for ninety kilometers.
+[00:36:11] Will: Make his potato. Yeah, take his multivitamin, and then drive 25 kilometers an hour for 90 kilometers.
 
 [00:36:18] Adam: He’s eating not just a potato; he's eating like five or six a day.
 
@@ -908,7 +908,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:36:23] Adam: cal calories, the category,
 
-[00:36:24] Will: two hundred and fifty calories each, and he wants to get  twelve hundred.
+[00:36:24] Will: 250 calories each, and he wants to get  1,200.
 
 [00:36:26] Norm: Mars tea,
 

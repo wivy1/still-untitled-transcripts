@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:08:49] Adam: No, we make our buns from scratch, but I will tell you that. And are you thinking about doing the David Chang recipe for the buns?
 
-[00:08:55] Will: Yeah, I'm gonna do. Well, it's fifty fifty because we're we're with all the baby food in the freezer. We're pretty maxed on freezer space right now,
+[00:08:55] Will: Yeah, I'm gonna do. Well, it's 50-50 because we're we're with all the baby food in the freezer. We're pretty maxed on freezer space right now,
 
 [00:09:02] Adam: right?
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:10:48] Will: but like I, I want to find a nice jacket, and I keep buying them and wearing them for a week and then returning them because they're either too warm or too cold or not enough pockets or too many pockets or giant, big and bulky. Or you know, it's it's a trick, it's a it's a tricky piece of clothing.
 
-[00:11:05] Adam: It is a tricky piece of clothing. But let me ask you, let me ask you some questions as the owner of at least thirty jackets. Um, maybe we can hone in on on on on the perfect jacket for you. Like what what what do you want there? What what are you looking for? Something that's good for any occasion?
+[00:11:05] Adam: It is a tricky piece of clothing. But let me ask you, let me ask you some questions as the owner of at least 30 jackets. Um, maybe we can hone in on on on on the perfect jacket for you. Like what what what do you want there? What what are you looking for? Something that's good for any occasion?
 
 [00:11:21] Will: I like something that's good for any occasion, but something that I'd wear sport coats. I'm okay pulling out the the kind of nice end of the of the spectrum, going to dinner where I'd wear jeans and a shirt, all the way down to wearing to work for t shirt, you know, with t shirts and and and sweatshirts and stuff like that. I like a lot of pockets. Like I like your traditional kind of army style jacket with the exterior pouch pockets. Um, I like a waxed, a waxed canvas. I'm okay with leather. Not a huge fan. You know, something that I can wear in the rain, but also in the dry. Yeah. What else? That's is really specific.
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:14:02] Adam: yeah,
 
-[00:14:02] Norm: just for people who find the jackets that stars wear in movies, and the best, the closest substitute that might not be, you know, a thousand dollars or 2,000 dollars. And I go buy those.
+[00:14:02] Norm: just for people who find the jackets that stars wear in movies, and the best, the closest substitute that might not be, you know, $1,000 or $2,000. And I go buy those.
 
 [00:14:15] Adam: Interesting. I need to know that forum. That's a great idea. I mean, I know the replica prop forum does that a lot, but, um.
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:16:02] Will: Yeah, this is a real challenge.
 
-[00:16:04] Adam: Absolutely, that makes all the sense in the world. It's just, um, you know I wear a forty, uh, regular, and oftentimes with jackets, what they hand you for a forty is like a forty-four.
+[00:16:04] Adam: Absolutely, that makes all the sense in the world. It's just, um, you know I wear a 40, uh, regular, and oftentimes with jackets, what they hand you for a 40 is like a 44.
 
 [00:16:18] Will: Yeah,
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:20:40] Will: Yeah, you're probably right.
 
-[00:20:40] Will: Yeah, the, um, the the yeah the the pair good pair of jeans. It's funny, Gina Gina went out and bought a pair of jeans for me once. We're probably, I mean, they probably weren't even very expensive. They were probably thirty bucks more than the jeans I was normally buying, but they fit. So much better, and it became something that, like, you could squat down, you could bend over, you could walk around, you could jog. The whole thing it's a magical experience.
+[00:20:40] Will: Yeah, the, um, the the yeah the the pair good pair of jeans. It's funny, Gina Gina went out and bought a pair of jeans for me once. We're probably, I mean, they probably weren't even very expensive. They were probably $30 more than the jeans I was normally buying, but they fit. So much better, and it became something that, like, you could squat down, you could bend over, you could walk around, you could jog. The whole thing it's a magical experience.
 
 [00:21:02] Adam: It really is. It really is. Um, so, uh, back to New York just a little bit. I I got to spend a few hours yesterday with my friend Tom Sachs in his studio.
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:21:33] Adam: What do you mean the rules?
 
-[00:21:34] Will: He has he has he has ten bullets. The rules are all about for visitors and employees in the shop.
+[00:21:34] Will: He has he has he has 10 bullets. The rules are all about for visitors and employees in the shop.
 
 [00:21:40] Adam: I did. Sorry, of course I followed the rules.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:24:23] Adam: No, I have not.
 
-[00:24:24] Will: Oh, the Henry Ford Museum in Dearborn, Michigan, is another one of the great museums of the world. It is basically a museum of industrial of the industrial revolution and everything that came after. So it's from steam engines and water powered stuff and and all that on, and they go through like you know all the way through the automobile in the '50s, '60s, and '70s. But but more than just cars, which is what you'd expect from the Ford Museum, there are giant steam locomotives, diesel locomotives, coal. I guess coal-powered steam, but electric trains, and then like washing machines, and all the kind of early machinery, household machinery, and refrigerators, and and ice boxes, and stuff like that, that marked the turn of the last century, and the kind of the what I would consider the dawn of what has become modern American consumerist society, and also Thomas Edison's last breath is there. So yeah, there is a jar. It's an unassuming jar on a shelf. And I know I've talked about this on the other podcast, but probably not here. There's an unassuming jar in the middle of an aisle, and it's it's the museum is arranged almost like a supermarket. There are these eight or ten foot wide wide aisles, and it's just like it's not even shelves. It's just like a dense. There's a there's a velvet rope or a bar, and then there's like ten feet of stuff in front to back arranged in kind of a. You can see everything, but it's definitely maximally full.
+[00:24:24] Will: Oh, the Henry Ford Museum in Dearborn, Michigan, is another one of the great museums of the world. It is basically a museum of industrial of the industrial revolution and everything that came after. So it's from steam engines and water powered stuff and and all that on, and they go through like you know all the way through the automobile in the '50s, '60s, and '70s. But but more than just cars, which is what you'd expect from the Ford Museum, there are giant steam locomotives, diesel locomotives, coal. I guess coal-powered steam, but electric trains, and then like washing machines, and all the kind of early machinery, household machinery, and refrigerators, and and ice boxes, and stuff like that, that marked the turn of the last century, and the kind of the what I would consider the dawn of what has become modern American consumerist society, and also Thomas Edison's last breath is there. So yeah, there is a jar. It's an unassuming jar on a shelf. And I know I've talked about this on the other podcast, but probably not here. There's an unassuming jar in the middle of an aisle, and it's it's the museum is arranged almost like a supermarket. There are these 8 or 10 foot wide wide aisles, and it's just like it's not even shelves. It's just like a dense. There's a there's a velvet rope or a bar, and then there's like 10 feet of stuff in front to back arranged in kind of a. You can see everything, but it's definitely maximally full.
 
 [00:25:53] Adam: That's amazing.
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:27:06] Will: Oh wow!
 
-[00:27:06] Adam: Now, technically, the the midnight viewings of Rocky Horror with the performance started at the Waverly Theater. Um, however, they only lasted a few months there before migrating to the Eighth Street Playhouse, where they ran for I think somewhere around thirty years, being hosted by Sal Piro. Um, the exact experience is, uh, depicted in the movie Fame, the original movie Fame, and you can see they're actually in the theater. Sal Piro, the host, is doing his whole shtick, Uh, and it was exactly like that. The, uh, Eighth Street Playhouse lived right below Jimi Hendrix's famous recording studio, Electric Ladyland Studios.
+[00:27:06] Adam: Now, technically, the the midnight viewings of Rocky Horror with the performance started at the Waverly Theater. Um, however, they only lasted a few months there before migrating to the Eighth Street Playhouse, where they ran for I think somewhere around 30 years, being hosted by Sal Piro. Um, the exact experience is, uh, depicted in the movie Fame, the original movie Fame, and you can see they're actually in the theater. Sal Piro, the host, is doing his whole shtick, Uh, and it was exactly like that. The, uh, Eighth Street Playhouse lived right below Jimi Hendrix's famous recording studio, Electric Ladyland Studios.
 
 [00:27:45] Will: Wow!
 
@@ -460,9 +460,9 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:30:14] Will: Ooh. Um, hey, we should mention a couple of things. Yeah. We, uh, while you while you were while you've been gone, uh, we relaunched premium memberships on Tested. So what that means is that we are, um, well, we have a store where you can buy T-shirts, uh, featuring our likenesses right now, and some more stuff soon. Um, we're going to have mugs and stickers in the not too distant future. Um, we also have, uh, premium memberships. So the premium memberships are, uh, it's a subscription basically for the site, and what that does is get you an ad-free experience on Tested.com. So no banners. Um, at some point in the future, we'll remove video ads as well, but we there's some technical stuff that we have to work out first for that. Um, and then also, you get a discount for the store. You get, um, a badge, a little medal on your on your badge in the forums and in the comments. Uh, you get a monthly newsletter from Adam, Jamie, Norm, or me—you get. Let's see, what else do you get?
 
-[00:31:10] Norm: And you get at least fifty pieces of premium content.
+[00:31:10] Norm: And you get at least 50 pieces of premium content.
 
-[00:31:12] Will: Fifty, yeah, premium content. Let's say weekly, uh, is the idea. Maybe more, a little more regular than that. But the first one's up.
+[00:31:12] Will: 50, yeah, premium content. Let's say weekly, uh, is the idea. Maybe more, a little more regular than that. But the first one's up.
 
 [00:31:20] Norm: Yep.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:32:30] Will: Teague.
 
-[00:32:30] Adam: She's Cheryl Teagues, Jaclyn Smith, and Farrah Fawcett. Ah. Then you had Cheryl Ladd as the replacement for for Farrah Fawcett, and I think yeah, Tanya Roberts was late in that game. But yeah, Beastmaster is is abysmally bad. It was made for about a hundred bucks.
+[00:32:30] Adam: She's Cheryl Teagues, Jaclyn Smith, and Farrah Fawcett. Ah. Then you had Cheryl Ladd as the replacement for for Farrah Fawcett, and I think yeah, Tanya Roberts was late in that game. But yeah, Beastmaster is is abysmally bad. It was made for about $100.
 
 [00:32:49] Will: Wow.
 

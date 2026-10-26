@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:00:33] Adam: Absolutely, that was a lot of fun.
 
-[00:00:35] Will: How did you feel? We were compared to your expectation at. I think you came in at like twenty hours into the show.
+[00:00:35] Will: How did you feel? We were compared to your expectation at. I think you came in at like 20 hours into the show.
 
 [00:00:42] Adam: So there's this funny thing that my wife and I like to do, which is try and notice people when their faces are turned off.
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:04:49] Will: Great content there.
 
-[00:04:51] Adam: Dude, there was a point, ah, God, season three or four, where Jamie got a serious flu, a bronchial flu that had him couldn't keep any food down for two weeks. I mean, it was really yeah. What would keep Jamie out of the shop for two weeks is serious, like losing a limb, right? And we managed to shoot around it and cover it and all that stuff, but Jamie came back in and he was like, " It was pretty hairy." I mean, Jamie doesn't get seasick ever. He's so he's like, you know, the last time I threw up was about thirty years ago, and I definitely didn't have this mustache, which is its own horror show. And I was like, " Stop talking right now! I don't want to think about your vomit caked mo."
+[00:04:51] Adam: Dude, there was a point, ah, God, season three or four, where Jamie got a serious flu, a bronchial flu that had him couldn't keep any food down for two weeks. I mean, it was really yeah. What would keep Jamie out of the shop for two weeks is serious, like losing a limb, right? And we managed to shoot around it and cover it and all that stuff, but Jamie came back in and he was like, " It was pretty hairy." I mean, Jamie doesn't get seasick ever. He's so he's like, you know, the last time I threw up was about 30 years ago, and I definitely didn't have this mustache, which is its own horror show. And I was like, " Stop talking right now! I don't want to think about your vomit caked mo."
 
 [00:05:40] Will: Oh, that's the worst thing I've ever heard.
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:06:14] Adam: that's good.
 
-[00:06:16] Will: The the Inventern is a thing that's happening right now. The the we picked out of the three hundred or two hundred and fifty some submissions, we got two hundred and eighty something submissions. We got we picked ten semifinals, which was really really difficult.
+[00:06:16] Will: The the Inventern is a thing that's happening right now. The the we picked out of the 300 or 250 some submissions, we got 280 something submissions. We got we picked 10 semifinals, which was really really difficult.
 
 [00:06:29] Adam: It was very tough.
 
@@ -178,11 +178,11 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:08:36] Will: also shocking.
 
-[00:08:37] Adam: My teacher, I hope he's listening. Gary Benton was a fantastic mentor in high school. He was still at my high school when I visited it seven or eight years ago, and that's thirty years on. He let me, he let me try everything that I wanted to try, and gave me enough structure and enough looseness that I really did get to kind of stretch my wings. And somewhere in my junior year, the beginning of the junior year, my other art teacher, Diane Masumian. Gave us a project to build something out of corrugated cardboard and only corrugated cardboard, no paint, no nothing, just cardboard.
+[00:08:37] Adam: My teacher, I hope he's listening. Gary Benton was a fantastic mentor in high school. He was still at my high school when I visited it seven or eight years ago, and that's 30 years on. He let me, he let me try everything that I wanted to try, and gave me enough structure and enough looseness that I really did get to kind of stretch my wings. And somewhere in my junior year, the beginning of the junior year, my other art teacher, Diane Masumian. Gave us a project to build something out of corrugated cardboard and only corrugated cardboard, no paint, no nothing, just cardboard.
 
 [00:00:00] Unknown speaker: Just cardboard.
 
-[00:09:16] Adam: And I told my dad that was my assignment, and he literally like turned the car around and drove me to the art store near our house and bought me ten thirty-six by forty-eight inch sheets of corrugated cardboard.
+[00:09:16] Adam: And I told my dad that was my assignment, and he literally like turned the car around and drove me to the art store near our house and bought me 10 36 by 48 inch sheets of corrugated cardboard.
 
 [00:09:27] Will: A lot of cardboard,
 
@@ -232,7 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:11:04] Will: Or tape, or hot glue, or whatever it is you want to use. But yeah.
 
-[00:11:08] Adam: So here's the thing that happened. Those projects, along with a bunch of other art projects that I had made, including a ping pong ball shooting gun, and some other things, other stuff that I was very proud of, some of them I hadn't even made for art class; I'd made in other places, but I brought them into art class so that people could see. Including the suit of armor I'd made out of roofing tin when I was fifteen. And the school year ended. The two art rooms, Mister Benton and Miss Masumian's art rooms, had been—they were cluttered with decades worth of crap from this public school, right? There’s, you know, it was all there. And somewhere over the summer, the principal, Doctor Clark,
+[00:11:08] Adam: So here's the thing that happened. Those projects, along with a bunch of other art projects that I had made, including a ping pong ball shooting gun, and some other things, other stuff that I was very proud of, some of them I hadn't even made for art class; I'd made in other places, but I brought them into art class so that people could see. Including the suit of armor I'd made out of roofing tin when I was 15. And the school year ended. The two art rooms, Mister Benton and Miss Masumian's art rooms, had been—they were cluttered with decades worth of crap from this public school, right? There’s, you know, it was all there. And somewhere over the summer, the principal, Doctor Clark,
 
 [00:11:51] Will: was he the villain in this story? Dun, dun, dun.
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:19:25] Will: There is a time and place for everything.
 
-[00:19:27] Adam: Yes, and if you are as tall as an adult and you are like fifteen, then it's okay to curse.
+[00:19:27] Adam: Yes, and if you are as tall as an adult and you are like 15, then it's okay to curse.
 
 [00:19:31] Will: Yeah,
 
@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:20:01] Will: sorry
 
-[00:20:01] Adam: PG thirteen rated movies can only have one f bomb.
+[00:20:01] Adam: PG-13 rated movies can only have one f bomb.
 
 [00:20:05] Will: Yeah,
 

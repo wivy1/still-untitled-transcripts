@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:01:29] Adam: Yeah. Does anyone want to put it on?
 
-[00:01:30] Rebecca: But now it's worth an extra ten dollars on eBay.
+[00:01:30] Rebecca: But now it's worth an extra $10 on eBay.
 
 [00:01:33] Adam: Now with DNA. Now with more DNA.
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:10:54] Norm: That's all you can hope for.
 
-[00:10:56] Adam: Yeah, because I mean, on some of these modern cars, you could dent the front fender, which is somehow contiguous with the back fender, and then it's like you got to replace this unibody fiberglass thing that's like 8,000 dollars.
+[00:10:56] Adam: Yeah, because I mean, on some of these modern cars, you could dent the front fender, which is somehow contiguous with the back fender, and then it's like you got to replace this unibody fiberglass thing that's like $8,000.
 
 [00:11:06] Norm: Yeah, I gotta imagine the the people who key cars research like, okay,
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:12:00] Norm: Oh,
 
-[00:12:01] Rebecca: and I back up into our porch and collapse the whole porch down on the van, and so my mom hears the crash and comes running back and looks at what I what I've done, and you know, my parents were my mom particularly was pretty strict growing up, and so I'm like. Petrified, what's going to happen? And so she looks at what's happened, and she turns to me and she says, " Get in the car." And I was like, " Wh- why?" And she's like, " We're going to the liquor store to get your father some beer, so when he comes home, he doesn't kill you." And so we go to the liquor store. We get, um, I get like a, a twenty-four pack of, of Moosehead beer, my dad's favorite
+[00:12:01] Rebecca: and I back up into our porch and collapse the whole porch down on the van, and so my mom hears the crash and comes running back and looks at what I what I've done, and you know, my parents were my mom particularly was pretty strict growing up, and so I'm like. Petrified, what's going to happen? And so she looks at what's happened, and she turns to me and she says, " Get in the car." And I was like, " Wh- why?" And she's like, " We're going to the liquor store to get your father some beer, so when he comes home, he doesn't kill you." And so we go to the liquor store. We get, um, I get like a, a 24 pack of, of Moosehead beer, my dad's favorite
 
 [00:12:42] Norm: Beer, apology beer.
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:18:25] Adam: [unclear: So you got flying? / You got like-]
 
-[00:18:26] Rebecca: I was like thirteen or so. And I-
+[00:18:26] Rebecca: I was like 13 or so. And I-
 
 [00:18:28] Adam: You definitely had the [unclear: coolest parents ever / crazy parents / parents].
 

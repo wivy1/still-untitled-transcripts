@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:05:33] Adam: instantly.
 
-[00:05:43] Will: I told. I've said it before. When my daughter was four days old, I wrote a letter to my mom and I wrote a letter to my dad, and I was like, " I am so sorry for all of the shit that I did." This was after doing the twelve mile an hour drive home from the hospital.
+[00:05:43] Will: I told. I've said it before. When my daughter was four days old, I wrote a letter to my mom and I wrote a letter to my dad, and I was like, " I am so sorry for all of the shit that I did." This was after doing the 12 mile an hour drive home from the hospital.
 
 [00:05:43] Adam: Right,
 
@@ -212,9 +212,9 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:06:57] Will: somewhere in there.
 
-[00:06:57] Adam: So I had the Canon Sure Shot in '99 when it first came out. Yeah. Okay. And I took crap tons of photos with that, and then I got the Rebel. So I've got probably ten thousand photos of the boys over the years. Maybe not ten thousand.
+[00:06:57] Adam: So I had the Canon Sure Shot in '99 when it first came out. Yeah. Okay. And I took crap tons of photos with that, and then I got the Rebel. So I've got probably 10,000 photos of the boys over the years. Maybe not 10,000.
 
-[00:07:12] Will: I bet you have ten thousand.
+[00:07:12] Will: I bet you have 10,000.
 
 [00:07:13] Adam: But it's it's I've got them at every age, and it's really a pleasure to go back through because so much of who they are now is fully extant in those.
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:07:32] Will: smiles. The same.
 
-[00:07:33] Adam: Yeah, it's really it's it's lovely. It's a lovely record to have. Wow, we're already ten minutes in.
+[00:07:33] Adam: Yeah, it's really it's it's lovely. It's a lovely record to have. Wow, we're already 10 minutes in.
 
 [00:07:39] Will: Or something like that. Sorry about that.
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:11:02] Adam: It hot glues together beautifully. Crazy glues together beautifully. Don't use Elmer's glue on it; it would be useless. And you can sample sizes and proportions with it before you start cutting expensive materials. So I'm a big fan of prototyping. At Industrial Light and Magic, we prototype everything before we built it. It allowed us to understand everything from the volumes that we'd be dealing with to whether or not we'd need new machinery to cut certain parts of it to understanding how to build the framework inside of it.
 
-[00:11:32] Will: Well, and if you're doing something that requires repetition, like if you need to make ten ten pieces of something, then figuring out what the best way to put that together is can actually save a lot of time and energy later on.
+[00:11:32] Will: Well, and if you're doing something that requires repetition, like if you need to make 10 10 pieces of something, then figuring out what the best way to put that together is can actually save a lot of time and energy later on.
 
 [00:11:43] Adam: Exactly.
 
@@ -322,11 +322,11 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:12:54] Will: Yeah,
 
-[00:12:54] Adam: they are everything you want to know about Ghostbusters props is out there, and not only out there, but put into beautifully illustrated infographics with layout plans that you can print out on on A4 or eight and a half by eleven sheets of paper. And I would recommend a ghost trap.
+[00:12:54] Adam: they are everything you want to know about Ghostbusters props is out there, and not only out there, but put into beautifully illustrated infographics with layout plans that you can print out on on A4 or 8.5 by 11 sheets of paper. And I would recommend a ghost trap.
 
 [00:14:09] Will: Yeah, it's simple. It's there's a lot of straight edges, so it's not going to be hard on curves and stuff like that, right?
 
-[00:14:13] Adam: Yeah, there are there also. Not only have the Ghostbusters fans gone and figured out all the little valves and stuff that went on the backpack and the plasma wand and the ghost trap, but they've also worked out cheap hardware store solutions for all of those bits and bobs. Oh, you don't need this. You just need a number ten sink trap. Go and get that, and that looks eighty ninety percent as good.
+[00:14:13] Adam: Yeah, there are there also. Not only have the Ghostbusters fans gone and figured out all the little valves and stuff that went on the backpack and the plasma wand and the ghost trap, but they've also worked out cheap hardware store solutions for all of those bits and bobs. Oh, you don't need this. You just need a number 10 sink trap. Go and get that, and that looks 80-90% as good.
 
 [00:14:35] Norm: And it's that industrial look that the hardware store is going to be
 
@@ -340,9 +340,9 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:14:38] Will: that's a really good call.
 
-[00:14:44] Adam: It's it's really. I built a ghost trap. I've and it was an incredibly pleasurable one day project. It was very simple and very fun. And it, like I said, if you go search Ghostbusters forums, Ghostbuster props, Ghostbuster ghost trap plans or blueprints, you're going to find tons of stuff. Just make a folder, throw it in there. And you'll, you know, your only question will be, do you want to put lights inside? Right. Yeah. And there are actually people that sell full lighting kits for like thirty or forty bucks.
+[00:14:44] Adam: It's it's really. I built a ghost trap. I've and it was an incredibly pleasurable one day project. It was very simple and very fun. And it, like I said, if you go search Ghostbusters forums, Ghostbuster props, Ghostbuster ghost trap plans or blueprints, you're going to find tons of stuff. Just make a folder, throw it in there. And you'll, you know, your only question will be, do you want to put lights inside? Right. Yeah. And there are actually people that sell full lighting kits for like $30 or $40.
 
-[00:15:15] Will: But now you can get a strip of blue LEDs from from Amazon for fifteen bucks. So.
+[00:15:15] Will: But now you can get a strip of blue LEDs from from Amazon for $15. So.
 
 [00:15:19] Adam: It's true, but even still, people are gonna people. A lot of people are gonna prefer that entry level. You know, put a nine volt battery, and it's got the
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:17:41] Norm: and not as a token gesture.
 
-[00:17:42] Adam: No, not as a token gesture. He, there are big directors who love using practical effects: Guillermo del Toro, Peter Jackson, Jon Favreau. Unfortunately, the biggest problem is is that model work is expensive, and frankly, it's a lot more expensive than CG. And there are a lot of reasons for that, but primarily, it's the fact that to have ten people in a model shop requires at least. If you have a model shop with ten people. You need at least like four or five thousand square feet to accommodate them. You need four or five hundred square feet to accommodate five CG artists. Right. It's those economies of scale are are diabolical, and they they existed at ILM. They exist for anybody. But as long as big, you know, JJ may may actually bring in a movement of doing practical models. Look, we're at a stage where there are camera stabilization platforms that I think are going to usurp the the the the Steadicam within the next three years.
+[00:17:42] Adam: No, not as a token gesture. He, there are big directors who love using practical effects: Guillermo del Toro, Peter Jackson, Jon Favreau. Unfortunately, the biggest problem is is that model work is expensive, and frankly, it's a lot more expensive than CG. And there are a lot of reasons for that, but primarily, it's the fact that to have 10 people in a model shop requires at least. If you have a model shop with 10 people. You need at least like 4,000 or 5,000 square feet to accommodate them. You need 400 or 500 square feet to accommodate five CG artists. Right. It's those economies of scale are are diabolical, and they they existed at ILM. They exist for anybody. But as long as big, you know, JJ may may actually bring in a movement of doing practical models. Look, we're at a stage where there are camera stabilization platforms that I think are going to usurp the the the the Steadicam within the next three years.
 
 [00:18:49] Will: Gimbal's based stuff, yeah, things like that.
 
@@ -440,15 +440,15 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:20:01] Will: Yeah.
 
-[00:20:01] Adam: It is really hard to operate one of those things. And now we've got motors that can potentially keep a camera stable under the most completely adverse conditions for 5,000 bucks,
+[00:20:01] Adam: It is really hard to operate one of those things. And now we've got motors that can potentially keep a camera stable under the most completely adverse conditions for $5,000,
 
 [00:20:01] Will: yeah,
 
-[00:20:01] Adam: 6,000 bucks,
+[00:20:01] Adam: $6,000,
 
 [00:20:15] Will: and they're only going to get cheaper.
 
-[00:20:16] Adam: Yeah, for the record, a Steadicam, a used Steadicam starts at about twenty-five to thirty thousand dollars, and new ones can be into the six figures.
+[00:20:16] Adam: Yeah, for the record, a Steadicam, a used Steadicam starts at about $25,000 to $30,000, and new ones can be into the six figures.
 
 [00:20:23] Will: The good news is, once the gimbal stuff takes over, then the Steadicams the price will go down dramatically.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:25:56] Will: Oh, neat.
 
-[00:25:56] Adam: it was brilliant, brilliant piece of engineering, and, um, he's built everything. He, uh, I first met him as part of Robot Wars in the early '90s. Everyone was building robots, you know, what, flying wedges, and, uh, Jamie and I built. Blendo, which was the first centrifugal robot. Setrakian showed up with a goddamn snake. I mean, like a twelve foot long snake that could wrap around, and it had a drill in the middle of its three clawed mouth, and would like totally impractical, but beautiful, with sliding sections. And then the next year, independent six legged spider whose three sections could rotate 360 degrees independently of each other, so it could actually just roll itself sideways or walk forward. I mean, everything that he builds has this kind of moment about it. And like I said, he's he's a good friend and a bloody genius. So it's lovely to show him. He came to the party. He was at the, uh, at the party at Comic Con.
+[00:25:56] Adam: it was brilliant, brilliant piece of engineering, and, um, he's built everything. He, uh, I first met him as part of Robot Wars in the early '90s. Everyone was building robots, you know, what, flying wedges, and, uh, Jamie and I built. Blendo, which was the first centrifugal robot. Setrakian showed up with a goddamn snake. I mean, like a 12 foot long snake that could wrap around, and it had a drill in the middle of its three clawed mouth, and would like totally impractical, but beautiful, with sliding sections. And then the next year, independent six legged spider whose three sections could rotate 360 degrees independently of each other, so it could actually just roll itself sideways or walk forward. I mean, everything that he builds has this kind of moment about it. And like I said, he's he's a good friend and a bloody genius. So it's lovely to show him. He came to the party. He was at the, uh, at the party at Comic Con.
 
 [00:25:56] Will: Oh, cool!
 
@@ -724,7 +724,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:38:32] Adam: excellent.
 
-[00:38:32] Adam: Or in our reality, ten minutes from now.
+[00:38:32] Adam: Or in our reality, 10 minutes from now.
 
 [00:38:35] Will: Yeah, five minutes from now. If you like the podcast, always reviews feedback on iTunes. The best thing you can do to help the podcast is to subscribe on iTunes.
 
@@ -748,4 +748,4 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:39:08] Norm: Bye.
 
-[00:39:08] Will: Hello, still untitled listeners. I have a brief request for you guys. We are still collecting survey data from you, the listeners of Still Untitled, the Adam Savage Project. If you have five minutes and would love to help the podcast, would really help us a ton if you will go to podsurvey.com/untitled and fill out. Again, it's a short, less than five minute survey. It helps us connect advertisers that want to advertise to you with you guys. So we'll have ads on the podcast that make sense, you know, given who you are and what you're into. Again, it's just five minutes. It's podsurvey.com/untitled, and if you give them your email address, you'll be entered into a recurring drawing to win a hundred dollar Amazon gift certificate. Which you could use to buy things like the complete run of Pee Wee's Playhouse. It's out on Blu-ray. It's restored from film. It looks really, really good, and it costs almost exactly 100 dollars. Thanks for listening and supporting. Still Untitled. We'll see you guys next week. Bye.
+[00:39:08] Will: Hello, still untitled listeners. I have a brief request for you guys. We are still collecting survey data from you, the listeners of Still Untitled, the Adam Savage Project. If you have five minutes and would love to help the podcast, would really help us a ton if you will go to podsurvey.com/untitled and fill out. Again, it's a short, less than five minute survey. It helps us connect advertisers that want to advertise to you with you guys. So we'll have ads on the podcast that make sense, you know, given who you are and what you're into. Again, it's just five minutes. It's podsurvey.com/untitled, and if you give them your email address, you'll be entered into a recurring drawing to win a $100 Amazon gift certificate. Which you could use to buy things like the complete run of Pee Wee's Playhouse. It's out on Blu-ray. It's restored from film. It looks really, really good, and it costs almost exactly $100. Thanks for listening and supporting. Still Untitled. We'll see you guys next week. Bye.

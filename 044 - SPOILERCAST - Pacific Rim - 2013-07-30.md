@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:02:02] Adam: having written most of the episodes of Kojak, my mom's ex-husband was also a telegraph enthusiast.
 
-[00:02:07] Will: This is a conversation for another day. My dad lived in the attic when he was a kid, so he had like his room in this rambling split-level farmhouse was the was upstairs. So there was only a space about three feet wide in the middle that he could actually stand up in. By the time he was like twelve,
+[00:02:07] Will: This is a conversation for another day. My dad lived in the attic when he was a kid, so he had like his room in this rambling split-level farmhouse was the was upstairs. So there was only a space about three feet wide in the middle that he could actually stand up in. By the time he was like 12,
 
 [00:02:24] Adam: like Greg Brady's room,
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:02:45] Norm: I also had National Geographic. I recognize. I respect the yellow magazine. Build doll houses or small like. You know, miniature houses or miniature furniture around, and kids would love that. It's perfect for imagination.
 
-[00:03:02] Adam: It is a long, unfinished project. I have around here somewhere a set of one twenty-fourth scale blueprints of the house that I grew up in. That I I would like to build a half. So dollhouse is one twelfth scale.
+[00:03:02] Adam: It is a long, unfinished project. I have around here somewhere a set of 1/24 scale blueprints of the house that I grew up in. That I I would like to build a half. So dollhouse is one twelfth scale.
 
 [00:03:17] Will: Okay,
 
@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:03:34] Will: Right. Otherwise, it would fill a room.
 
-[00:03:36] Adam: Right. Right. Right. So I mean, you know, for instance, a standard like twenty by forty foot lot would, in dollhouse scale, would be you know almost four feet long,
+[00:03:36] Adam: Right. Right. Right. So I mean, you know, for instance, a standard like 20 by 40 foot lot would, in dollhouse scale, would be you know almost four feet long,
 
 [00:03:44] Unknown speaker: Mm-hmm.
 
@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:03:45] Will: Well, one one foot equals one inch.
 
-[00:03:47] Adam: Yeah, it's really straightforward. Yeah. So I would go half scale to that one twenty-fourth scale, where a human would be three inches tall, and the house I grew up in would be. A really substantial model, but it's it's something I want to do. My mom sold the house I grew up in a few years ago because it's just too big to maintain.
+[00:03:47] Adam: Yeah, it's really straightforward. Yeah. So I would go half scale to that 1/24 scale, where a human would be three inches tall, and the house I grew up in would be. A really substantial model, but it's it's something I want to do. My mom sold the house I grew up in a few years ago because it's just too big to maintain.
 
 [00:04:04] Norm: Do Kenner figure scale.
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:08:03] Will: Yeah,
 
-[00:08:03] Adam: because I got precisely what I paid my ten bucks for. Con Air was exactly as advertised, and Pacific Rim is exactly as advertised. It is a genre film. The plot is an arrow. It is, and it is a just a beautiful ride. I I've loved it each time that I've seen it. You know, I love that Guillermo writes strong female characters. Mako is a terrific character
+[00:08:03] Adam: because I got precisely what I paid my $10 for. Con Air was exactly as advertised, and Pacific Rim is exactly as advertised. It is a genre film. The plot is an arrow. It is, and it is a just a beautiful ride. I I've loved it each time that I've seen it. You know, I love that Guillermo writes strong female characters. Mako is a terrific character
 
 [00:08:31] Norm: and great casting.
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:16:16] Adam: Yeah,
 
-[00:16:16] Will: like why are they building the big walls when the monsters can mow through them in, let's say, thirty minutes, an hour?
+[00:16:16] Will: like why are they building the big walls when the monsters can mow through them in, let's say, 30 minutes, an hour?
 
 [00:16:20] Adam: They discover that during the course of the film, I suppose.
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:18:55] Adam: Effective, right? And then your arms are bolted to these things that look like they're helping you move, but they're just allowing you full full motion. He said the guys playing in the Russian ship that got flooded with water were just beat to hell. I mean, and I mean, the actors had so much fun in it.
 
-[00:19:10] Will: I mean, and just the that Russian, the the Russian, the scene when the Russian Jaeger dies were was one of the more intense. Like we knew nothing about the characters, had seen them for maybe twenty five thirty seconds at that point on screen.
+[00:19:10] Will: I mean, and just the that Russian, the the Russian, the scene when the Russian Jaeger dies were was one of the more intense. Like we knew nothing about the characters, had seen them for maybe 25 30 seconds at that point on screen.
 
 [00:19:25] Adam: They were very. Yeah, go ahead.
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:24:02] Will: Yeah, it's not War and Peace.
 
-[00:24:03] Adam: It's a genre movie, and it is. It's exactly what I said in that review. It is. It is. What it is the ultimate rendition of what twelve year old you wanted during Monster Week.
+[00:24:03] Adam: It's a genre movie, and it is. It's exactly what I said in that review. It is. It is. What it is the ultimate rendition of what 12 year old you wanted during Monster Week.
 
 [00:24:13] Will: Well, and the thing that the thing that I came out of thinking was, oh, this is this is the the crouching tiger of monster movies, right?
 

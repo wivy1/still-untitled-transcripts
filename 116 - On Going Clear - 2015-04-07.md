@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:01:21] Adam: No, it's not a mistake at all.
 
-[00:01:23] Norm: Maybe, maybe being joining Scientology for thirty five years.
+[00:01:23] Norm: Maybe, maybe being joining Scientology for 35 years.
 
 [00:01:25] Adam: That's what I was thinking.
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:02:01] Will: I can't even imagine.
 
-[00:02:01] Adam: Um, and apparently HBO had. By the press accounts, a hundred and sixty lawyers go over every second of going clear. The HBO doc that aired Sunday night
+[00:02:01] Adam: Um, and apparently HBO had. By the press accounts, 160 lawyers go over every second of going clear. The HBO doc that aired Sunday night
 
 [00:02:12] Will: Yeah, Sunday night, a week ago.
 
@@ -118,9 +118,9 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:02:15] Norm: You need the lawyers.
 
-[00:02:17] Will: You just and just to be clear, we we should talk about. You know, normally this is a delicate subject because I don't want to get sued. What was the what's the premise of the doc? The doc is is based on a book by a guy who was a Scientologist for thirty years.
+[00:02:17] Will: You just and just to be clear, we we should talk about. You know, normally this is a delicate subject because I don't want to get sued. What was the what's the premise of the doc? The doc is is based on a book by a guy who was a Scientologist for 30 years.
 
-[00:02:37] Adam: No, he wasn't a Scientologist for thirty years.
+[00:02:37] Adam: No, he wasn't a Scientologist for 30 years.
 
 [00:02:39] Norm: The book.
 
@@ -316,9 +316,9 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:11:32] Will: Okay,
 
-[00:11:32] Norm: and when you join them, you commit to a billion year.
+[00:11:32] Norm: and when you join them, you commit to a 1 billion year.
 
-[00:11:41] Adam: You sign a billion-year contract
+[00:11:41] Adam: You sign a 1 billion-year contract
 
 [00:11:43] Norm: to to be, and it's the only way you can get up to the top echelons.
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:12:01] Norm: your your belief is so strong, and that you you would feel like you'd be throwing your entire life away.
 
-[00:12:08] Adam: You know, I think that when it comes to discussions about cults, and also you know some of the more severely negative aspects of religion, I you know I want to make it clear I'm not lumping all religion in with that because I don't believe it should be. I I I had some exposure to a couple of cults way back in my late teens and early twenties. I had somebody I cared about very much join one, and I actually talked to a deprogrammer back at that point and did a tremendous amount of research into it. And the thing I want to say is, I think that going clear. Elicits a very reasonable cultural discussion about the danger of hive mind and cults, especially when they're under the control of megalomaniacal crazy people.
+[00:12:08] Adam: You know, I think that when it comes to discussions about cults, and also you know some of the more severely negative aspects of religion, I you know I want to make it clear I'm not lumping all religion in with that because I don't believe it should be. I I I had some exposure to a couple of cults way back in my late teens and early 20s. I had somebody I cared about very much join one, and I actually talked to a deprogrammer back at that point and did a tremendous amount of research into it. And the thing I want to say is, I think that going clear. Elicits a very reasonable cultural discussion about the danger of hive mind and cults, especially when they're under the control of megalomaniacal crazy people.
 
 [00:12:53] Will: Which, but just to be clear, usually megalomaniacal crazy people are the ones that can create this kind of hive mind and cult.
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:16:01] Will: Well, it develops its own language so that it keeps people in and [unclear: does it in-group out / doesn’t in-group out].
 
-[00:16:05] Adam: What has its own jargon like any like any religion or cult? But I I think one of the reasons we, and one of the primary reasons we find it reasons we find it fascinating is again the cognitive dissonance the idea of like oh my god these terrible things are going on and they believe this crazy stuff I mean it's, it seems like so far out of left field it's like you are reading about people who wear pom poms on their noses and like are naked except for maple syrup twenty three hours a day
+[00:16:05] Adam: What has its own jargon like any like any religion or cult? But I I think one of the reasons we, and one of the primary reasons we find it reasons we find it fascinating is again the cognitive dissonance the idea of like oh my god these terrible things are going on and they believe this crazy stuff I mean it's, it seems like so far out of left field it's like you are reading about people who wear pom poms on their noses and like are naked except for maple syrup 23 hours a day
 
 [00:16:05] Norm: But, but I mean it's just like such total craziness that it seems like how does this happen
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:20:40] Norm: How did they blackmail the IRS?
 
-[00:20:41] Adam: They had twenty four hundred lawsuits against the IRS, against both the IRS and individual officers within the IRS, to the point where the IRS was spending. A not insignificant amount of its annual budget fighting these lawsuits.
+[00:20:41] Adam: They had 2,400 lawsuits against the IRS, against both the IRS and individual officers within the IRS, to the point where the IRS was spending. A not insignificant amount of its annual budget fighting these lawsuits.
 
 [00:20:56] Will: Oh, so they did the they did the Neal Stephenson thing, where they had essentially programmatically generated lawsuits and just sued them into submission.
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:21:04] Adam: And part of the part of the agreement in them becoming a church was they would they would release all those lawsuits instantaneously, and they did.
 
-[00:21:12] Norm: Wow, Scientology was absolved of a billion dollars.
+[00:21:12] Norm: Wow, Scientology was absolved of $1 billion.
 
 [00:21:15] Adam: They also did.
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:21:23] Will: Is this all these, as alleged by the book?
 
-[00:21:25] Adam: This is as alleged by the book. They had a hundred. Thank you. All these, all of these agents of theirs in positions in the United States government, getting them information about the government's case against Scientology from the. Oh yeah, it's freaky, man.
+[00:21:25] Adam: This is as alleged by the book. They had 100. Thank you. All these, all of these agents of theirs in positions in the United States government, getting them information about the government's case against Scientology from the. Oh yeah, it's freaky, man.
 
 [00:21:41] Norm: Well, there's, there's
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:23:00] Will: Right,
 
-[00:23:00] Adam: and also. Paying their laborers forty cents an hour, fifty dollars a week,
+[00:23:00] Adam: and also. Paying their laborers $0.40 an hour, $50 a week,
 
 [00:23:59] Will: [unclear: totally legal / illegal]. Well, who's going to complain? Because if you complain, you're out, right?
 
@@ -718,7 +718,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:27:22] Adam: I learned how to steer into the skid.
 
-[00:27:23] Will: Yeah, and and that that has served me well many many times over the last thirty years, twenty years.
+[00:27:23] Will: Yeah, and and that that has served me well many many times over the last 30 years, 20 years.
 
 [00:27:29] Adam: It's so funny on this on on tested what what resonates deeply. Like you just never, I never have, I've never right about my expectations, and I'm always surprised, and it's awesome.
 
@@ -742,7 +742,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:28:02] Will: Okay.
 
-[00:28:02] Adam: And we drove back and forth on these two long blocks for about an hour. He got into third gear, but I was running him really, really slowly. Like, you know, basically, okay, get the car still, get it in neutral. Now, foot on the clutch, put it in first, give it a little gas, like fifteen hundred, two thousand, and then slow. I— just we spent half an hour just of him raising the clutch into it and feeling it drag the car forward.
+[00:28:02] Adam: And we drove back and forth on these two long blocks for about an hour. He got into third gear, but I was running him really, really slowly. Like, you know, basically, okay, get the car still, get it in neutral. Now, foot on the clutch, put it in first, give it a little gas, like 1,500, 2,000, and then slow. I— just we spent half an hour just of him raising the clutch into it and feeling it drag the car forward.
 
 [00:28:35] Will: This is like Karate Kid, where he's, where he's waxing the waxing the car.
 
@@ -772,7 +772,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:29:15] Adam: Oops. He was asking me about double clutching, and I'm like, " It's a race car thing. You don't really need to do it.”
 
-[00:29:19] Will: It's like heel toe braking. You're probably okay for at least ten years.
+[00:29:19] Will: It's like heel toe braking. You're probably okay for at least 10 years.
 
 [00:29:23] Adam: Exactly. Um, so he did well. He did well. That's good. He's coming to work with me for the next three days. Um, we're going to be shooting outside of San Francisco, and we might get some lunchtime drive training in during that.
 
@@ -784,7 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:29:52] Adam: Um, and we all scared of our parents driving.
 
-[00:29:54] Will: I wasn't for the first thirty years, but the last ten have been pretty terrifying. Um, but I mean, it's they're fine in in in quiet areas. It's just here it gets kind of busy. Anyway, 
+[00:29:54] Will: I wasn't for the first 30 years, but the last ten have been pretty terrifying. Um, but I mean, it's they're fine in in in quiet areas. It's just here it gets kind of busy. Anyway, 
 
 [00:29:54] Adam: yeah.
 

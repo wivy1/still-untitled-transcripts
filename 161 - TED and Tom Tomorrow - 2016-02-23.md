@@ -116,9 +116,9 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:03:30] Adam: Chris Anderson, who apparently got out of the magazine industry at just the right time.
 
-[00:03:33] Will: It was I waited ten more years before after he left, and I was like, " That well, that was ten ten years down the tube." But no, Chris is an incredibly smart guy, and he's put together this conference that is—it's almost become a parody of itself in some in some ways, but it's still—it sounds like an amazing event, something I've always wanted to go to.
+[00:03:33] Will: It was I waited 10 more years before after he left, and I was like, " That well, that was 10 10 years down the tube." But no, Chris is an incredibly smart guy, and he's put together this conference that is—it's almost become a parody of itself in some in some ways, but it's still—it sounds like an amazing event, something I've always wanted to go to.
 
-[00:03:51] Adam: It is definitely a gold standard in public speaking of a certain type. It is not a stump speech campaign, but it is like TED has almost invented its own style of a certain kind of talk. They last between fourteen and eighteen minutes. Some of them are as short as six minutes if you're a TED fellow. And the requirement is ideas worth spreading, you know. So everyone has their own style of doing these kind of talks. And I, like I said, I've done talks in this genre before, but to do this up on the main stage on the big red dot in front of a crowd of sixteen hundred of really some of the biggest brains in the world right now.
+[00:03:51] Adam: It is definitely a gold standard in public speaking of a certain type. It is not a stump speech campaign, but it is like TED has almost invented its own style of a certain kind of talk. They last between 14 and 18 minutes. Some of them are as short as six minutes if you're a TED fellow. And the requirement is ideas worth spreading, you know. So everyone has their own style of doing these kind of talks. And I, like I said, I've done talks in this genre before, but to do this up on the main stage on the big red dot in front of a crowd of 1,600 of really some of the biggest brains in the world right now.
 
 [00:04:35] Will: Bill Gates was there, right?
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:05:25] Will: Like that's one of your normal themes.
 
-[00:05:27] Adam: That is a normal theme that I've explored a lot. One in which I think we're all we all have opinions about about how they dovetail more than your average person thinks. And so I had sort of written out this long diatribe about my feelings of art and science, how they're both genres of storytelling, and I felt I feel really good about the talk that I wrote. But I rehearsed it with Chris and his team via Skype about two weeks before TED, ten days before TED, and Chris gave me some notes afterwards, and they were really amazing notes. Like he's his initial response is fantastic. [unclear: Fantastic]. His notes had the effect of making me throw my talk completely into the garbage, eliminate it totally, and start from scratch, and. I'm. I happen to be someone who I write talks in a very specific way. I think about them for a long time, and I don't get to the actual writing part until very late in the process. In this case, the Friday before I was speaking on Tuesday.
+[00:05:27] Adam: That is a normal theme that I've explored a lot. One in which I think we're all we all have opinions about about how they dovetail more than your average person thinks. And so I had sort of written out this long diatribe about my feelings of art and science, how they're both genres of storytelling, and I felt I feel really good about the talk that I wrote. But I rehearsed it with Chris and his team via Skype about two weeks before TED, 10 days before TED, and Chris gave me some notes afterwards, and they were really amazing notes. Like he's his initial response is fantastic. [unclear: Fantastic]. His notes had the effect of making me throw my talk completely into the garbage, eliminate it totally, and start from scratch, and. I'm. I happen to be someone who I write talks in a very specific way. I think about them for a long time, and I don't get to the actual writing part until very late in the process. In this case, the Friday before I was speaking on Tuesday.
 
 [00:06:23] Unknown speaker: Oh man.
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:07:21] Will: yeah, pretty good.
 
-[00:07:23] Adam: And so then I went back to my room, and Saturday, Sunday, Monday, I rehearsed for probably a total of fifteen or sixteen hours solid.
+[00:07:23] Adam: And so then I went back to my room, and Saturday, Sunday, Monday, I rehearsed for probably a total of 15 or 16 hours solid.
 
 [00:07:33] Will: Wow,
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:12:30] Adam: He was talking about malaria.
 
-[00:12:30] Will: He was talking about about getting malaria nets out and and how it's an incredibly low cost thing and how you can change millions of people's lives for ten cents a person or something like that. And he released the mosquitoes in the in the crowd.
+[00:12:30] Will: He was talking about about getting malaria nets out and and how it's an incredibly low cost thing and how you can change millions of people's lives for $0.10 a person or something like that. And he released the mosquitoes in the in the crowd.
 
 [00:12:41] Dan: And how does the how does the high powered TED crowd react to
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:14:14] Will: Yeah.
 
-[00:14:14] Adam: Uh, almost 10,000 dollars to go. Eight, eighty-five hundred dollars, I think, is the price of a ticket.
+[00:14:14] Adam: Uh, almost $10,000 to go. Eight, $8,500, I think, is the price of a ticket.
 
 [00:14:18] Will: I mean, they do.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:15:28] Will: It sounds like a steamer.
 
-[00:15:29] Adam: But Amanda had a fundraiser for a local food bank, and in town at the Vogue Theater in in lovely Vancouver, Vancouver, by the way, gorgeous city. I love it. I've been there a bunch of times, and so she invited me to come do something there. So I found myself backstage with a very eclectic mix of people, including Harrison Lee, this sixteen-year-old Canadian yo-yo national champion.
+[00:15:29] Adam: But Amanda had a fundraiser for a local food bank, and in town at the Vogue Theater in in lovely Vancouver, Vancouver, by the way, gorgeous city. I love it. I've been there a bunch of times, and so she invited me to come do something there. So I found myself backstage with a very eclectic mix of people, including Harrison Lee, this 16-year-old Canadian yo-yo national champion.
 
 [00:15:57] Norm: Ooh.
 
@@ -424,13 +424,13 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:21:51] Adam: You’ve been doing it every week for
 
-[00:21:53] Dan: twenty-five years.
+[00:21:53] Dan: 25 years.
 
-[00:21:53] Adam: Twenty-five years,
+[00:21:53] Adam: 25 years,
 
-[00:21:56] Dan: and in fact, yes, just kickstarted a compilation of twenty-five years worth of worth of cartoons, and it's. Two volumes and it weighs fifteen pounds,
+[00:21:56] Dan: and in fact, yes, just kickstarted a compilation of 25 years worth of worth of cartoons, and it's. Two volumes and it weighs 15 pounds,
 
-[00:22:07] Adam: almost thirteen hundred separate cartoons.
+[00:22:07] Adam: almost 1,300 separate cartoons.
 
 [00:22:08] Dan: There's my life, yeah, and oh well, probably more because I did a lot of extra work
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:24:27] Dan: Yeah,
 
-[00:24:27] Will: I mean, what's your feeling on the on the current like this election is is absolutely bananas. The Bernie Hillary situation on one side, where you have this anti-establishment guy that's been in the Senate for thirty-five years.
+[00:24:27] Will: I mean, what's your feeling on the on the current like this election is is absolutely bananas. The Bernie Hillary situation on one side, where you have this anti-establishment guy that's been in the Senate for 35 years.
 
 [00:24:40] Dan: Right.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:26:33] Dan: Yeah, yeah, of course.
 
-[00:26:34] Adam: Yeah, and the Overton window, for those who don't know, is a description of it's the bandwidth of political discourse that the public finds acceptable. And one of the things that's been happening, if you are a liberal like me, for the past twenty years, is that the Overton window has been moving farther and farther right to the degree that a lot of the things that Nixon put into play, going to China, the Clean Water Act, attempting to pass single-payer healthcare, et cetera. Are now absolutely the overton windows moved way past a lot of that.
+[00:26:34] Adam: Yeah, and the Overton window, for those who don't know, is a description of it's the bandwidth of political discourse that the public finds acceptable. And one of the things that's been happening, if you are a liberal like me, for the past 20 years, is that the Overton window has been moving farther and farther right to the degree that a lot of the things that Nixon put into play, going to China, the Clean Water Act, attempting to pass single-payer healthcare, et cetera. Are now absolutely the overton windows moved way past a lot of that.
 
 [00:27:07] Dan: Except well, except now we have
 

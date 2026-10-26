@@ -188,9 +188,9 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:08:38] Adam: No, in general, no, and it's fine to stop. Oh, Julie and I both we're stoppers. We pause to talk about what's going on. We we converse. We criticize. We
 
-[00:08:46] Norm: but you wouldn't feel bummed out, or you would feel bummed out if something happened. You like, oh, we can't finish the last thirty minutes of the movie, or you commit.
+[00:08:46] Norm: but you wouldn't feel bummed out, or you would feel bummed out if something happened. You like, oh, we can't finish the last 30 minutes of the movie, or you commit.
 
-[00:08:53] Adam: No, no, no, no. We we we certainly leave the last thirty. I mean, so yeah, totally, we're we're fine about stopping. So we so yeah, it's it's comfortingly excellent movies from the past.
+[00:08:53] Adam: No, no, no, no. We we we certainly leave the last 30. I mean, so yeah, totally, we're we're fine about stopping. So we so yeah, it's it's comfortingly excellent movies from the past.
 
 [00:08:53] Will: Okay.
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:09:08] Will: It's aged really well too.
 
-[00:09:09] Adam: It is. It is aged really well. It is weird to be almost fifteen years older now than George Clooney was in that movie.
+[00:09:09] Adam: It is. It is aged really well. It is weird to be almost 15 years older now than George Clooney was in that movie.
 
 [00:09:17] Will: I still feel like even in that movie, like except for the very early episodes of ER that Clooney was on, I feel like I feel like any Clooney in film is always going to be older than I am at this moment.
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:09:51] Adam: and you know what, I will point out to you. I think I I I might have agreed with you in the abstract, but that whole vacation in Venice to the denouement of her betrayal—spoilers.
 
-[00:10:04] Will: Ten-year-old movie.
+[00:10:04] Will: 10-year-old movie.
 
 [00:10:05] Adam: It happens much quicker than you think. Those beats are are tight.
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:21:02] Norm: It's very fast paced, very funny.
 
-[00:21:04] Will: They're short too. It's like twenty minutes, twenty two
+[00:21:04] Will: They're short too. It's like 20 minutes, 22
 
 [00:21:05] Norm: hour.
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:21:40] Adam: You. That's a comfort movie for you?
 
-[00:21:41] Norm: It is because I've only seen it the once, and so now ten years later, when it pops on,
+[00:21:41] Norm: It is because I've only seen it the once, and so now 10 years later, when it pops on,
 
 [00:21:41] Adam: yeah,
 
@@ -774,7 +774,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:30:18] Will: Look, David Brin books are usually like six pounders. Like anything,
 
-[00:30:22] Adam: oh anything that's like two hundred fifty
+[00:30:22] Adam: oh anything that's like 250
 
 [00:30:23] Will: pages. Yeah, exactly. I don't know. I don't know what the I don't know the line is, but yeah, the Postman I read. I like the movie The Postman, even though it is very poorly executed.
 
@@ -858,7 +858,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:32:40] Norm: Director of Slumdog Millionaire,
 
-[00:33:09] Adam: twenty eight days
+[00:33:09] Adam: 28 days
 
 [00:33:09] Will: [unclear: Trainspotting, Trainspotting / later, twenty eight].
 
@@ -950,7 +950,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:36:17] Will: They should have just stopped after him,
 
-[00:36:19] Adam: dude. That is, if you want some really awesomeness right now, go call it up. It's like twenty twenty five minutes long, and Prince just schools the whole world on how to do a great set with some of his own songs, some other amazing songs, Foo Fighters, Jimi Hendrix worked their way in there. It is a killer.
+[00:36:19] Adam: dude. That is, if you want some really awesomeness right now, go call it up. It's like 20 25 minutes long, and Prince just schools the whole world on how to do a great set with some of his own songs, some other amazing songs, Foo Fighters, Jimi Hendrix worked their way in there. It is a killer.
 
 [00:36:37] Will: There's like, look, the nice thing about that is once you watch that on YouTube, it's going to fill your recommended feed with a bunch of other live Prince shows.
 
@@ -992,7 +992,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:37:54] Will: Like that would be a great oral
 
-[00:37:56] Adam: history behind the scenes. It's about thirty minutes long of it that I just watched on YouTube.
+[00:37:56] Adam: history behind the scenes. It's about 30 minutes long of it that I just watched on YouTube.
 
 [00:37:56] Will: Okay.
 
@@ -1036,7 +1036,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:39:13] Adam: I agree.
 
-[00:39:41] Will: Hey, which which acceptance speeches are people who aren't famous enough for people to be excited about? So which can we cut down to ten seconds?
+[00:39:41] Will: Hey, which which acceptance speeches are people who aren't famous enough for people to be excited about? So which can we cut down to 10 seconds?
 
 [00:39:49] Adam: But I mean. I would always want to watch Roger Deakins finally getting his Oscar, like we got to last year.
 
@@ -1152,7 +1152,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:42:44] Will: kind of. I mean, anyway,
 
-[00:42:46] Adam: it's been a no. It's been a year and a half. That was the summer of seventeen.
+[00:42:46] Adam: it's been a no. It's been a year and a half. That was the summer of '17.
 
 [00:42:48] Norm: 2017. Yes, but it's been a year since you used it in the short film.
 

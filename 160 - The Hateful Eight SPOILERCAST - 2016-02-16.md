@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:01:34] Adam: Two, my children destroyed my television with one.
 
-[00:01:37] Norm: Oh, I remember. Yeah, [unclear: it’s on / I tell / it’s all] that story. Yep, and also the the actual lightsaber itself was massive because you had to put the C or D batteries. It was much fatter, and technology in ten years has improved to. I mean, we have
+[00:01:37] Norm: Oh, I remember. Yeah, [unclear: it’s on / I tell / it’s all] that story. Yep, and also the the actual lightsaber itself was massive because you had to put the C or D batteries. It was much fatter, and technology in 10 years has improved to. I mean, we have
 
 [00:01:50] Will: thanks lithium polymer.
 
@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:03:37] Norm: And they're notable for several reasons.
 
-[00:03:47] Will: Well, you, you sit down. There's a recliner. So the theater I was in was relatively small. There were maybe three rows with twelve seats per row. So it was pretty small. And there's a table, every other chair, basically. You sit down, and you can order stuff. Do I sound weird?
+[00:03:47] Will: Well, you, you sit down. There's a recliner. So the theater I was in was relatively small. There were maybe three rows with 12 seats per row. So it was pretty small. And there's a table, every other chair, basically. You sit down, and you can order stuff. Do I sound weird?
 
 [00:04:01] Adam: No, you sound totally fine.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:06:57] Adam: Yeah,
 
-[00:06:57] Will: it was like ten bucks.
+[00:06:57] Will: it was like $10.
 
 [00:06:59] Adam: It's a great place.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:08:46] Adam: I know, I think that at this point we could start, you know, within a couple of minutes here.
 
-[00:08:50] Will: And we talked about the Alamo first, so there's like there's ten minutes of podcast for people who haven't seen the movie yet. I like so I thought that the the the turn you know at the at the moment in the in the in the roadhouse in the in the haberdashery where you realize oh none of the people that were in the haberdashery at the beginning are what they seemed
+[00:08:50] Will: And we talked about the Alamo first, so there's like there's 10 minutes of podcast for people who haven't seen the movie yet. I like so I thought that the the the turn you know at the at the moment in the in the in the roadhouse in the in the haberdashery where you realize oh none of the people that were in the haberdashery at the beginning are what they seemed
 
 [00:08:50] Adam: right.
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:10:16] Adam: But I want to just say this: the the Sam Jackson's provocation of the of the Confederate general, Bruce Dern. I was shocked. I actually found it very upsetting.
 
-[00:10:28] Will: I I would have liked to have had ten minutes to go out and have a beer and like.
+[00:10:28] Will: I I would have liked to have had 10 minutes to go out and have a beer and like.
 
 [00:10:33] Adam: It was on the order of the Gimp. Like,
 
@@ -508,17 +508,17 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:14:42] Norm: Yeah, but it's mostly like one-on-one interactions, as a lot of his movies are. You know, you have an intense conversation between two actors, and then the pivots, and then two other actors get to have an intense conversation. And people are doing things on their own. The guy in the corner playing with his cards. the person playing the piano. All this ambiance adds up, which I think works for a play. Because then, and then you have mystery. You know, if you didn't watch closely, who point? You know, who who puts the poison in?
 
-[00:15:08] Will: Well, you couldn't see in the thirty mill.
+[00:15:08] Will: Well, you couldn't see in the 30 mill.
 
 [00:15:08] Norm: You couldn't.
 
-[00:15:08] Will: thirty five mill version. Oh,
+[00:15:08] Will: 35 mill version. Oh,
 
 [00:15:10] Norm: and
 
 [00:15:11] Will: you saw a hand, but you didn’t see who did it.
 
-[00:15:12] Norm: And you don't see in the in the seventy mill either. But I'm saying, as a play, you could
+[00:15:12] Norm: And you don't see in the in the 70 mill either. But I'm saying, as a play, you could
 
 [00:15:16] Adam: you might be able to catch that. Yeah,
 
@@ -710,9 +710,9 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:25:52] Norm: I think Kill Bill, Django, and Inglourious Basterds are all different movies, but they have an adventurous quality to them, and this one didn't. Yeah, and it's going back, like you said, to Reservoir Dogs.
 
-[00:26:02] Will: Who are the eight? Who are the hateful eight? Because there were nine people, and well, ten people in the end.
+[00:26:02] Will: Who are the eight? Who are the hateful eight? Because there were nine people, and well, 10 people in the end.
 
-[00:26:06] Adam: The ten people in the end.
+[00:26:06] Adam: The 10 people in the end.
 
 [00:26:06] Norm: I don't want to count.
 

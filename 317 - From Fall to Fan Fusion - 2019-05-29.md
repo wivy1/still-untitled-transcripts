@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:03:12] Norm: Yeah,
 
-[00:03:13] Will: I I am so excited for like ten years from now when somebody writes the " How This All Happened" book because if you look at the run from like Civil War, Black Panther, or probably Civil War, Civil War through Ragnarok and Black Panther, all the stuff that came out in the back half of Phase Three, leading up to Endgame and Infinity War, and like they didn't they didn't really mess up. Like, there's no they had a million different teams working on these movies. They were releasing two or three a year, which is like that's ludicrous.
+[00:03:13] Will: I I am so excited for like 10 years from now when somebody writes the " How This All Happened" book because if you look at the run from like Civil War, Black Panther, or probably Civil War, Civil War through Ragnarok and Black Panther, all the stuff that came out in the back half of Phase Three, leading up to Endgame and Infinity War, and like they didn't they didn't really mess up. Like, there's no they had a million different teams working on these movies. They were releasing two or three a year, which is like that's ludicrous.
 
 [00:03:43] Adam: It's ludicrous, and then you watch Ragnarok, which we finished last night, and it's like, I love that. My primary question after watching it is, how did a studio get out of this movie's way?
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:04:05] Will: Well, Sakaar is space New Zealand. We've established that now.
 
-[00:04:08] Norm: I think about into you know after movie ten, they realized they couldn't once they'd done were done with the origin stories. They realized they, in order to keep things fresh, they had to give creative control and you know credit to the producers there to hire directors who are different and have unique visions and you know it. They knew that a movie this big was going to have the beats to sell, right? Right. Have the big action beats,
+[00:04:08] Norm: I think about into you know after movie 10, they realized they couldn't once they'd done were done with the origin stories. They realized they, in order to keep things fresh, they had to give creative control and you know credit to the producers there to hire directors who are different and have unique visions and you know it. They knew that a movie this big was going to have the beats to sell, right? Right. Have the big action beats,
 
 [00:04:33] Adam: yeah, yeah, and yet I think that Lucasfilm, having done such extensive reshoots on Rogue One that we now know were deeply extensive, and what seems like an entirely separate film being shot with Solo.
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:07:17] Norm: he can still let that go.
 
-[00:07:38] Will: Here's here's the thing, though this this version of Akira is now entering its twentieth year of development. I think. Well,
+[00:07:38] Will: Here's here's the thing, though this this version of Akira is now entering its 20th year of development. I think. Well,
 
 [00:07:43] Adam: and everyone’s been attached at some point:
 
@@ -248,13 +248,13 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:09:45] Will: Oh, I don't want.
 
-[00:09:50] Norm: I'm curious. For him, is it easier to write a story set ten to twenty years in the future or a story set a thousand years in the future?
+[00:09:50] Norm: I'm curious. For him, is it easier to write a story set 10 to 20 years in the future or a story set 1,000 years in the future?
 
 [00:09:58] Adam: Yeah, I I feel like it's easier to do the look. I'm not a science fiction author, so I have no answer. I mean, Bill Gibson is
 
 [00:10:04] Will: talking about
 
-[00:10:04] Adam: this a lot. A thousand years is easier.
+[00:10:04] Adam: this a lot. 1,000 years is easier.
 
 [00:10:06] Will: Bill Gibson said writing a science fiction story set in the present is the hardest thing he did.
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:11:21] Will: he's he he's a he's a misanthrope who becomes a whatever an anthrop I don't know what the opposite misanthrope is
 
-[00:11:29] Norm: But in terms of escalation right if there if we spent ten years in twenty two films building up to this
+[00:11:29] Norm: But in terms of escalation right if there if we spent 10 years in 22 films building up to this
 
 [00:11:34] Adam: with Thanos. Is it Galacticus?
 
@@ -320,9 +320,9 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:12:10] Adam: It's true.
 
-[00:12:10] Will: For a while, where they while they build to the next the next the the next ten years.
+[00:12:10] Will: For a while, where they while they build to the next the next the the next 10 years.
 
-[00:12:28] Norm: I think it's going to be Peter Parker. I think what they have the luxury of knowing that they can map out a ten year plan is the the audience grows up with the characters.
+[00:12:28] Norm: I think it's going to be Peter Parker. I think what they have the luxury of knowing that they can map out a 10 year plan is the the audience grows up with the characters.
 
 [00:12:39] Adam: I'm really curious if they're going to do a Falcon Captain America film.
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:13:12] Will: villain is the world, kind of.
 
-[00:13:14] Adam: Yeah, and but I thought it was fantastic. I really enjoyed the spit out of it, and I when we in the canon of PG PG thirteen movies, choosing one f bomb, hers after she jams and breaks off her the spoiler after she jams her fist into the eye of the villain and snaps off her arm as she says " fuck your mercy."
+[00:13:14] Adam: Yeah, and but I thought it was fantastic. I really enjoyed the spit out of it, and I when we in the canon of PG PG-13 movies, choosing one f bomb, hers after she jams and breaks off her the spoiler after she jams her fist into the eye of the villain and snaps off her arm as she says " fuck your mercy."
 
 [00:13:38] Norm: That is such, and and that is a transition from because it's James Cameron who wrote the script, consolidating several of these books, and in the in the manga that villain who's there, he has those tentacles.
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:22:10] Norm: and that 's why the cream of the crop is that good.
 
-[00:22:18] Will: Well, and and it's also possible that his process changed from the time he made Spartacus to the time he made Eyes Wide Shut, because that was what thirty five, forty years.
+[00:22:18] Will: Well, and and it's also possible that his process changed from the time he made Spartacus to the time he made Eyes Wide Shut, because that was what 35, 40 years.
 
 [00:22:18] Adam: By all means.
 
@@ -772,11 +772,11 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:30:30] Will: You're probably fine.
 
-[00:30:30] Norm: You don't need to. But the thing I should. I'll give some new links to. Is after every episode this past season, because every episode this last season was an hour and a half, basically a movie that they made for like 15,000,000 dollars
+[00:30:30] Norm: You don't need to. But the thing I should. I'll give some new links to. Is after every episode this past season, because every episode this last season was an hour and a half, basically a movie that they made for like $15 million
 
 [00:30:30] Adam: Yeah.
 
-[00:30:30] Norm: each episode, and they do a behind the scenes piece. They had a team on set to film like the making of, and the best stuff is always with the prop makers and the set designers, and they talk about very openly about the kind of problem solving, the unique problem solving that they do for these giant battle scenes. For example, how do you get giant Stacks of zombie carcasses to lay around a castle. Do you have the prop team make a thousand bodies? No, that's that's super expensive, super heavy. And they came up with a way to basically vacuum form, basically make a a
+[00:30:30] Norm: each episode, and they do a behind the scenes piece. They had a team on set to film like the making of, and the best stuff is always with the prop makers and the set designers, and they talk about very openly about the kind of problem solving, the unique problem solving that they do for these giant battle scenes. For example, how do you get giant Stacks of zombie carcasses to lay around a castle. Do you have the prop team make 1,000 bodies? No, that's that's super expensive, super heavy. And they came up with a way to basically vacuum form, basically make a a
 
 [00:31:17] Will: a vacuum form corpse mound,
 
@@ -848,7 +848,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:33:48] Norm: So BookCon, I believe.
 
-[00:33:53] Adam: It’s BookCon. It’s an in and out something like thirty six hours.
+[00:33:53] Adam: It’s BookCon. It’s an in and out something like 36 hours.
 
 [00:33:57] Will: What's your food strategy? Well, I guess you'll tell us that you won't spoil it because you know.
 
@@ -886,7 +886,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:34:16] Norm: So you're the book tour is still going strong. I think there's still a couple more dates, even in the Bay Area.
 
-[00:34:21] Adam: Yeah, I'm heading to Palo Alto tomorrow. The questions from the audiences on this book tour have been amazing. I got to have a lovely some drinks with author who just signed a book deal, Lauren Hough, who's the writer of that wonderful long form piece in HuffPo over Christmas about being a cable guy in the DC area for ten years, having installed cable in Dick Cheney's house.
+[00:34:21] Adam: Yeah, I'm heading to Palo Alto tomorrow. The questions from the audiences on this book tour have been amazing. I got to have a lovely some drinks with author who just signed a book deal, Lauren Hough, who's the writer of that wonderful long form piece in HuffPo over Christmas about being a cable guy in the DC area for 10 years, having installed cable in Dick Cheney's house.
 
 [00:34:42] Will: Wow.
 

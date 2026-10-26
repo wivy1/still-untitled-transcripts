@@ -86,13 +86,13 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:01:37] Norm: Well, I remember when Force Awakens was coming out, right? And it's first Star Wars movie in a long time. Everyone's super excited, and we had to talk about how much money can this movie potentially make in a weekend? And well, how many seats are there? Because it's going to fill every seat. It's going to make all the money.
 
-[00:01:49] Will: Thousand theaters.
+[00:01:49] Will: 1,000 theaters.
 
-[00:01:50] Norm: And and for that one, it made two hundred fifty million.
+[00:01:50] Norm: And and for that one, it made $250 million.
 
 [00:01:52] Adam: Yeah.
 
-[00:01:52] Norm: An opening weekend, which is astounding. Infinity War made just about the same. This movie made three hundred fifty million. There were 100,000,000 dollars. On the table still,
+[00:01:52] Norm: An opening weekend, which is astounding. Infinity War made just about the same. This movie made $350 million. There were $100 million. On the table still,
 
 [00:02:03] Will: yeah,
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:05:04] Adam: and they really did.
 
-[00:05:05] Will: And and it it felt like both a celebration of this thing that's been going on for ten or eleven years
+[00:05:05] Will: And and it it felt like both a celebration of this thing that's been going on for 10 or 11 years
 
 [00:05:11] Norm: Mm hmm.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:05:14] Will: Yeah.
 
-[00:05:15] Adam: And Also, like I really approve. So we'll get to spoilers. We're still talking impressions, but I thought that the way in which they put a bow on the entire MCU, all twenty one films plus this one, was really well done. And I know the word the phrase " fan service" gets bandied around both as an explanatory phrase, but also as an insulting phrase. Sometimes, I thought this was a great example of them. You know, I could see them sitting around in a room, Feige and his team, going, " All right, well, we really want to we want to hit these marks, but we don't want it to feel like we're just hitting them just to hit them." And it really didn't. It really felt like
+[00:05:15] Adam: And Also, like I really approve. So we'll get to spoilers. We're still talking impressions, but I thought that the way in which they put a bow on the entire MCU, all 21 films plus this one, was really well done. And I know the word the phrase " fan service" gets bandied around both as an explanatory phrase, but also as an insulting phrase. Sometimes, I thought this was a great example of them. You know, I could see them sitting around in a room, Feige and his team, going, " All right, well, we really want to we want to hit these marks, but we don't want it to feel like we're just hitting them just to hit them." And it really didn't. It really felt like
 
 [00:05:52] Norm: there were culminations. They were earned.
 
@@ -280,17 +280,17 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:10:19] Norm: all right. Are we ready?
 
-[00:10:20] Will: I got one more big takeaway, and then I'll then we can go. the The thing that amazed me, going back and watching the first Iron Man, you know, twenty years, ten years ago, a lifetime or two ago at this point, feels like. And then this movie is how, how the look and feel, with a few notable exceptions, has of those characters has remained really, really. It feels like part of a continuity, despite the fact that they've had you know five directors, seven directors doing Iron Man in different movies, and you know different costumers and different different set designers. It all feels contiguous in a way that I would when they started doing this. It was one of the things we talked about. You know, is it even possible for them to maintain a look and feel and style across a decade
+[00:10:20] Will: I got one more big takeaway, and then I'll then we can go. the The thing that amazed me, going back and watching the first Iron Man, you know, 20 years, 10 years ago, a lifetime or two ago at this point, feels like. And then this movie is how, how the look and feel, with a few notable exceptions, has of those characters has remained really, really. It feels like part of a continuity, despite the fact that they've had you know five directors, seven directors doing Iron Man in different movies, and you know different costumers and different different set designers. It all feels contiguous in a way that I would when they started doing this. It was one of the things we talked about. You know, is it even possible for them to maintain a look and feel and style across a decade
 
 [00:11:01] Adam: And that's.
 
 [00:11:01] Will: and these characters? And they they they did it.
 
-[00:11:03] Adam: It’s amazing. They totally did it. I came away from the film having so you. It's often written when you write about great producers, people like Gale Anne Hurd and you know Kevin Feige, and you articles come out about them. There's often a phrase in the article says like, " Not many people know what a producer really does." But then you look at a film like Endgame, and you realize that Feige and his team conceptualized this, and I'm sure they gave themselves a lot of outs along the way of ways in which this might not go the way they planned, and yet, holy shit, it really did go the way they planned as a full arc twenty-two film.
+[00:11:03] Adam: It’s amazing. They totally did it. I came away from the film having so you. It's often written when you write about great producers, people like Gale Anne Hurd and you know Kevin Feige, and you articles come out about them. There's often a phrase in the article says like, " Not many people know what a producer really does." But then you look at a film like Endgame, and you realize that Feige and his team conceptualized this, and I'm sure they gave themselves a lot of outs along the way of ways in which this might not go the way they planned, and yet, holy shit, it really did go the way they planned as a full arc 22 film.
 
 [00:11:42] Will: At least it felt like it had a plan. Yeah,
 
-[00:11:42] Adam: twenty-two films. I think I did the math last night. Something like four and a half billion dollars worth of film making.
+[00:11:42] Adam: 22 films. I think I did the math last night. Something like $4.5 billion worth of film making.
 
 [00:11:48] Will: Yeah. So, so the theater that I went to see this in Japan Town because that's where I could get tickets on on Friday afternoon after it opened. They had a sign on the door as you walked out that said, " Hey, don't talk about the film until you're out of the lobby."
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:13:18] Adam: Yeah, truly, you don't want to hear these spoilers. It's far more enjoyable if you go in as cold as humanly possible.
 
-[00:13:25] Will: And like the number of times you're going to have an opportunity to see something cold that's been ten years in the making,
+[00:13:25] Will: And like the number of times you're going to have an opportunity to see something cold that's been 10 years in the making,
 
 [00:13:32] Adam: Mm-hmm.
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:14:18] Norm: He does.
 
-[00:14:18] Will: Like that—that amount of filmmaking in the first forty seconds of that movie, like it's like, hey, here's some story. Some shit's gone down for Hawkeye, man. Clint's had a bad couple of months,
+[00:14:18] Will: Like that—that amount of filmmaking in the first 40 seconds of that movie, like it's like, hey, here's some story. Some shit's gone down for Hawkeye, man. Clint's had a bad couple of months,
 
 [00:14:29] Norm: but already immediately, tonally, it's grounded.
 
@@ -720,7 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:24:29] Will: I could imagine.
 
-[00:24:29] Adam: I also thought that those. I Paul Rudd's a wonderful actor. Um, I was talking to a director recently who's cast him, and I was like, " Isn't it fun? Like how good he looks at fifty?" And the director was like, " Paul Rudd is way handsomer than anyone I think has quite realized. Yeah. Like he's such a good actor, though. The way he delivers that scene is amazing.
+[00:24:29] Adam: I also thought that those. I Paul Rudd's a wonderful actor. Um, I was talking to a director recently who's cast him, and I was like, " Isn't it fun? Like how good he looks at 50?" And the director was like, " Paul Rudd is way handsomer than anyone I think has quite realized. Yeah. Like he's such a good actor, though. The way he delivers that scene is amazing.
 
 [00:24:52] Will: And he, like. This is a movie full of really incredible performances in an incredible ensemble cast.
 
@@ -880,7 +880,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:31:00] Adam: Guardians Two. Yeah,
 
-[00:31:01] Norm: Tony Stark figures out time travel and inverts that Möbius strip because that's what works. I love you three thousand. Great little motif.
+[00:31:01] Norm: Tony Stark figures out time travel and inverts that Möbius strip because that's what works. I love you 3,000. Great little motif.
 
 [00:31:08] Will: Yeah,
 
@@ -946,7 +946,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:34:24] Adam: Oh wow.
 
-[00:34:24] Norm: Yes. Nice. Real town. Forty thousand people live there, and also where Odin fought the Frost Giants way back in Thor One.
+[00:34:24] Norm: Yes. Nice. Real town. 40,000 people live there, and also where Odin fought the Frost Giants way back in Thor One.
 
 [00:34:29] Will: Oh.
 
@@ -1082,7 +1082,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:37:45] Will: yeah yeah we gotta go fast
 
-[00:37:46] Adam: We’ve got about ten fifteen minutes here.
+[00:37:46] Adam: We’ve got about 10 15 minutes here.
 
 [00:37:47] Will: We just did the second part in like two weeks. People love that. I mean, it all works on the end. Everything's happy at the end. Game over.
 
@@ -1220,7 +1220,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:41:20] Norm: which John Slattery playing Howard Stark.
 
-[00:41:22] Adam: Lovely scene, a lovely scene, and the young of I mean, the the the digital aging and de aging has gotten so refined. I mean, Sam Jackson, literally in twenty years, when our kids' kids will start watching these films, they're going to be confused about when Captain Marvel came out.
+[00:41:22] Adam: Lovely scene, a lovely scene, and the young of I mean, the the the digital aging and de aging has gotten so refined. I mean, Sam Jackson, literally in 20 years, when our kids' kids will start watching these films, they're going to be confused about when Captain Marvel came out.
 
 [00:41:42] Will: It was made in 1996,
 
@@ -1270,9 +1270,9 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:43:10] Will: and people talking.
 
-[00:43:11] Adam: Like a ninety minutes of groundwork being laid.
+[00:43:11] Adam: Like a 90 minutes of groundwork being laid.
 
-[00:43:13] Will: and it didn't feel like ninety minutes.
+[00:43:13] Will: and it didn't feel like 90 minutes.
 
 [00:43:14] Adam: No, it did not.
 
@@ -1500,7 +1500,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:50:15] Adam: You can rest now. You can, yeah, yeah. So moving. They earned all of those moments.
 
-[00:50:22] Will: Ten years in that scene.
+[00:50:22] Will: 10 years in that scene.
 
 [00:50:22] Norm: And then they jump to the funeral, and I lost it because at the funeral, the Tony, proof that Tony Stark has a heart floats out, and then the camera pans through, and it pans through a grateful universe.
 

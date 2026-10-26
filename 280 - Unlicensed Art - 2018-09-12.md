@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:02:43] Will: like sucked in fog. It's all good.
 
-[00:02:45] Adam: Yeah, and it's a beautiful building, having been restored by a bunch of architects, chief primarily, I believe, David Ireland, who did things like peeled some of the ninety years of paint off the walls, but not consistently, so that there's this whole calico color scheme across. Yeah, and it's a big open kitchen in the reception area, so. So we asked them, " Can we get married this year?" This is like April of 2004, and we're like, " Can we get married this year?" And they were like, " No." We're like, " Really? You don't have any Saturdays?" Because we didn't want to get married on a Sunday. We want to get married on a Saturday because you know all the reasons.
+[00:02:45] Adam: Yeah, and it's a beautiful building, having been restored by a bunch of architects, chief primarily, I believe, David Ireland, who did things like peeled some of the 90 years of paint off the walls, but not consistently, so that there's this whole calico color scheme across. Yeah, and it's a big open kitchen in the reception area, so. So we asked them, " Can we get married this year?" This is like April of 2004, and we're like, " Can we get married this year?" And they were like, " No." We're like, " Really? You don't have any Saturdays?" Because we didn't want to get married on a Sunday. We want to get married on a Saturday because you know all the reasons.
 
 [00:03:23] Will: Yes, yes,
 
@@ -128,11 +128,11 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:06:05] Will: yeah.
 
-[00:06:05] Adam: Fourteen years,
+[00:06:05] Adam: 14 years,
 
 [00:06:07] Norm, possibly Will: As an anniversary.
 
-[00:06:07] Adam: half a billion seconds.
+[00:06:07] Adam: 0.5 billion seconds.
 
 [00:06:09] Norm: Wow, that's
 
@@ -140,17 +140,17 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:06:10] Norm: Way to measure it.
 
-[00:06:11] Will: Eleven million.
+[00:06:11] Will: 11 million.
 
 [00:06:12] Adam: There are traditions.
 
-[00:06:13] Adam: Half a billion.
+[00:06:13] Adam: 0.5 billion.
 
-[00:06:14] Will: A million seconds in a day in eleven days, right?
+[00:06:14] Will: 1 million seconds in a day in 11 days, right?
 
-[00:06:16] Adam: Yeah, something like ten or eleven days. Yeah, a billion seconds is like twenty-seven, twenty-eight years.
+[00:06:16] Adam: Yeah, something like 10 or 11 days. Yeah, 1 billion seconds is like 27, 28 years.
 
-[00:06:21] Norm: We're not good at orders of magnitude. Humans. Anything above, even at the million level.
+[00:06:21] Norm: We're not good at orders of magnitude. Humans. Anything above, even at the 1 million level.
 
 [00:06:26] Will: What helps the time is decimal too. Yeah. That makes things more complicated.
 
@@ -192,15 +192,15 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:08:06] Will: And because it was in crayon, when I vectorized it, it made like it made it all speckledy and interesting. And so then I burned that into the surface, so it was personalized.
 
-[00:08:15] Adam: That's very cool. So like ten minutes.
+[00:08:15] Adam: That's very cool. So like 10 minutes.
 
-[00:08:17] Will: Well, look, look. It took a long time to get her to write mom and dad. That was at least thirty minutes worth of cajoling
+[00:08:17] Will: Well, look, look. It took a long time to get her to write mom and dad. That was at least 30 minutes worth of cajoling
 
 [00:08:24] Unknown speaker (Adam or Norm): And then the machine did the rest of the work.
 
 [00:08:24] Will: Do it again.
 
-[00:08:25] Adam: Why? Because I this year fourteenth anniversary is a controversial material. It is ivory.
+[00:08:25] Adam: Why? Because I this year 14th anniversary is a controversial material. It is ivory.
 
 [00:08:34] Will: Oh wow, that's out.
 
@@ -218,13 +218,13 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:09:07] Will: no. I find thoughtful is better than material.
 
-[00:09:09] Adam: The tenth anniversary material is tin.
+[00:09:09] Adam: The 10th anniversary material is tin.
 
-[00:09:12] Will: Yeah, the twenty fifth is lube. Who knew?
+[00:09:12] Will: Yeah, the 25th is lube. Who knew?
 
 [00:09:17] Adam: Depends how old you were when you got married.
 
-[00:09:18] Will: Yeah, well, yeah. Sometimes some people it's a thirty fifth.
+[00:09:18] Will: Yeah, well, yeah. Sometimes some people it's a 35th.
 
 [00:09:23] Norm: Well done.
 
@@ -250,7 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:10:19] Adam: I and it's basically all the shitty, awful messages people get from people who are stealing their stuff. Yeah. So this is you reach out to someone on Instagram and say, " Hey, you're posting this without attribution. It's mine." And they get like, " F you, you stupid! You're just an artist, and I’m giving you exposure. You should give it to me for free."
 
-[00:10:38] Will: The Mark Frauenfelder posted a great one the other day that was like the whole dialogue from, " Hey, I'd like to commission a print." To fuck you, no, 250 dollars is too much. It's for my kid dying of cancer, and he's like, " Okay, well, if your kid's dying of cancer, I'll do it. I'll do it for 200 bucks." He's like, " No, your work's not worth that." I was like, " You're the one who reached out to me because you wanted to commission me." Yeah, anyway,
+[00:10:38] Will: The Mark Frauenfelder posted a great one the other day that was like the whole dialogue from, " Hey, I'd like to commission a print." To fuck you, no, $250 is too much. It's for my kid dying of cancer, and he's like, " Okay, well, if your kid's dying of cancer, I'll do it. I'll do it for $200." He's like, " No, your work's not worth that." I was like, " You're the one who reached out to me because you wanted to commission me." Yeah, anyway,
 
 [00:10:59] Norm: yeah, and it's not just for prints. It's all anything, anything anyone makes.
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:13:21] Will: I think that there's a. I think Adam's right. I think there's an absolute threshold,
 
-[00:13:26] Adam: and it's different for every company. Clearly, for Mattel, just saying the word Barbie, they want to charge you a buck.
+[00:13:26] Adam: and it's different for every company. Clearly, for Mattel, just saying the word Barbie, they want to charge you $1.
 
 [00:13:31] Norm: Yeah,
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:15:14] Will: Maybe they just don't want to deal with somebody doing a fake decapitation with a lightsaber.
 
-[00:15:18] Adam: I look. I I'm going to ignore that comment and move forward. Look, your question speaks to a thing that I don't think that anyone who wants to draw something that they want to draw should feel inhibited to do it because it's somebody else's IP. I love DeviantArt for all the exploration, the deep, even the Rule Thirty Four Four exploration of other people's IP.
+[00:15:18] Adam: I look. I I'm going to ignore that comment and move forward. Look, your question speaks to a thing that I don't think that anyone who wants to draw something that they want to draw should feel inhibited to do it because it's somebody else's IP. I love DeviantArt for all the exploration, the deep, even the Rule 34 Four exploration of other people's IP.
 
 [00:15:39] Will: Tumblr is good at that too. It turns out, yeah,
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:21:07] Adam: Mythbuster logos and calling it like myth busting camp about you know here's why abstinence is better than any. I mean, it was was one of those like
 
-[00:21:16] Will: at that point you take them to court and you the the all you ask for out of them is for them to go back and teach those same kids the actual truth. Seventeen children were born at that camp. The next year, it turns out.
+[00:21:16] Will: at that point you take them to court and you the the all you ask for out of them is for them to go back and teach those same kids the actual truth. 17 children were born at that camp. The next year, it turns out.
 
 [00:21:28] Adam: I mean, this gets talked about all the time on the RPF under the under the header of recasting. We've talked about recasting on the podcast before,
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:22:49] Norm: because they fulfill. They exist because someone else hasn't made that product yet.
 
-[00:22:54] Adam: Absolutely, and there, I mean, the high end, the high end tricorder market for tricorders from across the Star Wars spectrum is really, really wonderful. And no, there's, it's as master replicas and every other prop company that has gone out of business. It is really hard to service this this fandom. Either you have people with so much investment in the knowledge of the prop that they're going to find problems no matter what you do, or you have people who aren’t invested in the product. They’re not invested and can't see why they should spend 750 dollars on a noisy cricket from Men in Black.
+[00:22:54] Adam: Absolutely, and there, I mean, the high end, the high end tricorder market for tricorders from across the Star Wars spectrum is really, really wonderful. And no, there's, it's as master replicas and every other prop company that has gone out of business. It is really hard to service this this fandom. Either you have people with so much investment in the knowledge of the prop that they're going to find problems no matter what you do, or you have people who aren’t invested in the product. They’re not invested and can't see why they should spend $750 on a noisy cricket from Men in Black.
 
 [00:23:27] Will: Yeah,
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:24:48] Norm: from Raiders. Wow,
 
-[00:24:49] Will: they think it's going to go for a quarter of a million dollars. Holy Toledo!
+[00:24:49] Will: they think it's going to go for a $250,000. Holy Toledo!
 
 [00:24:51] Adam: I don't think that they're necessarily wrong.
 
@@ -542,11 +542,11 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:25:34] Adam: So my my Raiders hats are canon. Ooh.
 
-[00:25:40] Norm: The best part is going to like a prop meetup event where there are some FX guys who worked on these movies, and they'll flip through a catalog list and like, " What? That's going for 15,000 pounds, and I made that in two hours that one night before shoot day because the set decorator needed it."
+[00:25:40] Norm: The best part is going to like a prop meetup event where there are some FX guys who worked on these movies, and they'll flip through a catalog list and like, " What? That's going for £15,000, and I made that in two hours that one night before shoot day because the set decorator needed it."
 
 [00:25:56] Will: But it has intrinsic value.
 
-[00:25:57] Adam: the flip side is much more common, which is the spaceship from the movie will be the miniature spaceship from this B grade movie will sell for you know 3,000 dollars when the production company charged 25,000 dollars to make it. But, but back to your point about garage kits, I am going to speak right now to people who might be considering doing a small run of garage kits and say, go for it! Like, just go for it. The fact is, is these big companies like Sony and Lucasfilm they don't sue you out of the gate; they send you a cease and desist letter, and that's the shot across the bow that says you are bad. Stop doing this.
+[00:25:57] Adam: the flip side is much more common, which is the spaceship from the movie will be the miniature spaceship from this B grade movie will sell for you know $3,000 when the production company charged $25,000 to make it. But, but back to your point about garage kits, I am going to speak right now to people who might be considering doing a small run of garage kits and say, go for it! Like, just go for it. The fact is, is these big companies like Sony and Lucasfilm they don't sue you out of the gate; they send you a cease and desist letter, and that's the shot across the bow that says you are bad. Stop doing this.
 
 [00:26:36] Will: Yeah, in a garage kit, you've probably already you've already sent them all out. You're already done. You're just not going to sell anymore. Right. So you've already won.
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:27:27] Adam: You know, when you buy something from Dave Goldberg, like he has a reputation that even though people buy his kits and rip them off all the time, you know that when you're buying from Dave, you get A high quality product that requires very little extra finishing before you can start to do the fun stuff.
 
-[00:27:42] Will: So to go back to the question of when you should start seeking out licenses, because I've talked to a couple of artists about this too, Yeah. And the consensus I got was that they felt like once it became a core part of their business, licenses it's appropriate to license. If you're doing like a one off because you wanted to have a Boba Fett poster for your wall, and then you just made a run of fifty for friends, who cares?
+[00:27:42] Will: So to go back to the question of when you should start seeking out licenses, because I've talked to a couple of artists about this too, Yeah. And the consensus I got was that they felt like once it became a core part of their business, licenses it's appropriate to license. If you're doing like a one off because you wanted to have a Boba Fett poster for your wall, and then you just made a run of 50 for friends, who cares?
 
 [00:28:01] Adam: Well, and a lot of places have very different licensing thresholds. One of the reasons there was no Blade Runner products for the longest time is because the consortium of fighting lawyers that owned or that controlled the rights
 
@@ -590,9 +590,9 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:28:36] Norm: in the you know in in the collectible market. But the reason to make garage kits and the reason to buy garage kits is because they, for the most part, offer something that you can't buy from the store, which is an opportunity to make it your own. Mm-hmm. Like you are not buying a finished thing; you are buying you are buying the potential to turn it into something your own. And unless I can buy that readily and easily from you know from Target, from Toys R Us, which doesn't exist anymore, I am still going to buy the kit.
 
-[00:29:02] Adam: And you know, if you want, like many years ago, before I did MythBusters, I when I was working at Lucasfilm, I decided to replicate Henry Jones' Grail Diary from the third Raiders film, and I actually made an edition of ten, and I sold them, and I traded the others away. And like I've always said, it's not much harder to make ten of something than it is to make one of something. Although I sat there sewing book signatures and printing it all out, and it no double sided Xerox machine actually has. Correct alignment. So I had to hand the alignment of two-sided printing is absolutely terrible when you need it to be mission critical. Like you need marks to line up. It's amazing how far I had to hand feed every single page of ten of two thousand pages. Yeah, it was a lot of work. But I look, you know, to me that was an endeavor of love, and I didn't consider myself legally exposed to any part of that process because it's such an esoteric piece, and no company is ever going to make dough trying to make one of those accurately.
+[00:29:02] Adam: And you know, if you want, like many years ago, before I did MythBusters, I when I was working at Lucasfilm, I decided to replicate Henry Jones' Grail Diary from the third Raiders film, and I actually made an edition of 10, and I sold them, and I traded the others away. And like I've always said, it's not much harder to make 10 of something than it is to make one of something. Although I sat there sewing book signatures and printing it all out, and it no double sided Xerox machine actually has. Correct alignment. So I had to hand the alignment of two-sided printing is absolutely terrible when you need it to be mission critical. Like you need marks to line up. It's amazing how far I had to hand feed every single page of 10 of 2,000 pages. Yeah, it was a lot of work. But I look, you know, to me that was an endeavor of love, and I didn't consider myself legally exposed to any part of that process because it's such an esoteric piece, and no company is ever going to make dough trying to make one of those accurately.
 
-[00:30:05] Will: Time to even send you a cease and desist for ten
+[00:30:05] Will: Time to even send you a cease and desist for 10
 
 [00:30:08] Adam: exactly.
 

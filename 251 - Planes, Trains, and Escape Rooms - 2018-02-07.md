@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:01:12] Will: Oh, that was great.
 
-[00:01:13] Norm: For forty years.
+[00:01:13] Norm: For 40 years.
 
 [00:01:14] Adam: I haven't heard about this. What's the reason?
 
@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:02:15] Will: Yeah.
 
-[00:02:15] Adam: But it is like when my eighty year old mom is trying to put on a seat belt, and she's just jamming it into anything that feels like a seat belt receiver. Give her the benefit of the doubt and just let it go home.
+[00:02:15] Adam: But it is like when my 80 year old mom is trying to put on a seat belt, and she's just jamming it into anything that feels like a seat belt receiver. Give her the benefit of the doubt and just let it go home.
 
 [00:02:27] Will: Do they still do that? I don't know.
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:04:19] Adam: Greenhouse in it and massage and puppies.
 
-[00:04:20] Will: down in the basement by the parking garage entrance. There's like a ten by ten booth with one of the airline seats, the standard coach seats.
+[00:04:20] Will: down in the basement by the parking garage entrance. There's like a 10 by 10 booth with one of the airline seats, the standard coach seats.
 
 [00:04:27] Norm: You know, I love.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:05:14] Adam: I have not.
 
-[00:05:15] Will: Okay, so when I was twelve or thirteen years old, my dad and I came to Colorado and we flew over the Rockies on the way back, and it was springtime and it was storming, and it was one of those situations where like the entire Mississippi Valley was flooded because there was so much rain on the western half of the United States, and we hit places where the plane was jumping. What felt like ten or twelve feet. It felt like we're on a roller coaster, and like it happened immediately. Like there was no. They said, " Hey, it's going to get bumpy. Everybody, put your seatbelts on." The seatbelt light was lit, and then the flight attendant got on the speaker when people were up walking around. Still was like, " Look, motherfucker, sit down because it's about to get bad."
+[00:05:15] Will: Okay, so when I was 12 or 13 years old, my dad and I came to Colorado and we flew over the Rockies on the way back, and it was springtime and it was storming, and it was one of those situations where like the entire Mississippi Valley was flooded because there was so much rain on the western half of the United States, and we hit places where the plane was jumping. What felt like 10 or 12 feet. It felt like we're on a roller coaster, and like it happened immediately. Like there was no. They said, " Hey, it's going to get bumpy. Everybody, put your seatbelts on." The seatbelt light was lit, and then the flight attendant got on the speaker when people were up walking around. Still was like, " Look, motherfucker, sit down because it's about to get bad."
 
 [00:05:53] Norm: Right.
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:08:08] Adam: but really,
 
-[00:08:09] Will: yeah, he literally. It's not. It's not. It's not Anthony Hopkins, but yeah, like in your head, it's Anthony Hopkins, and he's in there. He's like talking to a ten-year-old sitting next to him on the airplane.
+[00:08:09] Will: yeah, he literally. It's not. It's not. It's not Anthony Hopkins, but yeah, like in your head, it's Anthony Hopkins, and he's in there. He's like talking to a 10-year-old sitting next to him on the airplane.
 
 [00:08:18] Norm: I kind of like the equality of it all.
 
@@ -296,17 +296,17 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:09:04] Will: Just you?. If that was Muni, I would have been really disappointed.
 
-[00:09:05] Norm: Danica and I went down to L A. A twelve-hour train ride. We did, we bought our tickets on Friday.
+[00:09:05] Norm: Danica and I went down to L A. A 12-hour train ride. We did, we bought our tickets on Friday.
 
-[00:09:11] Adam: Twelve, okay, twelve hours each way.
+[00:09:11] Adam: 12, okay, 12 hours each way.
 
-[00:09:12] Norm: No, well, it is. It is twelve hours from Emeryville, which is right by Oakland,
+[00:09:12] Norm: No, well, it is. It is 12 hours from Emeryville, which is right by Oakland,
 
 [00:09:17] Adam: Yeah.
 
 [00:09:17] Norm: a few blocks
 
-[00:09:17] Norm: away from Pixar. Twelve hours from that to Los Angeles Union Station, and then we flew back next morning.
+[00:09:17] Norm: away from Pixar. 12 hours from that to Los Angeles Union Station, and then we flew back next morning.
 
 [00:09:25] Will: Why did it take so? Did you did you stop at every town?
 
@@ -314,9 +314,9 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:09:27] Norm: no? That's the standard route.
 
-[00:09:29] Adam: That's it takes twelve hours.
+[00:09:29] Adam: That's it takes 12 hours.
 
-[00:09:30] Norm: It takes twelve hours.
+[00:09:30] Norm: It takes 12 hours.
 
 [00:09:31] Will: They're not an express.
 
@@ -366,9 +366,9 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:11:11] Adam: okay,
 
-[00:11:11] Norm: a three hundred piece puzzle, and had cocktails, wine tasting with some of the train enthusiasts.
+[00:11:11] Norm: a 300 piece puzzle, and had cocktails, wine tasting with some of the train enthusiasts.
 
-[00:11:17] Adam: You were the youngest people on the train by by twenty five years,
+[00:11:17] Adam: You were the youngest people on the train by by 25 years,
 
 [00:11:19] Norm: by far. Oh yes, yeah, yes. A lovely gentleman we met, Eric, who's a school teacher and has ridden every long train ride across country, called it his favorite his favorite route. And they shut down that parlor car because of how expensive it is to maintain. It was the last ride.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:12:49] Norm: So San Francisco to Seattle is the same one, the Coast Starlight.
 
-[00:12:52] Adam: Yeah, and we and that it's beautiful up through up up from here up north, and it's like 21 hours, and we've spent. Ten days in Seattle. This is back on our honeymoon, and at the end of our trip, we both had the same feeling, which was, " Yay! Tomorrow we have a twenty-one hour train ride." Like we were psyched about it because it is—it's—it's the, it's that whole thing. It's the social aspect, the fact that for most train rides that are of a long distance, the view out the window is actually pretty similar to what it was a hundred years ago.
+[00:12:52] Adam: Yeah, and we and that it's beautiful up through up up from here up north, and it's like 21 hours, and we've spent. 10 days in Seattle. This is back on our honeymoon, and at the end of our trip, we both had the same feeling, which was, " Yay! Tomorrow we have a 21 hour train ride." Like we were psyched about it because it is—it's—it's the, it's that whole thing. It's the social aspect, the fact that for most train rides that are of a long distance, the view out the window is actually pretty similar to what it was 100 years ago.
 
 [00:13:24] Norm: That's right,
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:15:46] Adam: I have heard this, and it has occurred to me just as a future thing in my life to see how much that would cost and bring a whole bunch of friends on a trip to like Aspen.
 
-[00:15:56] Norm: As of 2014, it was 10,000 dollars. 10,000 dollars for a whole car.
+[00:15:56] Norm: As of 2014, it was $10,000. $10,000 for a whole car.
 
 [00:16:01] Will: Yeah,
 
@@ -456,11 +456,11 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:16:02] Will: How many people?
 
-[00:16:03] Adam: Across twenty people, that's 500 bucks.
+[00:16:03] Adam: Across 20 people, that's $500.
 
-[00:16:05] Norm: They do tour groups and charter groups. I think they can. Pack like seventy people on on a car.
+[00:16:05] Norm: They do tour groups and charter groups. I think they can. Pack like 70 people on on a car.
 
-[00:16:10] Adam: If you brought like thirty thirty close friends and you're just all together, that could be amazing.
+[00:16:10] Adam: If you brought like 30 30 close friends and you're just all together, that could be amazing.
 
 [00:16:15] Norm: And some of the private cars there are three in the country. I'll wrap up with this.
 
@@ -566,7 +566,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:19:38] Norm: That did happen this weekend. And in terms of the media world, very interesting. There were the commercials, of course. Yeah,
 
-[00:19:46] Will: yeah. Netflix ran a 5,000,000 dollar ad for a direct to video movie.
+[00:19:46] Will: yeah. Netflix ran a $5 million ad for a direct to video movie.
 
 [00:19:50] Norm: That's right. That was a crazy thing.
 
@@ -758,7 +758,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:26:31] Adam: Oh, cool!
 
-[00:26:32] Will: Those are the those are the only ones in the Bay Area that I haven't done yet, just because I haven't gotten a ten person group to go or eight person group to go do them yet.
+[00:26:32] Will: Those are the those are the only ones in the Bay Area that I haven't done yet, just because I haven't gotten a 10 person group to go or eight person group to go do them yet.
 
 [00:26:38] Norm: Yeah,
 
@@ -778,7 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:27:06] Norm: right?
 
-[00:27:06] Will: Um, but they require usually they require. Some kind of divide and conquering. So, like, often you'll you'll solve an opening puzzle, and then that will open up ten threads that you then have to unravel each thread.
+[00:27:06] Will: Um, but they require usually they require. Some kind of divide and conquering. So, like, often you'll you'll solve an opening puzzle, and then that will open up 10 threads that you then have to unravel each thread.
 
 [00:27:19] Adam: And each person, you divide up your team to.
 
@@ -802,7 +802,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:28:23] Will: Who are willing to come into town to do those.
 
-[00:28:25] Norm: Eight to ten. All right, we're going to put it in the end, and we'll talk about it in a future podcast.
+[00:28:25] Norm: 8 to 10. All right, we're going to put it in the end, and we'll talk about it in a future podcast.
 
 [00:28:29] Adam: This feels like a lightweight podcast this week.
 
@@ -830,7 +830,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:29:03] Norm: Yeah, Nick Park. Oh my God! Yeah, that video is out, and and just get an insight. In the middle of productions, how generous were they?
 
-[00:29:10] Adam: They they really did. It was impressive because they're running like forty stages at a time, trying to keep this film filming. You know, each person can complete something like what a few seconds of animation every day.
+[00:29:10] Adam: They they really did. It was impressive because they're running like 40 stages at a time, trying to keep this film filming. You know, each person can complete something like what a few seconds of animation every day.
 
 [00:29:23] Norm: Right.
 
@@ -846,13 +846,13 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:29:56] Will: You were very lucky to get to go in there. I'm really like I I can't wait to go watch those.
 
-[00:30:01] Norm: And so when Adam says forty stages, that's really it's a giant building where they have forty rooms. Split up and of various sizes, where they have these at scale sets, sometimes as big as this room itself, or a giant set. The opening sequence of the film is like this: this camera movement that goes through animation. So, like the camera, motion control camera systems. It's not just static.
+[00:30:01] Norm: And so when Adam says 40 stages, that's really it's a giant building where they have 40 rooms. Split up and of various sizes, where they have these at scale sets, sometimes as big as this room itself, or a giant set. The opening sequence of the film is like this: this camera movement that goes through animation. So, like the camera, motion control camera systems. It's not just static.
 
 [00:30:25] Will: Yeah, yeah, that's amazing. Well, I mean, look if you look at if you look at the rise of like microcontrollers and inexpensive robotics and all that stuff, those guys have to be thrilled.
 
 [00:30:35] Norm: Yeah.
 
-[00:30:35] Will: because like that kind of motion control camera would have been phenomenally expensive ten years ago, and now you know you can hack it together in a weekend.
+[00:30:35] Will: because like that kind of motion control camera would have been phenomenally expensive 10 years ago, and now you know you can hack it together in a weekend.
 
 [00:30:42] Adam: But still, what I keep on noticing when I visit these companies is that even though that stuff is all over the place, these guys are all still coming up with their own bespoke solutions to stuff because there is no single off the shelf solution. So FBFX will write its own software to make an auto robot carve me out of foam, and Aardman has all this proprietary technology built into everything from the pre visualization to the shooting to the execution to the compositing. I mean, all of that. You know, it's like it's really awesome seeing how much these Companies have to build their own R and D departments to to keep pace with their vision.
 

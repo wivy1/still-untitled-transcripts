@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:06:09] Norm: It's why you know most of the people who went up last night to receive their awards for the Emmys thank not only their creative partners but mostly their producing partners and the networks that paid and managed them.
 
-[00:06:19] Adam: That pay up 10,000,000 dollars per episode.
+[00:06:19] Adam: That pay up $10 million per episode.
 
 [00:06:21] Norm: Sometimes they're the ones who made it possible.
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:07:25] Norm: It's very competitive.
 
-[00:07:26] Adam: I will say, you know, after after what do you call it? The Amazing Race won for best host for like twenty years in a row.
+[00:07:26] Adam: I will say, you know, after after what do you call it? The Amazing Race won for best host for like 20 years in a row.
 
 [00:07:35] Will: Phil
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:09:38] Adam: It's
 
-[00:09:38] Adam: Shameful that we don't have his name at the tip of our tongues because he's a he's a phenomenal host and a really really incredible interviewer with insanely insightful questions that probe deep. And so his method is he eats successively hotter wings along with his guest, and it's times ten. You know, just ten wings, and the last one is like you know, set your house on fire hot. But what he does is he takes a bite. His guest takes a bite, and then he immediately asks a deeply probing question while they're in extreme pain.
+[00:09:38] Adam: Shameful that we don't have his name at the tip of our tongues because he's a he's a phenomenal host and a really really incredible interviewer with insanely insightful questions that probe deep. And so his method is he eats successively hotter wings along with his guest, and it's times 10. You know, just 10 wings, and the last one is like you know, set your house on fire hot. But what he does is he takes a bite. His guest takes a bite, and then he immediately asks a deeply probing question while they're in extreme pain.
 
 [00:10:07] Will: While they're having this incredible mouth experience,
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:11:43] Norm: It will be in the tome as the best of that year.
 
-[00:11:46] Adam: Oh no, I'm quite sure because because having being an Emmy member and a voter, I get these packets, and there are only certain categories I'm allowed to vote in because of my the specificity of my job. I'm quite convinced there are so many categories in which you know the votes. Being decided by ten or fifteen people, I think the margins are probably very small. Sometimes,
+[00:11:46] Adam: Oh no, I'm quite sure because because having being an Emmy member and a voter, I get these packets, and there are only certain categories I'm allowed to vote in because of my the specificity of my job. I'm quite convinced there are so many categories in which you know the votes. Being decided by 10 or 15 people, I think the margins are probably very small. Sometimes,
 
 [00:12:07] Norm: and as we are familiar with, because you know we've won Webby's
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:14:05] Norm: it's also a thing that I. Like as we've talked about before, the public we want a number one. We want one thing. Like we would not be happy as a public if the Emmys or the Oscars said, " Here is the best five of the year."
 
-[00:14:17] Adam: What's and what's funny about that wanting wanting the number one? I was at a small cocktail party on Saturday night where someone asked me, " What's your favorite movie?" And I said, " There is at least thirty movies in my top ten." My standard line, and I said, " What?" And we talked about some of my favorite movies, and I said, " What's your favorite movie?" And like no, he he didn't have a ready answer. None of us do. There is no way you can. I just don't think there is any way you can reasonably. Most people can reasonably say this one thing is the best for of all for me.
+[00:14:17] Adam: What's and what's funny about that wanting wanting the number one? I was at a small cocktail party on Saturday night where someone asked me, " What's your favorite movie?" And I said, " There is at least 30 movies in my top 10." My standard line, and I said, " What?" And we talked about some of my favorite movies, and I said, " What's your favorite movie?" And like no, he he didn't have a ready answer. None of us do. There is no way you can. I just don't think there is any way you can reasonably. Most people can reasonably say this one thing is the best for of all for me.
 
 [00:14:50] Will: Right now, my favorite movie is Thor: Ragnarok.
 
@@ -416,9 +416,9 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:20:47] Norm: on exactly so on DVD and Blu-ray.
 
-[00:20:48] Adam: Right. What you bring the point you bring up is the question is how do we value film as historical artifact in our culture? And there was a long article, God, I can't even remember where I read it a couple of weeks ago about the fact that even the most numerous the streaming service with the most numerous amount of videos has a fraction. Of the number of films that you could own on DVD, like there are video stores in the United States with fifteen to twenty thousand titles that you can go see in really faithful original formats, and what does Amazon have? Twenty five hundred films.
+[00:20:48] Adam: Right. What you bring the point you bring up is the question is how do we value film as historical artifact in our culture? And there was a long article, God, I can't even remember where I read it a couple of weeks ago about the fact that even the most numerous the streaming service with the most numerous amount of videos has a fraction. Of the number of films that you could own on DVD, like there are video stores in the United States with 15,000 to 20,000 titles that you can go see in really faithful original formats, and what does Amazon have? 2,500 films.
 
-[00:21:26] Will: So Netflix has four thousand pieces of content right now, but most, like the majority of that, is individual episodes of kids' TV shows. A lot of it. It seems like I'm not trying to be shitty, but that's you know that that's they know what the market is.
+[00:21:26] Will: So Netflix has 4,000 pieces of content right now, but most, like the majority of that, is individual episodes of kids' TV shows. A lot of it. It seems like I'm not trying to be shitty, but that's you know that that's they know what the market is.
 
 [00:21:39] Norm: Always changes.
 
@@ -432,7 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:22:13] Adam: It's appalling.
 
-[00:22:14] Will: Sixteen by nine.
+[00:22:14] Will: 16:9.
 
 [00:22:15] Adam: Yeah, that's you're not watching the movie.
 
@@ -466,7 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:24:15] Adam: That's really good point.
 
-[00:24:15] Will: Well, and there is fifteen years, fifteen or twenty years of history of those those people saying, " Hey, look, man! Like, remember anamorphic DVDs? People were like, 'Hey, if we squinched the pixels, then you'll get an extra twenty lines of resolution on either side, and it looks better on a sixteen by nine television.'"
+[00:24:15] Will: Well, and there is 15 years, 15 or 20 years of history of those those people saying, " Hey, look, man! Like, remember anamorphic DVDs? People were like, 'Hey, if we squinched the pixels, then you'll get an extra 20 lines of resolution on either side, and it looks better on a 16:9 television.'"
 
 [00:24:30] Adam: Look, I I think that you should be watching the film at home with whatever black bars gets you to the correct aspect ratio that the DP was looking through the eyepiece to frame for.
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:24:45] Adam: Whatever the so you know whatever whatever the filmmaker.
 
-[00:24:51] Norm: When I watched the Dark Knight in IMAX scenes, I only see in sixteen by nine, but in IMAX it was more four by three.
+[00:24:51] Norm: When I watched the Dark Knight in IMAX scenes, I only see in 16:9, but in IMAX it was more four by three.
 
 [00:24:56] Unknown speaker: But you know that's that's a good example, though. Like that's a real problem.
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:25:12] Adam: Actually, I don’t remember.
 
-[00:25:12] Will: seventy mil. It's super. Anyway, but but yeah. So so this is like the interesting thing is now we're at a point with televisions: a turn off motion smoothing. B don't don't be the person that goes to people's houses and turns off motion smoothing for them. Have a conversation, but don't be a shitbag about it.
+[00:25:12] Will: 70 mil. It's super. Anyway, but but yeah. So so this is like the interesting thing is now we're at a point with televisions: a turn off motion smoothing. B don't don't be the person that goes to people's houses and turns off motion smoothing for them. Have a conversation, but don't be a shitbag about it.
 
 [00:25:34] Adam: Look, also, let's just be. You know, I think there is a complacency right now because most people aren't buying the disc. I think there is a complacency right now to imagine. Oh well, it's all online anyway. And the thing that I think has been becoming much more clear, and it is for me as a researcher, as for you guys, understand this: the internet is not the repository of all knowledge. It's the index of the repository of all knowledge. It's not all out there.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:27:55] Adam: Ownership is dead.
 
-[00:27:56] Will: Yeah, the funny thing is, all of the Blu-rays that I redeem the code for are now 4K on iTunes because they upgraded all their [unclear: twenty pieces / PC] to 4K without you doing anything.
+[00:27:56] Will: Yeah, the funny thing is, all of the Blu-rays that I redeem the code for are now 4K on iTunes because they upgraded all their [unclear: 20 pieces / PC] to 4K without you doing anything.
 
 [00:27:56] Unknown speaker: It’s a weird world.
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:28:54] Norm: So here's a code for three rentals or something.
 
-[00:28:56] Adam: Here's a here's a five ninety nine code for a free rental. However, it turns out, and this sounds very plausible,
+[00:28:56] Adam: Here's a here's a 5.99 code for a free rental. However, it turns out, and this sounds very plausible,
 
 [00:28:56] Norm: yeah,
 
@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:29:13] Unknown speaker: [unclear: coded player / coded. You’d have exactly that problem].
 
-[00:29:14] Will: It takes about thirty seconds to strip the region lock from a from with a DVD drive. It's really easy to rip DVDs.
+[00:29:14] Will: It takes about 30 seconds to strip the region lock from a from with a DVD drive. It's really easy to rip DVDs.
 
 [00:29:19] Adam: Unless it's a Sony DVD player, those are nightmares to strip the region coding on.
 
@@ -620,11 +620,11 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:30:10] Will: Like look, all the real words are are used. Adam can't use them anymore.
 
-[00:30:13] Norm: You got to Google this on on YouTube. It's maybe a fifteen or twenty year old ad, and it's a commercial that stuck with me because it's a woman who walks up to into a motel,
+[00:30:13] Norm: You got to Google this on on YouTube. It's maybe a 15 or 20 year old ad, and it's a commercial that stuck with me because it's a woman who walks up to into a motel,
 
 [00:30:13] Adam: yeah,
 
-[00:30:13] Norm: and and and says, " Oh, what movies you have on? You know, what one things can I can I rent? You know, because you used to go to the front desk to get behind the counter, the VHSs or the DVDs. Yeah, and the guy, this lethargic guy behind, I go with every single movie ever made. Anytime you want to watch it, how is that possible? Qwest. And twenty years ago, I was like, whoa, this is this is the dream. And four or five years ago, we got we we reached there. We have we reached that dream of every single movie we'd ever want, except because of licensing and and well, legal problems. We have the the nightmare version of that.
+[00:30:13] Norm: and and and says, " Oh, what movies you have on? You know, what one things can I can I rent? You know, because you used to go to the front desk to get behind the counter, the VHSs or the DVDs. Yeah, and the guy, this lethargic guy behind, I go with every single movie ever made. Anytime you want to watch it, how is that possible? Qwest. And 20 years ago, I was like, whoa, this is this is the dream. And four or five years ago, we got we we reached there. We have we reached that dream of every single movie we'd ever want, except because of licensing and and well, legal problems. We have the the nightmare version of that.
 
 [00:31:02] Will: I mean, look,
 

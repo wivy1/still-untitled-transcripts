@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:04:15] Adam: yeah. Sorry,
 
-[00:04:15] Will: I've I've seen this person perform live ten or twelve times at this point. Yeah. Christmas Christmas shows. Yeah. At the Greek, a bunch.
+[00:04:15] Will: I've I've seen this person perform live 10 or 12 times at this point. Yeah. Christmas Christmas shows. Yeah. At the Greek, a bunch.
 
 [00:04:26] Adam: We the the amazing and the amazing and wonderful craftspeople and geniuses at Third Man Records in Detroit. Jack White's Detroit leg of his famous Third Man Records label opened their doors to tested, and we were able to go in and not only cover the the the operation as a lot of news outlets did, the operation of the first brand new record pressing plant in the U.S. in over three decades. They have eight brand new pressing machines, but Jack himself. Was in Detroit and gave us some time to talk about how the limitations of a fully analog system yield better creative results, and it was really inspiring. And I recorded the Brain Candy song live on their stage, and you watched the video.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:07:58] Adam: That is your guess is as good as mine. Okay. I have not researched that deeply into it.
 
-[00:08:02] Will: I am super curious about the the economics and mechanics of rebuilding this. Like, it's got to be kind of like the like what NASA did with the SLS, where they came in and re. If they're starting from scratch forty years after people stop making records,
+[00:08:02] Will: I am super curious about the the economics and mechanics of rebuilding this. Like, it's got to be kind of like the like what NASA did with the SLS, where they came in and re. If they're starting from scratch 40 years after people stop making records,
 
 [00:08:16] Adam: That’s lost knowledge.
 
@@ -476,11 +476,11 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:17:33] Unknown speaker: Wow.
 
-[00:17:33] Adam: And the cost of using real bearings like Kaydon six and eight and ten inch bearings prohibitive.
+[00:17:33] Adam: And the cost of using real bearings like Kaydon 6 and 8 and 10 inch bearings prohibitive.
 
 [00:17:33] Will: Yeah.
 
-[00:17:33] Adam: I mean, like a the six inch two six inch bearings that are in my Hellboy mecha glove over there. Are retail for over 600 dollars a piece. Yeah. So when you think about like twenty five bearings within a suit, it's it's impossible.
+[00:17:33] Adam: I mean, like a the six inch two six inch bearings that are in my Hellboy mecha glove over there. Are retail for over $600 a piece. Yeah. So when you think about like 25 bearings within a suit, it's it's impossible.
 
 [00:18:04] Will: You can't do that.
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:18:53] Norm: they run like an Hour of footage,
 
-[00:18:54] Adam: you know. Yeah. Ten years ago, that would have been a little bit of acetate with some LEDs behind, not even some incandescents behind it to light it up, and now it's an actually animated screen.
+[00:18:54] Adam: you know. Yeah. 10 years ago, that would have been a little bit of acetate with some LEDs behind, not even some incandescents behind it to light it up, and now it's an actually animated screen.
 
 [00:19:03] Will: And I mean, you look at what you can get on on like Adafruit or something like that,
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:19:10] Will: yeah,
 
-[00:19:10] Adam: that's a that was like 25 dollars.
+[00:19:10] Adam: that's a that was like $25.
 
 [00:19:10] Will: Yeah,
 

@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:07:36] Adam: it was comic booky. I mean, it was it was very. Yeah, they were. Look, they were supplying a very specific genre. It's just one in which the suspension of disbelief was so far from anything for me, I couldn't really get into it. I get why it's funny, and I laughed out loud a few times. And Ryan Reynolds is. Perfect casting for that.
 
-[00:07:54] Norm: Eight out of ten.
+[00:07:54] Norm: 8 out of 10.
 
 [00:07:55] Will: That well, that that opening sequence, the opening sequence with the car, the credits, and the fight, and all that was so on the nose and and well done that I kind of was willing to ride along with the rest of the movie.
 
@@ -288,11 +288,11 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:09:16] Norm: one after the other.
 
-[00:09:16] Adam: I went New Year's Day. I went New Year's Day by myself, and it was just after Julia and I had Julia and I met. Actually, Julia and I met thirteen years ago this week.
+[00:09:16] Adam: I went New Year's Day. I went New Year's Day by myself, and it was just after Julia and I had Julia and I met. Actually, Julia and I met 13 years ago this week.
 
 [00:09:16] Norm: Wow!
 
-[00:09:16] Adam: We just celebrated the thirteenth anniversary of our first date.
+[00:09:16] Adam: We just celebrated the 13th anniversary of our first date.
 
 [00:09:16] Will: Nice job!
 
@@ -320,11 +320,11 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:10:29] Norm: And then crying tiny people,
 
-[00:10:31] Will: and she has been pissed off at me about that for thirteen years, fourteen years now.
+[00:10:31] Will: and she has been pissed off at me about that for 13 years, 14 years now.
 
 [00:10:31] Adam: Really,
 
-[00:10:31] Will: she was like, " This is it's it's like a four hour long movie," and she had no idea what was going on through the entire thing. Every time she would lean over to ask, it was a totally full theater, so she, shh, and and she was just like, I had to sit there and wait, and I couldn't like go out to the car because it was ten degrees outside. So yeah, so she's she's I think and I think rightfully I think I think that was
+[00:10:31] Will: she was like, " This is it's it's like a four hour long movie," and she had no idea what was going on through the entire thing. Every time she would lean over to ask, it was a totally full theater, so she, shh, and and she was just like, I had to sit there and wait, and I couldn't like go out to the car because it was 10 degrees outside. So yeah, so she's she's I think and I think rightfully I think I think that was
 
 [00:10:57] Adam: totally reasonable.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:16:09] Adam: Yeah.
 
-[00:16:09] Adam: I couldn't finish it. I watched the first thirty minutes, and I love nobody loves Tina Fey more than me. But I didn't, I didn't like that. I didn't like her in that.
+[00:16:09] Adam: I couldn't finish it. I watched the first 30 minutes, and I love nobody loves Tina Fey more than me. But I didn't, I didn't like that. I didn't like her in that.
 
 [00:16:17] Will: It's it's one of those movies that like I I can look at it. I'm like, I don't. This is not a good movie, but I'm enjoying myself.
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:18:02] Norm: Yeah, yeah.
 
-[00:18:02] Will: posted a link to a sack, a forty-pound sack of Lucky Charms marshmallows you can buy on Amazon.
+[00:18:02] Will: posted a link to a sack, a 40-pound sack of Lucky Charms marshmallows you can buy on Amazon.
 
 [00:18:16] Norm: Oh my god!
 
@@ -688,7 +688,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:19:37] Norm: I heard this.
 
-[00:19:38] Will: Norm heard this maybe fifteen years ago. This is I think this is maybe exclusive to tested content.
+[00:19:38] Will: Norm heard this maybe 15 years ago. This is I think this is maybe exclusive to tested content.
 
 [00:19:38] Adam: Okay.
 
@@ -696,19 +696,19 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:19:38] Adam: bought the farm
 
-[00:19:38] Will: but we didn't die but we literally bought a farm and the forest service would give you garbage bags full of pine trees if you would plant them it was just a thing that the forest service does and they were about the size of a pencil so you would take a pry bar jam it in the ground wedge it back and forth. Put the seedling in, the sapling in, and then push it closed with your foot. We did this for a grid of eighty by eight, two eighty by eighty grids of trees. I think
+[00:19:38] Will: but we didn't die but we literally bought a farm and the forest service would give you garbage bags full of pine trees if you would plant them it was just a thing that the forest service does and they were about the size of a pencil so you would take a pry bar jam it in the ground wedge it back and forth. Put the seedling in, the sapling in, and then push it closed with your foot. We did this for a grid of 80 by 8, two 80 by 80 grids of trees. I think
 
 [00:20:16] Adam: that's a lot.
 
 [00:20:17] Will: So it's a ton of trees. And he thought, well, this is how I'm going to pay for college for the kids. Problem solved.
 
-[00:20:22] Adam: Twelve thousand eight hundred.
+[00:20:22] Adam: 12,800.
 
 [00:20:24] Will: It was a lot of trees.
 
 [00:20:24] Norm: Wow.
 
-[00:20:24] Will: It may not have been eighty by eight, maybe it was forty by eight.
+[00:20:24] Will: It may not have been 80 by 8, maybe it was 40 by 8.
 
 [00:20:27] Norm: And this is in Tennessee.
 
@@ -716,7 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:20:28] Norm: Even though the tree monopoly, Christmas tree monopolies, Oregon has that
 
-[00:20:32] Will: on the West Coast. It's all regional. Tennessee, North Carolina. It's it's usually so. The trick is people want specific kinds of trees. We were at an elevation that could only grow white pines. Nobody wants white pines. So by the time we rolled around to sell these trees, fifteen years later, it was time for thirteen years later. It was time for me to go to college. I had mowed between them every summer, twice a week for a decade at this point.
+[00:20:32] Will: on the West Coast. It's all regional. Tennessee, North Carolina. It's it's usually so. The trick is people want specific kinds of trees. We were at an elevation that could only grow white pines. Nobody wants white pines. So by the time we rolled around to sell these trees, 15 years later, it was time for 13 years later. It was time for me to go to college. I had mowed between them every summer, twice a week for a decade at this point.
 
 [00:20:53] Norm: As you're mowing, dreaming of college and like all the future, Harvard,
 
@@ -726,7 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:21:05] Adam: pieces of IKEA furniture.
 
-[00:21:06] Will: And and every year. We couldn't sell the trees en masse, so we had to cut your own farm. So we put signs out on the road, and people would drive out from the city into the country to cut down their own Christmas tree. But the secret is nobody wants to cut their own damn Christmas tree down. What they want to do is go out, walk around in the field for a little bit, enjoy the outside for like fifteen minutes, and then have some kid cut their Christmas tree down.
+[00:21:06] Will: And and every year. We couldn't sell the trees en masse, so we had to cut your own farm. So we put signs out on the road, and people would drive out from the city into the country to cut down their own Christmas tree. But the secret is nobody wants to cut their own damn Christmas tree down. What they want to do is go out, walk around in the field for a little bit, enjoy the outside for like 15 minutes, and then have some kid cut their Christmas tree down.
 
 [00:21:25] Adam: And that would be
 
@@ -966,7 +966,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:28:15] Will: are
 
-[00:28:15] Adam: absolutely books are one of my favorite gifts to give when I when I can find a book that matches the person I'm thinking about that like you know that it's a book they wouldn't go buy like the MoMA did a beautiful retrospective of Diane Arbus about ten years ago that is one of the most beautiful exhibits I've ever seen and the book is amazing from it and if you know someone photography that's a great gift
+[00:28:15] Adam: absolutely books are one of my favorite gifts to give when I when I can find a book that matches the person I'm thinking about that like you know that it's a book they wouldn't go buy like the MoMA did a beautiful retrospective of Diane Arbus about 10 years ago that is one of the most beautiful exhibits I've ever seen and the book is amazing from it and if you know someone photography that's a great gift
 
 [00:28:35] Norm: yeah
 

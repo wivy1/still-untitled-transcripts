@@ -10,7 +10,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:00:06] Norm: and I'm Norm.
 
-[00:00:07] Will: Okay, so I think Ant Man and Wasp is like a solid six or seven out of the twenty-one. We got Thor Ragnarok at the top, then Black Panther.
+[00:00:07] Will: Okay, so I think Ant Man and Wasp is like a solid 6 or 7 out of the 21. We got Thor Ragnarok at the top, then Black Panther.
 
 [00:00:16] Adam: Just jumping right in,
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:11:14] Norm: That's right. Not even Jeff Bridges, but he plays like the the Kurt Russell character.
 
-[00:11:18] Adam: Ten years from now, you'll be some up up and coming director going, Kurt. This will be a great moment for the audience, and Kurt will stare at them and go, too soon. Sorry, I interrupted.
+[00:11:18] Adam: 10 years from now, you'll be some up up and coming director going, Kurt. This will be a great moment for the audience, and Kurt will stare at them and go, too soon. Sorry, I interrupted.
 
 [00:11:30] Norm: No, it’s all right. And this is also something would would have better played as a play, I think.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:13:23] Norm: And and I think it's tough because Bradley Cooper is still too young, I think, to play that grizzled like older rock star role that like the Keith Urban role a little bit. And but he's clearly very passionate about this project, co-produced by Live Nation, which is how they just like on Coachella they just had let's keep the the stages up for one extra day and then get all your shots in
 
-[00:13:46] Adam: was what was I thought was really cool and incredibly efficient, right? So they have these incredible shots. From from the trailer and in the movie, where you see them on stage in front of eighty thousand people,
+[00:13:46] Adam: was what was I thought was really cool and incredibly efficient, right? So they have these incredible shots. From from the trailer and in the movie, where you see them on stage in front of 80,000 people,
 
 [00:13:57] Will: and what do they do to shoot the crowds one day in the well?
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:13:59] Unknown speaker (Will or Norm): Yeah,
 
-[00:13:59] Adam: right. Brilliant, brilliant, brilliant. But even more than that, apparently the sound ops were running like thirty separate signals all at once, mixing, grabbing all the ambient sound, and they had they they had a way that they had. You know how in CG, John Knoll I think pioneered this technique of bringing out the silver ball that they put in the middle of the set, and that allows them to extrapolate.
+[00:13:59] Adam: right. Brilliant, brilliant, brilliant. But even more than that, apparently the sound ops were running like 30 separate signals all at once, mixing, grabbing all the ambient sound, and they had they they had a way that they had. You know how in CG, John Knoll I think pioneered this technique of bringing out the silver ball that they put in the middle of the set, and that allows them to extrapolate.
 
 [00:14:42] Norm: It’s called
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:15:43] Adam: Oh.
 
-[00:15:43] Norm: and just as cathartic in the moment. Like even if you've listened to the soundtrack, which I think has like dialogue from the film, you kind of follow the. The thread of the film, like twenty, like twenty-six tracks or something. Even if you've listened dozens of times, the film will still give you the feels.
+[00:15:43] Norm: and just as cathartic in the moment. Like even if you've listened to the soundtrack, which I think has like dialogue from the film, you kind of follow the. The thread of the film, like 20, like 26 tracks or something. Even if you've listened dozens of times, the film will still give you the feels.
 
 [00:15:43] Adam: Can't wait!
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:18:21] Norm: And what was the stunt?
 
-[00:18:22] Will: It was the chair one when he climbed up the thirty chairs.
+[00:18:22] Will: It was the chair one when he climbed up the 30 chairs.
 
 [00:18:25] Norm: You know when you stack chairs and they're wobbly and he's on top and then
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:20:27] Norm: yeah, Damien Chazelle's third film. How is it? He's only made three films,
 
-[00:20:33] Adam: and he's like in his thirties.
+[00:20:33] Adam: and he's like in his 30s.
 
 [00:20:33] Norm: Yeah,
 
@@ -644,7 +644,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:21:37] Will: Well, the right stuff, if you've ever read the Tom Wolfe book, which I highly recommend if you haven't, is very true to the book. Like it is very much a I am a guy here telling the story of these seven people.
 
-[00:21:48] Adam: I watched it a a few months ago actually for the first time in twenty years, really, really.
+[00:21:48] Adam: I watched it a a few months ago actually for the first time in 20 years, really, really.
 
 [00:21:53] Will: I would I would have thought so. Yeah,
 
@@ -670,11 +670,11 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:22:47] Adam: Well, that's exactly the process. It's an incredibly personal, incredibly personal film in which that leaps forward in time, sometimes abruptly five years, but each of those leaps is not done by oh, see how far they've gone in the Apollo program. Each of those leaps involves Armstrong's family. And in that, it is a very quiet. If you are going expecting either right stuff or Apollo 13, this isn't either of those. It's a very quiet and personal film.
 
-[00:23:20] Will: It's more reminiscent of From Earth to the Moon, the HBO docu series from like twenty years ago now, probably, where they each each episode told the story of like one small part of the program. And and I thought it was like it wasn't at all what I was expecting going into the theater. You know, I went in expecting Apollo 13 and the big, you know, the the trailers sold a. Here is the story of Apollo 11, and here is the tense moment right before the you know, as Buzz and Neil are approaching the landing.
+[00:23:20] Will: It's more reminiscent of From Earth to the Moon, the HBO docu series from like 20 years ago now, probably, where they each each episode told the story of like one small part of the program. And and I thought it was like it wasn't at all what I was expecting going into the theater. You know, I went in expecting Apollo 13 and the big, you know, the the trailers sold a. Here is the story of Apollo 11, and here is the tense moment right before the you know, as Buzz and Neil are approaching the landing.
 
 [00:23:47] Norm: Which they have.
 
-[00:23:47] Will: It's in there. Yeah, it's in like like like last ten minutes maybe.
+[00:23:47] Will: It's in there. Yeah, it's in like like like last 10 minutes maybe.
 
 [00:23:51] Norm: But that's not the crux of the film.
 
@@ -682,7 +682,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:24:03] Adam: And that's the thing that I found the most affecting about it was they. Chazelle shows really, really clearly how, what it is to be the spearpoint of new inventions to do impossible things.
 
-[00:24:18] Will: The, um, we Gina and I went and saw it in the screening, and Ariel was there. Afterwards, I think she said that it's it reminded her of the quote that he's famous for about being just the man on the at the point of a hundred thousand people, and that's very much what the film felt like.
+[00:24:18] Will: The, um, we Gina and I went and saw it in the screening, and Ariel was there. Afterwards, I think she said that it's it reminded her of the quote that he's famous for about being just the man on the at the point of 100,000 people, and that's very much what the film felt like.
 
 [00:24:18] Adam: Absolutely,
 
@@ -842,7 +842,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:29:20] Adam: Yeah, and it that felt again every one of the emotional beats in the film felt so infused and had such roots through the through the plot and through the movie and through its characters.
 
-[00:29:31] Will: Well, so I, I was like, one of the things that struck me not not to skip around, but but I mean that moment, the moment after they land on the moon, they're the first two men on the moon. They've survived this incredible journey. They're at the head of a hundred thousand people, and they kind of look at each other, smile, and shake hands, and then go go back to work.
+[00:29:31] Will: Well, so I, I was like, one of the things that struck me not not to skip around, but but I mean that moment, the moment after they land on the moon, they're the first two men on the moon. They've survived this incredible journey. They're at the head of 100,000 people, and they kind of look at each other, smile, and shake hands, and then go go back to work.
 
 [00:29:46] Adam: And and the way in which again Chazelle makes you realize that these we were recently working on some pieces of Mercury hardware here in the shop, and one of the things that's shocking when you lay that out, and you guys both had this experience, is oh my god, this thing was a tin can. Oh
 
@@ -856,7 +856,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:30:51] Adam: They work really hard to show that, and
 
-[00:30:53] Will: well, you see the close ups of the of the dials, and when you know I don't know if this came across, but the screen shake, like the the camera was moving constantly, giving a ton of motion. On those dials, and so it's a, it's when you see it in the theater, it's a twenty foot tall, three inch dial that's blowing from left to right across a wide screen, and it's a little hard to watch. Like it was challenging.
+[00:30:53] Will: well, you see the close ups of the of the dials, and when you know I don't know if this came across, but the screen shake, like the the camera was moving constantly, giving a ton of motion. On those dials, and so it's a, it's when you see it in the theater, it's a 20 foot tall, three inch dial that's blowing from left to right across a wide screen, and it's a little hard to watch. Like it was challenging.
 
 [00:30:53] Adam: Yeah.
 
@@ -866,7 +866,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:31:27] Will: Oh, they didn’t put you under.
 
-[00:31:28] Adam: No, and a F A eighteen is the the the Hornet is such an ludicrously stable machine that no, I didn't experience.
+[00:31:28] Adam: No, and a F A 18 is the the the Hornet is such an ludicrously stable machine that no, I didn't experience.
 
 [00:31:35] Will: There was no shaking or anything like that?
 
@@ -936,7 +936,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:35:44] Norm: well, there's a thread. There's one thread thematically from Whiplash to La La Land to First Man, and it's that these professions and these accomplishments that are glamorized in public. He pulls the curtain back. A little bit on that, whether it's from musicians to acting Hollywood to the heroes in our space history, he does he definitely pulls that curtain a little back.
 
-[00:36:06] Will: I mean, it's it's definitely not like the thing. The thing Gina said after we saw this was that it seemed like the kind of movie that couldn't be made until now, right? It's it's a more honest, raw look at this at this time in history. It was now forty, fifty years ago than we maybe were capable of it when we were kids. Um, and and I'm I'm you know I I kind of feel like like Chazelle's taking a um like the Danny Boyle path, right? Like instead of instead of getting bogged down in one genre and becoming a genre director, he seems to be kind of like spreading his wings and trying a little bit of everything, which I I really appreciate.
+[00:36:06] Will: I mean, it's it's definitely not like the thing. The thing Gina said after we saw this was that it seemed like the kind of movie that couldn't be made until now, right? It's it's a more honest, raw look at this at this time in history. It was now 40, 50 years ago than we maybe were capable of it when we were kids. Um, and and I'm I'm you know I I kind of feel like like Chazelle's taking a um like the Danny Boyle path, right? Like instead of instead of getting bogged down in one genre and becoming a genre director, he seems to be kind of like spreading his wings and trying a little bit of everything, which I I really appreciate.
 
 [00:36:43] Adam: I do too. I do too. I so I as a space nut, I really enjoyed this film. As a film nut, I thought it was really lovely, and I thought I was surprised as a person with kids how sensitively it really showed the toll on a family of of that kind of endeavor.
 

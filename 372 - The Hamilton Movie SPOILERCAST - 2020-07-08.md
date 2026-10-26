@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:03:30] Norm: Yes,
 
-[00:03:31] Adam: and that turned out to be less than sixty days later. And I said, " When is that going to be released?" And he's like, " Five or ten years. Five or ten years." And here we are. It's almost five years. It actually the the scheduled release date was five years later.
+[00:03:31] Adam: and that turned out to be less than 60 days later. And I said, " When is that going to be released?" And he's like, " 5 or 10 years. 5 or 10 years." And here we are. It's almost five years. It actually the the scheduled release date was five years later.
 
 [00:03:46] Norm: It's it's oh my gosh! Wow, you're right. It was right toward the end of their run. So yeah. 2016, before all the original cast, the Broadway cast, you know, not not the the workshop or the off Broadway, but
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:04:38] Norm: Um,
 
-[00:04:38] Norm: and not adapt it to be a film movie, not shorten it in any way, you know, the the purity of the two hour and forty minute length time, like they really wanted to make it feel like you were you went you had a ticket to the theater and Got you know the best seat, and then watched it for two two and two and a half hours.
+[00:04:38] Norm: and not adapt it to be a film movie, not shorten it in any way, you know, the the purity of the two hour and 40 minute length time, like they really wanted to make it feel like you were you went you had a ticket to the theater and Got you know the best seat, and then watched it for two two and two and a half hours.
 
 [00:04:59] Adam: Well, so let me. You've seen the show twice, right?
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:12:18] Norm: the live performance or the soundtrack and and what's there, right?
 
-[00:12:21] Adam: Look, I mean, you know, Daveed Diggs is not just an amazing performer; he's a world class rapper. I mean, on his rap album, there's at one point a song which he starts singing on quarters and then goes to eights and then goes to sixteenths and then starts rapping on thirty seconds of measure. It's like insanity, and it is such a difficult comparison for any other actor to step into that role. And it's a testament to the touring shows that they do and they can,
+[00:12:21] Adam: Look, I mean, you know, Daveed Diggs is not just an amazing performer; he's a world class rapper. I mean, on his rap album, there's at one point a song which he starts singing on quarters and then goes to eights and then goes to sixteenths and then starts rapping on 30 seconds of measure. It's like insanity, and it is such a difficult comparison for any other actor to step into that role. And it's a testament to the touring shows that they do and they can,
 
 [00:12:49] Norm: and they make it their own,
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:29:52] Adam: Oh, really? We paused. We actually paused and took a day because it was so late. It was like 10:30 at night when we finished Act One, and we're like, we have the Act Two is longer. I think
 
-[00:30:02] Norm: it is hour and forty minutes. We we looked the timestamp, the tips. So for people, if you haven't seen it, right, I do think it's worth listening to the the sound the score first as a way, and that's a personal choice if you hadn't listened to it, right?
+[00:30:02] Norm: it is hour and 40 minutes. We we looked the timestamp, the tips. So for people, if you haven't seen it, right, I do think it's worth listening to the the sound the score first as a way, and that's a personal choice if you hadn't listened to it, right?
 
 [00:30:19] Adam: Well, we've always been advocates of knowing the libretto because it's super dense. And we're here to say, knowing it better makes the show better. You don't have to play so much pickup. Getting to understand what they're saying,
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:33:02] Norm: there's. It's not just I know the spaghetti westerns. I know like the the songs are immortal, and it reminds me of the quote in Westworld that which we recently you know you recently watched where yeah Ford he says a friend once told him you know Mozart Beethoven and Chopin they never died they simply became their music and I think that holds true here because like the music, well, is immortal and his he. Will be remembered forever.
 
-[00:33:32] Adam: Five hundred films he scored.
+[00:33:32] Adam: 500 films he scored.
 
 [00:33:35] Norm: Wow! And from the thing to Once Upon a Time in the West and Once Upon a Time in America, like
 

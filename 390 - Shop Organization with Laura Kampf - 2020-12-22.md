@@ -22,15 +22,15 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:00:17] Laura: Yes, exactly. It's six o'clock. It's almost the end of my workday, but I think I will keep going a little longer because I had a fantastic workday, and I don't want it to end.
 
-[00:00:26] Adam: Oh, okay. So we we I I participated a little bit in an amazing thing you did last week for Lenovo called for all of us Fridays, where you built a steel wool powered Catherine wheel, spraying sparks thirty meters into the German sky last last Friday.
+[00:00:26] Adam: Oh, okay. So we we I I participated a little bit in an amazing thing you did last week for Lenovo called for all of us Fridays, where you built a steel wool powered Catherine wheel, spraying sparks 30 meters into the German sky last last Friday.
 
 [00:00:47] Laura: It was fantastic. Yeah, I I was asked to build something spectacular, and my neighbor is a scrap scrapyard guy, so he brought me a huge motor a couple weeks ago. And I wanted to do something with this motor. It has 2.8 horsepower, so it's like three phase. It's very, very powerful, very, very awesome. And then I played around with lights and fire and all these things. And eventually, I remembered that if you put steel wool on fire and you spin it around, or you expose it to oxygen, it just sparks and lights up like crazy. So I basically built this huge propeller for the motor that has a big cage that I could pack with probably half a kilo of steel wool, and then spin it around. And it was it was more impressive and intense than I anticipated.
 
 [00:01:37] Laura: To be honest.
 
-[00:01:39] Adam: it was so beautiful to watch it go. And you did three runs on the live feed, and on the last one, you had stuffed the container full of steel wool, and you eventually got that to lit, and it was shocking, even on like the ten frames per second webcam I was looking at. It was. Spectacular!
+[00:01:39] Adam: it was so beautiful to watch it go. And you did three runs on the live feed, and on the last one, you had stuffed the container full of steel wool, and you eventually got that to lit, and it was shocking, even on like the 10 frames per second webcam I was looking at. It was. Spectacular!
 
-[00:01:59] Laura: Yes, it was big, and it didn't stop. Like I, I did some tests with a little bit of steel wool, and it would light up for maybe ten, fifteen seconds. And the last one we did, I think it was going for a minute or something. It just didn't stop.
+[00:01:59] Laura: Yes, it was big, and it didn't stop. Like I, I did some tests with a little bit of steel wool, and it would light up for maybe 10, 15 seconds. And the last one we did, I think it was going for a minute or something. It just didn't stop.
 
 [00:02:13] Adam: No, it kept on. It was yeah. So you ended up building a machine that's very much reminded me of my early days in San Francisco. Are you familiar with the work of the Machine Art Collective, Survival Research Laboratories?
 
@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:02:45] Laura: they were on the street. Nice.
 
-[00:02:47] Adam: Ah. Anyway, Survival Research Labs. All they did was build giant machines that did scary things, and they had a whip antenna on the end of a giant motor that. It was when it was going. The end of the whip was breaking the speed of sound, something like three thousand times per minute.
+[00:02:47] Adam: Ah. Anyway, Survival Research Labs. All they did was build giant machines that did scary things, and they had a whip antenna on the end of a giant motor that. It was when it was going. The end of the whip was breaking the speed of sound, something like 3,000 times per minute.
 
 [00:03:07] Laura: Okay.
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:07:32] Laura: Oh, yeah, yeah, yeah.
 
-[00:07:34] Adam: And that's why normal screwdrivers munge brass screws. So a gunsmith's screwdriver is hollow ground, so it's got parallel end, and it puts its torque at the bottom of the flathead screw channel, and therefore, so normal gunsmiths have like forty sizes of these, but you can find them on Amazon. I found a set of three for like eighteen bucks that are gorgeous. I'll send you the link. I think we actually included the link in our pod, in our in our thing. So we'll send it to you. It's changed my life. It turns out there's a screwdriver for not messing up screws.
+[00:07:34] Adam: And that's why normal screwdrivers munge brass screws. So a gunsmith's screwdriver is hollow ground, so it's got parallel end, and it puts its torque at the bottom of the flathead screw channel, and therefore, so normal gunsmiths have like 40 sizes of these, but you can find them on Amazon. I found a set of three for like $18 that are gorgeous. I'll send you the link. I think we actually included the link in our pod, in our in our thing. So we'll send it to you. It's changed my life. It turns out there's a screwdriver for not messing up screws.
 
 [00:08:10] Laura: Oh, that's good. So so good to know. So good. I had no idea. The way I usually do it is I take another screw, like a Torx or Phillips head, and screw that in. Take it out again, and then I take the brass screw, put a little wax on it. That's that's how I do it. It's just it takes so much time. But that's what I love about them. If you see a piece of furniture that has flathead brass screws, you know, like there's this extra mile that the creator went to make it look like that. I love that. Yeah.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:13:45] Adam: Um, so are you in your shop right now? Are you in your house?
 
-[00:13:48] Laura: I'm in my studio. I moved shops for the hundredth time last week, uh, last year. And I have a downstairs and an upstairs now. So downstairs is my workshop, and upstairs is my studio. And that's that's a big luxury, yeah. So I I stay here probably three or four nights of the week, and then I still have a place with my girlfriend in Cologne. But I I have my alone time here in the studio, and I can nerd out about sorting screws.
+[00:13:48] Laura: I'm in my studio. I moved shops for the 100th time last week, uh, last year. And I have a downstairs and an upstairs now. So downstairs is my workshop, and upstairs is my studio. And that's that's a big luxury, yeah. So I I stay here probably three or four nights of the week, and then I still have a place with my girlfriend in Cologne. But I I have my alone time here in the studio, and I can nerd out about sorting screws.
 
 [00:14:16] Adam: Do you have a big enough space where you could like pull a car indoors?
 
@@ -186,11 +186,11 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:15:00] Laura: I love the Yamaha DTs. So I have two from the '80s. One is a 400 cc, and one is a 175 cc.
 
-[00:15:08] Adam: One hundred seventy-five. You can get a lot of trouble with one of those little ones.
+[00:15:08] Adam: 175. You can get a lot of trouble with one of those little ones.
 
 [00:15:11] Laura: Yes.
 
-[00:15:15] Adam: I had a mid-'80s Yamaha six fifty.
+[00:15:15] Adam: I had a mid-'80s Yamaha 650.
 
 [00:15:18] Laura: Oh, nice. That's powerful. Yeah.
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:29:46] Laura: I think so too. It's all there, and. You need to tell me how big yours is because I want to make mine slightly bigger.
 
-[00:29:55] Adam: I think mine is about 45 centimeters, sixteen inches.
+[00:29:55] Adam: I think mine is about 45 centimeters, 16 inches.
 
 [00:29:59] Laura: Okay, good. Good to know.
 
@@ -310,9 +310,9 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:30:04] Laura: It could be the the.
 
-[00:30:05] Adam: Sixteen inches, thirty centimeters per foot, plus a third. Yeah, it's forty centimeters.
+[00:30:05] Adam: 16 inches, 30 centimeters per foot, plus a third. Yeah, it's 40 centimeters.
 
-[00:30:12] Laura: Okay, good. Fifty it is for me then.
+[00:30:12] Laura: Okay, good. 50 it is for me then.
 
 [00:30:14] Adam: I was I my bugbear. I've been doing some carpentry this week, and my bugbear in carpentry is bevel bevel joints.
 
@@ -370,7 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:35:29] Adam: yeah,
 
-[00:35:29] Laura: oh, interesting. Yeah, that's another cool thing about living on the countryside because everybody has like oak slabs in their backyard that they haven't been using for thirty years. Like, do you want them?
+[00:35:29] Laura: oh, interesting. Yeah, that's another cool thing about living on the countryside because everybody has like oak slabs in their backyard that they haven't been using for 30 years. Like, do you want them?
 
 [00:35:41] Norm: Yes.
 

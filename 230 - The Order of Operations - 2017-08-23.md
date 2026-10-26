@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:01:56] Adam: Thank you.
 
-[00:01:56] Norm: No, yesterday, as we're recording this, we were out in outside the cave, actually, just standing on the street, looking up at the sky at around ten. 10:15 a.m.
+[00:01:56] Norm: No, yesterday, as we're recording this, we were out in outside the cave, actually, just standing on the street, looking up at the sky at around 10. 10:15 a.m.
 
 [00:02:09] Adam: I was up on my roof with thing one and thing two here in the mission,
 
@@ -90,17 +90,17 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:02:55] Jeremy Williams: right?
 
-[00:02:58] Adam: You had a much better field of view. So the the welding helmets I have are all auto darkening, and it's I if we had done this before the the the podcast before the eclipse, I would have. Explain this. It's really important to set them to the highest possible setting, which is thirteen or fourteen.
+[00:02:58] Adam: You had a much better field of view. So the the welding helmets I have are all auto darkening, and it's I if we had done this before the the the podcast before the eclipse, I would have. Explain this. It's really important to set them to the highest possible setting, which is 13 or 14.
 
-[00:02:58] Norm: Yes, and twelve
+[00:02:58] Norm: Yes, and 12
 
 [00:03:15] Norm: plus is what you need.
 
-[00:03:16] Adam: Twelve plus, and that's sufficient. In fact, a thirteen, which one of my helmets goes to, is a little bit, just a little bit, not quite enough when there's no cloud in front. But luckily, in San Francisco, classically, we had clouds in front of our eclipse.
+[00:03:16] Adam: 12 plus, and that's sufficient. In fact, a 13, which one of my helmets goes to, is a little bit, just a little bit, not quite enough when there's no cloud in front. But luckily, in San Francisco, classically, we had clouds in front of our eclipse.
 
 [00:03:30] Norm: I love that all the stories were on, Don't look at the sun, and it. You should never look at the sun on a normal day. It's not just on a. The sun isn’t extra bright on on the eclipse day. It's just when everyone ends up wanting to look at it.
 
-[00:03:43] Adam: No, it’s the problem is is that everyone thinks. The problem is, I feel like, is that it's always trying to do this end run around the but but but and the but but but is but the sun is covered by the moon, so isn't that safe? Yes, for the like ten seconds.
+[00:03:43] Adam: No, it’s the problem is is that everyone thinks. The problem is, I feel like, is that it's always trying to do this end run around the but but but and the but but but is but the sun is covered by the moon, so isn't that safe? Yes, for the like 10 seconds.
 
 [00:03:43] Unknown speaker (Adam or Norm): Yeah.
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:04:44] Adam: Oh yeah, they were doing pinhole cameras. And yeah,
 
-[00:04:46] Norm: and it was really cool. Just as around 9:30, nine nine to ten, just to watch people on the street, everyone kind of do their thing and observe it their own way.
+[00:04:46] Norm: and it was really cool. Just as around 9:30, 9 9 to 10, just to watch people on the street, everyone kind of do their thing and observe it their own way.
 
 [00:04:54] Adam: From my roof, looking around my particular block in the Mission, it was fun because there was like four or five people dotted around the roofs of the buildings, all doing it. Someone tweeted a photo of them and their kids, which was hilarious because they all made these oblong. Camera obscuras out of cardboard, and so it was like these three children, all giant long cardboard boxes on their heads, trying to variously aim at this particular location. It was very entertaining.
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:06:31] Norm: Really,
 
-[00:06:31] Jeremy Williams: in ten years, I think there's two right, like one year after another.
+[00:06:31] Jeremy Williams: in 10 years, I think there's two right, like one year after another.
 
 [00:06:37] Norm: I didn't realize the culture of eclipse chasing was so obsessive.
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:11:59] Jeremy Williams: Given your excellent point about automation, I'm wondering: is doing this by hand a dying art? Given as prevalent as you know, CNC mills and computer-controlled machines are becoming.
 
-[00:12:11] Adam: That's a good question. It it could be. Here's the reason I don't think it will be a dying art. Look, it certainly could be, but I don't think so. And one of the reasons is because Bridgeport milling machines are so freaking durable. Like the Bridgeport and the import type machines that are based off the Bridgeport model, there's hundreds of thousands of them, if not millions, in the U.S. The ones that I have were made in 1968. They're still fantastic and in great working order. They're like, I don't know if you've ever had an old Singer sewing machine, like a treadle-based sewing machine. But my grandmother had one, and when my mom went to sell it, they were like, " Yeah, it's worth like 200 bucks." She's like, " Really? It's original 1899." And they're like, " Yeah, they're all still around." Like these were so solidly built. There's no market for them because they're all still working.
+[00:12:11] Adam: That's a good question. It it could be. Here's the reason I don't think it will be a dying art. Look, it certainly could be, but I don't think so. And one of the reasons is because Bridgeport milling machines are so freaking durable. Like the Bridgeport and the import type machines that are based off the Bridgeport model, there's hundreds of thousands of them, if not millions, in the U.S. The ones that I have were made in 1968. They're still fantastic and in great working order. They're like, I don't know if you've ever had an old Singer sewing machine, like a treadle-based sewing machine. But my grandmother had one, and when my mom went to sell it, they were like, " Yeah, it's worth like $200." She's like, " Really? It's original 1899." And they're like, " Yeah, they're all still around." Like these were so solidly built. There's no market for them because they're all still working.
 
 [00:13:03] Jeremy Williams: Yeah,
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:14:24] Adam: No,
 
-[00:14:24] Norm: the Delrin one. When you can make six or ten all at once.
+[00:14:24] Norm: the Delrin one. When you can make 6 or 10 all at once.
 
 [00:14:30] Adam: Plus, by the way, there's two different kinds of. Actually, there's three different kinds of these.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:17:12] Norm: I am not.
 
-[00:17:30] Norm: These are the people who sell the gold-plated fifty-dollar audio home AV cables.
+[00:17:30] Norm: These are the people who sell the gold-plated $50 audio home AV cables.
 
 [00:17:35] Jeremy Williams: That’s our word.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:17:59] Adam: It's just amazing
 
-[00:17:59] Norm: for ten years. And when you went like Beats, which now Apple owns, was a monster cable product.
+[00:17:59] Norm: for 10 years. And when you went like Beats, which now Apple owns, was a monster cable product.
 
 [00:17:59] Adam: Mm-hmm.
 
@@ -458,11 +458,11 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:21:13] Norm: Wow.
 
-[00:21:13] Adam: And yeah, you know, probably the tenth time for me.
+[00:21:13] Adam: And yeah, you know, probably the 10th time for me.
 
 [00:21:13] Norm: Yeah.
 
-[00:21:13] Adam: That shot of Martin Sheen coming out of the water is literally—I can tell you—it's the shot that made me fall in love with film as an art form at seventeen. I was like, " What is happening?"
+[00:21:13] Adam: That shot of Martin Sheen coming out of the water is literally—I can tell you—it's the shot that made me fall in love with film as an art form at 17. I was like, " What is happening?"
 
 [00:21:25] Jeremy Williams: For me, that was Dream a Little Dream, a Corey Haim, Corey Feldman flick.
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:24:22] Adam: yeah. Especially watching it. So I've seen it. I've actually seen of the various cuts. I've seen one, two, three. I've seen four of the original cuts as they were released in the theater. Those famous compromise cut in the early '90s that was released here in the city in in LA. I saw that. The first director's cut and then the final director's cut.
 
-[00:24:45] Norm: There was back in that it's over ten years ago. They had that briefcase five disc set.
+[00:24:45] Norm: There was back in that it's over 10 years ago. They had that briefcase five disc set.
 
 [00:24:50] Adam: I still have that. Yeah. I still I've got some pieces of it on some of the cabinet shelves here.
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:25:19] Jeremy Williams: The final, final, final cut.
 
-[00:25:20] Adam: The thing I was most surprised about about watching that final cut because I watched the original with Harrison Ford's stilted narration at least ten times in theaters in New York in the '80s and the '90s, is when someone's not talking at you, how much more you see.
+[00:25:20] Adam: The thing I was most surprised about about watching that final cut because I watched the original with Harrison Ford's stilted narration at least 10 times in theaters in New York in the '80s and the '90s, is when someone's not talking at you, how much more you see.
 
 [00:25:37] Jeremy Williams: Hmm.
 

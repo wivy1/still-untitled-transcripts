@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:01:40] Will: Norman Chan. Good God, stop pointing that at me!
 
-[00:01:42] Adam: It's a, um, it is a, uh, this is effectively a Colt nineteen eleven frame. Um, in fact, Jules's gun from Pulp Fiction is while it looks like a forty five caliber, and he says Mister nine millimeter here.
+[00:01:42] Adam: It's a, um, it is a, uh, this is effectively a Colt 1911 frame. Um, in fact, Jules's gun from Pulp Fiction is while it looks like a .45 caliber, and he says Mister nine millimeter here.
 
 [00:01:57] Will: Yeah.
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:04:13] Will: That had to be fun.
 
-[00:04:13] Adam: My fourteen-year-olds.
+[00:04:13] Adam: My 14-year-olds.
 
 [00:04:14] Unknown speaker: Get it?
 
@@ -156,11 +156,11 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:06:48] Will: You know, the the defining characteristic of the podcast, as far as I'm concerned, is that you can't let a perfect segue go without mentioning how perfect the segue was.
 
-[00:06:56] Adam: So, uh, uh, uh, Pulp Fiction. Pulp Fiction's way up at the top of my list. Um, you know the thing I said a while back, which is that everyone's got at least fifty films in their top ten. The fact is, is Pulp Fiction's in in Pulp Fiction is not one of those fifty. It is one of the ten.
+[00:06:56] Adam: So, uh, uh, uh, Pulp Fiction. Pulp Fiction's way up at the top of my list. Um, you know the thing I said a while back, which is that everyone's got at least 50 films in their top 10. The fact is, is Pulp Fiction's in in Pulp Fiction is not one of those 50. It is one of the 10.
 
-[00:07:16] Will: Yeah, the real ten.
+[00:07:16] Will: Yeah, the real 10.
 
-[00:07:16] Adam: Yeah, the real ten. It it's so vital. It's so unique. You know, Tarantino's the formula he's been playing with for Inglourious Basterds and for Django, which is take somebody or take a group of people, take these characters who are super badass and put them in the worst situation imaginable. I love the simplicity of that as an exercise, but Pulp Fiction is a totally different plot, right?
+[00:07:16] Adam: Yeah, the real 10. It it's so vital. It's so unique. You know, Tarantino's the formula he's been playing with for Inglourious Basterds and for Django, which is take somebody or take a group of people, take these characters who are super badass and put them in the worst situation imaginable. I love the simplicity of that as an exercise, but Pulp Fiction is a totally different plot, right?
 
 [00:07:43] Will: I mean, three.
 
@@ -178,11 +178,11 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:08:29] Adam: Yeah, that stays in the movie, and Tarantino's brilliance is understanding that's all that all he needed to communicate all the rest of that conversation.
 
-[00:08:39] Will: Yeah, it's it's it's it's like a compressed version of that of that ten minute conversation. the The thing about um, the thing about movies to me is that a movie like Pulp Fiction, especially, I come back to at different times in my life, and I and I take take away completely different things.
+[00:08:39] Will: Yeah, it's it's it's it's like a compressed version of that of that 10 minute conversation. the The thing about um, the thing about movies to me is that a movie like Pulp Fiction, especially, I come back to at different times in my life, and I and I take take away completely different things.
 
 [00:08:56] Adam: Yep.
 
-[00:08:56] Will: When I first saw it, and I was twenty years old, eighteen years old, the the Jules the the part that stuck with me was the Hitman, the Hitman arc. As I get older, the Butch arc is is I I I feel for Butch. Butch has Butch has made bad choices and has had a hard life and is put in an impossible situation.
+[00:08:56] Will: When I first saw it, and I was 20 years old, 18 years old, the the Jules the the part that stuck with me was the Hitman, the Hitman arc. As I get older, the Butch arc is is I I I feel for Butch. Butch has Butch has made bad choices and has had a hard life and is put in an impossible situation.
 
 [00:09:13] Adam: But and and
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:10:42] Unknown speaker: Yeah.
 
-[00:10:42] Will: at least I get to watch Pulp Fiction while she's taking twenty minutes to make her decision. So,
+[00:10:42] Will: at least I get to watch Pulp Fiction while she's taking 20 minutes to make her decision. So,
 
 [00:10:47] Norm: So what movie influences?
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:12:45] Adam: Yes.
 
-[00:12:45] Will: As you get older, though, with few exceptions that are notable, like the, I don't think you feel anything as strongly when you are thirty five as you did when you were fifteen years old.
+[00:12:45] Will: As you get older, though, with few exceptions that are notable, like the, I don't think you feel anything as strongly when you are 35 as you did when you were 15 years old.
 
 [00:12:57] Adam: Oh, I mean, I'm not so sure about that.
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:20:59] Will: Oh, I got to think about this list. This is there's a lot of pressure there.
 
-[00:21:01] Adam: So for me, influence has happened in a few different ways. There's a kind of a cultural influence where there are characters I love, like. The Philadelphia Story is another one of those films, like Pulp Fiction, that's absolutely like bang way up at the top. I again, I probably watch it every eighteen months, and I'm talking Philadelphia Story. That's Jimmy Stewart, Katharine Hepburn, Cary Grant.
+[00:21:01] Adam: So for me, influence has happened in a few different ways. There's a kind of a cultural influence where there are characters I love, like. The Philadelphia Story is another one of those films, like Pulp Fiction, that's absolutely like bang way up at the top. I again, I probably watch it every 18 months, and I'm talking Philadelphia Story. That's Jimmy Stewart, Katharine Hepburn, Cary Grant.
 
 [00:21:25] Will: Oh, okay. I was thinking
 
@@ -522,11 +522,11 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:23:10] Unknown speaker: Well,
 
-[00:23:11] Adam: but I'm not sure I can. Yes. So there are films that are important. They're not necessarily your favorites. There are films that are perfect. Like I said, I think Raiders is a perfect movie. Galaxy Quest is a perfect movie. Um, I don't think Blade Runner is a perfect movie. I think Blade Runner has some significant flaws in it. I think its plot has some clunky chunks in it. Nonetheless, it's crazy important on a whole bunch of other levels. So my top, the reason there's fifty films in my top ten is because my top ten's broken down to a, into a bunch of categories.
+[00:23:11] Adam: but I'm not sure I can. Yes. So there are films that are important. They're not necessarily your favorites. There are films that are perfect. Like I said, I think Raiders is a perfect movie. Galaxy Quest is a perfect movie. Um, I don't think Blade Runner is a perfect movie. I think Blade Runner has some significant flaws in it. I think its plot has some clunky chunks in it. Nonetheless, it's crazy important on a whole bunch of other levels. So my top, the reason there's 50 films in my top 10 is because my top 10's broken down to a, into a bunch of categories.
 
 [00:23:43] Norm: Venn diagram.
 
-[00:23:44] Will: You're High Fidelity-ing this top ten.
+[00:23:44] Will: You're High Fidelity-ing this top 10.
 
 [00:23:45] Adam: I
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:24:04] Adam: I, I guess there might just be a generic Guillermo category where you know. Devil's Backbone, Pan's Labyrinth, and Cronos, and all those films just said.
 
-[00:24:11] Will: Yeah, Pan's Pan's Labyrinth is high on my list, but it's another one of those ones that I. It's like every ten years, maybe, because it's real grim.
+[00:24:11] Will: Yeah, Pan's Pan's Labyrinth is high on my list, but it's another one of those ones that I. It's like every 10 years, maybe, because it's real grim.
 
 [00:24:18] Adam: And then Hellboy, which again I could watch any given every any given day of the week.
 

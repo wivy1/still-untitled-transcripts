@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:01:48] Norm: Yeah, with shadows, yeah,
 
-[00:01:49] Will: it was. It was basically just the thing is in the moment you're going so fast and you're focused so hard on. A not crashing somebody else's 1,300 dollar quad, but B winning.
+[00:01:49] Will: it was. It was basically just the thing is in the moment you're going so fast and you're focused so hard on. A not crashing somebody else's $1,300 quad, but B winning.
 
 [00:01:49] Adam: Yeah,
 
@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:03:35] Norm: That's even riskier.
 
-[00:03:38] Adam: And it was cool. I mean, we got some great shots, and in fact, actually, you can see some fantastic shots from that plane. We used them in Dangerous Toys, the pilot that Jamie and I did last year. Um. And Duncan has, so eventually he took he took the the impetus he had for the plane and he put it into an octocopter, which he's been slowly upgrading and making bigger and bigger and bigger. Now he's got a really, I'd say it's like almost twenty pounds.
+[00:03:38] Adam: And it was cool. I mean, we got some great shots, and in fact, actually, you can see some fantastic shots from that plane. We used them in Dangerous Toys, the pilot that Jamie and I did last year. Um. And Duncan has, so eventually he took he took the the impetus he had for the plane and he put it into an octocopter, which he's been slowly upgrading and making bigger and bigger and bigger. Now he's got a really, I'd say it's like almost 20 pounds.
 
 [00:04:04] Will: Yeah, he was he was working on it when we were there to shoot the Ebola PSA, I think. And it was, I mean, it is a it is a big monster that you can put a real camera on. Yeah. He said he has good good linger time and all that stuff.
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:04:49] Norm: They're learning how to use these well.
 
-[00:05:17] Will: It's like any other tool of of film, right? Like it took it took ten years before we learned how to use the crash zoom and and you know stuff like that.
+[00:05:17] Will: It's like any other tool of of film, right? Like it took it took 10 years before we learned how to use the crash zoom and and you know stuff like that.
 
 [00:05:25] Adam: And it's it's one of the things Duncan and I were talking about. He said he wanted to make one that was that was that had a payload large enough to be able to handle a red camera. And I thought about that overnight. I thought, well, first I thought that's really cool because you know red is a cinema cinema quality ready camera. Then I realized you don't need to put a red on that. You you don't need to make it any heavier, any more of a payload than can hold a Blackmagic with a nice prime lens on it. First of all, because you're almost 99% of what you're going to do is in daylight. Second of all, if you're if it's a flying shot, it's a master shot, which means you're not going to use more than four or five seconds of it at the most. Right. So with the Blackmagic at daylight, that's where it shines.
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:14:17] Will: So Norm alluded to you. You guys, you've changed the way you're shooting the show. You're showing a
 
-[00:14:22] Adam: oh right sorry so that's when we talked about the camera crew. One of the things that we we went to them and said you know what what kind of things could we do to get a different look, and understand if camera is your passion, you're reading and inculcating yourself with your favorite cameraman, your favorite movies. So they wanted and we wanted to give the show a different look, and the look was much more cinematic. And by that I mean specifically more bokeh, more depth of field, and that means where the foreground elements are in focus and the background isn't. Now that's anathema to standard reality television, where those Sony cameras those guys wear over their hold on their shoulders. The lens is more expensive than the camera. It's like a 50,000 dollar lens, and it's that expensive because it's incredibly good in low light, fast focus, fast iris change, and you want that. You don't want something to happen in the background, and then you've got to zoom in, focus, and iris to get it right. It automates stuff like that for you. But on MythBusters, where we're setting up shots of the car driving by, we don't have to use infinite focus GoPros and those a cameras. We can use Blackmagics with primes. We can use much more.
+[00:14:22] Adam: oh right sorry so that's when we talked about the camera crew. One of the things that we we went to them and said you know what what kind of things could we do to get a different look, and understand if camera is your passion, you're reading and inculcating yourself with your favorite cameraman, your favorite movies. So they wanted and we wanted to give the show a different look, and the look was much more cinematic. And by that I mean specifically more bokeh, more depth of field, and that means where the foreground elements are in focus and the background isn't. Now that's anathema to standard reality television, where those Sony cameras those guys wear over their hold on their shoulders. The lens is more expensive than the camera. It's like a $50,000 lens, and it's that expensive because it's incredibly good in low light, fast focus, fast iris change, and you want that. You don't want something to happen in the background, and then you've got to zoom in, focus, and iris to get it right. It automates stuff like that for you. But on MythBusters, where we're setting up shots of the car driving by, we don't have to use infinite focus GoPros and those a cameras. We can use Blackmagics with primes. We can use much more.
 
 [00:15:32] Will: FS700 or
 
@@ -352,9 +352,9 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:17:43] Will: And hours.
 
-[00:17:55] Will: I assume what, like ten or twelve hours, twenty hours, probably.
+[00:17:55] Will: I assume what, like 10 or 12 hours, 20 hours, probably.
 
-[00:17:58] Adam: Well, it depends. On of main camera footage and second camera coverage, it's probably not a ton. But when you talk about ten GoPros and Blackmagics placed all over the Alameda runway, each is rolling for its full battery or SD card of footage. Sometimes we we we we hone that before sending it. But sometimes we run out of time, and someone's just got to sift through it.
+[00:17:58] Adam: Well, it depends. On of main camera footage and second camera coverage, it's probably not a ton. But when you talk about 10 GoPros and Blackmagics placed all over the Alameda runway, each is rolling for its full battery or SD card of footage. Sometimes we we we we hone that before sending it. But sometimes we run out of time, and someone's just got to sift through it.
 
 [00:17:58] Norm: Wow!
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:22:34] Adam: There's no like every shots every shot tells a story. That's the key when you're filming stuff. It's not just oh, there's R2-D2’s head. It's R2-D2’s head within the cave. I'm just looking at the shot that I'm seeing here, and the cameraman has to choose a point of view, and that point of view will make the shot interesting or not.
 
-[00:23:13] Will: So the other thing that changed in the ten, twelve years since you guys started MythBusters is everybody went from having standard def TVs to high def TVs. Yeah. And I know you guys went to high def what probably six, seven years ago. Seems like now
+[00:23:13] Will: So the other thing that changed in the 10, 12 years since you guys started MythBusters is everybody went from having standard def TVs to high def TVs. Yeah. And I know you guys went to high def what probably six, seven years ago. Seems like now
 
 [00:23:25] Adam: I can't quite remember now, but yes. No, everything's on high def.
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:24:19] Will: Yeah,
 
-[00:24:19] Will: the camera always punks out. Like that's the thing we found is if you leave the phone connected, thirty minutes is that hard limit.
+[00:24:19] Will: the camera always punks out. Like that's the thing we found is if you leave the phone connected, 30 minutes is that hard limit.
 
 [00:24:26] Adam: Yeah.
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:26:01] Will: Because you were kind of taking shortcuts, maybe not shortcuts, but definitely sawing off the rounded rounding the corners and stuff like that.
 
-[00:26:24] Adam: So and actually, that approach led to two completely new ways of testing myths this season. In a couple of weeks, we have an A team special. Now, in the A team, they were always finding themselves like, ah, we're in the lumberyard and the bad guys are coming. We've only got forty-five minutes. What are we gonna do? Let's build a weapon out of what's here. So they built.
+[00:26:24] Adam: So and actually, that approach led to two completely new ways of testing myths this season. In a couple of weeks, we have an A team special. Now, in the A team, they were always finding themselves like, ah, we're in the lumberyard and the bad guys are coming. We've only got 45 minutes. What are we gonna do? Let's build a weapon out of what's here. So they built.
 
 [00:26:44] Will: non-lethal weapon, of course.
 
@@ -556,7 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:28:34] Adam: That was really awesome because we presented ourselves with the same challenge. It's a totally different way of philosophically looking at the story. And when we were talking about it, realized there's no downside to this. If we nail it. Well, that's awesome. But if we don't, and we look, we got this second beat. We can go and try his version and see how that works.
 
-[00:28:52] Will: And it leans on the expertise you've built over the last twelve years.
+[00:28:52] Will: And it leans on the expertise you've built over the last 12 years.
 
 [00:28:52] Adam: Yes.
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:29:48] Will: Yeah, that was pretty amazing.
 
-[00:29:48] Adam: I was really shocked. And our our associate producer Eric Haven, who is the genius at finding stuff, we really tasked him with the worst thing ever, which was find us two houses to destroy. And that's why we had to build those because we looked we looked everywhere within a thousand mile radius of MythBusters.
+[00:29:48] Adam: I was really shocked. And our our associate producer Eric Haven, who is the genius at finding stuff, we really tasked him with the worst thing ever, which was find us two houses to destroy. And that's why we had to build those because we looked we looked everywhere within a 1,000 mile radius of MythBusters.
 
 [00:29:48] Will: Wow.
 

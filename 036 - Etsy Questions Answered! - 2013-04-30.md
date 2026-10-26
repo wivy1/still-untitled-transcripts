@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:00:28] Adam: I purchase stuff from Etsy all the time.
 
-[00:00:31] Will: It's, it's, it's one of those ideas. I really am bummed that I wasn't bright enough to come up with that about ten years ago because it's super obvious now and it's a, it's a, it's a big deal.
+[00:00:31] Will: It's, it's, it's one of those ideas. I really am bummed that I wasn't bright enough to come up with that about 10 years ago because it's super obvious now and it's a, it's a, it's a big deal.
 
 [00:00:40] Norm: My idea was Google.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:02:11] Adam: Yeah, exactly.
 
-[00:02:12] Adam: It's really really cool. I, I, I'm—it's, it's gorgeous. I'm very excited about the Google, about the autonomous car. I think that our kids, I think that in twenty or thirty years most major currently congested downtowns of major cities won't allow non-autonomous cars.
+[00:02:12] Adam: It's really really cool. I, I, I'm—it's, it's gorgeous. I'm very excited about the Google, about the autonomous car. I think that our kids, I think that in 20 or 30 years most major currently congested downtowns of major cities won't allow non-autonomous cars.
 
 [00:02:32] Will: Yeah.
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:02:33] Norm: That's the only way it would work.
 
-[00:02:34] Adam: Yeah, you'll have to cede your control of your car when you enter a downtown area so that the traffic planners can actually plot delivery traffic and make it run really smoothly. We'll all still be able to control our cars for—honestly, the idea of cars just driving you from one place to another, that's like a hundred years away.
+[00:02:34] Adam: Yeah, you'll have to cede your control of your car when you enter a downtown area so that the traffic planners can actually plot delivery traffic and make it run really smoothly. We'll all still be able to control our cars for—honestly, the idea of cars just driving you from one place to another, that's like 100 years away.
 
 [00:02:52] Will: Yeah.
 
@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:02:57] Adam: But—
 
-[00:02:57] Will: People said that a hundred years ago about people always wanting to ride their horses too. So, you know—
+[00:02:57] Will: People said that 100 years ago about people always wanting to ride their horses too. So, you know—
 
 [00:03:02] Adam: At the same time, I think that I feel like culturally the desire to drive your own car is so ingrained in us it will take three or four generations to really weed it out. Plus, you've got that last mile of, you know, all the rural communities throughout the world. But really—
 
@@ -172,9 +172,9 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:07:24] Will: yeah,
 
-[00:07:24] Adam: um, and came up with some questions. Ten questions,
+[00:07:24] Adam: um, and came up with some questions. 10 questions,
 
-[00:07:28] Will: I believe. Ten, although I don't know that we'll get to all of them.
+[00:07:28] Will: I believe. 10, although I don't know that we'll get to all of them.
 
 [00:07:31] Adam: Well, we, we go a little long today.
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:08:11] Norm: Oh.
 
-[00:08:11] Will: And thus you got to watch high-speed Chloe on the last episode of the second to last episode of the show. Anyway, I built a timer so that we won't have to do that in the future, uh, and that it just stops at thirty minutes. It says, "Hey, stop, stop talking."
+[00:08:11] Will: And thus you got to watch high-speed Chloe on the last episode of the second to last episode of the show. Anyway, I built a timer so that we won't have to do that in the future, uh, and that it just stops at 30 minutes. It says, "Hey, stop, stop talking."
 
 [00:08:23] Norm: But the Etsy questions,
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:08:53] Will: The most asked question by far was a surprise. Many people wanted to know how Adam browses Etsy. How do you browse? Do you start at the homepage? Do you use keywords? Are you looking at categories, colors? Um, when you're looking around on Etsy, what are the sorts of things that really stand out to you about a seller or their store?
 
-[00:09:10] Adam: That's great. Um, I want to start from the beginning and say Etsy's practice of, and I don't know whether they do this daily or hourly or what the protocol is, of grouping things together on the homepage of like nine or twelve things that you can see when you go to Etsy first, and they're generally of a similar color or a similar attitude or shape.
+[00:09:10] Adam: That's great. Um, I want to start from the beginning and say Etsy's practice of, and I don't know whether they do this daily or hourly or what the protocol is, of grouping things together on the homepage of like 9 or 12 things that you can see when you go to Etsy first, and they're generally of a similar color or a similar attitude or shape.
 
 [00:09:32] Will: It's like, it's like a—I think of it as a game, is like how, why are these things connected? And usually it's color, but usually it's—
 
@@ -268,13 +268,13 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:11:14] Will: Yeah, I'm usually the other way, Adam.
 
-[00:11:15] Adam: I—what I find is that the sorting by the highest price first. I don't do that because I want to spend the most money. I do that because I tend to find, you tend to find the the the most robust product at that highest price, and it gives you an idea about the spectrum. And when you sort by lowest price on eBay, what you've got is like four thousand like things that cost three cents.
+[00:11:15] Adam: I—what I find is that the sorting by the highest price first. I don't do that because I want to spend the most money. I do that because I tend to find, you tend to find the the the most robust product at that highest price, and it gives you an idea about the spectrum. And when you sort by lowest price on eBay, what you've got is like 4,000 like things that cost $0.03.
 
 [00:11:41] Will: Right. If you if you're searching for camera stuff, then it'll be the screw that you use to hold the camera on the tripod.
 
 [00:11:45] Adam: Exactly. So the noise to signal ratio, searching low to high, is is unfortunately—
 
-[00:11:50] Will: thirty two pages. You're at five dollars.
+[00:11:50] Will: 32 pages. You're at $5.
 
 [00:11:51] Adam: Um.
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:27:26] Will: Mm-hmm.
 
-[00:27:26] Adam: And culturally, when I was a kid, science was the was the field that you would refer to to talk about the opposite of creativity. It was just people making lists and stuff like that. But I think that people are understanding now, with the communities that the web engenders, that science is both is very creative. You also have Sorry, I just lost my train of thought. I started thinking about I started thinking about communities of scientists doing art. I mean, that's that's the other one is you have a lot of wonderful art over the past twenty years, based deeply and in embedded deeply in science
+[00:27:26] Adam: And culturally, when I was a kid, science was the was the field that you would refer to to talk about the opposite of creativity. It was just people making lists and stuff like that. But I think that people are understanding now, with the communities that the web engenders, that science is both is very creative. You also have Sorry, I just lost my train of thought. I started thinking about I started thinking about communities of scientists doing art. I mean, that's that's the other one is you have a lot of wonderful art over the past 20 years, based deeply and in embedded deeply in science
 
 [00:28:09] Will: and math. Yeah,
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:28:39] Will: Yeah,
 
-[00:28:39] Adam: science and art are both relatively inexpensive hobbies. There's a girl in Berkeley ten or fifteen years ago who, as her science fair project. Decided to find out how accurate the mechanical timers in Berkeley's parking meters were. Now Berkeley had rejected actually testing this themselves, saying the study would cost them umpteen hundreds of thousands of dollars. And she actually did it herself in a few weeks and showed that the that the mechanical timers in Berkeley's parking meters were all set slightly too fast. So
+[00:28:39] Adam: science and art are both relatively inexpensive hobbies. There's a girl in Berkeley 10 or 15 years ago who, as her science fair project. Decided to find out how accurate the mechanical timers in Berkeley's parking meters were. Now Berkeley had rejected actually testing this themselves, saying the study would cost them umpteen hundreds of thousands of dollars. And she actually did it herself in a few weeks and showed that the that the mechanical timers in Berkeley's parking meters were all set slightly too fast. So
 
 [00:29:10] Will: Oh, you're so you so they were. So
 
@@ -538,11 +538,11 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:29:31] Adam: a phrase that Alexander Jason, who has become an honorary MythBuster, he's our ballistics expert. We've used him on about a dozen episodes over the years. He gave me this phrase, and I told him immediately after I heard it, I'm stealing it. I'm going to say it as often as I can. The only difference between science and screwing around is writing down the results in your notebook. And you know, to somebody who's who thinks that they're interested in science, the fact—the moment you start actually gathering data and being able to compare something that you've done to something else that you've done—you're a scientist. That's you are you are doing science. You are you are looking at data and you are comparing it to stuff that is, and it's thrilling when you actually do.
 
-[00:30:10] Will: Well, and and the thing, the other thing you said about fostering and like pay attention to what your kids are interested in and foster those interests. I mean, my parents did that for you from talking to your mom. Your mom absolutely, your parents absolutely did that for you. If you figure out if you figure out the things that they're into, and it's going to change a ton because what I was interested when I was ten years old was completely different than what I was interested when I was eight years old. But but they found activities and stuff that we could do that would kind of encourage that behavior, and eventually I found the stuff that I wanted to do on my own, and I ended up someplace that was right for me, and and I have a lot of faith that that happens if if you if if you apply yourself and are smart and and Really, just apply yourself.
+[00:30:10] Will: Well, and and the thing, the other thing you said about fostering and like pay attention to what your kids are interested in and foster those interests. I mean, my parents did that for you from talking to your mom. Your mom absolutely, your parents absolutely did that for you. If you figure out if you figure out the things that they're into, and it's going to change a ton because what I was interested when I was 10 years old was completely different than what I was interested when I was eight years old. But but they found activities and stuff that we could do that would kind of encourage that behavior, and eventually I found the stuff that I wanted to do on my own, and I ended up someplace that was right for me, and and I have a lot of faith that that happens if if you if if you apply yourself and are smart and and Really, just apply yourself.
 
 [00:30:49] Adam: Agreed. You know, the other thing I would say, and here is where being a child is antithetical to being a scientist. When you are a kid, one of the first things that happens, and it starts to happen around middle school, is you you you must know everything. That hungry child's brain wants to know everything, and you start extrapolating. You find out that you can extrapolate, and so it's very exciting for you. But you don't know everything. And if you are a kid and you think you are interested in science, you need to know that you don't know anything. You need to know that everything you think right now, five years from now, you are going to think, " What an idiot I was!" Five years from now, everything you think you are probably wrong about most of it. I have found this consistently in my whole life. I look back at myself five years ago. Nope, you were wrong about that. You were wrong about that. You were wrong about
 
-[00:31:35] Will: Twenty-two-year-old me was a real idiot.
+[00:31:35] Will: 22-year-old me was a real idiot.
 
 [00:31:37] Norm: to look forward to.
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:32:59] Will: Do you do you when you're doing that stuff? Do you stick to water-based, you know, highly viscous stuff?
 
-[00:33:04] Adam: Yeah. Well, actually, for that, it was just simply cost. I mean, guar gum is not cheap, and you know, mixing up ten or twenty thousand gallons of it is expensive. Yeah. Better get it right.
+[00:33:04] Adam: Yeah. Well, actually, for that, it was just simply cost. I mean, guar gum is not cheap, and you know, mixing up 10,000 or 20,000 gallons of it is expensive. Yeah. Better get it right.
 
 [00:33:12] Will: Yeah.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:33:31] Norm: Eggs.
 
-[00:33:32] Adam: Oh, gross! That would be awful. Jamie would be so mad if we wasted, you know, a hundred thousand eggs.
+[00:33:32] Adam: Oh, gross! That would be awful. Jamie would be so mad if we wasted, you know, 100,000 eggs.
 
 [00:33:37] Will: Well, you'd probably—
 

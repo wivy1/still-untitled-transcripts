@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:01:30] Adam: And the thing is, is that you, you, you are a scientist, and you have a lab in Mission Bay. But the thing that I love talking about all things with you is that while you're while you have a specialty, you're also a very wide ranging generalist.
 
-[00:01:46] Joe: Yeah, absolutely. I mean, I I admire the scientists that can really drill down and work on one little thing for forty years. I mean, there's an important place for those kind of people, but I just get interested in a lot of different things. You know, if someone sends me a dead corvid. I'm gonna work on it.
+[00:01:46] Joe: Yeah, absolutely. I mean, I I admire the scientists that can really drill down and work on one little thing for 40 years. I mean, there's an important place for those kind of people, but I just get interested in a lot of different things. You know, if someone sends me a dead corvid. I'm gonna work on it.
 
 [00:02:02] Adam: That's exactly my thing. I love dead cor— I actually i love live corvids, but if I can find an old dead one, I certainly will remount it.
 
@@ -72,9 +72,9 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:02:39] Adam: terrible advice!
 
-[00:02:40] Will: And and yeah, like his his whole the whole approach of everything I got as an undergraduate was look, you need to figure out what you're gonna do and then devote thirty or forty years to that and really dig in.
+[00:02:40] Will: And and yeah, like his his whole the whole approach of everything I got as an undergraduate was look, you need to figure out what you're gonna do and then devote 30 or 40 years to that and really dig in.
 
-[00:02:50] Joe: Yeah, I really find that to be a sort of bad attitude. I mean, there's a lot of people who are generalists and want to do a lot of different things and explore a lot of different areas of science, and you know, you shouldn't try and put those people in a box and make everybody work on something for forty years. There are those people who can do that and focus on one tiny thing for their entire career. That's great. We're lucky to have them.
+[00:02:50] Joe: Yeah, I really find that to be a sort of bad attitude. I mean, there's a lot of people who are generalists and want to do a lot of different things and explore a lot of different areas of science, and you know, you shouldn't try and put those people in a box and make everybody work on something for 40 years. There are those people who can do that and focus on one tiny thing for their entire career. That's great. We're lucky to have them.
 
 [00:03:10] Will: Yeah,
 
@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:03:57] Joe: Yeah, sure. You know, I I just like having fun. You know, there's going to be fun things to work on. Something that interests me or catches my attention, I'm just going to do it because I I find it interesting. Want to Go where my curiosity goes, and that's what I tell my students. Right, you know, if you are not having fun coming in here and doing this, you are not chasing your own passion or curiosity. You shouldn't be here.
 
-[00:04:17] Will: I mean, that was the one good piece of advice my advisor gave me. In fairness, he was like, " Look, find something you think is fun. Go do that for forty years." So, anyway, yeah, it's the but finding the thing that's fun is the important part. It seems like to me, the people I know who work in science, whether it's in private or private industry or in public labs, are are people who are driven by gaining that knowledge.
+[00:04:17] Will: I mean, that was the one good piece of advice my advisor gave me. In fairness, he was like, " Look, find something you think is fun. Go do that for 40 years." So, anyway, yeah, it's the but finding the thing that's fun is the important part. It seems like to me, the people I know who work in science, whether it's in private or private industry or in public labs, are are people who are driven by gaining that knowledge.
 
 [00:04:38] Joe: Yeah, have I ever told you about the snakes?
 
@@ -238,11 +238,11 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:09:50] Will: what what is super cheap?
 
-[00:09:52] Joe: The cost has decreased about fifty thousand fold in the last ten years.
+[00:09:52] Joe: The cost has decreased about 50,000 fold in the last 10 years.
 
 [00:09:55] Will: So in what the '90s, we spent a few billion dollars doing it for one person.
 
-[00:09:59] Joe: 10,000,000,000 dollars for the first human genome in ten years. You can do it in less than twenty four hours for less than a thousand dollars.
+[00:09:59] Joe: $10 billion for the first human genome in 10 years. You can do it in less than 24 hours for less than $1,000.
 
 [00:10:05] Adam: Wow.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:10:17] Will: We have a lot of big computers with GPUs and stuff in there doing that stuff.
 
-[00:10:20] Joe: Got about a thousand cores in my lab.
+[00:10:20] Joe: Got about 1,000 cores in my lab.
 
 [00:10:21] Will: Nice.
 
@@ -674,7 +674,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:24:43] Will: This is it's a good thing that snakes sleep at this point.
 
-[00:24:45] Adam: Dungeon master in history. What do you roll for the cardiac puncture? It's a triple twenty.
+[00:24:45] Adam: Dungeon master in history. What do you roll for the cardiac puncture? It's a triple 20.
 
 [00:24:54] Joe: So you hold the tube on both sides, and then the person like takes the syringe and has to like then inject it in the in the heart. Now, so we we brought this we brought the vial of virus which we prepared very carefully at UCSF and packaged in protective stuff and everything. We brought it to this really cool room where we're doing all this, and and the and the.
 
@@ -692,7 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:25:40] Adam: No, that's cool. Who knows? This is
 
-[00:25:41] Joe: that's she just flicked a billion viral particles into the air.
+[00:25:41] Joe: that's she just flicked 1 billion viral particles into the air.
 
 [00:25:44] Adam: That's the that's the shift between Act One and Act Two of the scariest movie. Yeah, yeah.
 
@@ -938,7 +938,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:32:20] Adam: What is the timeline from beginning to end of that story? How long did that take? Was that
 
-[00:32:26] Will: forty years, Adam? That's way too long. Have you been paying attention?
+[00:32:26] Will: 40 years, Adam? That's way too long. Have you been paying attention?
 
 [00:32:29] Joe: Well, start to finish, it's more like
 
@@ -958,7 +958,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:32:54] Adam: What could go wrong?
 
-[00:32:55] Joe: Exactly. So they breed weird color morphs, and they they sell them for lots of money, and they bring in like wild snakes, and they and and they. Have these? Basically, there are reports of some of these facilities that have like ten thousand snakes in them.
+[00:32:55] Joe: Exactly. So they breed weird color morphs, and they they sell them for lots of money, and they bring in like wild snakes, and they and and they. Have these? Basically, there are reports of some of these facilities that have like 10,000 snakes in them.
 
 [00:33:09] Adam: Oh my god!
 
@@ -972,7 +972,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:33:42] Joe: Like if you wanted to create a brand new hemorrhagic fever virus and do it from you know the raw materials, you don't have to have like a bioengineering lab. Just a snake breeding farm
 
-[00:33:51] Will: ten thousand snakes
+[00:33:51] Will: 10,000 snakes
 
 [00:33:53] Will: sounds really great.
 
@@ -1016,9 +1016,9 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:34:57] Will: Yeah, I’m glad I knew this before we signed up for this.
 
-[00:35:02] Adam: What is the maximum distance from that it's got to be like twenty feet.
+[00:35:02] Adam: What is the maximum distance from that it's got to be like 20 feet.
 
-[00:35:05] Will: Oh. It fills the whole room in like ten minutes.
+[00:35:05] Will: Oh. It fills the whole room in like 10 minutes.
 
 [00:35:08] Adam: Absolutely horrifying.
 
@@ -1074,7 +1074,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:38:50] Will: yeah. Like, look, this is shock radio. This is what we do now.
 
-[00:38:53] Joe: I'll have to do it without pictures or slides. This will be a challenge for me. All right. So you know, this all started with a a seventy-four old woman here in San Francisco that came to the Chinese hospital with what looked like a UTI infection. She had a little altered mental status. They gave her a Z pack, sent her on her way. But then a couple days later, she has complete blindness in one eye, but no wound, just. Vision stopped in one eye.
+[00:38:53] Joe: I'll have to do it without pictures or slides. This will be a challenge for me. All right. So you know, this all started with a a 74 old woman here in San Francisco that came to the Chinese hospital with what looked like a UTI infection. She had a little altered mental status. They gave her a Z pack, sent her on her way. But then a couple days later, she has complete blindness in one eye, but no wound, just. Vision stopped in one eye.
 
 [00:39:13] Unknown (Adam or Will): Wow.
 
@@ -1082,7 +1082,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:39:43] Unknown (Adam or Will): Wow.
 
-[00:39:43] Joe: They hit the emergency red button. They throw her on 150 thousand dollars of antibiotics, basically, you know, anti parasitics, anti TB, antibacterials. I mean, you name it, just boom. And they do an MRI, and the MRI looks as like a grenade went off in her brain.
+[00:39:43] Joe: They hit the emergency red button. They throw her on $150,000 of antibiotics, basically, you know, anti parasitics, anti TB, antibacterials. I mean, you name it, just boom. And they do an MRI, and the MRI looks as like a grenade went off in her brain.
 
 [00:40:00] Unknown (Adam or Will): Whoa.
 
@@ -1210,7 +1210,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:44:07] Will: Yeah. God. Hat you? Oh no! The sneeze of doom.
 
-[00:44:14] Joe: And and then we. We basically there's about you know two thousand seven hundred drugs that are either European or U.S. approved, and we threw them at it. And basically, there was one an old UTI drug,
+[00:44:14] Joe: And and then we. We basically there's about you know 2,700 drugs that are either European or U.S. approved, and we threw them at it. And basically, there was one an old UTI drug,
 
 [00:44:25] Will: Hmm.
 
@@ -1290,7 +1290,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:48:23] Unknown (Joe or Will): [He’s from Nicaragua / He’s got a microcancer degree—wording uncertain].
 
-[00:48:23] Will: Yeah, but it's twenty years old. It's useless.
+[00:48:23] Will: Yeah, but it's 20 years old. It's useless.
 
 [00:48:26] Joe: Nicaragua, so eight years ago.
 
@@ -1312,7 +1312,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:48:45] Will: No brain fungus then.
 
-[00:48:46] Joe: So about fifty or sixty diagnostics go out, all negative.
+[00:48:46] Joe: So about 50 or 60 diagnostics go out, all negative.
 
 [00:48:49] Will: I have no idea. So I am not a doctor.
 
@@ -1414,21 +1414,21 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:51:58] Joe: just actually figure it out from the data, unbiased, hypothesis-free.
 
-[00:52:03] Will: When a thousand bucks for the for the for the to do the the genome sequencing seems expensive, until you think about what the other thirty five tests that somebody would get.
+[00:52:03] Will: When $1,000 for the for the for the to do the the genome sequencing seems expensive, until you think about what the other 35 tests that somebody would get.
 
-[00:52:10] Joe: The Balamuthia patient, her hospital bill was well north of a million dollars.
+[00:52:10] Joe: The Balamuthia patient, her hospital bill was well north of $1 million.
 
 [00:52:15] Will: Yeah.
 
 [00:52:15] Joe: Wow.
 
-[00:52:15] Joe: And you know, 150,000 dollars of antibiotics, none of which work against amoebas.
+[00:52:15] Joe: And you know, $150,000 of antibiotics, none of which work against amoebas.
 
 [00:52:20] Will: Mm hmm.
 
 [00:52:20] Joe: So knowing just knowing what the cause is gives you a chance to actually try something.
 
-[00:52:25] Adam: So is there anyone that’s building this into a viable business model, a hundred computer cores to devote to any one of these.
+[00:52:25] Adam: So is there anyone that’s building this into a viable business model, 100 computer cores to devote to any one of these.
 
 [00:52:30] Joe: Yeah.
 
@@ -1454,7 +1454,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:53:23] Will: Right.
 
-[00:53:23] Joe: And so, you know, the science fiction story of the million-year-old virus thawing and then, you know, immediately being able to infect a human—I'm not so sure about that.
+[00:53:23] Joe: And so, you know, the science fiction story of the 1 million-year-old virus thawing and then, you know, immediately being able to infect a human—I'm not so sure about that.
 
 [00:53:33] Adam: After, after, so this is the the big philosophical question. Do you end up feeling? I look at the tenacity of these organisms, and that fascinates me. And it it joins this other part of fascination I have for extremophiles that, like, you look at the most hostile places on Earth, and you're going to find it teeming with life.
 
@@ -1478,7 +1478,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:54:10] Adam: Oh yeah.
 
-[00:54:10] Joe: So I mean, you know, we just did a we just did a little short survey in Uganda not recently of just kids with fever without malaria. We plucked a few new viruses right off the tree, right off the bat from mosquito-borne virus. You do not have to look far or thaw fifty-thousand-year-old ice to find some evil stuff.
+[00:54:10] Joe: So I mean, you know, we just did a we just did a little short survey in Uganda not recently of just kids with fever without malaria. We plucked a few new viruses right off the tree, right off the bat from mosquito-borne virus. You do not have to look far or thaw 50,000-year-old ice to find some evil stuff.
 
 [00:54:27] Adam: Wow.
 
@@ -1502,7 +1502,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:55:11] Joe: So you know this idea of using an unbiased approach, a data-driven approach to capture things—that's great. You live in you know California or the United States, you can send a sample there. I mean, that's well and fine. And it's kind of a you know, it is an expensive test. It's not going to be a cheap diagnostic that can go around the world. But
 
-[00:55:28] Will: like, I had a face rash a few years ago, and we spent 10,000 dollars.
+[00:55:28] Will: like, I had a face rash a few years ago, and we spent $10,000.
 
 [00:55:31] Joe: Yeah, okay.
 
@@ -1666,9 +1666,9 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:00:07] Will: Yeah,
 
-[01:00:07] Joe: and it's going to take about twenty years of constant passaging. We'll evolve something.
+[01:00:07] Joe: and it's going to take about 20 years of constant passaging. We'll evolve something.
 
-[01:00:11] Will: So what is that like twenty thousand generations or millions of generations?
+[01:00:11] Will: So what is that like 20,000 generations or millions of generations?
 
 [01:00:14] Joe: Lots and lots and lots.
 
@@ -1712,7 +1712,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:03:41] Joe: through Ancestry,
 
-[01:03:42] Will: yeah, through Ancestry and stuff like like like is this a good thing? I mean, when I asked my doctor about DNA tests, he's like, " Don't we're good? You know, the twenty three and Me doesn't provide any actionable information or whatever on
+[01:03:42] Will: yeah, through Ancestry and stuff like like like is this a good thing? I mean, when I asked my doctor about DNA tests, he's like, " Don't we're good? You know, the 23andMe doesn't provide any actionable information or whatever on
 
 [01:03:54] Adam: well. Now it turns out that even if you or I, as white, relatively European males, even if we don't get sequenced, so many. Of us have been sequenced, you could find us.
 
@@ -1730,7 +1730,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:04:50] Will: Okay.
 
-[01:04:50] Joe: So the more linking of that, the better the information becomes. So we're at the early days, obviously, but as you know, millions of people get sequenced and their clinical data gets linked to those records, then we learn. Oh wait, this this combination of five or fifteen things. Really is important.
+[01:04:50] Joe: So the more linking of that, the better the information becomes. So we're at the early days, obviously, but as you know, millions of people get sequenced and their clinical data gets linked to those records, then we learn. Oh wait, this this combination of 5 or 15 things. Really is important.
 
 [01:05:06] Adam: To a certain extent, you’re helping build the large database.
 
@@ -1800,7 +1800,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:08:20] Adam: Okay.
 
-[01:08:20] Joe: But the grant gets you the sequencer supplies for sequencing samples for eighteen months, free compute and storage, engineering support, and training here in California.
+[01:08:20] Joe: But the grant gets you the sequencer supplies for sequencing samples for 18 months, free compute and storage, engineering support, and training here in California.
 
 [01:08:30] Adam: And then put you back.
 

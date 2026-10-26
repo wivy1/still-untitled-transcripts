@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=VIRyVepJcH4
 
 [00:02:53] Will: And so I did that, and I investigated some tools, and this PanoEdit thing turns out to be pretty. I think there's a post about it on the site from ages ago. But you fed a whole bunch of pictures, and you kind of laid them out in the right places, and then it just made everything match up, which was really cool, I thought, even though some of them were taken from, from slightly different perspectives.
 
-[00:03:09] Norm: When you talk about stitching, there's actually a really cool process that people use to take small sensor cameras, and if you take like thirty photos, you can actually make it look like a large format photograph.
+[00:03:09] Norm: When you talk about stitching, there's actually a really cool process that people use to take small sensor cameras, and if you take like 30 photos, you can actually make it look like a large format photograph.
 
 [00:03:18] Adam: Well, all right. So where were we at? You...
 
@@ -122,7 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=VIRyVepJcH4
 
 [00:04:18] Adam: Right, right, right.
 
-[00:04:19] Will: And I understand why they do it, but you're right; it's lame, and you're much better off just taking ten pictures yourself and like rotating around a point,
+[00:04:19] Will: And I understand why they do it, but you're right; it's lame, and you're much better off just taking 10 pictures yourself and like rotating around a point,
 
 [00:04:25] Adam: yeah,
 
@@ -228,11 +228,11 @@ Episode URL: https://www.youtube.com/watch?v=VIRyVepJcH4
 
 [00:07:45] Adam: And this is a famous episode of Firefly where Jayne, who is the warmongering tough guy,
 
-[00:07:51] Will: there's only thirteen.
+[00:07:51] Will: there's only 13.
 
 [00:07:52] Adam: On what?
 
-[00:07:53] Will: There's only thirteen episodes. They're all famous episodes,
+[00:07:53] Will: There's only 13 episodes. They're all famous episodes,
 
 [00:07:55] Adam: right? But, but. This is, this is the episode where Jayne, the, the warmongering tough guy, gets this goofy hat from his mom or his grandmother.
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=VIRyVepJcH4
 
 [00:11:38] Adam: They don't like their names to become generic household. Yeah. Scotch tape, all those things. They don't like that.
 
-[00:11:42] Will: Google had a whole campaign almost ten years ago now about that. Basically, the upshot was if you are writing about Google in print, do not use the word Google as a verb, meaning to search for things on the internet.
+[00:11:42] Will: Google had a whole campaign almost 10 years ago now about that. Basically, the upshot was if you are writing about Google in print, do not use the word Google as a verb, meaning to search for things on the internet.
 
 [00:11:53] Norm: Right. You would think that that's that's counterintuitive because you would think that they want to have a monopoly.
 
@@ -298,13 +298,13 @@ Episode URL: https://www.youtube.com/watch?v=VIRyVepJcH4
 
 [00:12:09] Will: Well, but. oh, go ahead.
 
-[00:12:10] Adam: I guess my thing is is that the idea of 20th century Fox coming in and shutting down these sites that make Jayne hats is is it's a great example of where to start talking about fair use and fan outreach. And one of the examples I'll give is Lucasfilm. Lucasfilm is a fantastic example of a company that really does understand its brand and its fans. They they support the Artoo D2 Builders Group and the Stormtrooper, the Five Hundred First Legions. They don't support them by giving them things, but they understand that they're out there and they don't stop them from doing what they're doing.
+[00:12:10] Adam: I guess my thing is is that the idea of 20th century Fox coming in and shutting down these sites that make Jayne hats is is it's a great example of where to start talking about fair use and fan outreach. And one of the examples I'll give is Lucasfilm. Lucasfilm is a fantastic example of a company that really does understand its brand and its fans. They they support the Artoo D2 Builders Group and the Stormtrooper, the 501st Legions. They don't support them by giving them things, but they understand that they're out there and they don't stop them from doing what they're doing.
 
-[00:12:51] Will: Well, and they include them in official events, too. Like the Five Hundred First is charity stuffs and all sorts of things.
+[00:12:51] Will: Well, and they include them in official events, too. Like the 501st is charity stuffs and all sorts of things.
 
 [00:12:56] Adam: In fact, yeah, so. They, and I do believe, you know, I don't have any confirmation on this, but I do believe, just knowing who gets nasty grams and who doesn't from Lucasfilm, that they totally keep an eye on who's making stuff out there, and they know what the market will bear, and they know when people are starting to make a profit, and that's the one thing they want to shut down. Fans making stormtrooper armor and selling it to each other for a few hundred dollars, no one's going to get rich doing that, and they don't really. That's to them, that's all just good for them.
 
-[00:13:26] Will: It's all about scale, right? In the eyes of in Lucas's, and Lucas has been doing. I mean, in fairness, they've had a lot of experience with this. They had they dealt with this problem way before anybody else because they were building stormtrooper armor and R2-D2s twenty years ago.
+[00:13:26] Will: It's all about scale, right? In the eyes of in Lucas's, and Lucas has been doing. I mean, in fairness, they've had a lot of experience with this. They had they dealt with this problem way before anybody else because they were building stormtrooper armor and R2-D2s 20 years ago.
 
 [00:13:38] Adam: Yes.
 

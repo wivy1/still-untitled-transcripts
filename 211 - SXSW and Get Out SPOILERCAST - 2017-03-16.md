@@ -118,7 +118,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:11:12] Will: Oh, they're like their neck, their neck buds, right?
 
-[00:11:14] Adam: And they get ten hours of play.
+[00:11:14] Adam: And they get 10 hours of play.
 
 [00:11:14] Unknown speaker: Wow!
 
@@ -208,7 +208,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:17:01] Adam: Oh, God.
 
-[00:17:01] Will: Basically, you have like you get stung and you have like forty five seconds or something. But they don't sting very much because they're so small. So they like they don't you wear if you wear like a nylon suit a Lycra skin suit, then they they can't penetrate them.
+[00:17:01] Will: Basically, you have like you get stung and you have like 45 seconds or something. But they don't sting very much because they're so small. So they like they don't you wear if you wear like a nylon suit a Lycra skin suit, then they they can't penetrate them.
 
 [00:17:19] Adam: Oh, do you know about the? Have we? I think we've talked about this on the podcast before. The Gympie-Gympie bush from Australia.
 
@@ -250,7 +250,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:20:12] Will: Oh, nice. Okay, very cool.
 
-[00:20:13] Adam: So yeah, it's a it's lovely. Sixty degrees outside. I'm after this podcast. I'm going to go in and do a sound check and see my crew. They've had a lovely couple of days off, and Michael Stevens. And yeah, we're going to get back into it. This the show is. I I I I can't gush enough about the show. I mean, I'm having so much fun doing it, and Michael is so much fun to perform with. That's going to be a regular theme for all the podcasts out on the tour. We're just having the greatest time.
+[00:20:13] Adam: So yeah, it's a it's lovely. 60 degrees outside. I'm after this podcast. I'm going to go in and do a sound check and see my crew. They've had a lovely couple of days off, and Michael Stevens. And yeah, we're going to get back into it. This the show is. I I I I can't gush enough about the show. I mean, I'm having so much fun doing it, and Michael is so much fun to perform with. That's going to be a regular theme for all the podcasts out on the tour. We're just having the greatest time.
 
 [00:20:41] Will: That's awesome. That's so good to hear.
 
@@ -266,7 +266,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:20:56] Will: We we traded child care duty one day, and and both went and. Like I basically got a text from her when she came out of the movie. It was just like, " Holy shit! I'm not going to say anything to you until you go see this movie." So if you haven't seen Get Out, I think, like, I I don't know how we can talk about this without spoiling stuff.
 
-[00:21:16] Adam: No, no, no, no. That's the thing about Get Out. We will we will announce when it's spoilerific, but it is it is it shouldn't even be discussed because even the framework is really unique. And actually, this isn't a spoiler, but congratulations to Jordan Peele for being the first African American director to break 100,000,000 dollars of revenue for his debut film.
+[00:21:16] Adam: No, no, no, no. That's the thing about Get Out. We will we will announce when it's spoilerific, but it is it is it shouldn't even be discussed because even the framework is really unique. And actually, this isn't a spoiler, but congratulations to Jordan Peele for being the first African American director to break $100 million of revenue for his debut film.
 
 [00:21:16] Will: Nice job.
 
@@ -276,13 +276,13 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:21:55] Adam: So I I I think that we should tell people if you want to listen to if you want to watch it unsullied, which we strongly recommend, just. Don't pay attention to anything about and go see it. Turn off the podcast now.
 
-[00:22:06] Will: Yeah, I think that's. I think that's. If you have, it's it's definitely worth your your you know twenty bucks, whatever it costs to go to the movies now. And I would encourage you to turn off the podcast now and come back later.
+[00:22:06] Will: Yeah, I think that's. I think that's. If you have, it's it's definitely worth your your you know $20, whatever it costs to go to the movies now. And I would encourage you to turn off the podcast now and come back later.
 
-[00:22:17] Adam: In fact, I'll even say, you know what, we should put in the in the in the paragraph that announces this podcast up on Tested. We should tell you that you can you listen to the podcast for the first like eighteen or nineteen minutes. I don't know exactly what the
+[00:22:17] Adam: In fact, I'll even say, you know what, we should put in the in the in the paragraph that announces this podcast up on Tested. We should tell you that you can you listen to the podcast for the first like 18 or 19 minutes. I don't know exactly what the
 
 [00:22:28] Will: twenty two. I think twenty ish.
 
-[00:22:30] Adam: Twenty two minutes, and then we go to spoilers. So let's let's head into spoiler land.
+[00:22:30] Adam: 22 minutes, and then we go to spoilers. So let's let's head into spoiler land.
 
 [00:22:35] Will: Yeah,
 
@@ -368,7 +368,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:29:41] Adam: right.
 
-[00:29:41] Will: Yeah, so the the car pulls up behind him. He's like, " Shit, this isn't happening to me. This is bad news." And then some guy in a mask jumps out and clocks him. At this point, I thought that the gardener was the guy with the mask, right? And I thought we were going to see a typical kind of Friday the Thirteenth Jason, you know,
+[00:29:41] Will: Yeah, so the the car pulls up behind him. He's like, " Shit, this isn't happening to me. This is bad news." And then some guy in a mask jumps out and clocks him. At this point, I thought that the gardener was the guy with the mask, right? And I thought we were going to see a typical kind of Friday the 13th Jason, you know,
 
 [00:30:20] Adam: ah, right, right,
 
@@ -380,7 +380,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:30:39] Adam: just prior to the party, just again before we get to the party, um, when he visits the parents, he meets two two two black people in their staff right in their house. He's got a housekeeper, this woman, and the groundskeeper, and they're both really strange, but you don't. You have a hard time figuring out exactly why they're strange, except that their behavior is really weird in its affect. They seem overly, overly syrupy in their pleasantness, and and in fact, just before you meet the housekeeper, the the father says something about how their his mother died, but they kept a piece of her in the kitchen. It's this weird throwaway line that you that I almost didn't quite register because at that moment the camera pans around and she's standing there in the kitchen in this kind of like I'm ready for service and this crazy robotic smile on her face. But then you, of course, yeah, it'll become clear as we talk what what he actually means.
 
-[00:31:46] Will: Well, so so that's it's interesting that you say that because, like, I I wasn't sure with that whether whether they were trying to portray oh this is this is like the help situation right like like a. Thirty years ago, representation of of having, you know, a a African American staff at your house, which which would be really weird in the setting of this movie, or if there was something else completely different going on, and like I I had I I, like it was so discomforting to me. I kind of just set that aside and was like, okay, I'm gonna leave that over here. Not, not not figure this out right now, um and and went on anyway. Okay, so so he goes out, he smokes a cigarette or he doesn't smoke a cigarette. The mom, Catherine Keener, hypnotizes him kind of secretly.
+[00:31:46] Will: Well, so so that's it's interesting that you say that because, like, I I wasn't sure with that whether whether they were trying to portray oh this is this is like the help situation right like like a. 30 years ago, representation of of having, you know, a a African American staff at your house, which which would be really weird in the setting of this movie, or if there was something else completely different going on, and like I I had I I, like it was so discomforting to me. I kind of just set that aside and was like, okay, I'm gonna leave that over here. Not, not not figure this out right now, um and and went on anyway. Okay, so so he goes out, he smokes a cigarette or he doesn't smoke a cigarette. The mom, Catherine Keener, hypnotizes him kind of secretly.
 
 [00:31:46] Unknown speaker: Yes,
 
@@ -398,7 +398,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:33:12] Will: Yeah.
 
-[00:33:51] Will: Well, and so the depiction of that was really really neatly done. Like the yeah, you see from his perspective, the whole story is told from his perspective basically. But you see from his perspective, his viewpoint as a screen receding from his view, and then it cuts to the shot of him twenty feet below the the screen, kind of floating in space.
+[00:33:51] Will: Well, and so the depiction of that was really really neatly done. Like the yeah, you see from his perspective, the whole story is told from his perspective basically. But you see from his perspective, his viewpoint as a screen receding from his view, and then it cuts to the shot of him 20 feet below the the screen, kind of floating in space.
 
 [00:34:09] Adam: Right in a blank, in a sort of a blank universe, weightless, looking at the screen floating far away from him, which has the tableau of the room in it. So he's like recessed back behind his eyes.
 
@@ -430,15 +430,15 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:35:33] Will: So, I don't even know where to start with this.
 
-[00:35:35] Adam: You well, so my my son felt that the the most terrifying moment in the film was the party is happening. Everyone's mingling around. There's like thirty some odd people, and a cup. And our main character goes upstairs to sort of chill out for a minute. And when he leaves the main floor, the entire party stops, and you realize that the entire party is a bit of theater just for his benefit.
+[00:35:35] Adam: You well, so my my son felt that the the most terrifying moment in the film was the party is happening. Everyone's mingling around. There's like 30 some odd people, and a cup. And our main character goes upstairs to sort of chill out for a minute. And when he leaves the main floor, the entire party stops, and you realize that the entire party is a bit of theater just for his benefit.
 
 [00:36:04] Will: That was terrible. That was that was a like people gasped in the theater when I was there for that.
 
 [00:36:08] Adam: It is completely. Gasp-worthy moment because it, it's you know you're finding yourself wondering well something's going on under the surface and then he does that and it's like that's Rosemary's Baby territory, right? And that's I think that's perhaps the closest analog I have to how scary this movie is. If you haven't seen Rosemary's Baby, it's it's one of the most frightening movies I can think of, and it this has that same sort of sense of dread that like these people who are just a little off are in fact the worst thing you can imagine.
 
-[00:36:45] Will: Well, so then there's this other there's another moment there when he when Chris the the protagonist meets an elder an older white woman and her seemingly husband a like a twenty eight year old black guy it looks like
+[00:36:45] Will: Well, so then there's this other there's another moment there when he when Chris the the protagonist meets an elder an older white woman and her seemingly husband a like a 28 year old black guy it looks like
 
-[00:37:01] Adam: right but a twenty eight year old black guy from nine from some weird vision of 1940
+[00:37:01] Adam: right but a 28 year old black guy from nine from some weird vision of 1940
 
 [00:37:05] Will: yeah I would assume like a like a jazz he was in a jazz band in 1940 based on the attire. And and like something's just profoundly off. So that actor was Lakeith Stanfield, who's a actor slash rapper. He's
 

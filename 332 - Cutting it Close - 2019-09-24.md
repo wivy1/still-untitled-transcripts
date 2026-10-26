@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:04:13] Will: Oh, really? You see, yeah, like
 
-[00:04:15] Adam: twenty twenty-some years ago.
+[00:04:15] Adam: 20 20-some years ago.
 
 [00:04:15] Norm: Yes, yes, yes.
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:04:58] Will: How could they?
 
-[00:04:58] Will: Well, they interview so many people; it's not like they can. Exactly, they don't have a twenty-person research staff.
+[00:04:58] Will: Well, they interview so many people; it's not like they can. Exactly, they don't have a 20-person research staff.
 
 [00:05:02] Adam: It's a, it's a, it's a fire hose of material he's got to manage, and so he wasn't crazy familiar with MythBusters. He knew us as local heroes and that kind of stuff. So I got to see the degree to which his team does great research for him and works with him, and how he, like, even between ad breaks or whatever you call it, station IDs, he is. It's beautiful to watch that machine operate. Well, right, him and his team are a fantastic unit in terms of taking new information and getting a really substantive interview out of a subject he might not have even met before,
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:06:11] Will: Fallon is recorded live to tape.
 
-[00:06:14] Adam: Yeah, they record it as if they're live, and that's always a higher energy than when they're recording, knowing that they'll edit. And I'll tell you that, like when I first started doing interviews for MythBusters, and you do these radio tours as well as the television stuff, and the radio tours are like get on the phone at six in the morning and do twenty-five interviews for three hours
+[00:06:14] Adam: Yeah, they record it as if they're live, and that's always a higher energy than when they're recording, knowing that they'll edit. And I'll tell you that, like when I first started doing interviews for MythBusters, and you do these radio tours as well as the television stuff, and the radio tours are like get on the phone at six in the morning and do 25 interviews for three hours
 
 [00:06:32] Will: for Windows releases and
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:07:55] Adam: one guy.
 
-[00:07:55] Will: One there's one station in Tampa. Tampa is largely retirement communities, so the hosts instead of being like people in their like mid twenties, early thirties. Are retirees?
+[00:07:55] Will: One there's one station in Tampa. Tampa is largely retirement communities, so the hosts instead of being like people in their like mid 20s, early 30s. Are retirees?
 
 [00:08:05] Unknown speaker: Yes,
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:08:55] Norm: And sometimes they have angles. They're going for they they they the whole interview. They just want to ask that one question or the one thing. Yeah,
 
-[00:09:02] Adam: there's that, and then there's the morning zoo shows. Do tend to redound to the Can you bust the myth about my ex-wife? You know, the humor humor hasn't changed for some of these shows in thirty or forty years.
+[00:09:02] Adam: there's that, and then there's the morning zoo shows. Do tend to redound to the Can you bust the myth about my ex-wife? You know, the humor humor hasn't changed for some of these shows in 30 or 40 years.
 
 [00:09:16] Will: For
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:11:25] Adam: Tell no, I was under my name." And so I called a cab. There was a cab right there at the hotel. I got in the cab. I said, " Hey, how fast can you get to the airport? Because I'm really late. My flight leaves in 50 minutes." Five zero
 
-[00:11:40] Will: So you're ten minutes
+[00:11:40] Will: So you're 10 minutes
 
 [00:11:40] Will: from the well. Your carry on, I assume.
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:14:17] Adam: Oh.
 
-[00:14:17] Norm: And it says, " Oh, not working. You could walk, or you could take the tram the other direction. One is thirty minutes, and one's twenty-six minutes, and the flight leaves in like eighteen minutes.
+[00:14:17] Norm: And it says, " Oh, not working. You could walk, or you could take the tram the other direction. One is 30 minutes, and one's 26 minutes, and the flight leaves in like 18 minutes.
 
 [00:14:33] Will: Right. You like your your window to get on the plane is closing.
 
@@ -402,15 +402,15 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:15:39] Adam: Oh yeah.
 
-[00:15:39] Will: I don't want to. I don't want to. Yeah. I don't want to pay a thousand dollars to park.
+[00:15:39] Will: I don't want to. I don't want to. Yeah. I don't want to pay $1,000 to park.
 
 [00:15:43] Adam: Sure.
 
-[00:15:43] Will: I’m waiting, guy never comes, so I'm like, I'm, yeah. Gina and my daughter are already on the East Coast. They're meeting me. Like Gina's at the end of a rope. She's had a toddler for like ten days.
+[00:15:43] Will: I’m waiting, guy never comes, so I'm like, I'm, yeah. Gina and my daughter are already on the East Coast. They're meeting me. Like Gina's at the end of a rope. She's had a toddler for like 10 days.
 
 [00:15:56] Adam: Oh my god.
 
-[00:15:56] Will: And I was like, I have to make this flight. So I get in the car, I drive, and I'm cheap. So instead of going and parking in International, where it's going to be like thirty dollars a day, you
+[00:15:56] Will: And I was like, I have to make this flight. So I get in the car, I drive, and I'm cheap. So instead of going and parking in International, where it's going to be like $30 a day, you
 
 [00:16:04] Adam: park at the long-term parking.
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:17:21] Adam: those those situations are. I love it when you find someone who's willing to join you on the journey of getting you there all the time.
 
-[00:17:32] Will: Those people made me a customer for life. Those people made me a customer for life because that guy recklessly drove to get me to the airport on time and let me be cheap and not pay a thousand dollars
+[00:17:32] Will: Those people made me a customer for life. Those people made me a customer for life because that guy recklessly drove to get me to the airport on time and let me be cheap and not pay $1,000
 
 [00:17:41] Norm: Near miss.
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:23:25] Will: Yeah, they we don't make those romantic comedies anymore.
 
-[00:23:28] Adam: I, having recently watched the first twenty minutes of the Wedding Planner again,
+[00:23:28] Adam: I, having recently watched the first 20 minutes of the Wedding Planner again,
 
 [00:23:32] Will: yeah, no,
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:26:39] Adam: which
 
-[00:26:39] Will: the crusty which who is now looks like he's about fifteen years older than Kevin Costner.
+[00:26:39] Will: the crusty which who is now looks like he's about 15 years older than Kevin Costner.
 
 [00:26:44] Adam: Yeah, except that it's so funny to see Tim
 
@@ -1018,7 +1018,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:35:14] Norm: There's amazing incognito that we'll have the the videos for shortly after.
 
-[00:35:20] Adam: Sorry, actually, and I have a bit of housekeeping to do. Next Friday I am doing a New York Comic Con event, small, three hundred people only. Friday at 4:30 as part of Anime Fest.
+[00:35:20] Adam: Sorry, actually, and I have a bit of housekeeping to do. Next Friday I am doing a New York Comic Con event, small, 300 people only. Friday at 4:30 as part of Anime Fest.
 
 [00:35:31] Norm: Yeah,
 
@@ -1046,7 +1046,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:36:00] Adam: You're welcome.
 
-[00:36:00] Will: We, friend of the site and former whiskey media. Coworker of Norm's and mine, Brad Shoemaker and I, are doing a single-topic, once-weekly tech podcast where we just talk about one thing for thirty or forty-five minutes.
+[00:36:00] Will: We, friend of the site and former whiskey media. Coworker of Norm's and mine, Brad Shoemaker and I, are doing a single-topic, once-weekly tech podcast where we just talk about one thing for 30 or 45 minutes.
 
 [00:36:13] Adam: I love the idea of this.
 
@@ -1128,7 +1128,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:37:55] Adam: God, incredible.
 
-[00:37:57] Will: I I so when I thought I had read the boys twenty years ago, by the way, I'm pretty sure I was thinking of something else that Garth Ennis wrote.
+[00:37:57] Will: I I so when I thought I had read the boys 20 years ago, by the way, I'm pretty sure I was thinking of something else that Garth Ennis wrote.
 
 [00:38:04] Norm: The preacher.
 
@@ -1332,7 +1332,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:42:50] Adam: The thing that I always know that I'm gonna get with Damon Lindelof's productions is a genuine emotion. He's really interested in character and emotional arcs, and it's always going to be deep. I'm one of the fans who loves the ending of Lost. I know that not everybody does. I've watched it twice. Yeah, big fan. I'm really excited.
 
-[00:43:13] Norm: Fifteen years since Lost came out.
+[00:43:13] Norm: 15 years since Lost came out.
 
 [00:43:15] Adam: The crazy.
 
@@ -1342,7 +1342,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:43:26] Will: in the last moments of that.
 
-[00:43:27] Adam: And then you realize just how because I I figured that out about ten minutes beforehand or whatever it was.
+[00:43:27] Adam: And then you realize just how because I I figured that out about 10 minutes beforehand or whatever it was.
 
 [00:43:32] Will: My assumption when the two stories didn't match up was that there was a kid.
 

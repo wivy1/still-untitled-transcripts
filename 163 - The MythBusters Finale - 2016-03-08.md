@@ -34,9 +34,9 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:01:11] Adam: Yes.
 
-[00:01:11] Will: After what, like fourteen seasons, fourteen and a half seasons.
+[00:01:11] Will: After what, like 14 seasons, 14.5 seasons.
 
-[00:01:15] Adam: Well, I've been filming MythBusters since the summer of 2002, so for me, it's fourteen years, and the last ever episode, the last ever new episode of MythBusters aired Saturday night
+[00:01:15] Adam: Well, I've been filming MythBusters since the summer of 2002, so for me, it's 14 years, and the last ever episode, the last ever new episode of MythBusters aired Saturday night
 
 [00:01:27] Will: until Netflix comes in in like three years, puts the whole team together, and and you do another six episodes, and they release them all on a Sunday night.
 
@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:02:40] Adam: Lots and lots and lots of
 
-[00:02:41] Adam: lashing. I think we used seventy or eighty rolls. I can't quite remember the number.
+[00:02:41] Adam: lashing. I think we used 70 or 80 rolls. I can't quite remember the number.
 
 [00:02:45] Will: That's less than I would expect.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:06:07] Adam: exactly.
 
-[00:06:07] Norm: And you talked about those feelings in the episode itself, in the the stunt where you drove through all the props over the fourteen years.
+[00:06:07] Norm: And you talked about those feelings in the episode itself, in the the stunt where you drove through all the props over the 14 years.
 
 [00:06:15] Adam: Yeah, that when I get choked up, that's that's genuine.
 
@@ -138,7 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:07:12] Norm: You explained why use an RV, and kind of you're also demonstrating recording an explosion at 50,000 frames per second.
 
-[00:07:23] Adam: Yeah. So the digital camera, high speed digital cameras have have come of age alongside of MythBusters and Phantom, the preeminent maker of them and supplier of MythBusters cameras, now has a camera that can do HD at fifty thousand frames.
+[00:07:23] Adam: Yeah. So the digital camera, high speed digital cameras have have come of age alongside of MythBusters and Phantom, the preeminent maker of them and supplier of MythBusters cameras, now has a camera that can do HD at 50,000 frames.
 
 [00:07:39] Will: That's like even three years ago, that would have been insane.
 
@@ -166,13 +166,13 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:08:19] Norm: 10,000 fps for for a lot of things.
 
-[00:08:21] Adam: No, someone gets smacked in the kisser you don't need more than two hundred and fifty frames.
+[00:08:21] Adam: No, someone gets smacked in the kisser you don't need more than 250 frames.
 
 [00:08:24] Will: You can do that on your iPhone.
 
 [00:08:25] Norm: An iPhone can do that absolutely, but explosions.
 
-[00:08:29] Adam: You you absolutely and there's so we've filmed thousands of explosions. We've filmed hundreds thousands of them on the high speed camera, and mostly between one thousand and about 6,000 frames per second. I think fifty five hundred is the max HD in sunlight that we can get out of our our the main Phantom we've been using the last few years. At 50,000 frames per second, there was a couple of things that were super notable. One was that you got to watch the. Impetus of the explosion for many frames. You got to watch the inside of this RV light up.
+[00:08:29] Adam: You you absolutely and there's so we've filmed thousands of explosions. We've filmed hundreds thousands of them on the high speed camera, and mostly between 1,000 and about 6,000 frames per second. I think 5,500 is the max HD in sunlight that we can get out of our our the main Phantom we've been using the last few years. At 50,000 frames per second, there was a couple of things that were super notable. One was that you got to watch the. Impetus of the explosion for many frames. You got to watch the inside of this RV light up.
 
 [00:08:29] Will: Yeah.
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:08:29] Will: Yeah.
 
-[00:08:29] Adam: The second thing that was really notable at 50,000 frames per second was we had ten times the amount of frames, and you got to watch the blast wave bubble assemble itself. It was like triangular at first, and then it became spherical.
+[00:08:29] Adam: The second thing that was really notable at 50,000 frames per second was we had 10 times the amount of frames, and you got to watch the blast wave bubble assemble itself. It was like triangular at first, and then it became spherical.
 
 [00:09:39] Will: That was the incredible, like that, and the lensing that you got around the edge of it was like my wife, who is a fan of things that explode, but not at the same level that I think all the three of us are, was like, okay, I, I'm usually unimpressed. That is gorgeous. Like the shot of that,
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:11:02] Will: Why do you guys use ANFO for that kind of stuff? Because it's
 
-[00:11:06] Adam: we use ANFO is cheap and it's a nice slow explosive, nice and slow. I'm sorry, I think ANFO is. You know, people will correct me. High explosives like plastic explosives or cast boosters those move at like twenty two to twenty five thousand frame feet per second. The ANFO, it's slower. I think like 16,000 feet per second. Again, I'm trying to remember these numbers. I just know it's it's not like half the speed, but ANFO is meant for pushing. It's used in in mining for like pushing giant chunks of a mountain off of it.
+[00:11:06] Adam: we use ANFO is cheap and it's a nice slow explosive, nice and slow. I'm sorry, I think ANFO is. You know, people will correct me. High explosives like plastic explosives or cast boosters those move at like 22,000 to 25,000 frame feet per second. The ANFO, it's slower. I think like 16,000 feet per second. Again, I'm trying to remember these numbers. I just know it's it's not like half the speed, but ANFO is meant for pushing. It's used in in mining for like pushing giant chunks of a mountain off of it.
 
 [00:11:06] Unknown speaker: Okay.
 
@@ -236,9 +236,9 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:12:48] Adam: Yeah, I know.
 
-[00:12:49] Will: Looked like it was what five thousand, ten thousand feet, or something. It was really high.
+[00:12:49] Will: Looked like it was what 5,000, 10,000 feet, or something. It was really high.
 
-[00:12:51] Adam: 5,000 feet. We got some. I don't think it was more than a thousand feet, if I remember correctly. But honestly, you'd have to ask Duncan. I can't quite remember
+[00:12:51] Adam: 5,000 feet. We got some. I don't think it was more than 1,000 feet, if I remember correctly. But honestly, you'd have to ask Duncan. I can't quite remember
 
 [00:12:58] Will: Okay.
 
@@ -264,9 +264,9 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:13:55] Adam: Yes.
 
-[00:13:55] Will: After the thing goes. I assume on a 50,000 frame per second camera, you have what maybe twenty seconds, thirty seconds a minute.
+[00:13:55] Will: After the thing goes. I assume on a 50,000 frame per second camera, you have what maybe 20 seconds, 30 seconds a minute.
 
-[00:14:14] Adam: If it's twenty seconds, I think it's like twelve or fourteen.
+[00:14:14] Adam: If it's 20 seconds, I think it's like twelve or fourteen.
 
 [00:14:16] Will: Yeah, so it's it's not very many.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:19:13] Adam: bulk, and so it was. We hired extra people. Old friends of mine from ILM came down and worked for us, and it was just weeks and weeks of poor Tory Fink, our main shop guy, and his team just assembling this stuff and putting it together, painting, cutting out mannequins, duct tape boats, asking for solutions. So I was on tour during some of that. Was I on tour? I can't remember where I was. I was on. I was somewhere where I was like literally dipping in constantly to put out fires and give them simple solutions for putting stuff together. But it was the most monumental effort on behalf of the crew.
 
-[00:20:01] Norm: Because for some, you have a whole series of things, two hundred objects or so.
+[00:20:01] Norm: Because for some, you have a whole series of things, 200 objects or so.
 
 [00:20:01] Adam: Right,
 
@@ -448,11 +448,11 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:20:29] Norm: And you say it on camera, but the drive was it was difficult to stay straight.
 
-[00:20:35] Adam: I couldn't see. Twenty seconds in, I stopped being able to see out the front of the car,
+[00:20:35] Adam: I couldn't see. 20 seconds in, I stopped being able to see out the front of the car,
 
 [00:20:39] Will: and it took how long? About a minute,
 
-[00:20:41] Adam: about fifty-five seconds.
+[00:20:41] Adam: about 55 seconds.
 
 [00:20:41] Will: Yeah,
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:21:40] Adam: was no. It was it wasn't that we we didn't put them in that orientation to funnel me towards the Impala. We did that because we weren't sure how much impetus I would have, and we didn't want them to stop me. So that was a compromise that Steve O, Steve Christiansen, my director, and I came up with at the very end. We just we moved them. It was really fun using a forklift. On cars, I didn't care about.
 
-[00:22:03] Will: Oh my god! I can't imagine. Between that and when you did the the vacuum lifter and then just dropped it from sixty feet or whatever, how much? How much fun?
+[00:22:03] Will: Oh my god! I can't imagine. Between that and when you did the the vacuum lifter and then just dropped it from 60 feet or whatever, how much? How much fun?
 
 [00:22:12] Adam: The best.
 
@@ -504,9 +504,9 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:22:52] Adam: and grind the welds, and as long as it's still a piece of steel, they don't care.
 
-[00:22:55] Norm: Low center of gravity and a lot of momentum. fifty miles per hour.
+[00:22:55] Norm: Low center of gravity and a lot of momentum. 50 miles per hour.
 
-[00:22:59] Adam: Fourteen speeds. You know, I
+[00:22:59] Adam: 14 speeds. You know, I
 
 [00:23:01] Will: were you having to shift during the during the run? Are you downshifting?
 
@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:26:13] Norm: and he had a three three axis gimbal on that, so he could control it and actually like get some elevation. I think up to eight feet or so. It's pretty neat. And so we got test ride.
 
-[00:26:23] Adam: I also just want to I want to point out that Saws did that all on his own time at the same time as he's filming MythBusters, like sixty hours a week. So he's in on weekends, welding and machining, and you know he worked with Bimba, donated a bunch of the technology and the design work for for that rig, and he's machining giant plates of aluminum and steel to to their specs. It was a lot of work, and it worked magnificently.
+[00:26:23] Adam: I also just want to I want to point out that Saws did that all on his own time at the same time as he's filming MythBusters, like 60 hours a week. So he's in on weekends, welding and machining, and you know he worked with Bimba, donated a bunch of the technology and the design work for for that rig, and he's machining giant plates of aluminum and steel to to their specs. It was a lot of work, and it worked magnificently.
 
 [00:26:50] Will: He he's been incredibly giving of his time over the years. When we wanted to find out about blowing stuff up with black powder, he said come into the shop one Saturday morning, and we came into the shop, and and he sufficiently convinced us that we shouldn't dick around with black powder that we just were like, no, we'll we'll just do something safe, like explode an airbag.
 
@@ -608,7 +608,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:27:30] Will: Okay.
 
-[00:27:31] Adam: We you know we could have used five thousand and four, but we seem
+[00:27:31] Adam: We you know we could have used 5,004, but we seem
 
 [00:27:34] Will: that seems right.
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:28:21] Will: that's unusual.
 
-[00:28:22] Adam: About Four feet deep. Ah, we've made a bunch of craters, but not that big. This was about probably fifteen feet and twenty feet in diameter and about five six feet deep.
+[00:28:22] Adam: About Four feet deep. Ah, we've made a bunch of craters, but not that big. This was about probably 15 feet and 20 feet in diameter and about five six feet deep.
 
 [00:28:30] Will: And what did you find? You found pieces of the truck.
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:28:34] Will: but pretty, pretty good sized chunks.
 
-[00:28:35] Adam: You know, I think the the biggest chunk we found was like fifty pounds. Right, so it just tore that thing to absolute shreds.
+[00:28:35] Adam: You know, I think the the biggest chunk we found was like 50 pounds. Right, so it just tore that thing to absolute shreds.
 
 [00:28:43] Will: Um, why why do you guys use cement trucks for those big for the big ones?
 
@@ -718,7 +718,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:32:33] Will: And then you didn't rest.
 
-[00:32:34] Adam: Then I didn't rest. I spent like seven hours here making that gun, and then I I I got it home only to discover that it didn't fit in my suitcase. So I had to cut five inches off of it, and then I called Tom Sachs, whose studio is in New York, and I was like, " Dude, can you get me a three-inch PVC schedule forty pipe cap plus some glue?" And he's like, " I'm on it." So when I landed on Sunday, I went to his shop, and he's there making some pottery with some friends, and he's got his bodega going, and it was it was awesome. It's like
+[00:32:34] Adam: Then I didn't rest. I spent like seven hours here making that gun, and then I I I got it home only to discover that it didn't fit in my suitcase. So I had to cut five inches off of it, and then I called Tom Sachs, whose studio is in New York, and I was like, " Dude, can you get me a three-inch PVC schedule 40 pipe cap plus some glue?" And he's like, " I'm on it." So when I landed on Sunday, I went to his shop, and he's there making some pottery with some friends, and he's got his bodega going, and it was it was awesome. It's like
 
 [00:33:07] Norm: an Avengers of
 
@@ -762,7 +762,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:35:10] Will: Um. It sounded like a lot of fun, and the the bit was really funny. It was
 
-[00:35:15] Adam: great. Stephen is such a fan and such a deep fan. He's watched the show for years with his family, and super complimentary about the achievement. You know, he he's they just finished their hundredth episode of the Late Show, so I mean, he had the he had to deal with, and we didn't even get to talking about this, but he had the thing to deal with the ending the Colbert Report, and no time to kind of acclimatize because we're already into the Late Show. That would be very intense.
+[00:35:15] Adam: great. Stephen is such a fan and such a deep fan. He's watched the show for years with his family, and super complimentary about the achievement. You know, he he's they just finished their 100th episode of the Late Show, so I mean, he had the he had to deal with, and we didn't even get to talking about this, but he had the thing to deal with the ending the Colbert Report, and no time to kind of acclimatize because we're already into the Late Show. That would be very intense.
 
 [00:35:43] Will: Well, and and on top of that, like he had the whole, is this the performance or is this not the performance? And all that stuff to like your
 
@@ -786,7 +786,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:36:20] Adam: butt on the cheek,
 
-[00:36:21] Will: thirty degrees to the right, guys. And on that, I think we should probably wrap this up. No, no, no, no, no. This is for kids. This is show for kids. Norm,
+[00:36:21] Will: 30 degrees to the right, guys. And on that, I think we should probably wrap this up. No, no, no, no, no. This is for kids. This is show for kids. Norm,
 
 [00:36:31] Norm: congratulations, Adam.
 

@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:01:50] Will: Oh man, I assumed that the person who made that voice was like a Vocaloid that had been created by the movie studios out of like 300 people.
 
-[00:01:56] Norm: It's it's like the the person who still does the " Let's Get Ready to Rumble" trademark, who gets paid a million dollars to say it at every high-profile boxing match. There was one person who was the go-to person for trailers.
+[00:01:56] Norm: It's it's like the the person who still does the " Let's Get Ready to Rumble" trademark, who gets paid $1 million to say it at every high-profile boxing match. There was one person who was the go-to person for trailers.
 
 [00:02:08] Will: Wow!
 
@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:02:10] Norm: Yeah. So, but Adam, you were a little sick.
 
-[00:02:14] Adam: I yes. So I just got back from the tour yesterday. The tour, the Brain Candy Live Tour, twenty-four cities in twenty-seven days.
+[00:02:14] Adam: I yes. So I just got back from the tour yesterday. The tour, the Brain Candy Live Tour, 24 cities in 27 days.
 
 [00:02:14] Will: Wow, that is a lot of cities.
 
@@ -106,11 +106,11 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:03:37] Adam: Yeah,
 
-[00:03:37] Adam: there was a moment here. I guess the boys might have been. Let me think about this. I think the boys might have been six or seven, and we're heading up Valencia, and it was that it was so. This was going to be just about ten or eleven years ago.
+[00:03:37] Adam: there was a moment here. I guess the boys might have been. Let me think about this. I think the boys might have been six or seven, and we're heading up Valencia, and it was that it was so. This was going to be just about 10 or 11 years ago.
 
 [00:03:52] Will: Yeah,
 
-[00:03:52] Adam: eleven or twelve years ago, there was a snowstorm and some hail, and like there was actually some accumulation on the street, and we saw it, and we were wiping it off the thing, and I stopped the car, pulled over, and made the boys and Julia get out, and we all had a snowball fight. Oh, I was like, " When are we ever going to have a snowball fight in San Francisco?" It's never going to happen again.
+[00:03:52] Adam: 11 or 12 years ago, there was a snowstorm and some hail, and like there was actually some accumulation on the street, and we saw it, and we were wiping it off the thing, and I stopped the car, pulled over, and made the boys and Julia get out, and we all had a snowball fight. Oh, I was like, " When are we ever going to have a snowball fight in San Francisco?" It's never going to happen again.
 
 [00:04:07] Will: Yeah, that was that was if that if that's when I remember it's when I lived in the inner sunset. I lived there for one year, so it would have been like 2006 in the winter time. Yeah. Early January 2007, and it wasn't snowing at the park. But by the time I got four blocks up the hill to like Lawton and and and Funston where I lived,
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:04:37] Will: Yeah,
 
-[00:04:37] Adam: so we we did meet and greets every night for a hundred VIPs, people who paid extra for their tickets, and you know, whenever I toured with Jamie, it used to drive him nuts because he would always get sick, and I almost never got sick. I think I've gotten sick on tour twice, and this is the second time, and it didn't kick my ass literally until the last day of the tour.
+[00:04:37] Adam: so we we did meet and greets every night for 100 VIPs, people who paid extra for their tickets, and you know, whenever I toured with Jamie, it used to drive him nuts because he would always get sick, and I almost never got sick. I think I've gotten sick on tour twice, and this is the second time, and it didn't kick my ass literally until the last day of the tour.
 
 [00:05:00] Will: Well, I mean, you. So we talked about this a couple weeks ago, and I think people were confused in the comments because there were a lot of questions. But about rules about cameras and stuff like that for the meet and greets, and a lot of like those rules are like a. There's somebody there to take the picture with your phone, so that there's no like fumbling with the phone and no cell, no like no selfies and stuff like that. But then there's also usually somebody standing there. When we've been there at least with like some hand sanitizer, so that you can shake hands and then immediately hand sanitize. It's not because you're like grossed out about touching in public.
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:06:20] Adam: hold that button down.
 
-[00:06:20] Adam: and then somebody turns a crank and there's like a monkey that hits a hammer and something happens eventually and there's no feedback and it's like we've had a two hundred a hundred and seventy years with cameras can't we just make this the same thing for everybody
+[00:06:20] Adam: and then somebody turns a crank and there's like a monkey that hits a hammer and something happens eventually and there's no feedback and it's like we've had a 200 170 years with cameras can't we just make this the same thing for everybody
 
 [00:06:41] Will: the Nikon what FT seven or whatever the manual with the with the with the light meter
 
@@ -180,7 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:07:28] Norm: That's great. It's end of day,
 
-[00:07:29] Adam: right? Yep, end of day, and this mostly affects the youth, so that most anybody under sixteen, their phone is set on the dimmest possible setting.
+[00:07:29] Adam: right? Yep, end of day, and this mostly affects the youth, so that most anybody under 16, their phone is set on the dimmest possible setting.
 
 [00:07:41] Will: That's what I do
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:10:51] Adam: they're getting paid by the companies hosting their service, and they're getting paid by the customers using those pipes. So they're just looking for they're looking for more money in a country where we have some of the slowest broadband in the industrialized world.
 
-[00:11:03] Will: Well, and and more importantly than that, you know, you could say you could safely say that in a competitive environment. It would be okay if they repeal that because then one of the providers in your area will say, " Look, we're the guys who aren't going to prioritize you. You can do whatever you want." But since most of us, in reality, have, if we're lucky, one provider for for actual high speed internet, something faster than two hundred megahundred megabits,
+[00:11:03] Will: Well, and and more importantly than that, you know, you could say you could safely say that in a competitive environment. It would be okay if they repeal that because then one of the providers in your area will say, " Look, we're the guys who aren't going to prioritize you. You can do whatever you want." But since most of us, in reality, have, if we're lucky, one provider for for actual high speed internet, something faster than 200 megahundred megabits,
 
 [00:11:26] Adam: and we're in we're in San Francisco. If you're rural, you maybe have one provider.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:11:38] Adam: And if you think you hate your cable provider right now,
 
-[00:11:40] Will: well, right. So, so the upshot, the fear of of repealing the Title II protections is that we'll end up with a cable cable TV type situation for the ISPs, where instead of just paying eighty dollars a month or a hundred dollars a month or whatever you're paying to your ISP now, you pay eighty dollars a month and then you upgrade to the YouTube package or the Netflix package or the Hulu package or the video game package.
+[00:11:40] Will: well, right. So, so the upshot, the fear of of repealing the Title II protections is that we'll end up with a cable cable TV type situation for the ISPs, where instead of just paying $80 a month or $100 a month or whatever you're paying to your ISP now, you pay $80 a month and then you upgrade to the YouTube package or the Netflix package or the Hulu package or the video game package.
 
 [00:12:01] Adam: And what that means is that your favorite, you know, your favorite website would puts up video is going to get screwed.
 
@@ -376,7 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:16:39] Will: Hey, Adam. What are you here to do?
 
-[00:16:41] Adam: It's like it's like it's just like this sort of dad programming that comes in as I turn fifty. I'm here to tell you this is the best plum I've ever had, and it keeps me regular.
+[00:16:41] Adam: It's like it's like it's just like this sort of dad programming that comes in as I turn 50. I'm here to tell you this is the best plum I've ever had, and it keeps me regular.
 
 [00:16:49] Will: Is it an icebox plum? Icebox plum? We talk about
 
@@ -486,9 +486,9 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:20:43] Norm: easy sous vide. Yeah, all you need is your app.
 
-[00:20:46] Will: You put you put a 120 watt light bulb instead of the sixty in there, and man, that thing cranks up to five hundred.
+[00:20:46] Will: You put you put a 120 watt light bulb instead of the 60 in there, and man, that thing cranks up to 500.
 
-[00:20:50] Adam: You're reminding me of an old Doonesbury joke. Tonight, the role of Jesus will be played by a twenty-five. The role of baby Jesus will be played by a 25 watt light bulb.
+[00:20:50] Adam: You're reminding me of an old Doonesbury joke. Tonight, the role of Jesus will be played by a 25. The role of baby Jesus will be played by a 25 watt light bulb.
 
 [00:21:02] Norm: This past weekend. To get into the spirit, we went to, and I want to give a recommendation to the Dickens Fair.
 
@@ -792,7 +792,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:29:56] Will: It's too good for you.
 
-[00:29:57] Adam: No, is this also this world with Jeremy Irons? Right. Yes. Yeah. Yeah. Not scary. I didn't find Jeremy Irons scary. All the clues was like, all the clues were so they enraged me so much because it was like, oh, that meant that this, and then that guy died on that day, and that's why you have to run. Three hundred blocks to this other building. Like none of it was stuff I could have followed under any circumstances. It was absolute fantasy camp in terms of solving the the puzzle. Yeah. No, that movie lost me.
+[00:29:57] Adam: No, is this also this world with Jeremy Irons? Right. Yes. Yeah. Yeah. Not scary. I didn't find Jeremy Irons scary. All the clues was like, all the clues were so they enraged me so much because it was like, oh, that meant that this, and then that guy died on that day, and that's why you have to run. 300 blocks to this other building. Like none of it was stuff I could have followed under any circumstances. It was absolute fantasy camp in terms of solving the the puzzle. Yeah. No, that movie lost me.
 
 [00:30:24] Will: The whole point of it was he wasn't supposed to be able to solve the puzzle.
 
@@ -880,7 +880,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:32:15] Will: Wow!
 
-[00:32:15] Adam: And it's it's like twenty minutes of excruciating, amazing, intense, horrifying.
+[00:32:15] Adam: And it's it's like 20 minutes of excruciating, amazing, intense, horrifying.
 
 [00:32:21] Will: Wow! That's the worst.
 
@@ -948,7 +948,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:34:06] Norm: Yes, is is write and direct a film,
 
-[00:34:08] Will: made a 50,000 dollar film for 6,000,000 dollars.
+[00:34:08] Will: made a $50,000 film for $6 million.
 
 [00:34:10] Norm: That's true. Also, yeah, yeah,
 
@@ -1002,7 +1002,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:35:53] Will: Of snowy Gotham is is so so good.
 
-[00:36:10] Adam: Um, speaking of Cobblepot, that was one of the. Forgive me if I've already mentioned this, but the the the I saw lots of crazy different genres of famous people when I hosted Michael Giacchino's fiftieth birthday at the Royal Albert Hall. But maybe the strangest was coming into the after party and having Danny DeVito walk up and shake my hand and say, " Really good job."
+[00:36:10] Adam: Um, speaking of Cobblepot, that was one of the. Forgive me if I've already mentioned this, but the the the I saw lots of crazy different genres of famous people when I hosted Michael Giacchino's 50th birthday at the Royal Albert Hall. But maybe the strangest was coming into the after party and having Danny DeVito walk up and shake my hand and say, " Really good job."
 
 [00:36:31] Will: Oh, that's awesome!
 
@@ -1010,7 +1010,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:36:34] Adam: I I I know Danny just the littlest bit. I've met him a few times. We share some. We have mutual friends in common. And yes, by every account, one of the most delightful. He and Rhea are among the most delightful people.
 
-[00:36:45] Will: He's good in in literally like his his manic turns in Always Sunny are the funniest things that's been on TV in the last fifteen years. I think.
+[00:36:45] Will: He's good in in literally like his his manic turns in Always Sunny are the funniest things that's been on TV in the last 15 years. I think.
 
 [00:36:53] Adam: You know, this is we've talked about this before, but it's like there are actors you put them in your thing; they're just going to make your thing better. Karl Urban in Ragnarok, right? Like that's a role that a lot of people could have just fulfilled, but he brings something more and lovely to it. He's a Skurge.
 
@@ -1096,7 +1096,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:39:43] Norm: okay.
 
-[00:39:43] Adam: And it is that I got to the end of both of those seasons and thought, great actors, great filmmaking, beautiful production value. Everyone is killing it. And after ten, and respectively ten and thirteen hours of television, I felt like I'd sat through about five and a half to six hours of television.
+[00:39:43] Adam: And it is that I got to the end of both of those seasons and thought, great actors, great filmmaking, beautiful production value. Everyone is killing it. And after 10, and respectively 10 and 13 hours of television, I felt like I'd sat through about five and a half to six hours of television.
 
 [00:39:43] Norm: Of story,
 
@@ -1378,11 +1378,11 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:48:22] Adam: No.
 
-[00:48:22] Will: Oh my god, it's the it is the best thing. Basically, the upshot is that Kumail took a job interviewing people on the red carpet at Comic Con in like ten years ago, before before Silicon Valley, before all of his other stuff. And he he interview he was introduced to Rian Johnson. He he interviewed Rian Johnson on the Looper slash Total Recall remake thing. He recognized him. He knew he was, and he said, " Oh, I'm so excited to see how Total Recall turned out." Introduced him like he he started an interview him as the director of Total Recall, the Total Recall remake. And Rian Johnson was cool about it and laughed and was like, " Oh no, that that would be awesome, but that's not me. I made Looper." Blah blah blah blah blah. And they laughed about it. And he he you know Kumail had had a whole day of people being shitty to him on the red carpet, and he remembered Rian Johnson being kind despite of. Pretty big faux pas,
+[00:48:22] Will: Oh my god, it's the it is the best thing. Basically, the upshot is that Kumail took a job interviewing people on the red carpet at Comic Con in like 10 years ago, before before Silicon Valley, before all of his other stuff. And he he interview he was introduced to Rian Johnson. He he interviewed Rian Johnson on the Looper slash Total Recall remake thing. He recognized him. He knew he was, and he said, " Oh, I'm so excited to see how Total Recall turned out." Introduced him like he he started an interview him as the director of Total Recall, the Total Recall remake. And Rian Johnson was cool about it and laughed and was like, " Oh no, that that would be awesome, but that's not me. I made Looper." Blah blah blah blah blah. And they laughed about it. And he he you know Kumail had had a whole day of people being shitty to him on the red carpet, and he remembered Rian Johnson being kind despite of. Pretty big faux pas,
 
 [00:48:22] Adam: yeah, yeah, yeah.
 
-[00:48:22] Will: And then they like they laughed about it ten years later after after Silicon Valley or something like that. It's a great thread. I'll send you the links we can post.
+[00:48:22] Will: And then they like they laughed about it 10 years later after after Silicon Valley or something like that. It's a great thread. I'll send you the links we can post.
 
 [00:49:27] Adam: I got to know Rian Johnson recently, and he's absolutely the humblest, most delightful, sweet-natured man I've met in a long time.
 
@@ -1452,7 +1452,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:51:15] Norm: read the medium posts because it's it's not even just about his process. it's about creative process in general.
 
-[00:51:18] Will: it's about their process and how they did. Why they did it and why it was good? I think. I mean, I read that and I understood more about why it was good than watching ten hours of those videos.
+[00:51:18] Will: it's about their process and how they did. Why they did it and why it was good? I think. I mean, I read that and I understood more about why it was good than watching 10 hours of those videos.
 
 [00:51:27] Adam: I also really appreciated his his field testing, his failure testing of YouTube's algorithms for how to put clips of movies into your video essay without getting the DMCA takedown.
 

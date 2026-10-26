@@ -112,19 +112,19 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:06:49] Adam: Yes.
 
-[00:06:49] Will: Basically, and then the final part is five thousand years later when they come back to Earth.
+[00:06:49] Will: Basically, and then the final part is 5,000 years later when they come back to Earth.
 
 [00:06:54] Adam: Five or four thousand,
 
 [00:06:55] Will: four or five thousand,
 
-[00:06:56] Adam: four or five thousand. Basically, the book spans five thousand years, and it starts right about now.
+[00:06:56] Adam: four or five thousand. Basically, the book spans 5,000 years, and it starts right about now.
 
 [00:07:00] Will: Basically.
 
 [00:07:07] Adam: Yeah,
 
-[00:07:07] Will: I mean it's basically like all of human history up until this point, and then there's five thousand years living in chunks of the moon. Yeah, and then then they come back to Earth. The the
+[00:07:07] Will: I mean it's basically like all of human history up until this point, and then there's 5,000 years living in chunks of the moon. Yeah, and then then they come back to Earth. The the
 
 [00:07:11] Adam: so I would like in this spoiler cast to not spoil. Oh, do should we spoil what the title means?
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:08:50] Adam: yeah, and this this idea came to him back then, and like like we said, he he's worked on this world extensively. In all these different media, before sitting down and writing the book, he said, " When he finally wrote the book, it was one of the faster books he'd written. It was like a year from start to finish.
 
-[00:09:04] Will: That's amazing because it's like a nine hundred page book or something.
+[00:09:04] Will: That's amazing because it's like a 900 page book or something.
 
 [00:09:07] Adam: It is, it is deeply satisfyingly long. So, you so the one of the very first things that happens is humanity realizes that survival of the human race will not happen on Earth.
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:16:13] Adam: completely, and such a sweet guy. Anyway, he talks.
 
-[00:16:15] Will: He talks in his in his book about how in his books, one of his goals is to make you care so much about the character and so much about the things that the character cares about that something that's would be inconsequential in your day to day life is going to have a profound emotional impact. And the interesting thing about this, to me, is that you know this is a book that deals with seven billion people being killed almost instantly,
+[00:16:15] Will: He talks in his in his book about how in his books, one of his goals is to make you care so much about the character and so much about the things that the character cares about that something that's would be inconsequential in your day to day life is going to have a profound emotional impact. And the interesting thing about this, to me, is that you know this is a book that deals with 7 billion people being killed almost instantly,
 
 [00:16:39] Adam: right?
 
@@ -454,11 +454,11 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:20:36] Adam: We've gotten to the end of part one. Now that the hard rain has killed all of humanity and the remaining, what is it? A couple thousand?
 
-[00:20:42] Will: Fifteen hundred, I think, or two thousand. There's a there's a very Battlestar Galactica scene with this where they're talking about the the remainder of humanity being in these fragile little spaceships.
+[00:20:42] Will: 1,500, I think, or 2,000. There's a there's a very Battlestar Galactica scene with this where they're talking about the the remainder of humanity being in these fragile little spaceships.
 
 [00:20:56] Adam: I just didn't know where my phone was. I got I got nervous.
 
-[00:20:58] Will: You got to know where your towel is. Yeah, there's this there's this amazing moment when they're like the enormity of hey all all of our fifty thousand years of shared history is bundled up in these tiny little dinky spaceships
+[00:20:58] Will: You got to know where your towel is. Yeah, there's this there's this amazing moment when they're like the enormity of hey all all of our 50,000 years of shared history is bundled up in these tiny little dinky spaceships
 
 [00:21:15] Adam: right
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:23:45] Will: for for especially for stuff that has like nuance.
 
-[00:23:47] Adam: Well, yeah. Well, you in a movie, it's like if the if the actor who gets 20,000,000 bucks hasn't is is in danger, you kind of know he's not going to die.
+[00:23:47] Adam: Well, yeah. Well, you in a movie, it's like if the if the actor who gets $20 million hasn't is is in danger, you kind of know he's not going to die.
 
 [00:23:57] Will: Right.
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:24:01] Will: Yeah,
 
-[00:24:02] Adam: so you know this, but in in the in the book, you I I kept on wondering how are we going to get there from here? I know that this I knew as because everyone's been saying it: the moon blows up, the book spans five thousand years. As soon as it starts, you know, a dozen years into the future or so, I realized, okay, at some point we're going to leap. I don't know when that leap is going to happen, and I don't know what it's going to look like. So you keep on wondering, and things just that whole part two, which is post destruction of the Earth, pre the leap five thousand years. That whole part two is so stressful.
+[00:24:02] Adam: so you know this, but in in the in the book, you I I kept on wondering how are we going to get there from here? I know that this I knew as because everyone's been saying it: the moon blows up, the book spans 5,000 years. As soon as it starts, you know, a dozen years into the future or so, I realized, okay, at some point we're going to leap. I don't know when that leap is going to happen, and I don't know what it's going to look like. So you keep on wondering, and things just that whole part two, which is post destruction of the Earth, pre the leap 5,000 years. That whole part two is so stressful.
 
 [00:24:33] Will: It's the nadir. It's diving toward the diving toward the collapse, and
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:26:17] Adam: yeah.
 
-[00:26:17] Will: Um, you look at this, and and during this time, there's just a sense of dread because I know even if like literally even if they manage to survive until they can find a place to to put greenhouses and to start growing plants and to start making algae into food, they're literally going to be subsisting on protein gruel for fifty, seventy, a hundred, two hundred years.
+[00:26:17] Will: Um, you look at this, and and during this time, there's just a sense of dread because I know even if like literally even if they manage to survive until they can find a place to to put greenhouses and to start growing plants and to start making algae into food, they're literally going to be subsisting on protein gruel for fifty, seventy, 100, 200 years.
 
 [00:26:42] Adam: Who knows?
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:28:10] Adam: Right.
 
-[00:28:10] Will: Probably badly. Um. Or if you can stay in low Earth orbit and just keep dodging rocks for a few thousand years, but the the amount of attrition that happened in the first ten years of that,
+[00:28:10] Will: Probably badly. Um. Or if you can stay in low Earth orbit and just keep dodging rocks for a few thousand years, but the the amount of attrition that happened in the first 10 years of that,
 
 [00:28:21] Adam: right,
 
@@ -712,7 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:30:56] Will: So they start and they they basically come to this agreement. They they literally have a conversation that could have ended with " fuck it, we're shutting the whole thing down. This is the end of the human race. We had a good run, but you guys, I can't. I'm going to blow this place up because I can't take you people anymore.
 
-[00:31:10] Adam: Exactly. They make them come to a. They make they they they come to a decision, and that decision almost immediately you jump five thousand years into the future.
+[00:31:10] Adam: Exactly. They make them come to a. They make they they they come to a decision, and that decision almost immediately you jump 5,000 years into the future.
 
 [00:31:19] Will: But the decision is interesting of itself. The decision is that we're going to use the technology we have to genetically modify ourselves, and we each get to choose one trait,
 

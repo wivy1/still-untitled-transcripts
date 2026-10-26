@@ -138,7 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:06:15] Max: And Democrats are so we're so like brow beaten over the last 20 years of politics. We're so afraid to like want things and be in favor of things. It's I mean it's true, and and it and you can hear it when you hear people talk and they have this mealy mouth like weasel language and like I support every hardworking person's right to have access to an opportunity to maybe get affordable health care. Wait, what the fuck are you talking about? And it's so bracing when you hear a AOC or or any of these sort of like like young like millennial Democrats who get elected and they're like health care is a human right. Everyone has should have health care. And you're like, are you allowed? Well, are we allowed? Are we allowed to want that?
 
-[00:06:52] Adam: Yeah. I will tell you that when I was speaking in the town. They were like, I was like, I did the panel and it was really fun and great and really informative. And the the crowd of people from the city interested in the city's future, etc., was a really interesting speaking engagement. And I was saying to the woman who was taking me on to the appearance that I was doing, I was like, Mayor Pete's great. She's like, Oh yeah, yeah, we're all hoping he'll run for president. And I was like, Thirty seven year old mayor of a small, yeah. I mean, that is sweet.
+[00:06:52] Adam: Yeah. I will tell you that when I was speaking in the town. They were like, I was like, I did the panel and it was really fun and great and really informative. And the the crowd of people from the city interested in the city's future, etc., was a really interesting speaking engagement. And I was saying to the woman who was taking me on to the appearance that I was doing, I was like, Mayor Pete's great. She's like, Oh yeah, yeah, we're all hoping he'll run for president. And I was like, 37 year old mayor of a small, yeah. I mean, that is sweet.
 
 [00:07:22] Will: Good luck.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:13:36] Will: Was it in Mars?
 
-[00:13:37] Adam: It was not in Mars. I that would be nice. Thirty years from now, that may be.
+[00:13:37] Adam: It was not in Mars. I that would be nice. 30 years from now, that may be.
 
 [00:13:41] Will: I mean, look, I thought you were gone for a while, but
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:13:56] Will: Okay,
 
-[00:13:56] Adam: and it is two hundred of the top researchers around the world in all of those disciplines and a bunch of others, including some TV people.
+[00:13:56] Adam: and it is 200 of the top researchers around the world in all of those disciplines and a bunch of others, including some TV people.
 
 [00:14:06] Will: And you, yeah.
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:14:56] Max: Oh, like the Borg Queen puts on Brent Spiner and starts her First Contact. Right. Yeah.
 
-[00:14:59] Adam: So I'm talking to her, and we're we're chatting, and we're talking about the conference. And I said, " Wait, let's listen to this crowd. " About a hundred people around the fire pit, and you know, forty conversations going on, and. I'm realizing, you know, a party a party where everyone's drinking. Usually, you're hearing a lot of loud stories, a lot of hearty laughter, a lot of posturing, and the sound of this. And it's like 11:30 at night. Is all these people just trading information as fast as they can, all really, really excited, and you can feel that energy. And it was stunning. So last night was the final night of the conference. I interviewed.
+[00:14:59] Adam: So I'm talking to her, and we're we're chatting, and we're talking about the conference. And I said, " Wait, let's listen to this crowd. " About 100 people around the fire pit, and you know, 40 conversations going on, and. I'm realizing, you know, a party a party where everyone's drinking. Usually, you're hearing a lot of loud stories, a lot of hearty laughter, a lot of posturing, and the sound of this. And it's like 11:30 at night. Is all these people just trading information as fast as they can, all really, really excited, and you can feel that energy. And it was stunning. So last night was the final night of the conference. I interviewed.
 
 [00:15:35] Max: Was Jeff Bezos there?
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:17:33] Adam: No, no, no. That's
 
-[00:17:34] Max: so. I think that we're in an. I'm a big sci-fi fan. I consume a lot of science fiction media, and I think we're in a very interesting time in science fiction over the last, I don't know, ten to twenty years, where things feel really stalled out to me, and it feels like the science fiction to me has always been like the forefront of the liberal imagination of like what can human, what can we do?
+[00:17:34] Max: so. I think that we're in an. I'm a big sci-fi fan. I consume a lot of science fiction media, and I think we're in a very interesting time in science fiction over the last, I don't know, 10 to 20 years, where things feel really stalled out to me, and it feels like the science fiction to me has always been like the forefront of the liberal imagination of like what can human, what can we do?
 
 [00:17:54] Will: I think that's true.
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:18:20] Adam: I do think so. I think. I think it. I feel like it definitely is.
 
-[00:18:25] Will: Spoilers for Seveneves, but but like that book, the first thousand pages.
+[00:18:25] Will: Spoilers for Seveneves, but but like that book, the first 1,000 pages.
 
 [00:18:29] Adam: Hold on. Real spoilers. I strongly recommend you read this book. And if you have any inkling you're going to read the book, don't listen to any of these spoilers.
 
@@ -468,7 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:20:58] Max: fun and I enjoy, but it's not it doesn't feel the same as Star Trek to me.
 
-[00:21:02] Will: I think the third one is more of a traditional Star Trek. Like the third one is is is very much a the one that made like 8,000,000 dollars or something.
+[00:21:02] Will: I think the third one is more of a traditional Star Trek. Like the third one is is is very much a the one that made like $8 million or something.
 
 [00:21:08] Max: I like the opening scene.
 
@@ -572,7 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:24:41] Max: Okay,
 
-[00:24:41] Will: because there is like fifteen or so. I watched the first three of the. I sat down to watch like one seventeen-minute thing last night. Ended up watching for an hour and a half last night.
+[00:24:41] Will: because there is like 15 or so. I watched the first three of the. I sat down to watch like one 17-minute thing last night. Ended up watching for an hour and a half last night.
 
 [00:24:49] Max: Okay,
 
@@ -658,7 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:27:27] Adam: actually unparalleled for the past. Five years, and it's been feeling really nice to sit down and enjoy some long-form content because everything's been half an hour or an hour increments.
 
-[00:27:38] Will: So I've been thinking about a Kickstarter that I want to do that's that ties into this because it is basically a time lock safe for your phone. So when you start watching a movie, you just put your phone in there, and it seals up, and you can't get it out no matter what. Well, for the next two hours and thirty minutes.
+[00:27:38] Will: So I've been thinking about a Kickstarter that I want to do that's that ties into this because it is basically a time lock safe for your phone. So when you start watching a movie, you just put your phone in there, and it seals up, and you can't get it out no matter what. Well, for the next two hours and 30 minutes.
 
 [00:27:54] Max: What if something happens and I need to know about it?
 
@@ -736,9 +736,9 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:31:14] Max: So I totally know what you mean.
 
-[00:31:15] Max: Maybe that's the maybe that's the answer. But I mean, you just have a higher output. You come up with cool things to do, and you do them, and then you finish them, right? There are not. I do not see. Seventy-five half-finished projects out.
+[00:31:15] Max: Maybe that's the maybe that's the answer. But I mean, you just have a higher output. You come up with cool things to do, and you do them, and then you finish them, right? There are not. I do not see. 75 half-finished projects out.
 
-[00:31:28] Adam: Well, I'll show you because on the rack above my table saw is seventy-five unfinished projects, and I literally put them one level deep on a set of shelves so that they were always looking at me.
+[00:31:28] Adam: Well, I'll show you because on the rack above my table saw is 75 unfinished projects, and I literally put them one level deep on a set of shelves so that they were always looking at me.
 
 [00:31:36] Max: Oh, interesting!
 
@@ -758,7 +758,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:32:21] Max: I have the same feeling as well as a fear that if I stop for even one second, it all goes away and I'll never get it back.
 
-[00:32:27] Adam: There is clearly some fear behind it because as I picture my future, I picture myself in my dotage at seventy-five, like building ship models for the Smithsonian and just doing that, like that, and mentoring kids making stuff. Like those two things.
+[00:32:27] Adam: There is clearly some fear behind it because as I picture my future, I picture myself in my dotage at 75, like building ship models for the Smithsonian and just doing that, like that, and mentoring kids making stuff. Like those two things.
 
 [00:32:42] Will: I mean, I think so. In the early days of us working with you at Tested, I think the first maybe two years, a lot of the projects were things that you'd been working on for like five plus years.
 
@@ -768,7 +768,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:32:53] Will: We did ZF1, the the Mechahand from Hellboy. There were a lot of projects that had been kind of stewing for you for a really long time. In some cases, that then we caught up on it. And the thing that's been fascinating for me to watch from the outside now is over the last two or three years, you've been doing more kind of start to finish projects that have been things that you wanted to do clearly for a really long time, and then kind of had never had an excuse. Like I think in a lot of ways, Tested is a good excuse for you to do some of this stuff.
 
-[00:33:22] Adam: Oh, it's it's a significantly good excuse, and also. Your question drifts into this other thing, which is happening right now, which is the difference between the television viewing use case and the YouTube viewing use case. On television, you have very specific restrictions within the agreed upon model of having a really good hook, an awesome hold, and a phenomenal payoff. And while that doesn't hurt with a YouTube video, I mean, you know, my thousand shot Nerf gun, which got like twenty six million streams, wouldn't have gotten that many if we hadn't shot dinosaurs at the end, and that was a really amazing finish that Norm Chan thought up. At the same time, a lot of people write to me and say that my one day build videos, our one day build videos, are things they put on their computer at the end of their workbench and then they work.
+[00:33:22] Adam: Oh, it's it's a significantly good excuse, and also. Your question drifts into this other thing, which is happening right now, which is the difference between the television viewing use case and the YouTube viewing use case. On television, you have very specific restrictions within the agreed upon model of having a really good hook, an awesome hold, and a phenomenal payoff. And while that doesn't hurt with a YouTube video, I mean, you know, my 1,000 shot Nerf gun, which got like 26 million streams, wouldn't have gotten that many if we hadn't shot dinosaurs at the end, and that was a really amazing finish that Norm Chan thought up. At the same time, a lot of people write to me and say that my one day build videos, our one day build videos, are things they put on their computer at the end of their workbench and then they work.
 
 [00:34:16] Will: And people tell me they work in like a kitchen on the line, and they run that stuff in the background because it's great to listen to, and they can kind of glance up occasionally when they want to see something.
 
@@ -812,7 +812,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:37:50] Unknown (Max or Will): yeah.
 
-[00:37:50] Adam: Twelve films. At some point, I was like, " Oh my god, I'm such an idiot.
+[00:37:50] Adam: 12 films. At some point, I was like, " Oh my god, I'm such an idiot.
 
 [00:37:54] Adam: Why do I even do this?"
 
@@ -1022,13 +1022,13 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:47:34] Max: How do you know what? So, leaving aside maybe any specific build, just you don't have a to-do list in general.
 
-[00:47:40] Adam: It's I have all these buckets of to-do lists, right? So I have like for Tested, I'm working right now on the next year's worth of the types of stories that I want to tell on Tested, and some of them are one-offs, some of them are trips, some of them are twelve hours of content escapades that I want to go on. So I'll sit in my with my notebook and make lists of Tested stuff. Then there'll be other shows I want to pitch. That's another one. There'll be people I collaborate with. Is another kind of list. My whole life is sort of moving these lists around. There's lists of things we want to do with our house.
+[00:47:40] Adam: It's I have all these buckets of to-do lists, right? So I have like for Tested, I'm working right now on the next year's worth of the types of stories that I want to tell on Tested, and some of them are one-offs, some of them are trips, some of them are 12 hours of content escapades that I want to go on. So I'll sit in my with my notebook and make lists of Tested stuff. Then there'll be other shows I want to pitch. That's another one. There'll be people I collaborate with. Is another kind of list. My whole life is sort of moving these lists around. There's lists of things we want to do with our house.
 
 [00:48:13] Will: Do you have lists of lists?
 
 [00:48:14] Adam: Yeah.
 
-[00:48:15] Will: Like your top ten lists that you like to consult when you’re—
+[00:48:15] Will: Like your top 10 lists that you like to consult when you’re—
 
 [00:48:16] Max: Do you have like a notes app or something?
 

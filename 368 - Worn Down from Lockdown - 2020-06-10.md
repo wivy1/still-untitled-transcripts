@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:09:13] Norm: And and that's because you know there's a there's so much, and we're all internalizing it, and as active as we can be, and it's it's very draining, right? Which is why we know that a lot of people tune in and watch what we make as a way to kind of balance what's going on in the world and in their own lives. And
 
-[00:09:35] Adam: well, right, like, right, right. I mean, I very much appreciate that people feel like the videos that we're putting out are a safe space to kind of down regulate, and that that's a that feels important, right? That's—I use these videos that I watch for the same exact reason. Kind of get my head straight, and you know, every day carries with it so many weird, hidden, strange feelings, and it was fascinating to see the whole tested team kind of feel downtrodden because it. We're three months into this. We're we're we're it's about the twelfth week. Am I right?
+[00:09:35] Adam: well, right, like, right, right. I mean, I very much appreciate that people feel like the videos that we're putting out are a safe space to kind of down regulate, and that that's a that feels important, right? That's—I use these videos that I watch for the same exact reason. Kind of get my head straight, and you know, every day carries with it so many weird, hidden, strange feelings, and it was fascinating to see the whole tested team kind of feel downtrodden because it. We're three months into this. We're we're we're it's about the 12th week. Am I right?
 
 [00:10:14] Norm: That's right. Yeah.
 
@@ -98,11 +98,11 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:10:34] Norm: Yeah, yeah.
 
-[00:10:37] Will: I I think I hit a hundred day. I'm at ninety five days right now.
+[00:10:37] Will: I I think I hit 100 day. I'm at 95 days right now.
 
 [00:10:41] Adam: Wow.
 
-[00:10:41] Will: And it's the mon. I mean, it's funny because the things I really look forward to time talking to you guys and talking to Brad on the other podcasts that I do regularly, and and and the moments it's it's funny. I my grandmother used to tell stories about the Blitz when I was a kid because she was seventeen when the Germans started bombing London on the Reg, and I completely misunderstood those stories looking at them now because she she would tell a story about one of her neighbors on her block, you know, scroung everybody in the block working together to scrounge enough eggs and enough flour and sugar to make a wedding cake for somebody who was getting married during during rationing, and I would and then they'd all come together, come to the wedding, and they'd all have a you know a literal bite sized piece of cake so that everybody could have as many people as possible could have a little bit of the cake, and you know when you're ten and you're hearing this story, you're thinking oh shit that's terrible nobody got the cake. And like this cake was this huge sacrifice, but now, you know, you think about the things that break up the monotony of the regular and and and make make things and and not just to be clear, the thing we're going through, it's it's awful, it's tragic. A ton of people have died. I don't think it's the same as being bombed every every night by by you know the fascists
+[00:10:41] Will: And it's the mon. I mean, it's funny because the things I really look forward to time talking to you guys and talking to Brad on the other podcasts that I do regularly, and and and the moments it's it's funny. I my grandmother used to tell stories about the Blitz when I was a kid because she was 17 when the Germans started bombing London on the Reg, and I completely misunderstood those stories looking at them now because she she would tell a story about one of her neighbors on her block, you know, scroung everybody in the block working together to scrounge enough eggs and enough flour and sugar to make a wedding cake for somebody who was getting married during during rationing, and I would and then they'd all come together, come to the wedding, and they'd all have a you know a literal bite sized piece of cake so that everybody could have as many people as possible could have a little bit of the cake, and you know when you're 10 and you're hearing this story, you're thinking oh shit that's terrible nobody got the cake. And like this cake was this huge sacrifice, but now, you know, you think about the things that break up the monotony of the regular and and and make make things and and not just to be clear, the thing we're going through, it's it's awful, it's tragic. A ton of people have died. I don't think it's the same as being bombed every every night by by you know the fascists
 
 [00:12:06] Adam: by an enemy.
 
@@ -250,7 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:23:38] Adam: And then twice in the movie, you have someone say that exact phrase to someone else. Well, in feudal Japan, a Ronin was a masterless samurai. Twice. I'm sorry. I know I'm like getting at a feverish pitch, but Ronin drives me crazy for that.
 
-[00:23:55] Norm: There, there, there is definitely already supercuts on YouTube where. Uh, the movie. Oh, yeah. In in the span of like two minutes, you know, eighty movie, one hundred movies. It's the quote, right? Yeah.
+[00:23:55] Norm: There, there, there is definitely already supercuts on YouTube where. Uh, the movie. Oh, yeah. In in the span of like two minutes, you know, 80 movie, 100 movies. It's the quote, right? Yeah.
 
 [00:24:09] Will: Joey did one of these. He did one of these for Screened years ago. Yeah. Oh god. I feel like this was a Screened segment, maybe, but I don't know.
 

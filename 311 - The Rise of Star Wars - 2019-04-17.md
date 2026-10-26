@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:01:17] Will: Yeah.
 
-[00:01:17] Norm: Star Wars specifically. So I think we're gonna like talk for thirty minutes about
+[00:01:17] Norm: Star Wars specifically. So I think we're gonna like talk for 30 minutes about
 
 [00:01:28] Will: the Star Wars.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:08:20] Jeremy: It's not a free show, is it?
 
-[00:08:21] Norm: No, it's not a free show. In fact, it's it's maybe it's getting really big. So it used to be in one of those like hotel convention centers, like the Burbank Marriott, and it moved to the Pasadena Convention Center, which is where DesignerCon used to be. And now it feels like it's been there for three or four years, and it's too big for that. Like it opens doors open at eleven, and outside in the April heat in Southern California, you have like thousands of people waiting in line outside, waiting to get in, and waiting some people waiting to buy tickets.
+[00:08:21] Norm: No, it's not a free show. In fact, it's it's maybe it's getting really big. So it used to be in one of those like hotel convention centers, like the Burbank Marriott, and it moved to the Pasadena Convention Center, which is where DesignerCon used to be. And now it feels like it's been there for three or four years, and it's too big for that. Like it opens doors open at 11, and outside in the April heat in Southern California, you have like thousands of people waiting in line outside, waiting to get in, and waiting some people waiting to buy tickets.
 
 [00:08:52] Will: So so this was your first. Trip with the baby, right?
 
@@ -450,13 +450,13 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:12:46] Jeremy: realizing that yeah. Oh, you mean the remakes, the special editions.
 
-[00:12:50] Will: No, no, the twenty years of nothing was the dark times.
+[00:12:50] Will: No, no, the 20 years of nothing was the dark times.
 
 [00:12:52] Norm: Oh, sure.
 
 [00:12:52] Norm: which culminated in the special editions, which were
 
-[00:12:55] Will: it was like. Look, as a as a as a as a twenty year old who had never been able to see Star Wars or Empire Strikes Back in the theater, and who saw Return of the Jedi in like a Twin Plex that was that I have a TV larger than now, it was cool to get to see the re releases. Yeah, and then I went and watched the first special edition. Didn't go for the other two.
+[00:12:55] Will: it was like. Look, as a as a as a as a 20 year old who had never been able to see Star Wars or Empire Strikes Back in the theater, and who saw Return of the Jedi in like a Twin Plex that was that I have a TV larger than now, it was cool to get to see the re releases. Yeah, and then I went and watched the first special edition. Didn't go for the other two.
 
 [00:13:15] Jeremy: Okay.
 
@@ -1080,7 +1080,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:30:53] Will: I think renaming stuff for no purpose is really dopey.
 
-[00:30:56] Jeremy: I have no idea. I have no. The whole thing with with. Luke Skywalker is saying, as a Force ghost to Rey in the beginning, " A thousand generations reside in you now." What does that?
+[00:30:56] Jeremy: I have no idea. I have no. The whole thing with with. Luke Skywalker is saying, as a Force ghost to Rey in the beginning, " 1,000 generations reside in you now." What does that?
 
 [00:31:06] Will: It's a lot of pressure, man.
 
@@ -1152,7 +1152,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:32:58] Norm: So it's
 
-[00:33:00] Will: twelve parsecs, man.
+[00:33:00] Will: 12 parsecs, man.
 
 [00:33:01] Norm: It comes out this Christmas. And oh, and there's new characters. There's a new actress brought in, Jannah. I think the name of her character.
 
@@ -1290,7 +1290,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:35:57] Norm: I want to see he's doing the pilot, but it is in the. Outskirts of the galaxy, or a far away from where all the action's happening, and it's about a bounty. It's a western. I they straight up call it a western.
 
-[00:36:10] Jeremy: I am so glad that people posted these videos because even the the shaky cam shots of the two trailer bits that they shared from the Mandalorian have me about ten times as excited.
+[00:36:10] Jeremy: I am so glad that people posted these videos because even the the shaky cam shots of the two trailer bits that they shared from the Mandalorian have me about 10 times as excited.
 
 [00:36:10] Norm: Really?
 
@@ -1424,7 +1424,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:39:42] Norm: That's one of the great things about Star Wars. You have these cast of characters that appear in like one or two scenes in
 
-[00:39:48] Will: ten frames.
+[00:39:48] Will: 10 frames.
 
 [00:39:49] Norm: Yeah, right. And and you can write so much lore because it sparks the imagination. And so hopefully this will do the same and and build on that as opposed to just calling back
 
@@ -1444,7 +1444,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:41:11] Norm: and also not like they put too much pressure on the main series to be yeah a perfect movie.
 
-[00:41:16] Will: Yeah. Well, and also the the frankly also those in between movies like just the fact that Solo only made like a billion dollars instead of a billion and a half or two or whatever makes it a disappointment and and that's like that's a tough thing to do if you are going back and you are telling story if you are if if you are if your pitch for the movie is hey what if we explain why the Kessel Run was twelve parsecs instead of a length of time you know it's hard to get people excited about that I think
+[00:41:16] Will: Yeah. Well, and also the the frankly also those in between movies like just the fact that Solo only made like $1 billion instead of $1.5 billion or $2 billion or whatever makes it a disappointment and and that's like that's a tough thing to do if you are going back and you are telling story if you are if if you are if your pitch for the movie is hey what if we explain why the Kessel Run was 12 parsecs instead of a length of time you know it's hard to get people excited about that I think
 
 [00:41:43] Norm: yeah I think there is less pressure on the Mandalorian and people are gonna be more forgiving for it and
 
@@ -1452,7 +1452,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:41:48] Norm: open minded
 
-[00:41:49] Will: launching a whole service the deals on the service the details on the service finally came out too yeah yeah it's like seven bucks a month
+[00:41:49] Will: launching a whole service the deals on the service the details on the service finally came out too yeah yeah it's like $7 a month
 
 [00:41:56] Norm: Oh, we’re gonna talk about part two.
 
@@ -1510,7 +1510,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:43:00] Norm: in past
 
-[00:43:01] Norm: Interviews they've said that the things that they have announced are still going on. Rian Johnson is still working on his new trilogy. That's not a Skywalker saga. So presumably that will be a couple years. I don't think it's going to be ten years before we see another Star Wars movie.
+[00:43:01] Norm: Interviews they've said that the things that they have announced are still going on. Rian Johnson is still working on his new trilogy. That's not a Skywalker saga. So presumably that will be a couple years. I don't think it's going to be 10 years before we see another Star Wars movie.
 
 [00:43:14] Jeremy: What do they need to figure out exactly? I mean, what do they do? They need to figure out how to make a Star Wars film as good as the first three that we grew up with. It's a totally different era now.
 
@@ -1540,11 +1540,11 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:44:45] Jeremy: Yeah.
 
-[00:44:45] Will: Um. So so I I hope I I mean from a business side I'm sure that they're sitting back and saying okay what's our ten what's our five year what's our ten year what's our twenty year plan for this and you know if you look at what they did with MCU. MCU started with Iron Man, and then they were like, " Okay, well, let's let's let's make this about the Avengers." And they figured out we need three movies to do that.
+[00:44:45] Will: Um. So so I I hope I I mean from a business side I'm sure that they're sitting back and saying okay what's our 10 what's our five year what's our 10 year what's our 20 year plan for this and you know if you look at what they did with MCU. MCU started with Iron Man, and then they were like, " Okay, well, let's let's let's make this about the Avengers." And they figured out we need three movies to do that.
 
 [00:44:45] Jeremy: Yeah,
 
-[00:44:45] Will: and then they were like, " Okay, what what do the Avengers do? Thanos. Okay, great." And then after Thanos is done, it's going to be cosmic stuff for ten years, I assume.
+[00:44:45] Will: and then they were like, " Okay, what what do the Avengers do? Thanos. Okay, great." And then after Thanos is done, it's going to be cosmic stuff for 10 years, I assume.
 
 [00:44:45] Jeremy: Yeah,
 
@@ -1568,7 +1568,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:45:44] Will: What's on the site this week, Norm? Anything exciting?
 
-[00:45:45] Norm: Yes, Monsterpalooza stuff is on the site. We have some past videos. A build he built with a sword build he did with Peter Lyon. Weta Workshop is going to be on the site on YouTube for everyone to watch. That's like an hour, twenty minute. Long, uh, one day build, uh, and the project that Jeremy did, uh, with Sean last year in building a arcade cabinet called Star Lords, uh, that project is rolling out on YouTube as well.
+[00:45:45] Norm: Yes, Monsterpalooza stuff is on the site. We have some past videos. A build he built with a sword build he did with Peter Lyon. Weta Workshop is going to be on the site on YouTube for everyone to watch. That's like an hour, 20 minute. Long, uh, one day build, uh, and the project that Jeremy did, uh, with Sean last year in building a arcade cabinet called Star Lords, uh, that project is rolling out on YouTube as well.
 
 [00:46:13] Jeremy: That's a good one. It's a long series, six seven parts, but it's worth it. It's a lot of fun watching that.
 

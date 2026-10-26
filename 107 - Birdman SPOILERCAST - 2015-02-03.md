@@ -38,15 +38,15 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:01:49] Will: Oh my hand! Oh, you're. I'm your dad.
 
-[00:01:53] Norm: Ah. Two hundred ninety-nine of them die.
+[00:01:53] Norm: Ah. 299 of them die.
 
 [00:01:55] Will: Yes.
 
-[00:01:55] Norm: Three hundred.
+[00:01:55] Norm: 300.
 
 [00:01:57] Will: Yeah. Batman's dad's get parents get killed, makes him really fucked up.
 
-[00:02:02] Adam: Do we do we tell? Have I ever told Sarah Silverman's joke about three hundred? How they came up with the title. Sarah Silverman's joke is that the title " Three Hundred" is based on a scale of one to ten, how gay the movie is. Maybe we have to cut that joke out.
+[00:02:02] Adam: Do we do we tell? Have I ever told Sarah Silverman's joke about 300? How they came up with the title. Sarah Silverman's joke is that the title " 300" is based on a scale of 1 to 10, how gay the movie is. Maybe we have to cut that joke out.
 
 [00:02:18] Norm: It's a Sarah Silverman joke.
 
@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:04:13] Adam: But they understand what demographic,
 
-[00:04:15] Adam: how they watched it. Like if they stopped twenty minutes in, if they paused, how
+[00:04:15] Adam: how they watched it. Like if they stopped 20 minutes in, if they paused, how
 
 [00:04:18] Norm: exactly if they watched them more than one time,
 
@@ -184,9 +184,9 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:05:41] Will: What? No cheats, no looper style cheats,
 
-[00:05:43] Norm: no looper style, and it is in the Twelve Monkeys vein.
+[00:05:43] Norm: no looper style, and it is in the 12 Monkeys vein.
 
-[00:05:46] Will: Ooh, I like Twelve Monkeys a lot.
+[00:05:46] Will: Ooh, I like 12 Monkeys a lot.
 
 [00:05:47] Norm: The beginning, the end, loop, and
 
@@ -194,15 +194,15 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:05:52] Will: I never saw La Jetée.
 
-[00:05:52] Adam: La Jetée. Oh, sorry. Is it the pause tangent right here? Twelve Monkeys is based on a famous French movie called La Jetée, which. Is only about twenty-five minutes long.
+[00:05:52] Adam: La Jetée. Oh, sorry. Is it the pause tangent right here? 12 Monkeys is based on a famous French movie called La Jetée, which. Is only about 25 minutes long.
 
 [00:05:52] Unknown speaker: Ooh!
 
-[00:05:52] Adam: It's told almost no, told entirely through voiceover and stills, and is I will stand by one of the thirty greatest science fiction movies ever made. And it's, I mean, really, and there is no plot, no props more complicated than like a paper bag with some wires. And yet, La Jetée is completely compelling. Go watch it, like now. It’s Terrific,
+[00:05:52] Adam: It's told almost no, told entirely through voiceover and stills, and is I will stand by one of the 30 greatest science fiction movies ever made. And it's, I mean, really, and there is no plot, no props more complicated than like a paper bag with some wires. And yet, La Jetée is completely compelling. Go watch it, like now. It’s Terrific,
 
 [00:06:31] Norm: another recommendation.
 
-[00:06:32] Adam: Yeah, and that's what Twelve Monkeys is based on, and it is a time travel film.
+[00:06:32] Adam: Yeah, and that's what 12 Monkeys is based on, and it is a time travel film.
 
 [00:06:35] Will: Yeah, I watched Lucy on the plane.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:08:51] Adam: We had a wet space conversation.
 
-[00:08:53] Will: Meat space. Meat space. Wet space is completely different. Those are for special times. The the basically the upshot is that she had each individual group of people or main character. And then she showed what they were doing at any given time. Which, if you think about the the climaxes of some of those books, there are sometimes like ten or twelve groups of people, and she just literally had a piece of like notebook paper where she had boxes across the top that had the groups of people, and then time was going down the left side, and what they were doing was filling in the blocks along the way. It was amazing,
+[00:08:53] Will: Meat space. Meat space. Wet space is completely different. Those are for special times. The the basically the upshot is that she had each individual group of people or main character. And then she showed what they were doing at any given time. Which, if you think about the the climaxes of some of those books, there are sometimes like 10 or 12 groups of people, and she just literally had a piece of like notebook paper where she had boxes across the top that had the groups of people, and then time was going down the left side, and what they were doing was filling in the blocks along the way. It was amazing,
 
 [00:09:23] Adam: you know. And that's actually the same thing that Kubrick did with the with the file cabinet about Napoleon.
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:11:00] Norm: But just like where Boyhood, the the the you know the the novelty of the movie and is not what makes the movie good. That's not what makes Birdman good either.
 
-[00:11:10] Will: Well, it's like the fourth episode of True Detective, right? Like that twelve-minute or twenty-two-minute sequence, or whatever it was at the end of that, wasn't what made it good. It was just a.
+[00:11:10] Will: Well, it's like the fourth episode of True Detective, right? Like that 12-minute or 22-minute sequence, or whatever it was at the end of that, wasn't what made it good. It was just a.
 
 [00:11:19] Adam: And and and Iñárritu is doing something that I think that you know, Cuarón also did in Gravity. And Cuarón’s feeling was the long shots just make you stop feeling like you're watching a movie and sort of put you more viscerally into the action. And on that front, I totally agree.
 
@@ -662,7 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:25:31] Adam: right, right.
 
-[00:25:31] Will: Um, like we people have been trying to add, for example, 3D to film for the last eight or ten years at this point.
+[00:25:31] Will: Um, like we people have been trying to add, for example, 3D to film for the last 8 or 10 years at this point.
 
 [00:25:53] Adam: Stop it, okay?
 

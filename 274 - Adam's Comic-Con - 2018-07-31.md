@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:02:55] Will: Yeah,
 
-[00:02:55] Adam: and we would have attempted to bring ten times more stuff than we needed in terms of weight, right? Like all of that." In in situ resource allocation that they utilization that they hope to do on Mars that they're going to learn on the Moon and learn on asteroids building rocket fuel in space in situ, it's an invaluable resource. It's really really cool.
+[00:02:55] Adam: and we would have attempted to bring 10 times more stuff than we needed in terms of weight, right? Like all of that." In in situ resource allocation that they utilization that they hope to do on Mars that they're going to learn on the Moon and learn on asteroids building rocket fuel in space in situ, it's an invaluable resource. It's really really cool.
 
 [00:03:16] Will: I mean, if you think about it, when when the shuttle program, like in the in the heat of the shuttle program, we still didn't really know if you could build if you could grow plants in zero gravity, right? We didn't know what would happen when you put put seeds in in dirt in zero gravity. Seed. we didn't know what we like. Yeah,
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:06:23] Norm: We found the right excuses to meet up to have our reunions with the people.
 
-[00:06:27] Adam: Well, I had a little party in my room on Thursday night late, and about thirty or forty people came to that, and I had I got to see all my favorite people. I got to see Rick Baker and his wife and daughter. I got to hang out and just. It was a lovely. It was full of lots of that of like nice connecting with people you love, and also some great parties and some great dancing.
+[00:06:27] Adam: Well, I had a little party in my room on Thursday night late, and about 30 or 40 people came to that, and I had I got to see all my favorite people. I got to see Rick Baker and his wife and daughter. I got to hang out and just. It was a lovely. It was full of lots of that of like nice connecting with people you love, and also some great parties and some great dancing.
 
 [00:06:48] Will: But that's the part that I miss is the seeing the people. The rest of it, I could take or leave.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:12:15] Norm: Oh wow!
 
-[00:12:17] Adam: So Joey does that with the sword, and Peter goes, " Yeah, that's um, it's quite a thing to do with a 40,000 dollar sword,
+[00:12:17] Adam: So Joey does that with the sword, and Peter goes, " Yeah, that's um, it's quite a thing to do with a $40,000 sword,
 
 [00:12:24] Norm: at least. Yeah.
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:13:13] Will: in his youth, yeah, like he's he's had many, he's had a great many fascinating jobs. You should let him tell the story. It's very good.
 
-[00:13:19] Adam: That's like um on the on the Syfy Wire podcast I did last year, Jonathan Frakes revealed that he played Captain America at malls, as a as a thing in his early twenties. Yeah,
+[00:13:19] Adam: That's like um on the on the Syfy Wire podcast I did last year, Jonathan Frakes revealed that he played Captain America at malls, as a as a thing in his early 20s. Yeah,
 
 [00:13:32] Will: pre-bear, I guess. Yeah,
 
@@ -782,7 +782,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:28:20] Adam: Awesome. Anything coming up on the site this week?
 
-[00:28:22] Norm: Well, we have the Weta build series. We have so many. We have like eighteen Comic Con videos. Totoro videos should be up very early next week, along with Adam's Incognito video, and you got to watch the one-day build of the Wiley Post costume because even though it took two and a half days, it is seventy minutes of joy in building.
+[00:28:22] Norm: Well, we have the Weta build series. We have so many. We have like 18 Comic Con videos. Totoro videos should be up very early next week, along with Adam's Incognito video, and you got to watch the one-day build of the Wiley Post costume because even though it took two and a half days, it is 70 minutes of joy in building.
 
 [00:28:43] Adam: It's a really good one.
 

@@ -32,11 +32,11 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:01:16] Adam: Oh, it doesn't roll.
 
-[00:01:17] Will: No, there's no coast. And I had to think about like how I learned to drive again at forty years of age, and I don't know how you teach. Like my wife and I were talking about it as we were driving around because we have a two year old. It's a it's a distant future for us, but you are teaching your kids how to drive now, and I don't know like a how you do that in a big ass city like San Francisco, or b like even what the rules are now.
+[00:01:17] Will: No, there's no coast. And I had to think about like how I learned to drive again at 40 years of age, and I don't know how you teach. Like my wife and I were talking about it as we were driving around because we have a two year old. It's a it's a distant future for us, but you are teaching your kids how to drive now, and I don't know like a how you do that in a big ass city like San Francisco, or b like even what the rules are now.
 
 [00:01:41] Adam: Well, it's thing two is the first one to have completed his online driver's test and had his first official lesson, so i I am now allowed to put him behind the wheel of my car.
 
-[00:01:52] Norm: That's the most valuable slip of paper for fifteen year olds,
+[00:01:52] Norm: That's the most valuable slip of paper for 15 year olds,
 
 [00:01:54] Adam: yeah,
 
@@ -44,11 +44,11 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:01:56] Will: So you so you have to. They have to take an online test, which we had to do for a learner's permit. Which
 
-[00:02:01] Adam: the online test takes the online course takes something like twenty hours.
+[00:02:01] Adam: the online test takes the online course takes something like 20 hours.
 
 [00:02:07] Will: Wow,
 
-[00:02:07] Adam: it's a bunch of time. I'm not positive that's exactly twenty hours, but he did it over over Christmas.
+[00:02:07] Adam: it's a bunch of time. I'm not positive that's exactly 20 hours, but he did it over over Christmas.
 
 [00:02:15] Will: I think it's a lot of like watching videos and stuff like that.
 
@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:02:43] Will: Well, and they're ambiguous too.
 
-[00:02:44] Adam: But it's not. yeah, it's weirdly ambiguous. At any rate, he finally passed it on the second run. And he Thing Two is is Quick with the physical, they're both actually very physically adept. And for the last few years, I think I've said this on the podcast before. I've taken them to the Infineon Raceway to do go kart racing on their birthdays. And last time I went, I had trouble keeping up with Thing Two. And you know, it doesn't hurt that he's got fifty pounds. He's fifty pounds lighter than me,
+[00:02:44] Adam: But it's not. yeah, it's weirdly ambiguous. At any rate, he finally passed it on the second run. And he Thing Two is is Quick with the physical, they're both actually very physically adept. And for the last few years, I think I've said this on the podcast before. I've taken them to the Infineon Raceway to do go kart racing on their birthdays. And last time I went, I had trouble keeping up with Thing Two. And you know, it doesn't hurt that he's got 50 pounds. He's 50 pounds lighter than me,
 
 [00:03:16] Will: and a complete lack of fear.
 
@@ -164,13 +164,13 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:06:36] Adam: It does.
 
-[00:06:37] Will: I think that's a ten year, like in twenty years.
+[00:06:37] Will: I think that's a 10 year, like in 20 years.
 
 [00:06:39] Adam: I think the shift is going to be fairly simple. I mean, there'll be natives to it, right? Like where we aren't
 
 [00:06:45] Norm: Exactly. That's why it's it's uncomfortable.
 
-[00:06:47] Will: I mean, if you think about my daughter, who's two now, in sixteen years, fourteen years, it's really likely that there will be a significant number of cars. cars on the road that just drive themselves most of the time.
+[00:06:47] Will: I mean, if you think about my daughter, who's two now, in 16 years, 14 years, it's really likely that there will be a significant number of cars. cars on the road that just drive themselves most of the time.
 
 [00:06:57] Adam: Oh yeah, and you can sit in the back and
 
@@ -204,11 +204,11 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:07:39] Will: It's more than that, isn't it?
 
-[00:07:39] Adam: It's. I think it's twenty or thirty thousand a year. It's lots, right?
+[00:07:39] Adam: It's. I think it's 20,000 or 30,000 a year. It's lots, right?
 
 [00:07:43] Will: It's right up there with the stuff that actually kills people.
 
-[00:07:45] Adam: Yeah. Yeah. If autonomous cars, within the first say decade, are able to start saving something like ten thousand lives a year, that's an impossible to ignore. We right now have national campaigns for things that. Okay. So.
+[00:07:45] Adam: Yeah. Yeah. If autonomous cars, within the first say decade, are able to start saving something like 10,000 lives a year, that's an impossible to ignore. We right now have national campaigns for things that. Okay. So.
 
 [00:08:02] Will: That was a large
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:09:35] Adam: That would kill me.
 
-[00:09:35] Will: The Vast majority of my days are 44 miles total round trip. Like I have a thing in the car that tracks that. Occasionally, I go up to sixty miles, and if you get the one with the little gas engine, it'll get you through that.
+[00:09:35] Will: The Vast majority of my days are 44 miles total round trip. Like I have a thing in the car that tracks that. Occasionally, I go up to 60 miles, and if you get the one with the little gas engine, it'll get you through that.
 
 [00:09:46] Adam: Yeah,
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:12:07] Adam: No, it's like goes right through every neighborhood and right through the towns and stuff like that.
 
-[00:12:11] Will: See, that's what I learned. We weren't allowed to get on the interstate when we were first starting to drive because it was a twenty mile drive from the house.
+[00:12:11] Will: See, that's what I learned. We weren't allowed to get on the interstate when we were first starting to drive because it was a 20 mile drive from the house.
 
 [00:12:16] Adam: Right, right, right.
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:14:14] Adam: Nice with the situational awareness. We got corrected on the on on on on the site in the comments for me saying proprioception. That they were like proprioception is your sense of your own body in space. Situational awareness is your sense of other bodies in space.
 
-[00:14:26] Will: Well, so so I mean that's one of those things that amazes me about the capacity of the human brain, right? It's like you've done the thing where you're on the road trip, and after you get going for a while, you just know okay, the red Camry's behind me, the blue pickup truck's in front of me. There's a guy coming up on the left, and there's an eighteen wheeler in the right lane, and you don't even have to think after you've been driving for a while.
+[00:14:26] Will: Well, so so I mean that's one of those things that amazes me about the capacity of the human brain, right? It's like you've done the thing where you're on the road trip, and after you get going for a while, you just know okay, the red Camry's behind me, the blue pickup truck's in front of me. There's a guy coming up on the left, and there's an 18 wheeler in the right lane, and you don't even have to think after you've been driving for a while.
 
 [00:14:43] Adam: You just are able to place those pieces on a board in your head and have a sense of where they're moving and how how they're moving.
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:17:07] Adam: the devil I know.
 
-[00:17:09] Will: Yeah. I'd much rather hit a road alligator, one of those big retread tires that's in the freeway, and wreck the bottom of my car, maybe get a little bit of air, than than swerve into and get run over by an eighteen wheeler.
+[00:17:09] Will: Yeah. I'd much rather hit a road alligator, one of those big retread tires that's in the freeway, and wreck the bottom of my car, maybe get a little bit of air, than than swerve into and get run over by an 18 wheeler.
 
 [00:17:20] Norm: Do you feel like that? Obviously, like the the things that stick with you are when you when you've made the mistakes, you know. Whether it's
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:19:57] Norm: yeah it was
 
-[00:19:58] Will: it probably had an enormous like three fifty eight engine or something in it
+[00:19:58] Will: it probably had an enormous like 358 engine or something in it
 
 [00:20:01] Norm: yeah it was very powerful
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:20:32] Will: that's crazy town.
 
-[00:20:32] Adam: I failed my first driver's test. I got to, I was, I was, I took the first driver's test in a standard. I was on a hill, and an eighteen wheeler pulled up right to my back bumper, Oh. and I like took my foot off the brake and started to slide, and the the tester had to pull my e brake.
+[00:20:32] Adam: I failed my first driver's test. I got to, I was, I was, I took the first driver's test in a standard. I was on a hill, and an 18 wheeler pulled up right to my back bumper, Oh. and I like took my foot off the brake and started to slide, and the the tester had to pull my e brake.
 
 [00:20:50] Will: Oh no!
 

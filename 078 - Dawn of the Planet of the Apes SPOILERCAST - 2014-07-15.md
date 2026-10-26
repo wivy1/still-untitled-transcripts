@@ -18,7 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:00:13] Adam: a a a contraction. I am.
 
-[00:00:15] Will: It's good. It's good that we keep it different every time. You know, some people might accuse us of phoning these in at some point. after. We're coming up on a hundred episodes. I think we're getting close.
+[00:00:15] Will: It's good. It's good that we keep it different every time. You know, some people might accuse us of phoning these in at some point. after. We're coming up on 100 episodes. I think we're getting close.
 
 [00:00:24] Norm: No way.
 
@@ -202,17 +202,17 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:06:33] Adam: Um,
 
-[00:06:34] Norm: I don't know what your opinion is because we didn't actually get to chat afterward. Um, so let's both tell Will what our rating out of five or out of ten is.
+[00:06:34] Norm: I don't know what your opinion is because we didn't actually get to chat afterward. Um, so let's both tell Will what our rating out of five or out of 10 is.
 
 [00:06:44] Will: Just close your eyes and hold up a number of fingers.
 
 [00:06:47] Adam: If I had to give a rating out of five,
 
-[00:06:50] Will: give it out of ten.
+[00:06:50] Will: give it out of 10.
 
-[00:06:50] Norm: Out of ten.
+[00:06:50] Norm: Out of 10.
 
-[00:06:51] Adam: Out of ten, oh great! Okay, hold on just a second. Let me just think this one all the way through.
+[00:06:51] Adam: Out of 10, oh great! Okay, hold on just a second. Let me just think this one all the way through.
 
 [00:06:54] Will: Okay, Adam's thinking about it. Norm already has fingers in the air.
 
@@ -394,7 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:11:48] Will: It's like a black box theater,
 
-[00:11:50] Adam: right? And it's just it's it's really pure. And they can, because you don't have seventy five people around holding shit up so that everything can happen perfectly. The actors can really concentrate and watch the performances and say, " I want to tweak this one, want to get this better, I want to do this right." And he said that you know that from a collaboration process, the actors found that really liberating.
+[00:11:50] Adam: right? And it's just it's it's really pure. And they can, because you don't have 75 people around holding shit up so that everything can happen perfectly. The actors can really concentrate and watch the performances and say, " I want to tweak this one, want to get this better, I want to do this right." And he said that you know that from a collaboration process, the actors found that really liberating.
 
 [00:12:11] Will: So, so I mean, the argument for me in favor of making Andy what Andy Serkis does just and just go ahead and calling it acting,
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:14:51] Adam: Absolutely, and and that that that tension between who you root for and the amount of empathy they manage to bring to the situation of a non-human entity on Earth,
 
-[00:15:05] Norm: which is something that is throughout this entire second movie. There are two factions: it's the Apes who are now in a who have built up a colony and their own home, and the surviving humans, one out of every five hundred who survived the simian flu. We as humans want to root for the humans, but also
+[00:15:05] Norm: which is something that is throughout this entire second movie. There are two factions: it's the Apes who are now in a who have built up a colony and their own home, and the surviving humans, one out of every 500 who survived the simian flu. We as humans want to root for the humans, but also
 
 [00:15:21] Adam: You spend the whole movie wondering who you should be rooting for, or feeling like I want to root for them. Oh, now they're together. Oh, I don't know who to root for, and you. It's that tension is very real in the film
 
@@ -672,7 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:20:49] Will: That's good. That's, that's very casual, but up.
 
-[00:20:52] Norm: So in the theater, uh, you know, it's like a mid-sized theater. I would say maybe eight hundred people or so.
+[00:20:52] Norm: So in the theater, uh, you know, it's like a mid-sized theater. I would say maybe 800 people or so.
 
 [00:20:52] Adam: Yeah.
 
@@ -684,13 +684,13 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:21:08] Adam: The fillet
 
-[00:21:08] Norm: cut exactly. But because they can't get eight hundred people or pay for eight hundred people from production to watch the movie, I'm sure it would be nice if all the camera people who made the movie got to watch at the premiere. They have to fill the seats with the press people and also
+[00:21:08] Norm: cut exactly. But because they can't get 800 people or pay for 800 people from production to watch the movie, I'm sure it would be nice if all the camera people who made the movie got to watch at the premiere. They have to fill the seats with the press people and also
 
 [00:21:23] Will: people who win the radio shows.
 
 [00:21:25] Norm: Exactly. Yeah, we're all in the same room. There were plenty of people there who won the radio shows, and they tell you to get there early. They park. Also, they had a full security detail there, telling people where to go, and a whole fleet of like black suburban SUVs, tinted windows in the back.
 
-[00:21:37] Adam: Yes, and I would I want to just tell you is yeah I'll let you continue, but I will tell you that as I walk like a cordon through something like this. One of my favorite things is the security people because they are absolutely a core MythBusters fan base, and the world over, guys who work security, guys and women who work security at places like this, are incredibly professional. They've seen everything, they've seen everyone, they are hard to impress, and they are, like I said, a absolute manifestation of professionalism. And still, I frequently see a little gleam in the eye when they see me and a little simpatico. So, as I was leaving last night, I just walked up to this door, you know, one of those Exploratorium doors. It's like forty feet tall.
+[00:21:37] Adam: Yes, and I would I want to just tell you is yeah I'll let you continue, but I will tell you that as I walk like a cordon through something like this. One of my favorite things is the security people because they are absolutely a core MythBusters fan base, and the world over, guys who work security, guys and women who work security at places like this, are incredibly professional. They've seen everything, they've seen everyone, they are hard to impress, and they are, like I said, a absolute manifestation of professionalism. And still, I frequently see a little gleam in the eye when they see me and a little simpatico. So, as I was leaving last night, I just walked up to this door, you know, one of those Exploratorium doors. It's like 40 feet tall.
 
 [00:21:37] Norm: Yeah,
 
@@ -908,7 +908,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:30:11] Will: You never have one of those scenes where at the end you feel like the guy should just break the fourth wall, look at the camera, be like, " Well, that was a lot of exposition, wasn't it?"
 
-[00:30:18] Adam: Actually, no. And what they did is they they got rid of most of their world building in the first thirty five fifty seconds of just sound design and a shot of you know how the flu takes over the world.
+[00:30:18] Adam: Actually, no. And what they did is they they got rid of most of their world building in the first 35 50 seconds of just sound design and a shot of you know how the flu takes over the world.
 
 [00:30:30] Norm: And you're hearing news direct connections to the end of the last movie, the end credits of the last movie, which was the planes going out and spreading the flu.
 
@@ -918,7 +918,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:30:36] Adam: Yeah,
 
-[00:30:36] Norm: the story that they wanted to tell. Um, Caesar. It's ten years later.
+[00:30:36] Norm: the story that they wanted to tell. Um, Caesar. It's 10 years later.
 
 [00:30:36] Adam: Yeah. Uh.
 

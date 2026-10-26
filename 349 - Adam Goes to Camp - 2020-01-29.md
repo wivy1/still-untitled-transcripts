@@ -62,13 +62,13 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:02:38] Will: That's the first time I've done that one, by the way.
 
-[00:02:40] Norm: So the fifty people or so,
+[00:02:40] Norm: So the 50 people or so,
 
-[00:02:42] Will: four hundred and four, three hundred and seventy-five, four hundred and twenty somewhere in there.
+[00:02:42] Will: 404, 375, 420 somewhere in there.
 
 [00:02:43] Norm: Oh, wow. That's a lot more. I thought, okay.
 
-[00:02:46] Adam: There was fifty left at seven a.m. on Sunday morning.
+[00:02:46] Adam: There was 50 left at seven a.m. on Sunday morning.
 
 [00:02:49] Will: Yeah, that was those were the those were the last people standing.
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:05:05] Adam: Truly,
 
-[00:05:05] Will: the other things that they've talked about that over the last couple of years have been become very important. We've had a extended conversation about mansplaining. That we've that Dan Shapiro gave a really good talk last year in the opening plenary. It's like, hey, look around. If everybody in this room looks like you, then you know, look look at the number of people, and then roll a D20. If there's twenty people in the room and you don't roll a natural twenty, probably wait your turn to talk. Right, let everybody else talk.
+[00:05:05] Will: the other things that they've talked about that over the last couple of years have been become very important. We've had a extended conversation about mansplaining. That we've that Dan Shapiro gave a really good talk last year in the opening plenary. It's like, hey, look around. If everybody in this room looks like you, then you know, look look at the number of people, and then roll a D20. If there's 20 people in the room and you don't roll a natural 20, probably wait your turn to talk. Right, let everybody else talk.
 
 [00:05:31] Adam: And his talk was a little controversial with some attendees.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:07:02] Will: Which one,
 
-[00:07:02] Adam: Spaceman Don? I brought the A7L. And then when it came time to put up talks, I literally wrote, " I brought a spacesuit." And sixty people showed up. I helped five, four or five people try on the spacesuit in the course of an hour. Kjell and Don both came, and
+[00:07:02] Adam: Spaceman Don? I brought the A7L. And then when it came time to put up talks, I literally wrote, " I brought a spacesuit." And 60 people showed up. I helped five, four or five people try on the spacesuit in the course of an hour. Kjell and Don both came, and
 
 [00:07:17] Unknown speaker: No pressure.
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:09:52] Adam: It takes a huge amount of consciousness and institutional knowledge to do it right. I think.
 
-[00:09:57] Will: However, if you want to do something like this in your community, they started ORD Camp twelve years ago. I think I think Fitz said seventy five people attended the first one. So you know you get to get seventy five people, you get ten friends and tell them to invite two people, three people each, and then you add some more people and and like starting with fifty or seventy five people is eminently doable. For I bet a lot of people who listen to us, it is a profoundly profoundly recharging and moving experience for me. That's why I keep I keep going back every year because I learn new things and it fills my brain and my heart up almost to bursting. I mean over a forty eight hour period.
+[00:09:57] Will: However, if you want to do something like this in your community, they started ORD Camp 12 years ago. I think I think Fitz said 75 people attended the first one. So you know you get to get 75 people, you get 10 friends and tell them to invite two people, three people each, and then you add some more people and and like starting with 50 or 75 people is eminently doable. For I bet a lot of people who listen to us, it is a profoundly profoundly recharging and moving experience for me. That's why I keep I keep going back every year because I learn new things and it fills my brain and my heart up almost to bursting. I mean over a 48 hour period.
 
 [00:10:33] Adam: You know, on the first day, I started watching people juggle, and that's when I met Taylor, whose YouTube channel
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:10:57] Will: and got on the first try.
 
-[00:10:57] Adam: And we're and we're she had a lot of patience with me. I was passing clubs with her after about ten minutes, and I like there's um I haven't talked about passing clubs on the podcast before. Okay, when you when you first get obsessed with juggling, you juggle three balls, and then you matriculate to clubs. You know, like learning anything, there's diminishing returns to the to the skill acquisition, right? The better you get, the slower your progress gets because
+[00:10:57] Adam: And we're and we're she had a lot of patience with me. I was passing clubs with her after about 10 minutes, and I like there's um I haven't talked about passing clubs on the podcast before. Okay, when you when you first get obsessed with juggling, you juggle three balls, and then you matriculate to clubs. You know, like learning anything, there's diminishing returns to the to the skill acquisition, right? The better you get, the slower your progress gets because
 
 [00:11:25] Will: there's kind of plateaus, right? You you get to mastery, and then you learn the new thing,
 
@@ -250,7 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:12:23] Will: I've never been able to do clubs for a long time. It's because when I was a kid, clubs were really expensive.
 
-[00:12:27] Adam: Oh yeah yeah yeah. No, a hundred bucks for a pair of three. I bought my first pair from Brian Dube in Soho from over the counter from his little store.
+[00:12:27] Adam: Oh yeah yeah yeah. No, $100 for a pair of three. I bought my first pair from Brian Dube in Soho from over the counter from his little store.
 
 [00:12:34] Will: Yeah.
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:15:52] Norm: I saw something you posted. Yeah, a mold you put in
 
-[00:15:55] Will: mold to put the sushi rice in, and you jam it down there. But the trick I learned is that you use if you use the bacon Spam instead of the Spam Spam, and you cut twelve slices per can. That gives you the right ratio of rice to Spam to nori, and then you can put whatever kind of sauces you want in between. Glaze the Spam if you want to put some pineapple or something on. That was I. I didn't know I liked Spam musubi until earlier this year. Um, uh, I helped a guy. I help I helped the archaeologist put on the full set of steel armor. It's fascinating how different that is than putting on your costume armor.
+[00:15:55] Will: mold to put the sushi rice in, and you jam it down there. But the trick I learned is that you use if you use the bacon Spam instead of the Spam Spam, and you cut 12 slices per can. That gives you the right ratio of rice to Spam to nori, and then you can put whatever kind of sauces you want in between. Glaze the Spam if you want to put some pineapple or something on. That was I. I didn't know I liked Spam musubi until earlier this year. Um, uh, I helped a guy. I help I helped the archaeologist put on the full set of steel armor. It's fascinating how different that is than putting on your costume armor.
 
 [00:16:28] Adam: Yeah,
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:17:51] Will: What a wonderful nerd,
 
-[00:17:52] Adam: right? So Don is talking about how they're talking about bringing a medical kit up to the space station, but no one knows what will happen if you accidentally, um, if you accidentally expose pills which have a lot of voids in them to a perfect vacuum. But luckily, Don has a vacuum pump in his shop in in Texas that can pull to um ten to the minus eight torr.
+[00:17:52] Adam: right? So Don is talking about how they're talking about bringing a medical kit up to the space station, but no one knows what will happen if you accidentally, um, if you accidentally expose pills which have a lot of voids in them to a perfect vacuum. But luckily, Don has a vacuum pump in his shop in in Texas that can pull to um 10 to the minus eight torr.
 
 [00:18:16] Will: Good God! What is he doing with that in his garage?
 

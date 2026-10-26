@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:05:12] Norm: So, when people watch the video, we saw it's a vest. We want to describe it? Right. And are they designed to release like over time? Like, what's the standard use time for that type of
 
-[00:05:21] Adam: standard use time? Is they say about thirty minutes in the fridge and about an hour in the freezer?
+[00:05:21] Adam: standard use time? Is they say about 30 minutes in the fridge and about an hour in the freezer?
 
 [00:05:21] Norm: Okay.
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:07:55] Adam: Also, I will say that one of the difficulties with helmets fans on that degree is they're noisy, and when you are hot and it's hard to see, and all of a sudden noise comes in, it it actually really increases the feeling of claustrophobia. I don't get claustrophobic, but it can be quite unpleasant to be in a big crowd and not feel like you can see anyone or hear them or talk to them
 
-[00:08:24] Norm: because you are twenty minutes away from being back in the room.
+[00:08:24] Norm: because you are 20 minutes away from being back in the room.
 
 [00:08:27] Adam: Exactly,
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:11:23] Adam: Okay.
 
-[00:11:23] Will: So it keeps you around, let's say, sixty-five or seventy Fahrenheit.
+[00:11:23] Will: So it keeps you around, let's say, 65 or 70 Fahrenheit.
 
 [00:11:23] Adam: And where does it dump its heat?
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:19:23] Adam: It is about absolutely serious stuff, and there is, you know, this isn't anecdotal, right? So it's like people will put up comments, and it's not like I've seen them on Tested, but you see them around, around, around online of like, well, I've never seen it happen. It's like that's that's
 
-[00:19:23] Will: a hundred and twenty thousand people.
+[00:19:23] Will: 120,000 people.
 
 [00:19:23] Adam: That’s not the point. What you've seen? Oh, no one's ever told me that that's happened. That's still not the point.
 
@@ -378,9 +378,9 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:20:35] Adam: I brought it all back around.
 
-[00:20:53] Will: It's good wrap around. Any final Comic Con thoughts before we close this? The last time we'll talk about Comic Con for at least another like ten months.
+[00:20:53] Will: It's good wrap around. Any final Comic Con thoughts before we close this? The last time we'll talk about Comic Con for at least another like 10 months.
 
-[00:21:01] Adam: Ten months. I will say that the. I love the culture of Comic Con. I learn, I get, I get credit in the press for being sort of like. There's a lot of articles that are like, Adam Savage is the ultimate Comic Con cosplayer. It's so not the case. I am still a dilettante when it comes to a lot of this stuff.
+[00:21:01] Adam: 10 months. I will say that the. I love the culture of Comic Con. I learn, I get, I get credit in the press for being sort of like. There's a lot of articles that are like, Adam Savage is the ultimate Comic Con cosplayer. It's so not the case. I am still a dilettante when it comes to a lot of this stuff.
 
 [00:21:22] Will: There are people, just to be clear, who go out in costume and go to the con. Yeah, you hit the floor for half an hour.
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:23:05] Adam: And in a way, it communicates a need even more because it's like, yeah, I want to try this, and I agree. Yeah, you want to try this.
 
-[00:23:12] Will: And just to be clear, if you want to start doing this, the way to do it isn't to spend ten years.
+[00:23:12] Will: And just to be clear, if you want to start doing this, the way to do it isn't to spend 10 years.
 
 [00:23:12] Adam: No.
 
@@ -418,17 +418,17 @@ Episode URL: https://www.youtube.com/watch?v=-oQUn8fTxa8
 
 [00:23:12] Will: And then then go walk see if it sticks. And maybe you get out there, you don't like it at all.
 
-[00:23:12] Adam: And out there on on eBay and on Etsy and a lot of other places, there are great costumes you can get made. You can take stuff that that's cheaply made, buy some slightly better fabric, and pay your pay a seamstress to make it. It's not that expensive. My V shirt, my V for Vendetta costume, right? Everyone has a very difficult time with that costume finding the fabric. I found a fabric that was very close. It was expensive. The fabric was expensive, like something like 75 bucks a yard.
+[00:23:12] Adam: And out there on on eBay and on Etsy and a lot of other places, there are great costumes you can get made. You can take stuff that that's cheaply made, buy some slightly better fabric, and pay your pay a seamstress to make it. It's not that expensive. My V shirt, my V for Vendetta costume, right? Everyone has a very difficult time with that costume finding the fabric. I found a fabric that was very close. It was expensive. The fabric was expensive, like something like $75 a yard.
 
 [00:23:12] Will: Wow.
 
-[00:23:12] Adam: But I bought a doublet for a V costume online for like thirty bucks that fit me really nicely, especially when I pinned it to fit me exactly. I took that to the person that does my my alterations, and they rebuilt the doublet I had with the fabric I had for like 100 dollars.
+[00:23:12] Adam: But I bought a doublet for a V costume online for like $30 that fit me really nicely, especially when I pinned it to fit me exactly. I took that to the person that does my my alterations, and they rebuilt the doublet I had with the fabric I had for like $100.
 
 [00:24:18] Will: Right. I mean, that's amazing.
 
 [00:24:18] Adam: It was beautiful. So the threshold for getting quality stuff is not that high, and there is a way in which I felt connected, like I said, to that culture on a deeper level this year that made it twice as pleasant.
 
-[00:24:35] Will: Stuff like your no face costume. I mean, your no face costume, the the vacuum former is probably a, I mean, but it's even a fairly good vacuum former. If you have an old vacuum cleaner that doesn't work anymore, is a Saturday afternoon and a hundred bucks all in probably to get something that size.
+[00:24:35] Will: Stuff like your no face costume. I mean, your no face costume, the the vacuum former is probably a, I mean, but it's even a fairly good vacuum former. If you have an old vacuum cleaner that doesn't work anymore, is a Saturday afternoon and $100 all in probably to get something that size.
 
 [00:24:35] Adam: Well, I mean, you can do that face under a bunch of different circumstances. There was a beautiful papier mache no face walking around Comic Con this year. That was that was almost as tall, and I just I love I love seeing the no faces.
 

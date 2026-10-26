@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:08:50] Norm: yeah,
 
-[00:08:50] Sam Farrell: and were worth a lot of money. And I said, but everybody's seen Star Wars. Everybody knows it so well. The Ark is, you know, everybody's seen that too. But they haven't, you know, it's not something you think of immediately when you think of star when you think of movies and so on. So it seemed to me like it was the best. The best thing to pull out of this, and it ended up being worth, I believe, I think, 80,000 dollars.
+[00:08:50] Sam Farrell: and were worth a lot of money. And I said, but everybody's seen Star Wars. Everybody knows it so well. The Ark is, you know, everybody's seen that too. But they haven't, you know, it's not something you think of immediately when you think of star when you think of movies and so on. So it seemed to me like it was the best. The best thing to pull out of this, and it ended up being worth, I believe, I think, $80,000.
 
 [00:09:17] Adam: Wow!
 
@@ -212,15 +212,15 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:09:34] Will: How? What? I mean, one of the things always amazes me about about Roadshow is that you all always have like the breadth of knowledge of the experts that you have evaluating pieces is just astounding. Like like, do you bring different? I mean, since you can get anything anywhere, I guess you have to bring just a general group group of folks everywhere you go, right?
 
-[00:09:54] Sam Farrell: Right. Murderers' row. That's a brilliant expression. We should keep that. We have a pool of about a hundred and fifty current appraisers, and I won't say they're the only experts in the country. There are certainly other people, and they have to be involved in the market because we're Talking about price, so they aren't museum experts. They aren't academics, most of them. Although a lot of them are academically trained, the one thing that they seem to have in common a lot is that they're steeped in this what they deal with in their families. It just comes down generation to generation. Half the time, these are people with you know grandparents who are in the business and so on and so forth. But it's one of the most enjoyable parts of my job is when we sit down at the beginning of the year trying to you know we've asked everybody when can they come and we sit down at the beginning of the year and we have to figure out how do we get seventy appraisers in each location and cover
+[00:09:54] Sam Farrell: Right. Murderers' row. That's a brilliant expression. We should keep that. We have a pool of about 150 current appraisers, and I won't say they're the only experts in the country. There are certainly other people, and they have to be involved in the market because we're Talking about price, so they aren't museum experts. They aren't academics, most of them. Although a lot of them are academically trained, the one thing that they seem to have in common a lot is that they're steeped in this what they deal with in their families. It just comes down generation to generation. Half the time, these are people with you know grandparents who are in the business and so on and so forth. But it's one of the most enjoyable parts of my job is when we sit down at the beginning of the year trying to you know we've asked everybody when can they come and we sit down at the beginning of the year and we have to figure out how do we get 70 appraisers in each location and cover
 
-[00:10:45] Will: seventy seventy. Well, that explains a lot,
+[00:10:45] Will: 70 70. Well, that explains a lot,
 
 [00:10:46] Sam Farrell: right? And then we cover the whole you know gamut from you know folk art, books, furniture, musical instruments, posters, paintings, movie props, and so there's that that sort of puzzle. Putting that puzzle together is is one of the most fun. Other than the actual shoot day, that's one of the most fun days there is.
 
 [00:11:06] Norm: And then when it comes to the shoot day, what does the layout of the space look like? We get glimpses of that in the show.
 
-[00:11:12] Sam Farrell: You brought up something. I mean, my publicist will be just so happy. You know, we can talk now about how we've changed. We've changed to using, and we used to go to convention centers and we'd set up a set that was roughly a hundred feet across, and just everybody in a circle. And we'd have three shooting locations, and the cameras because it was in a convention center could just truck easily from one shooting location to another. We shoot here, the others are getting ready, the others being taken down. A couple of handhelds, and it worked really well. It was very efficient. And then we were asked to consider changing it up, and we are now going to what we call distinctive, historic, and iconic locations around the country, and we're shooting outside.
+[00:11:12] Sam Farrell: You brought up something. I mean, my publicist will be just so happy. You know, we can talk now about how we've changed. We've changed to using, and we used to go to convention centers and we'd set up a set that was roughly 100 feet across, and just everybody in a circle. And we'd have three shooting locations, and the cameras because it was in a convention center could just truck easily from one shooting location to another. We shoot here, the others are getting ready, the others being taken down. A couple of handhelds, and it worked really well. It was very efficient. And then we were asked to consider changing it up, and we are now going to what we call distinctive, historic, and iconic locations around the country, and we're shooting outside.
 
 [00:11:58] Adam: Oh wow!
 
@@ -298,11 +298,11 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:18:42] Norm: the story, the interesting provenance.
 
-[00:18:43] Sam Farrell: There was a fabulous piece which I happened to pick, and it it it gives you goosebumps because this is especially this being shortly after the hundredth anniversary of the First World War. It was a peach can label, and this American, GI, had and you know resources were scarce, so he peeled off the peach can label, and he decided to write to the company that made the can of peaches, and he wrote this letter, and at the end he wrote you know these. Peaches are worth fighting for, and it sort of gives you goosebumps, right?
+[00:18:43] Sam Farrell: There was a fabulous piece which I happened to pick, and it it it gives you goosebumps because this is especially this being shortly after the 100th anniversary of the First World War. It was a peach can label, and this American, GI, had and you know resources were scarce, so he peeled off the peach can label, and he decided to write to the company that made the can of peaches, and he wrote this letter, and at the end he wrote you know these. Peaches are worth fighting for, and it sort of gives you goosebumps, right?
 
 [00:19:20] Will: Right.
 
-[00:19:20] Sam Farrell: And and it um it it was actually only worth 800 dollars as as an item you know that you could buy and put in your collection and so on so forth, but as a human story and it wasn't even so the the guy had got it I can't remember exactly how it wasn't some hugely personal object to him, but it was hugely personal to all of us and this is what I like to say about Antiques Roadshow, is it is the story of American identity everybody can identify, with some aspect of each appraisal,
+[00:19:20] Sam Farrell: And and it um it it was actually only worth $800 as as an item you know that you could buy and put in your collection and so on so forth, but as a human story and it wasn't even so the the guy had got it I can't remember exactly how it wasn't some hugely personal object to him, but it was hugely personal to all of us and this is what I like to say about Antiques Roadshow, is it is the story of American identity everybody can identify, with some aspect of each appraisal,
 
 [00:19:50] Adam: right?
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:19:55] Will: Like the moment that you live for and you how many how many of them do you get a day like how often does that happen?
 
-[00:20:00] Sam Farrell: Well, we're recording somewhere around sixty or seventy items a day, and I
+[00:20:00] Sam Farrell: Well, we're recording somewhere around 60 or 70 items a day, and I
 
 [00:20:05] Adam: Wow.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:23:01] Sam Farrell: Yeah, and it's unbelievable. And if you can't get people to confess if they're being doing something wrong by filling in the gaps, you say, " I'll be right back. I'm just going to go and talk to him." There are a number of times when I've gone to talk to an appraiser and say, " I'm just letting him or her think about this a bit." I've asked them a question. I don't think they're telling me the, the full answer, and then I'll go back and they say, oh well, you know, I did have it appraised actually, yeah, two years ago, and and yeah, I know, for this much, and say, well, it's it's nice, thank you, and then, you know, maybe maybe that doesn't ruin the appraisal, or maybe they've just told you enough that, they're not they're not going to show up as, great guests on a on a TV reality show where the response is, very valuable.
 
-[00:23:45] Adam: Well, so per your per your thing of being quiet, I interviewed Aasif Mandvi a couple years ago on stage, and he was talking about doing the away shoots for the Daily Show, which were was a format invented by Stephen Colbert, and so each time a new comedian producer would go off to do an away shoot for the first time, Stephen would sit them down and tell them the two important rules about doing that, and one is everyone loses fifteen IQ points when you point a camera at them, and the other one was shut up and let them bury themselves. You just be quiet, as quiet as you can, and they will, they will fill in the gaps. And then the last thing I remember, years ago, a friend of mine was owed money by a film company for writing a script, and they were like ten months late in paying him. And his agent said, " Here's what you do: call the guy whose number you have and say, 'I'm wondering where my check is,' and then don't say another word in the phone call until he said something substantive. " And so my friend was like, " Oh, it's a violation of all the social norms." He was like, " Hey, Doug, I'm just wondering where my check is." And then there's this pause. It's like ten, fifteen seconds long, and the Doug starts going, " I, I, I, I," and then
+[00:23:45] Adam: Well, so per your per your thing of being quiet, I interviewed Aasif Mandvi a couple years ago on stage, and he was talking about doing the away shoots for the Daily Show, which were was a format invented by Stephen Colbert, and so each time a new comedian producer would go off to do an away shoot for the first time, Stephen would sit them down and tell them the two important rules about doing that, and one is everyone loses 15 IQ points when you point a camera at them, and the other one was shut up and let them bury themselves. You just be quiet, as quiet as you can, and they will, they will fill in the gaps. And then the last thing I remember, years ago, a friend of mine was owed money by a film company for writing a script, and they were like 10 months late in paying him. And his agent said, " Here's what you do: call the guy whose number you have and say, 'I'm wondering where my check is,' and then don't say another word in the phone call until he said something substantive. " And so my friend was like, " Oh, it's a violation of all the social norms." He was like, " Hey, Doug, I'm just wondering where my check is." And then there's this pause. It's like 10, 15 seconds long, and the Doug starts going, " I, I, I, I," and then
 
 [00:25:01] Norm: because he can't hang up. Yeah, it's like a telemarketing thing.
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:27:27] Will: Yeah,
 
-[00:27:27] Sam Farrell: but but it's that sort of thing, or what we call brown furniture, is no longer you know sought after because kids, a lot of people into their late twenties and thirties are living with their parents. They don't have spare space to put furniture or even collect stuff. So there's there's a big shift in that. But that being said, people like interesting looking things. People like beauty. People like things that relate to their childhood and relate to the history and and the culture. And there'll always be stuff that people want. The values may go up and down, but everything will always remain collectible.
+[00:27:27] Sam Farrell: but but it's that sort of thing, or what we call brown furniture, is no longer you know sought after because kids, a lot of people into their late 20s and 30s are living with their parents. They don't have spare space to put furniture or even collect stuff. So there's there's a big shift in that. But that being said, people like interesting looking things. People like beauty. People like things that relate to their childhood and relate to the history and and the culture. And there'll always be stuff that people want. The values may go up and down, but everything will always remain collectible.
 
 [00:28:07] Adam: So how how many weeks a year are you guys in production, pre-production, and production?
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:28:17] Adam: well. How many episodes are in a season?
 
-[00:28:20] Sam Farrell: Well, all right. So there are this year, fifteen new episodes, three themed specials, and six of what we call vintage, where we have repacked shows from fifteen years ago and updated the prices.
+[00:28:20] Sam Farrell: Well, all right. So there are this year, 15 new episodes, three themed specials, and six of what we call vintage, where we have repacked shows from 15 years ago and updated the prices.
 
 [00:28:37] Adam: Oh, neat!
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:28:57] Norm: Some of that stuff is posted online too. Do you take into account like the things you that might go viral because your audience has special attachment to it, or you think?
 
-[00:29:05] Sam Farrell: Well, so I happen to know that one of the things that went viral was a Rolex watch, and I think it had five million hits.
+[00:29:05] Sam Farrell: Well, so I happen to know that one of the things that went viral was a Rolex watch, and I think it had 5 million hits.
 
 [00:29:14] Adam: That's the one.
 
@@ -426,11 +426,11 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:29:36] Adam: Yeah, go ahead.
 
-[00:29:36] Sam Farrell: We we saw one in Fargo. We were in Fargo. Talk about different locations. We were in Fargo, this reconstructed old West town with buildings from different eras and and you know, 1840s print shop and a telegraph shop and all those. Anyway, we were in Fargo, and this guy came in, and you're going to want to watch the Fargo episodes. They're our first episodes. It tells you how exciting they are. I think they're our first. I may have made a mistake there, but anyway, this guy brings in a Rolex. It is phenomenal, and his reaction—I mean, he's completely floored. And when I say that, you will see when you watch it. It's a this thing is worth over half a million dollars. And it's just phenomenal.
+[00:29:36] Sam Farrell: We we saw one in Fargo. We were in Fargo. Talk about different locations. We were in Fargo, this reconstructed old West town with buildings from different eras and and you know, 1840s print shop and a telegraph shop and all those. Anyway, we were in Fargo, and this guy came in, and you're going to want to watch the Fargo episodes. They're our first episodes. It tells you how exciting they are. I think they're our first. I may have made a mistake there, but anyway, this guy brings in a Rolex. It is phenomenal, and his reaction—I mean, he's completely floored. And when I say that, you will see when you watch it. It's a this thing is worth over $500,000. And it's just phenomenal.
 
 [00:30:22] Adam: Wow! Are there cases in which you and your crew have become experts at things that are chronically under or overvalued on eBay?
 
-[00:30:33] Sam Farrell: That's an interesting point. The people come in expecting, well, I saw this on eBay, and so on and so forth. And I like to say where we differentiate ourselves is it's all very well you can you can categorize things, you can even catalogue things, but it takes an expert to spot the really special things. And so they come in with this and they say, " Well, I know it's worth you know 10,000 dollars." Well, it would be if you know. I mean, you are in the in the Star Wars collectibles. You know, if what is that? There is the Jawa with a with a cape,
+[00:30:33] Sam Farrell: That's an interesting point. The people come in expecting, well, I saw this on eBay, and so on and so forth. And I like to say where we differentiate ourselves is it's all very well you can you can categorize things, you can even catalogue things, but it takes an expert to spot the really special things. And so they come in with this and they say, " Well, I know it's worth you know $10,000." Well, it would be if you know. I mean, you are in the in the Star Wars collectibles. You know, if what is that? There is the Jawa with a with a cape,
 
 [00:31:08] Norm: the Kenner, or yes,
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:31:22] Will: The the shiny threads, the cloth or whatever.
 
-[00:31:24] Sam Farrell: Yes, exactly, and and so an expert can do that, and somebody on eBay usually can't. And where we are, you know, able to to help people out is the the eye, the human eye, this eye that is bred through hours and hours and hours, countless hours. Sort of Malcolm Gladwell's you know ten thousand hours doesn't do it justice. You know, of seeing this stuff day in day out, and you know what's right until until somebody picks up a piece of supposedly Tiffany favrile glass and says no, it's wrong because it doesn't feel heavy enough.
+[00:31:24] Sam Farrell: Yes, exactly, and and so an expert can do that, and somebody on eBay usually can't. And where we are, you know, able to to help people out is the the eye, the human eye, this eye that is bred through hours and hours and hours, countless hours. Sort of Malcolm Gladwell's you know 10,000 hours doesn't do it justice. You know, of seeing this stuff day in day out, and you know what's right until until somebody picks up a piece of supposedly Tiffany favrile glass and says no, it's wrong because it doesn't feel heavy enough.
 
 [00:31:57] Norm: Do experts reach out to you and try to be part of the show? And and if what do you look for when adding to that group?
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:32:48] Will: Steve's okay.
 
-[00:32:49] Adam: Well, the the fact that everyone comes and gets an appraisal is an amazing thing in and of itself because I have a friend, old friend, who was an antique dealer for a long time, and he used to very sourly like talk about people coming in and wanting free appraisals. Number one, which is costly for an expert to do, and then saying free appraisals are actually most of the time worth what you paid for them, which is to say, you know, it's like I remember telling him about some you know some news show in New York did a thing where they took jewel they took an antique around to a bunch of antique stores and watched in hidden camera as it was. Chronically undervalued, right? I'll buy this from you for X. And my friend was like, " Why would you get mad at that? That's literally America: buy low, sell high." And we love stories about I bought this at a garage sale for five bucks and sold it for one hundred fifty thousand. Well, what about the guy who's it was when he was a kid? Shouldn't he get a chunk of that? If you're getting all upset about this,
+[00:32:49] Adam: Well, the the fact that everyone comes and gets an appraisal is an amazing thing in and of itself because I have a friend, old friend, who was an antique dealer for a long time, and he used to very sourly like talk about people coming in and wanting free appraisals. Number one, which is costly for an expert to do, and then saying free appraisals are actually most of the time worth what you paid for them, which is to say, you know, it's like I remember telling him about some you know some news show in New York did a thing where they took jewel they took an antique around to a bunch of antique stores and watched in hidden camera as it was. Chronically undervalued, right? I'll buy this from you for X. And my friend was like, " Why would you get mad at that? That's literally America: buy low, sell high." And we love stories about I bought this at a garage sale for $5 and sold it for $150,000. Well, what about the guy who's it was when he was a kid? Shouldn't he get a chunk of that? If you're getting all upset about this,
 
 [00:33:43] Will: You're not allowed to get upset about it.  You either get it one way or the other, but not both.
 
@@ -478,7 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:36:04] Unknown speaker (Adam or Will): That's hilarious.
 
-[00:36:04] Will: So I I think one of my my my as many people did, I started watching the show with my parents twenty years ago because they're really into like Appalachian frontier era furniture from like the early 1800s, late 1700s, stuff like that. And they used to watch it like fast forwarding through to get to those bits, which made me crazy. But that's all a different story. And one of the things that my mom loves is when, and and I think is fabulous, is when somebody finds something that's a fake that was made in an interesting period of time that's still incredibly old. So a lot of times people will have what were you know eighty year later reproductions of furniture that was made in the you know early 1800s, but that was made like the the post Civil War basically.
+[00:36:04] Will: So I I think one of my my my as many people did, I started watching the show with my parents 20 years ago because they're really into like Appalachian frontier era furniture from like the early 1800s, late 1700s, stuff like that. And they used to watch it like fast forwarding through to get to those bits, which made me crazy. But that's all a different story. And one of the things that my mom loves is when, and and I think is fabulous, is when somebody finds something that's a fake that was made in an interesting period of time that's still incredibly old. So a lot of times people will have what were you know 80 year later reproductions of furniture that was made in the you know early 1800s, but that was made like the the post Civil War basically.
 
 [00:36:50] Adam: Well, there's that famous case of the sideboard in which they'd stripped off the original fake mahogany lacquer. It was on your show.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:37:00] Adam: It was it was a it was an 18th century piece of furniture, if I remember correctly.
 
-[00:37:04] Will: Adam, did you just on episode C thirty one part two?
+[00:37:04] Will: Adam, did you just on episode C 31 part two?
 
 [00:37:07] Adam: It had this it had this bad finish, yeah, like this dark lacquer over it, and they had they had removed the lacquer, and they were informed that the lacquer was original to exactly what you're talking about.
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:37:20] Will: it was a veneer
 
-[00:37:21] Adam: from twenty years earlier, and that if they hadn't removed it, it would have been worth like over a hundred grand, and because they'd removed it, it was worth twenty.
+[00:37:21] Adam: from 20 years earlier, and that if they hadn't removed it, it would have been worth like over $100,000, and because they'd removed it, it was worth 20.
 
 [00:37:28] Sam Farrell: Yeah. Yeah, that happens a lot.
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:43:20] Adam: That you do. Yeah,
 
-[00:43:21] Adam: I'm usually looking for tools which aren't very collectible, and I mean, I have a piece. A little folding ruler, a little folding Stanley ruler that a gentleman might keep in their pocket, and this one's silver plate and ivory. And I think I picked it up for forty bucks somewhere. You know, these tools are aren't being looked at a lot.
+[00:43:21] Adam: I'm usually looking for tools which aren't very collectible, and I mean, I have a piece. A little folding ruler, a little folding Stanley ruler that a gentleman might keep in their pocket, and this one's silver plate and ivory. And I think I picked it up for $40 somewhere. You know, these tools are aren't being looked at a lot.
 
 [00:43:42] Sam Farrell: And unsalable in California.
 

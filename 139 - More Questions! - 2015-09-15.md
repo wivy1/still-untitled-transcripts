@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:15:40] Adam: right? No.
 
-[00:15:40] Will: Oh yeah, I've been on TV for last thirteen or fourteen years. No big deal.
+[00:15:40] Will: Oh yeah, I've been on TV for last 13 or 14 years. No big deal.
 
 [00:15:44] Adam: There was a wonderful essay on politeness that came out about a year and a half ago, and the author whose name escapes me is a terrific article. I'll see if I can find it so we can link to it. Talks about two conversational gambits about being polite that I really like. One is see how long you can go before the question of what each of you does for a living comes up. Like really work at Staying away from that question, and the other thing is, when someone tells you what their job is, immediately say, " That sounds really hard."
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:16:36] Will: That sounds awful. That sounds like a living hell.
 
-[00:16:41] Adam: And he said that sounds really hard. And she was like, " It is." He watched her light up and tell him for like twenty minutes all the difficulties of her job. And when they were done, she was like, " I really appreciated meeting you. That's
+[00:16:41] Adam: And he said that sounds really hard. And she was like, " It is." He watched her light up and tell him for like 20 minutes all the difficulties of her job. And when they were done, she was like, " I really appreciated meeting you. That's
 
 [00:16:52] Will: lovely.
 
@@ -454,21 +454,21 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:21:08] Will: I've stayed in hotels that cost less than that for a month.
 
-[00:21:10] Adam: Wait, so just to be clear, that's a mortgage on a 400,000 dollars house?
+[00:21:10] Adam: Wait, so just to be clear, that's a mortgage on a $400,000 house?
 
 [00:21:16] Will: More than that, six hundred probably.
 
 [00:21:18] Adam: Six hundred thousand.
 
-[00:21:19] Will: Assuming you like, that's that is that is a mortgage on a if you have if you have two hundred if you have 25% down, like you are supposed to, that's probably a mortgage on a 750,000 dollars house.
+[00:21:19] Will: Assuming you like, that's that is that is a mortgage on a if you have if you have two hundred if you have 25% down, like you are supposed to, that's probably a mortgage on a $750,000 house.
 
 [00:21:28] Adam: That's ridiculous.
 
-[00:21:29] Will: But the problem is, you can't get a 750,000 dollars house.
+[00:21:29] Will: But the problem is, you can't get a $750,000 house.
 
 [00:21:32] Adam: No,
 
-[00:21:32] Will: my wife and I can't find a place that has two bathrooms that costs less than a million dollars.
+[00:21:32] Will: my wife and I can't find a place that has two bathrooms that costs less than $1 million.
 
 [00:21:36] Adam: Oh my god, that's insane.
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:22:09] Adam: If you could be placed into any fictional universe, what would it be and why?
 
-[00:22:15] Will: Ooh, that's a good one. This is from MGO fifty eight.
+[00:22:15] Will: Ooh, that's a good one. This is from MGO 58.
 
 [00:22:20] Adam: I like this question. I am interested. So, effectively, like, what, where would you go with a holodeck? Well,
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:22:56] Adam: Yeah, the game is like, no, I'd like to be a serf.
 
-[00:23:00] Will: I was thinking, twenty years mining potatoes and eating acorns was a good way to go. Right.
+[00:23:00] Will: I was thinking, 20 years mining potatoes and eating acorns was a good way to go. Right.
 
 [00:23:04] Adam: Right. Right.
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:25:42] Will: Oh, she was wonderful.
 
-[00:25:43] Adam: I think the acting that she did in Mad Men was actually some of the best acting on television that year. She not, I mean, her characterization was wonderful, but also her characterization of not only the person she was playing, but of the time. I think she was one of the most period actors on the show that season, and just in the way she moved, felt like it was thirty, forty, fifty years old.
+[00:25:43] Adam: I think the acting that she did in Mad Men was actually some of the best acting on television that year. She not, I mean, her characterization was wonderful, but also her characterization of not only the person she was playing, but of the time. I think she was one of the most period actors on the show that season, and just in the way she moved, felt like it was 30, 40, 50 years old.
 
 [00:26:07] Will: Yeah, I absolutely agree. Yeah, I like. She was. She was. My favorite sad character on that season of the show.
 
@@ -686,7 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:28:34] Adam: All right,
 
-[00:28:34] Will: Tom Clark. This is well. Maybe we'll do two more. But Tom Clark, Tom Tac ninety eight says, " Do you have any favorite stationery or notebooks for people returning to school?"
+[00:28:34] Will: Tom Clark. This is well. Maybe we'll do two more. But Tom Clark, Tom Tac 98 says, " Do you have any favorite stationery or notebooks for people returning to school?"
 
 [00:28:43] Adam: People returning to school right now. I am addicted to field notes. I have like eight of them, and in fact, I, I mean, I have eight full field notes sitting by my bed, waiting for me to transcribe the important shit from them on like seven different subjects into my Evernote, so that I have access to it.
 
@@ -708,7 +708,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:29:52] Will: This is going to get crazy.
 
-[00:29:53] Adam: So, I wanted to go see Billy Joel. My boys are independently in love with Billy Joel's music. They discovered him on their own. Thing One listens to it all the time. I hear honesty coming up from the downstairs, and I'm just like, oh yeah, these songs meant so much to me when I was a kid. Billy Joel is the Bruce Springsteen of Eastern New York and Long Island, and was very important to me growing up. And then when I was sixteen or sixteen and a half, I got cast as the second lead in a Billy Joel music video called " You're Only Human." It is a terrible video.
+[00:29:53] Adam: So, I wanted to go see Billy Joel. My boys are independently in love with Billy Joel's music. They discovered him on their own. Thing One listens to it all the time. I hear honesty coming up from the downstairs, and I'm just like, oh yeah, these songs meant so much to me when I was a kid. Billy Joel is the Bruce Springsteen of Eastern New York and Long Island, and was very important to me growing up. And then when I was 16 or 16.5, I got cast as the second lead in a Billy Joel music video called " You're Only Human." It is a terrible video.
 
 [00:30:32] Will: It's on YouTube.
 
@@ -732,7 +732,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:32:32] Will: What's the big close?
 
-[00:32:33] Adam: Piano Man, where the entire audience sings along. Uptown Girl, so good. It's just, I will tell you, if you get a chance to go see Billy, go see him. Unlike a lot of aging rockers, and you know he's admittedly an aging rocker, he's been doing this for over forty years. His voice is in fantastic shape.
+[00:32:33] Adam: Piano Man, where the entire audience sings along. Uptown Girl, so good. It's just, I will tell you, if you get a chance to go see Billy, go see him. Unlike a lot of aging rockers, and you know he's admittedly an aging rocker, he's been doing this for over 40 years. His voice is in fantastic shape.
 
 [00:32:51] Will: He always could sing,
 

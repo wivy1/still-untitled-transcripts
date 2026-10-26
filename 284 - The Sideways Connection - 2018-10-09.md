@@ -26,11 +26,11 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:00:26] Adam: Like last night, we were on the we were on the same plane with Charlie Jane Anders and Annalee Newitz, which was awesome. Although I felt like I'd wasted my extra hour in the in the airport, not knowing that they were that you guys were all there, we could have been hanging out.
 
-[00:00:39] Norm: I had no idea you were on the flight either. And Annalee and I were we didn't get a chance to see each other at the con, so it was of course at the airport we were both flying back to San Francisco. All three of us were. Where she was telling me a history of Gojira, Godzilla in film, and like it was, I was just listening for like twenty minutes intensely because I had no idea about all these stories, and then suddenly you walk up. And the thing that goes off my head—that looks like Adam's hat.
+[00:00:39] Norm: I had no idea you were on the flight either. And Annalee and I were we didn't get a chance to see each other at the con, so it was of course at the airport we were both flying back to San Francisco. All three of us were. Where she was telling me a history of Gojira, Godzilla in film, and like it was, I was just listening for like 20 minutes intensely because I had no idea about all these stories, and then suddenly you walk up. And the thing that goes off my head—that looks like Adam's hat.
 
 [00:01:09] Adam: Hilarious.
 
-[00:01:10] Kishore: I saw Annalee only for thirty seconds at this con, but I was stuck in one of those rivers of people being pushed along through the exhibit floor, and I passed by her and I was like, Hi, Annalee! Hi, Annalee! 
+[00:01:10] Kishore: I saw Annalee only for 30 seconds at this con, but I was stuck in one of those rivers of people being pushed along through the exhibit floor, and I passed by her and I was like, Hi, Annalee! Hi, Annalee! 
 
 [00:01:10] Kishore: Like you, like when you’re just caught in a flow.
 
@@ -140,13 +140,13 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:09:44] Adam: And Javits is a gigantic convention center, but a Comic Con stretches it to its absolute limit.
 
-[00:09:50] Kishore: But I tell you, the best part is I've made some. Poor choices as exiting San Diego Comic Con over the years, where it's like, am I going to go to that theme bar and get the [unclear: twenty dollars / twenty, eight dollar] nachos that are like Firefly themed for no reason? But now, when you spill out of this con, you're in New York.
+[00:09:50] Kishore: But I tell you, the best part is I've made some. Poor choices as exiting San Diego Comic Con over the years, where it's like, am I going to go to that theme bar and get the [unclear: twenty dollars / 20, eight dollar] nachos that are like Firefly themed for no reason? But now, when you spill out of this con, you're in New York.
 
 [00:10:07] Adam: Yeah, yeah, it’s totally true.
 
 [00:10:07] Norm: If
 
-[00:10:09] Norm: you’re lucky enough to have the time, because some people are there working, you know, twelve, fourteen hours, or or you know, they're they're not staying in the city. But if you're lucky enough to be in the city, we had a good time because sure, Joey, and I, you know, walked through New York Saturday night.
+[00:10:09] Norm: you’re lucky enough to have the time, because some people are there working, you know, 12, 14 hours, or or you know, they're they're not staying in the city. But if you're lucky enough to be in the city, we had a good time because sure, Joey, and I, you know, walked through New York Saturday night.
 
 [00:10:24] Adam: Saturday at the end of the at the end of my requirements, I was walking over to the Hammerstein Ballroom, and I was at the talent exit there on 34th Street. And and by the way, a big tip of the hat to the crew that runs New York Comic Con. They run it like a Swiss watch. I found everyone that we dealt with there to be incredibly professional and amazing. We got to where we needed to go in plenty of time. It was There was no stress put upon us by anything to do with the con itself. All the stress we endured was self self generated.
 
@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:11:04] Adam: amazing, wonderful, wonderful folks. Can't wait to see them next year. So as I'm leaving, they were like, " Do you have a car waiting for you?" I'm like, " No." They're like, " You're just going to walk out there in the street?" I'm like, " Yeah." And the thing that I've learned, and maybe I shouldn't give this away, is that no one's looking for me leaving the place. If everyone's leaving and I'm leaving with them, people aren't looking to see who's who's next to them. So frequently, as I'm leaving, every time I’m leaving New York Comic Con, it’s happened all three years, I'll be like a block and a half away walking with a group of people, and one of them will turn around and be like, " Whoa!"
 
-[00:11:38] Kishore: And this con is timed right for those special New York nights where it's like beautiful out. It's real walkable weather. It was like seventy degrees. We're walking down the street at like eleven, twelve.
+[00:11:38] Kishore: And this con is timed right for those special New York nights where it's like beautiful out. It's real walkable weather. It was like 70 degrees. We're walking down the street at like 11, 12.
 
 [00:11:52] Adam: New York in April and New York in October. It is worth living there all year round just to get those two months because it is a magical place during those two those two months.
 
@@ -228,11 +228,11 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:17:06] Norm: Well, it's curious.
 
-[00:17:07] Adam: It's. I'll talk to her about this after she watches this podcast because this is something to discuss. My mom is a is a psychotherapist, and she has she still practices at eighty four. In fact, on the day of Comic Con, she looked at her steps and she had walked ten miles.
+[00:17:07] Adam: It's. I'll talk to her about this after she watches this podcast because this is something to discuss. My mom is a is a psychotherapist, and she has she still practices at 84. In fact, on the day of Comic Con, she looked at her steps and she had walked 10 miles.
 
 [00:17:20] Unknown, possibly Norm or Kishore: Wow!
 
-[00:17:20] Adam: Not bad for an eighty four year old lady. She is a as a psychotherapist, and she loves people. She loves people and their stories, and you can always. It's hilarious. At one point, my mom took the train across the country with her mom, my grandmother, and by the time my mom landed in San Francisco, she had the life story of everyone on that train. And I've seen her. I've seen her get incredible revelations from the waitress at a restaurant while they're taking our orders. My mom could somehow drill down and find out why her boyfriend hasn't proposed yet. So I think that it strikes me that one of the reasons she found the experience so delightful is that, in that same way I said in the TED my TED talk. Putting on costumes is how we expose ourselves at Comic Con, and so what you're seeing is a lot of id. You're seeing a lot of the people's internal monologues turned inside out. You get to see the way we see ourselves, and that's that's that's a lovely thing. It's one of the things I think is so beautiful about Comic Con.
+[00:17:20] Adam: Not bad for an 84 year old lady. She is a as a psychotherapist, and she loves people. She loves people and their stories, and you can always. It's hilarious. At one point, my mom took the train across the country with her mom, my grandmother, and by the time my mom landed in San Francisco, she had the life story of everyone on that train. And I've seen her. I've seen her get incredible revelations from the waitress at a restaurant while they're taking our orders. My mom could somehow drill down and find out why her boyfriend hasn't proposed yet. So I think that it strikes me that one of the reasons she found the experience so delightful is that, in that same way I said in the TED my TED talk. Putting on costumes is how we expose ourselves at Comic Con, and so what you're seeing is a lot of id. You're seeing a lot of the people's internal monologues turned inside out. You get to see the way we see ourselves, and that's that's that's a lovely thing. It's one of the things I think is so beautiful about Comic Con.
 
 [00:18:26] Norm: And I think I've said this before, but New York Comic Con in particular is very reflective of the diversity of New York.
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:30:07] Adam: a little bit of everything.
 
-[00:30:07] Norm: A little bit of everything. And having been to I guess fifteen years of these conventions, when I go to the big ones, I now know more about what I like
+[00:30:07] Norm: A little bit of everything. And having been to I guess 15 years of these conventions, when I go to the big ones, I now know more about what I like
 
 [00:30:16] Adam: Right.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:31:42] Norm: That's amazing.
 
-[00:31:43] Adam: I am really blown away. What a great and wonderful thing to do! Because yeah, you are right; it's hard to sit on a New York City subway as a person, let alone as a person in sixty pounds of foam
+[00:31:43] Adam: I am really blown away. What a great and wonderful thing to do! Because yeah, you are right; it's hard to sit on a New York City subway as a person, let alone as a person in 60 pounds of foam
 
 [00:31:53] Norm: with wings,
 

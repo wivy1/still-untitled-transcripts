@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:00:36] Adam: Yeah.
 
-[00:00:36] Will: But most of it, most of what we talked about was just as an appreciation of of the film and the work that went into making the film and kind of reflecting on what that what what's changed over the ten thirteen years since that film since that movie came out.
+[00:00:36] Will: But most of it, most of what we talked about was just as an appreciation of of the film and the work that went into making the film and kind of reflecting on what that what what's changed over the 10 13 years since that film since that movie came out.
 
 [00:00:50] Adam: And I worked on it for more than a year. And I had a you know a it was a really wonderful project to work on. So it was great to see it again. I have a higher opinion of the movie now than I did when it first came out.
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:01:23] Will: Because there are people that are that are just
 
-[00:01:25] Adam: they they actually have a limited amount of time to run the credits at ILM when they were finishing up Star Wars. I know the model shop was about two hundred people strong,
+[00:01:25] Adam: they they actually have a limited amount of time to run the credits at ILM when they were finishing up Star Wars. I know the model shop was about 200 people strong,
 
 [00:01:34] Will: Wow.
 
@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:01:47] Will: So,
 
-[00:01:47] Adam: and I actually made the first six cuts, but they finally made it like a sixteen-week credit minimum, and I had worked fifteen weeks on episode one.
+[00:01:47] Adam: and I actually made the first six cuts, but they finally made it like a 16-week credit minimum, and I had worked 15 weeks on episode one.
 
 [00:01:57] Will: Joseph Helleresque is John Williams getting paid by the minute for that closing song? Is that what happens?
 
@@ -72,13 +72,13 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:02:09] Adam: I'm not a film producer, so I, you know, I can't. Funny.
 
-[00:02:12] Norm: Didn't Kevin Smith do a thing with Clerks 2? Like, like you get your name in it, and then he listed just like a thousand.
+[00:02:12] Norm: Didn't Kevin Smith do a thing with Clerks 2? Like, like you get your name in it, and then he listed just like 1,000.
 
 [00:02:18] Adam: Really?
 
 [00:02:18] Will: It was Red State, I think, wasn't it?
 
-[00:02:20] Adam: Red State, right? If you invested more than a hundred bucks or something,
+[00:02:20] Adam: Red State, right? If you invested more than $100 or something,
 
 [00:02:22] Will: That seems right.
 
@@ -412,15 +412,15 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:14:23] Will: It's Monday morning.  man.
 
-[00:14:27] Adam: That's a whole twenty-four hours.
+[00:14:27] Adam: That's a whole 24 hours.
 
 [00:14:31] Norm: So those shots of Earth, beautiful, still pale, to photos, even like Hasselblad photos of Earth, like and and footage the astronauts have shot, because the reality is that. much more.
 
-[00:14:45] Adam: Oh yeah, I can. But the other thing they did throughout Gravity was they took you through a whole bunch of day and night cycles, which I guess are about ninety minutes each,
+[00:14:45] Adam: Oh yeah, I can. But the other thing they did throughout Gravity was they took you through a whole bunch of day and night cycles, which I guess are about 90 minutes each,
 
 [00:14:53] Will: thereabouts, yeah,
 
-[00:14:55] Adam: Just something like that. So they took you through several day and night cycles where you get to see the shadow of night falling, you get to see the cities lighting up, and this shot, which starts out with that, ends up over eighteen minutes taking you all the way through repairs that Sandra Bullock and George Clooney are doing, the disaster that starts the action narrative of the film going, and ending up with Sandra Bullock. What feels like miles from safety, breathing her last oxygen, and you're looking at her heads-up display from the inside of her visor.
+[00:14:55] Adam: Just something like that. So they took you through several day and night cycles where you get to see the shadow of night falling, you get to see the cities lighting up, and this shot, which starts out with that, ends up over 18 minutes taking you all the way through repairs that Sandra Bullock and George Clooney are doing, the disaster that starts the action narrative of the film going, and ending up with Sandra Bullock. What feels like miles from safety, breathing her last oxygen, and you're looking at her heads-up display from the inside of her visor.
 
 [00:15:26] Norm: Yeah.
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:16:47] Will: Stop breathing.  so hard.
 
-[00:16:48] Adam: And that's the soundtrack of that eighteen minutes. Is her?
+[00:16:48] Adam: And that's the soundtrack of that 18 minutes. Is her?
 
 [00:16:51] Will: Oh yeah,
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:17:55] Norm: And the type of motion controllers they need to build to shoot the actors' faces.
 
-[00:17:59] Adam: Yeah, well, so that is actually to me one of the most interesting technical things that they did. You know, they they knew they knew given the subject matter of the film, it was very hard to get it made. It took a long time. A lot of studios turned it down. I believe that the casting of Clooney and Bullock really helped, but still, they had 80,000,000 dollars to make a movie with, you know, easily a hundred and over 150,000,000 dollars worth of production value that they had to get out of it. So, Cuarón and his and his team, they actually pre-visualized the entire movie from start to finish.
+[00:17:59] Adam: Yeah, well, so that is actually to me one of the most interesting technical things that they did. You know, they they knew they knew given the subject matter of the film, it was very hard to get it made. It took a long time. A lot of studios turned it down. I believe that the casting of Clooney and Bullock really helped, but still, they had $80 million to make a movie with, you know, easily a hundred and over $150 million worth of production value that they had to get out of it. So, Cuarón and his and his team, they actually pre-visualized the entire movie from start to finish.
 
 [00:18:32] Will: Well, I mean, they'd have to.
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:19:33] Unknown speaker: I don't know about that.
 
-[00:19:29] Adam: But the rig that they put the actors in to shoot their faces was totally amazing because everything about the film is where they are in space, and I don't mean just space, space. I mean what is the visual logic of the film, and where are people in relation to each other, and their levels of safety and danger. And that's something that good directors are really excellent at, like Spielberg, and there are directors like Michael Bay who really don't give a shit about where you are in space. It's just cut, cut, cut, cut, cut, and your mind kind of assembles its own space. So because that was so important in this, and because Cuarón likes the the extended shots. He knew that the if they if they filmed the actors' faces to put them in the spacesuits, the light on them had to be very specific. You know, Earth is over here, and the sun's over here, and reflection and bounce. So they built this film, this this light box inspired by a Peter Gabriel show that they went to, where they saw these two foot LED panels that were addressable, so you could put put video on them or any color temperature of light you wanted out of them. And they built a nine by nine by I think like twelve foot box lined with these panels. So one, they could put any color temperature they wanted on the actor's face. Two, they could actually put bands of of the color, so you could light half their face, or you could actually move the band, so it looked like the actors spinning when they're not. And then inside that box, a robotic camera, which does the camera moves around these actors' faces, match moved to the already rendered CG astronauts in the shots. It gets better. Because the panels were fully addressable, if Sandra Bullock is looking at Earth over here, the space station here, and Clooney's here, in addition to the lights, they can actually put those in the box so she has eye lines to look at.
+[00:19:29] Adam: But the rig that they put the actors in to shoot their faces was totally amazing because everything about the film is where they are in space, and I don't mean just space, space. I mean what is the visual logic of the film, and where are people in relation to each other, and their levels of safety and danger. And that's something that good directors are really excellent at, like Spielberg, and there are directors like Michael Bay who really don't give a shit about where you are in space. It's just cut, cut, cut, cut, cut, and your mind kind of assembles its own space. So because that was so important in this, and because Cuarón likes the the extended shots. He knew that the if they if they filmed the actors' faces to put them in the spacesuits, the light on them had to be very specific. You know, Earth is over here, and the sun's over here, and reflection and bounce. So they built this film, this this light box inspired by a Peter Gabriel show that they went to, where they saw these two foot LED panels that were addressable, so you could put put video on them or any color temperature of light you wanted out of them. And they built a nine by nine by I think like 12 foot box lined with these panels. So one, they could put any color temperature they wanted on the actor's face. Two, they could actually put bands of of the color, so you could light half their face, or you could actually move the band, so it looked like the actors spinning when they're not. And then inside that box, a robotic camera, which does the camera moves around these actors' faces, match moved to the already rendered CG astronauts in the shots. It gets better. Because the panels were fully addressable, if Sandra Bullock is looking at Earth over here, the space station here, and Clooney's here, in addition to the lights, they can actually put those in the box so she has eye lines to look at.
 
 [00:21:17] Will: Wow!
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:21:27] Will: super uncomfortable, is my understanding, right?
 
-[00:21:29] Adam: Yeah, super uncomfortable, and because the thing had already been pre-visualized massively, the actors didn't have a lot of freedom in terms of extending their lines or ad-libbing or adding any text whatsoever. Cuarón was very specific. Okay, here you get to do this. You can improvise here in the middle a little bit, but you've got to hit the whole thing in eighteen seconds. I mean, really, really tight.
+[00:21:29] Adam: Yeah, super uncomfortable, and because the thing had already been pre-visualized massively, the actors didn't have a lot of freedom in terms of extending their lines or ad-libbing or adding any text whatsoever. Cuarón was very specific. Okay, here you get to do this. You can improvise here in the middle a little bit, but you've got to hit the whole thing in 18 seconds. I mean, really, really tight.
 
 [00:21:51] Will: This is amazing because sometimes you see you you learn about new technology that's invented to shoot a film, whether it's the the the armature dinosaur puppets for Jurassic Park or the motion control camera in Star Wars, and you see, okay, this is this is going to be everywhere in two years. This is something we're not going to see again, because there is not like this is a it's it's custom built for this.
 
@@ -576,7 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:24:16] Will: it's it's it's um
 
-[00:24:19] Norm: it's cheaper. I mean, for an 80,000,000 dollar movie, to get her as a great actress to do that than to do effect shots over and over again.
+[00:24:19] Norm: it's cheaper. I mean, for an $80 million movie, to get her as a great actress to do that than to do effect shots over and over again.
 
 [00:24:26] Adam: Yeah yeah it, it, it's totally astonishing. I’ll also say something else I really liked about her casting was um you know there are some other nitpicks that some people had
 
@@ -584,13 +584,13 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:24:36] Adam: she wasn't wearing a diaper. Hadfield said you know I don't look nearly that good when I get out of a spacesuit and I I totally get that he didn't say that it bothered him very much but you know even though she gets out and she's in shorts and a tank top um I won't say that she's not a beautiful woman because she totally is but they didn't make it a T and A shot
 
-[00:24:56] Will: oh it was a T and A it was an IMAX eighty-foot-tall
+[00:24:56] Will: oh it was a T and A it was an IMAX 80-foot-tall
 
 [00:24:58] Norm: no no no it was
 
 [00:24:59] Will: Sandra Bullock
 
-[00:25:00] Adam: I appreciate that but I really look she's an older woman she's in her late forties and it wasn't like she's got an inflatable crazy impossible body
+[00:25:00] Adam: I appreciate that but I really look she's an older woman she's in her late 40s and it wasn't like she's got an inflatable crazy impossible body
 
 [00:25:09] Unknown speaker: Oh, no, no.
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:25:44] Adam: I feel like that too.
 
-[00:25:44] Will: Yeah, the average age of the astronaut corps is like forty forty eight.
+[00:25:44] Will: Yeah, the average age of the astronaut corps is like 40 48.
 
 [00:25:47] Norm: Right, she's like the appropriate age, and the appropriate.
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:26:01] Adam: yeah,
 
-[00:26:01] Will: and you're like, oh Jesus, really? Um, I just felt like at some point somebody had to have a conversation. And yeah, we'll we'll yeah we'll do a Sigourney Weaver taking her out of the spacesuit scene. It'll be good. It'll be real sexy. And the Hollywood producer guy was like, " Oh, okay. Well, in that case, here's another 20,000,000 dollars."
+[00:26:01] Will: and you're like, oh Jesus, really? Um, I just felt like at some point somebody had to have a conversation. And yeah, we'll we'll yeah we'll do a Sigourney Weaver taking her out of the spacesuit scene. It'll be good. It'll be real sexy. And the Hollywood producer guy was like, " Oh, okay. Well, in that case, here's another $20 million."
 
 [00:26:15] Adam: Right, and I will actually. That's a great example of the difference. I mean, the whole thing of Sigourney Weaver in her underpants at the end of Alien is—that's absolutely titillating and terrifying, and exemplifies her vulnerability.
 
@@ -680,7 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:28:52] Norm: one front panel,
 
-[00:28:52] Adam: where yeah, and also his suit has no details on the chest plate, but they're there in the film, and I don't know if that was a practice run or if they then added in all that detail later because it was cheaper to do it in CG than to have a model maker spend ten grand building a suit perfectly.
+[00:28:52] Adam: where yeah, and also his suit has no details on the chest plate, but they're there in the film, and I don't know if that was a practice run or if they then added in all that detail later because it was cheaper to do it in CG than to have a model maker spend $10,000 building a suit perfectly.
 
 [00:29:08] Will: Wow.
 
@@ -788,9 +788,9 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:32:28] Norm: And then she was
 
-[00:32:29] Adam: she'd go one eighty, right,
+[00:32:29] Adam: she'd go 180, right,
 
-[00:32:29] Norm: and count forty five, ninety, one eighty, and then and then launch.
+[00:32:29] Norm: and count 45, 90, 180, and then and then launch.
 
 [00:32:34] Will: Yeah. So, so, and and that stuff also falls in the if you think about it too much, you are not going to have fun. Um,
 
@@ -820,7 +820,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:33:42] Adam: The buckle that
 
-[00:33:42] Will: buckle took twelve minutes to break.
+[00:33:42] Will: buckle took 12 minutes to break.
 
 [00:33:44] Adam: Um, I, I, I also really loved the animation of the Soyuz parachute and all the cords.
 
@@ -884,7 +884,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:36:38] Will: and it sets the yeah, it's it's danger at at beyond a human scale,
 
-[00:36:42] Adam: beyond any scale. Right. So these these objects are flying ten times faster
+[00:36:42] Adam: beyond any scale. Right. So these these objects are flying 10 times faster
 
 [00:36:49] Will: than
 
@@ -1108,7 +1108,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:44:08] Will: That's great,
 
-[00:44:08] Adam: and I think that's fantastic. Well, I mean, look, that may not be. You know, the studios. This film was a hard sell, and you can see why it was a hard sell. And the fact that he succeeded in making a hit movie out of it, you know, it might not engineer a sea change about how the studios. Look at his next project because you know Hollywood is littered with directors who had a monster billion dollar franchise and couldn't get their next passion project made. But he has such an incredible track record now Uh, that I'm really looking forward to seeing what he's interested in doing. next.
+[00:44:08] Adam: and I think that's fantastic. Well, I mean, look, that may not be. You know, the studios. This film was a hard sell, and you can see why it was a hard sell. And the fact that he succeeded in making a hit movie out of it, you know, it might not engineer a sea change about how the studios. Look at his next project because you know Hollywood is littered with directors who had a monster $1 billion franchise and couldn't get their next passion project made. But he has such an incredible track record now Uh, that I'm really looking forward to seeing what he's interested in doing. next.
 
 [00:44:42] Norm: And I can really see in movie in studio pitch rooms, like, using Gravity as an anchor point to pitch a movie. It's like Gravity, but
 

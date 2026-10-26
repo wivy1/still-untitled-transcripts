@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=M_XYZSHz6DI
 
 [00:00:38] Joey: the Marvelization.
 
-[00:00:39] Norm: Yes, the the the MCU-ing of the Star Wars universe. We're talking about all of that and more today, and this should be about a week and a half after the season closed. So spoilers within, but we think it's fair. There's been enough time to talk about it, and certainly as we're recording this, you know, it's only been a couple of days for us. So new announcements may be happening. So forgive us if we. Omit anything that gets announced in the meantime because news is coming fast and heavy. But first, a recap. I guess we should do of not only this episode but the season. As we start the episode, it's chapter sixteen called " The Rescue,"
+[00:00:39] Norm: Yes, the the the MCU-ing of the Star Wars universe. We're talking about all of that and more today, and this should be about a week and a half after the season closed. So spoilers within, but we think it's fair. There's been enough time to talk about it, and certainly as we're recording this, you know, it's only been a couple of days for us. So new announcements may be happening. So forgive us if we. Omit anything that gets announced in the meantime because news is coming fast and heavy. But first, a recap. I guess we should do of not only this episode but the season. As we start the episode, it's chapter 16 called " The Rescue,"
 
 [00:01:15] Adam: which is which I'm so happy for that name. Just like screw anything subtle, just bang the rescue.
 
@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=M_XYZSHz6DI
 
 [00:01:42] Norm: with Mando and Fennec on there, and they go and capture the Doctor.
 
-[00:01:49] Joey: Wait did we did we miss did we have episode chapter fifteen on our last?
+[00:01:49] Joey: Wait did we did we miss did we have episode chapter 15 on our last?
 
 [00:01:54] Norm: We didn't talk about it ourselves. I think we haven't talked about it now. Was was the one before that
 
@@ -84,11 +84,11 @@ Episode URL: https://www.youtube.com/watch?v=M_XYZSHz6DI
 
 [00:04:56] Norm: right?
 
-[00:04:56] Adam: And what I see in the filmmaking is none of that. Like their master shots feel as giant as any big screen seventy millimeter master shot. Uh, their that framing that they're able to do and the way they're able to integrate the volume and fully CG composite shots, uh, blows my mind.
+[00:04:56] Adam: And what I see in the filmmaking is none of that. Like their master shots feel as giant as any big screen 70 millimeter master shot. Uh, their that framing that they're able to do and the way they're able to integrate the volume and fully CG composite shots, uh, blows my mind.
 
 [00:05:15] Joey: I mean, I think last time we. Sorry, what did I [unclear]?
 
-[00:05:18] Norm: Oh, I'm I'm saying I'm wondering if they if the volume is dynamic enough now, where it doesn't necessarily always have to be three hundred and sixty. If they're not doing a you know a, a, a mid shot with conversation where you need to have a camera going around like three people, right? If they're just doing, if can they have a wall further out,
+[00:05:18] Norm: Oh, I'm I'm saying I'm wondering if they if the volume is dynamic enough now, where it doesn't necessarily always have to be 360. If they're not doing a you know a, a, a mid shot with conversation where you need to have a camera going around like three people, right? If they're just doing, if can they have a wall further out,
 
 [00:05:35] Joey: fly out a wall?
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=M_XYZSHz6DI
 
 [00:20:17] Norm: It's nice, expensive episode.
 
-[00:20:18] Adam: I was imagining people on set going, " Get me another panel for this hallway. We've already shot forty-eight times today, and I need it to look like a new hallway."
+[00:20:18] Adam: I was imagining people on set going, " Get me another panel for this hallway. We've already shot 48 times today, and I need it to look like a new hallway."
 
 [00:20:26] Norm: Reverse, reverse, reverse,
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=M_XYZSHz6DI
 
 [00:21:37] Norm: Everyone, every time someone says, " I'm like ah," it's a little forced. It's a little, little cartoony as a as an curse.
 
-[00:21:43] Adam: Well, and having been like in sixth grade when the original Battlestar Galactica was airing, we all said " frak" as ten, eleven, twelve year olds all the time, and thought it was really fun. But none of us got to motherfrakker, which is what the reboot of MS of BSG got to. Really, motherfrakker? Oh man, that's cool.
+[00:21:43] Adam: Well, and having been like in sixth grade when the original Battlestar Galactica was airing, we all said " frak" as 10, 11, 12 year olds all the time, and thought it was really fun. But none of us got to motherfrakker, which is what the reboot of MS of BSG got to. Really, motherfrakker? Oh man, that's cool.
 
 [00:22:06] Norm: And then. You know, more fighting and more fighting. You have Mando reaching the cell. You get Baby Yoda, Grogu, in his handcuffs, and Moff Gideon there holding the dark saber. And this was, I think, a spectacular, spectacular duel between them because you had like the you have the deception of Moff Gideon trying to play, you know, him him posturing, saying he knew exactly, you know, I know everything that's going on. I know you're out of ammo. And two, he tries the the bargaining. He tries the you know which which you would believe. Like I was ready for them to walk their separate ways to have him live another day. Yeah, and then they pay that off with a nice, fantastic battle with Beskar spear versus dark saber.
 
@@ -444,11 +444,11 @@ Episode URL: https://www.youtube.com/watch?v=M_XYZSHz6DI
 
 [00:30:52] Norm: Right. Uh, it's I think it would be tough for them to do that. Um, so it had to be a CG overlay on top of a body double for the for the action.
 
-[00:31:01] Adam: There's an aspect that I found super thrilling, which is at At eighty-three, so at sixteen, when I saw Jedi, I remember being moved about how far Luke had come since Empire.
+[00:31:01] Adam: There's an aspect that I found super thrilling, which is at At '83, so at 16, when I saw Jedi, I remember being moved about how far Luke had come since Empire.
 
 [00:31:16] Joey or Norm (uncertain): Right, that time
 
-[00:31:17] Adam: he, yeah, when when he stands like Hamill, Hamill is undersung as an actor because he's phenomenal and he's done amazing things. And the the the the physical confidence he imbues Luke with at the end of in Jedi and again in this is really lovely to witness. And I felt a direct connection to that Luke that I saw at sixteen years old, and that felt really
+[00:31:17] Adam: he, yeah, when when he stands like Hamill, Hamill is undersung as an actor because he's phenomenal and he's done amazing things. And the the the the physical confidence he imbues Luke with at the end of in Jedi and again in this is really lovely to witness. And I felt a direct connection to that Luke that I saw at 16 years old, and that felt really
 
 [00:31:39] Norm: even the beginning of Jedi when he walks in the Jabba's palace with the deleted scene of him putting together his lightsaber, like that's that's such a stark difference. It shows the time jump between where they are at the end of Empire and where they are at the beginning of Jedi.
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=M_XYZSHz6DI
 
 [00:34:09] Joey: Well, especially with all the new shows. And the characters moving on to other things.
 
-[00:34:14] Adam: That's the other thing that blows my mind is that a week before the finale, they reveal a slate of was it ten new Star Wars shows?
+[00:34:14] Adam: That's the other thing that blows my mind is that a week before the finale, they reveal a slate of was it 10 new Star Wars shows?
 
 [00:34:21] Norm: Star Wars shows over the next couple years, animated and live action,
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=M_XYZSHz6DI
 
 [00:35:54] Norm: telling another part of the Mandalorian anthology, but no, it will be its own separate show, and Robert Rodriguez is producing that one too.
 
-[00:36:03] Adam: Dude, that's so exciting! I mean, the thing about Rodriguez that is so exciting is he's not only an amazing action director, but he specifically. Trained himself to work on super tight budgets, with only what he needed in every shot. I mean, so precisely. I remember reading an interview with him where he'd be like, " Just build this door with one foot of wall," and they'd build a ten foot wide wall, and he'd be like, " What are you doing? All I need is just this, and that's all I'm going to frame." Like he's perfect for this type of low budget, high quality production.
+[00:36:03] Adam: Dude, that's so exciting! I mean, the thing about Rodriguez that is so exciting is he's not only an amazing action director, but he specifically. Trained himself to work on super tight budgets, with only what he needed in every shot. I mean, so precisely. I remember reading an interview with him where he'd be like, " Just build this door with one foot of wall," and they'd build a 10 foot wide wall, and he'd be like, " What are you doing? All I need is just this, and that's all I'm going to frame." Like he's perfect for this type of low budget, high quality production.
 
 [00:36:42] Joey: And so we we can expect him to become kind of the Dave Filoni for this show. Is that the idea? Is he is he kind of going to be the showrunner ish? With
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=M_XYZSHz6DI
 
 [00:39:09] Norm: Yeah, and and is and is Filoni and Favreau is that the one they're most passionate about, perhaps? Because the one they they grew from the ground up. Yeah, they have confirmed it's going to be a season three with Pedro Pascal. No other details there, but if they make that the show where they explore the history of Mandalore and Bo-Katan and and the Dark Saber, right? I don't think I don't think it has to be a little more than that. I think they got to bring the Grogu of it back into it.
 
-[00:39:36] Joey: It'd be interesting to see how he ages as well. I mean, he's a child at fifty right now, right? When when Mando gets to become old and on his deathbed, is he still going to be the child?
+[00:39:36] Joey: It'd be interesting to see how he ages as well. I mean, he's a child at 50 right now, right? When when Mando gets to become old and on his deathbed, is he still going to be the child?
 
 [00:39:48] Adam: Right?
 

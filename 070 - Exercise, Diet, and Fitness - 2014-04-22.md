@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:04:42] Adam: I agree.
 
-[00:04:42] Will: The first episode is 33. Even the second episode is great, but the first episode. Where they have to jump every thirty-three minutes, and they're just—they're just the sh— the living shit has been beaten out of them.
+[00:04:42] Will: The first episode is 33. Even the second episode is great, but the first episode. Where they have to jump every 33 minutes, and they're just—they're just the sh— the living shit has been beaten out of them.
 
 [00:04:55] Adam: Totally.
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:05:43] Norm: They've rebooted Knight Rider already.
 
-[00:05:45] Will: Pulp Fiction. No, it's twenty years old out of time.
+[00:05:45] Will: Pulp Fiction. No, it's 20 years old out of time.
 
 [00:05:48] Norm: They'll never reboot.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:07:02] Adam: yeah,
 
-[00:07:02] Norm: but, uh, it’s, it does pose that two million people disappeared.
+[00:07:02] Norm: but, uh, it’s, it does pose that 2 million people disappeared.
 
 [00:07:09] Adam: It's very exciting about, um.
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:08:07] Will: Yes. Uh,
 
-[00:08:07] Adam: right. Max is so Max wrote the secret. He said the secret, untold history of MythBusters is that Adam keeps losing weight and looking younger and getting more hair as the seasons progress. And I was like, " I love you," and he says, " I'm only if—" He's. I won't tell that joke. Anyway. Um, the fact is, yeah, I've, uh, I've managed to lose, uh, about thirty pounds over the last two. Uh, uh, is it 2014? Yeah. Two and a half years. What's
+[00:08:07] Adam: right. Max is so Max wrote the secret. He said the secret, untold history of MythBusters is that Adam keeps losing weight and looking younger and getting more hair as the seasons progress. And I was like, " I love you," and he says, " I'm only if—" He's. I won't tell that joke. Anyway. Um, the fact is, yeah, I've, uh, I've managed to lose, uh, about 30 pounds over the last two. Uh, uh, is it 2014? Yeah. Two and a half years. What's
 
 [00:08:38] Norm: your one secret
 
@@ -376,15 +376,15 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:11:16] Will: Dinner is a whole totally different thing. Totally get that.
 
-[00:11:17] Adam: I don't want to limit the kind of food I eat. I don't want to limit the amount of food that I eat. I just I want the whole thing, right? So lunch was where we we gave. Um, the other thing I've been so anyway, sorry, let's just finish the story without going on too long. I stopped not eating lunch at all and started eating between two and four hundred calories for lunch, a really really light lunch. And I found that for dinner, if I ate a snack of about a hundred calories about an hour before dinner, I also ate a lot less.
+[00:11:17] Adam: I don't want to limit the kind of food I eat. I don't want to limit the amount of food that I eat. I just I want the whole thing, right? So lunch was where we we gave. Um, the other thing I've been so anyway, sorry, let's just finish the story without going on too long. I stopped not eating lunch at all and started eating between 200 and 400 calories for lunch, a really really light lunch. And I found that for dinner, if I ate a snack of about 100 calories about an hour before dinner, I also ate a lot less.
 
 [00:11:17] Will: Right.
 
-[00:11:17] Adam: Like I I sort of self hacked. Yeah. Yeah. Um, and it really really it's really worked. to To make that last ten pounds, so I got from 200 pounds down to one eighty.
+[00:11:17] Adam: Like I I sort of self hacked. Yeah. Yeah. Um, and it really really it's really worked. to To make that last 10 pounds, so I got from 200 pounds down to 180.
 
-[00:11:59] Will: That's that that that's a tough ten pounds. Considerable. That's the ten pounds. That's the twenty pounds that I've that I've always like. I'll get down to two hundred, two ten, and then brick wall.
+[00:11:59] Will: That's that that that's a tough 10 pounds. Considerable. That's the 10 pounds. That's the 20 pounds that I've that I've always like. I'll get down to 200, 210, and then brick wall.
 
-[00:12:08] Adam: Well, two hundred was I. I two hundred was, uh, the heaviest I've been, and I was at two hundred for really most of MythBusters. One ninety five, two hundred. Um, so I worked to get down to one eighty, and then one eighty became like this wall, and I just started really. I started weighing myself every day, again, not with the goal of like achieving something, but just noticing my patterns of what I was eating and what it was doing and changing things
+[00:12:08] Adam: Well, 200 was I. I 200 was, uh, the heaviest I've been, and I was at 200 for really most of MythBusters. 195, 200. Um, so I worked to get down to 180, and then 180 became like this wall, and I just started really. I started weighing myself every day, again, not with the goal of like achieving something, but just noticing my patterns of what I was eating and what it was doing and changing things
 
 [00:12:33] Norm: after you
 
@@ -414,13 +414,13 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:13:09] Adam: The snack before dinner. I've also become mostly a vegetarian up until dinner time, and Thomas Keller actually calls this VB six vegetarian before six as a bit of his sort of food movement of eating lighter and more sensibly, uh. So that you are not basically so famished by the time you get to dinner, you consume everybody's plate.
 
-[00:13:29] Will: So the thing that I started doing, I started tracking calories because I didn't have any idea what anything how much you know. I knew that cheese and meat were probably bad for you, and you shouldn't eat too much ice cream. Sugar is bad, yeah. But I didn't know. I didn't understand the scale of the of the of the bad. You know that a milkshake is ten times worse than ice cream because you you know.
+[00:13:29] Will: So the thing that I started doing, I started tracking calories because I didn't have any idea what anything how much you know. I knew that cheese and meat were probably bad for you, and you shouldn't eat too much ice cream. Sugar is bad, yeah. But I didn't know. I didn't understand the scale of the of the of the bad. You know that a milkshake is 10 times worse than ice cream because you you know.
 
 [00:13:49] Adam: What's funny though is that I've been finding. I've been finding that I count I counted calories for a long time, and it didn't do me a lick of good at all
 
 [00:13:58] Will: So that's the thing: is counting calories that that all that did was give me the knowledge that I needed to know when I was making a bad decision or a good decision.
 
-[00:14:06] Adam: Well, and also counting calories only helps if you are eating the if you eat the food that's in the middle of the grocery store. And let's be clear: in a grocery store, the natural ingredients you cook with are all around the perimeter, and all the prepackaged food are in the middle. And those calorie counts are accurate, but when you look up calories, tomato soup, one cup, and it says one hundred and seventy calories, that is total bullshit. When it comes to a restaurant where that soup is made of butter and tomato, this is probably like seven hundred calories
+[00:14:06] Adam: Well, and also counting calories only helps if you are eating the if you eat the food that's in the middle of the grocery store. And let's be clear: in a grocery store, the natural ingredients you cook with are all around the perimeter, and all the prepackaged food are in the middle. And those calorie counts are accurate, but when you look up calories, tomato soup, one cup, and it says 170 calories, that is total bullshit. When it comes to a restaurant where that soup is made of butter and tomato, this is probably like 700 calories
 
 [00:14:33] Norm: secret ingredient, always butter,
 
@@ -468,13 +468,13 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:16:47] Norm: So, what are your exercise routines?
 
-[00:16:48] Adam: I do about one hundred pushups a day. That's about it.
+[00:16:48] Adam: I do about 100 pushups a day. That's about it.
 
-[00:16:51] Norm: That is exactly what I do: fifty in the morning and fifty in the evening.
+[00:16:51] Norm: That is exactly what I do: 50 in the morning and 50 in the evening.
 
-[00:16:54] Adam: I do thirty at a time. I can't do fifty at a time. I can only do thirty at a time.
+[00:16:54] Adam: I do 30 at a time. I can't do 50 at a time. I can only do 30 at a time.
 
-[00:16:58] Norm: Still, one hundred a day consistently feels great.
+[00:16:58] Norm: Still, 100 a day consistently feels great.
 
 [00:17:01] Adam: It does. It feels really good.
 
@@ -482,13 +482,13 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:17:01] Adam: And my wife is very pleased with the results.
 
-[00:17:06] Will: How long did it take you to get to one hundred pushups a day? Um,
+[00:17:06] Will: How long did it take you to get to 100 pushups a day? Um,
 
 [00:17:09] Adam: Well, no, I started. I started that, uh, I started the pushups on the last tour, so I started it last fall.
 
 [00:17:09] Will: Okay,
 
-[00:17:09] Adam: Um, and basically, I was doing. I started doing twenty at a time, and I just found that I was able to find the time to do five sets of twenty, and then three sets of. Uh, three sets of thirty-three. The hardest thing for me about the pushups is that I'm really impatient about them. It's this tiny period of time.
+[00:17:09] Adam: Um, and basically, I was doing. I started doing 20 at a time, and I just found that I was able to find the time to do five sets of 20, and then three sets of. Uh, three sets of 33. The hardest thing for me about the pushups is that I'm really impatient about them. It's this tiny period of time.
 
 [00:17:36] Norm: It's very small period of time.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:20:35] Norm: I'm confident the science will cure whatever diet coke did to me by the time I get older.
 
-[00:20:40] Adam: So for the tribble, so for the most part, yeah, I I now eat a light lunch between two and four hundred calories. I drink almost nothing but zero calorie drinks or water.
+[00:20:40] Adam: So for the tribble, so for the most part, yeah, I I now eat a light lunch between 200 and 400 calories. I drink almost nothing but zero calorie drinks or water.
 
 [00:20:50] Will: Water, no juice, no none of
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:21:17] Will: And and the thing about it is, when you notice you're on an upward trajectory, as long as you figured out how to maintain, then that doesn't mean you stop what you're doing and start doing 200 push-ups and start eating salads for two weeks. It just means that you either say, okay, I'm going to be fine gaining a couple of pounds and keep enjoying yourself, and then you have a couple of weeks where you where you eat a little bit better,
 
-[00:21:37] Adam: A little more ascetic. And you know it's really difficult because your routine changes all the time. I do I do days at a time where I'm working in the MythBusters shop, and it's easy for me to do a really light lunch. Then I do weeks where we go out on location, and sometimes we're ordering from the local ribs joint. And it's really hard to find something light from the local ribs joint. Little hint: shrimp. Like ten calories a piece.
+[00:21:37] Adam: A little more ascetic. And you know it's really difficult because your routine changes all the time. I do I do days at a time where I'm working in the MythBusters shop, and it's easy for me to do a really light lunch. Then I do weeks where we go out on location, and sometimes we're ordering from the local ribs joint. And it's really hard to find something light from the local ribs joint. Little hint: shrimp. Like 10 calories a piece.
 
 [00:21:58] Will: Yeah, but high in cholesterol.
 
@@ -560,11 +560,11 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:22:03] Will: Yeah.
 
-[00:22:03] Adam: And I've now lost. Let's see, from two hundred to
+[00:22:03] Adam: And I've now lost. Let's see, from 200 to
 
 [00:22:31] Norm: 15%. One—
 
-[00:22:31] Adam: seven one sixty eight. That's 15% of my body weight. You were right. I heard it. You got it fast.
+[00:22:31] Adam: seven 168. That's 15% of my body weight. You were right. I heard it. You got it fast.
 
 [00:22:39] Will: He
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:24:04] Adam: Yeah,
 
-[00:24:07] Adam: you have an eight thousand calorie dinner. Your body's only going to store however many it's used to storing just from that.
+[00:24:07] Adam: you have an 8,000 calorie dinner. Your body's only going to store however many it's used to storing just from that.
 
 [00:24:13] Will: Yeah, exactly. There's some side—
 

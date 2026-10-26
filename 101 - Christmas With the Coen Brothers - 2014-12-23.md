@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:05:22] Will: Man, hold on, but go back. Remember when you were a kid and you had to send something in? It was like it'll take six to eight weeks to arrive, and that was the longest six to eight weeks of your young life.
 
-[00:05:30] Adam: I remember putting five dollars and eighteen cents into an envelope and sending it to get one of those rubber dollar bills from the back of a comic book.
+[00:05:30] Adam: I remember putting $5.18 into an envelope and sending it to get one of those rubber dollar bills from the back of a comic book.
 
 [00:05:38] Norm: Yeah, the back of comic book catalogs.
 
@@ -264,11 +264,11 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:06:14] Will: one thing.
 
-[00:06:20] Adam: Oh my god. So yeah, I was, I got into modeling about the same age everybody else did, like eight years old, something nine years old. So I bought a model kit, and in the model kit was a coupon where it was like, fill out this coupon and send it to us, and we'll send you a free model kit, right? And I didn't see that there was also like, and you'll get a subscription to model magazine, which you have to pay for. Yeah. So I get the kit, and then I start getting these letters. Like it's time to pay us thirty dollars for the magazine.
+[00:06:20] Adam: Oh my god. So yeah, I was, I got into modeling about the same age everybody else did, like eight years old, something nine years old. So I bought a model kit, and in the model kit was a coupon where it was like, fill out this coupon and send it to us, and we'll send you a free model kit, right? And I didn't see that there was also like, and you'll get a subscription to model magazine, which you have to pay for. Yeah. So I get the kit, and then I start getting these letters. Like it's time to pay us $30 for the magazine.
 
 [00:06:48] Norm: So scared.
 
-[00:06:49] Adam: And I don't have the thirty dollars, and so I just start throwing away the letters. Oh, I eight ten months go by. I start getting. I get letters like this, Mister Savage. It's time to stop beating around the bush. When something needs to be said, it's time to say it. You have, you have, taken something. For I mean, I was, and I like the shame. I read this and. Threw it in the trash, and my mom was like, " A couple days later, she was like, 'Honey, what is this?'" And I was like, " I'm
+[00:06:49] Adam: And I don't have the $30, and so I just start throwing away the letters. Oh, I 8 10 months go by. I start getting. I get letters like this, Mister Savage. It's time to stop beating around the bush. When something needs to be said, it's time to say it. You have, you have, taken something. For I mean, I was, and I like the shame. I read this and. Threw it in the trash, and my mom was like, " A couple days later, she was like, 'Honey, what is this?'" And I was like, " I'm
 
 [00:07:17] Adam: sorry, I'm
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:07:45] Norm: Deep as they'll go. Threatening letters because it's not worth the legal time. Yeah. Um, to pursue, but as a kid, you get the one free magazine, and then you got to cancel, or else they'll send you. And
 
-[00:07:54] Will: you have to spend twenty cents on that stamp.
+[00:07:54] Will: you have to spend $0.20 on that stamp.
 
 [00:07:56] Norm: And then you get the letters, and I wouldn't even throw them at home. I go to hide them in my pocket, and at family and go when going out to dinner, find a trash can in the middle of nowhere outside the restaurant and throw away there, so it wouldn't be in the trash at home because I didn't want my parents to know.
 
@@ -312,9 +312,9 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:08:59] Adam: something like 20% of their actual annual income is that
 
-[00:09:03] Will: ten dollar a month,
+[00:09:03] Will: $10 a month,
 
-[00:09:04] Norm: and it's all kids. Like they make it so easy because it was advertised in comic books and Boys Life magazine for kids to sign up for these things and not. It's just the in-app purchases today. That's what it was. Magazine ads and mail order stuff was the in app purchase of twenty years
+[00:09:04] Norm: and it's all kids. Like they make it so easy because it was advertised in comic books and Boys Life magazine for kids to sign up for these things and not. It's just the in-app purchases today. That's what it was. Magazine ads and mail order stuff was the in app purchase of 20 years
 
 [00:09:18] Will: ago. I think in app, I think the in app purchases are worse
 
@@ -364,9 +364,9 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:10:10] Adam: Really? Week after next.
 
-[00:10:11] Will: It's the twenty second, and today's the eighteenth.
+[00:10:11] Will: It's the 22nd, and today's the 18th.
 
-[00:10:13] Norm: No, it's twenty seventh. Wait, wait. Next week can't be Thanksgiving.
+[00:10:13] Norm: No, it's 27th. Wait, wait. Next week can't be Thanksgiving.
 
 [00:10:17] Will: Next week is Thanksgiving, guys.
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:14:29] Norm: That would be so easy for iTunes or something to sell as like you know.
 
-[00:14:33] Adam: Add as a director's track, add a dollar, and you click on it, and you get it.
+[00:14:33] Adam: Add as a director's track, add $1, and you click on it, and you get it.
 
 [00:14:36] Will: Well, so some stuff has that, but then they have a like like um the digital I my digital version of Captain America has that of Winter Soldier, and it has like a limited selection of extras, but you never know what you're gonna get, and sometimes they're exclusive, and it's just you know.
 
@@ -548,13 +548,13 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:14:56] Adam: So you let other people buy your Blu-rays.
 
-[00:14:57] Norm: So I that and that's is a perfect you know ten to twenty dollar yeah purchase. But this year's Christmas season, the thing I want most, I'm probably not going to buy for myself, is the Batman 1966 complete Blu-ray set.
+[00:14:57] Norm: So I that and that's is a perfect you know $10 to $20 yeah purchase. But this year's Christmas season, the thing I want most, I'm probably not going to buy for myself, is the Batman 1966 complete Blu-ray set.
 
 [00:15:08] Adam: Oh wow,
 
 [00:15:09] Will: that's a good one.
 
-[00:15:09] Norm: Finally released, 166 bucks. I believe they did. How many episodes?
+[00:15:09] Norm: Finally released, $166. I believe they did. How many episodes?
 
 [00:15:15] Will: It's like four years worth, right?
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:15:40] Adam: stunning. Night and day. Yeah. Chalk and cheese, as they say in the UK.
 
-[00:15:43] Will: Pee-wee's Playhouse. There's a similar re-release of that, and it's only 99 bucks. I think that's on my list. Because that's too much to impulse buy.
+[00:15:43] Will: Pee-wee's Playhouse. There's a similar re-release of that, and it's only $99. I think that's on my list. Because that's too much to impulse buy.
 
 [00:15:50] Adam: Mrs. Don't try this, and I, my wife and I, we kind of, yeah.
 
@@ -594,7 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:16:50] Will: exactly.
 
-[00:16:50] Norm: Look, honey, that's a twenty-year experience.
+[00:16:50] Norm: Look, honey, that's a 20-year experience.
 
 [00:16:52] Will: I've got some coupons for you.
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:16:56] Will: a gift that keeps giving the whole year round.
 
-[00:16:59] Adam: There's a terrible and wonderful joke of this old old couple. They've been together for sixty years.
+[00:16:59] Adam: There's a terrible and wonderful joke of this old old couple. They've been together for 60 years.
 
 [00:17:05] Will: Am I gonna have to edit this out later?
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:17:07] Will: Okay.
 
-[00:17:07] Adam: It's his birthday. It's Harold's birthday, and he comes home, and his wife says, " Harold, we've been married for sixty years. I've gotten you a present. It's waiting for you in your bedroom." And he goes up into his bedroom, and there's this very sexy woman in there. And she says, " Hello, Harold. My name is Trixie, and I'm here to give you some super sex for your birthday." And he says, " To tell you the truth, I'll take the soup."
+[00:17:07] Adam: It's his birthday. It's Harold's birthday, and he comes home, and his wife says, " Harold, we've been married for 60 years. I've gotten you a present. It's waiting for you in your bedroom." And he goes up into his bedroom, and there's this very sexy woman in there. And she says, " Hello, Harold. My name is Trixie, and I'm here to give you some super sex for your birthday." And he says, " To tell you the truth, I'll take the soup."
 
 [00:17:33] Norm: Ah, that's a grandpa joke.
 
@@ -748,11 +748,11 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:23:24] Norm: Where is dandelion?
 
-[00:23:25] Adam: It's on Potrero and like Fourteenth,
+[00:23:25] Adam: It's on Potrero and like 14th,
 
-[00:23:27] Norm: Fifteenth,
+[00:23:27] Norm: 15th,
 
-[00:23:27] Will: maybe Fifteenth. Yeah, you've been there. We we pick something up there one time.
+[00:23:27] Will: maybe 15th. Yeah, you've been there. We we pick something up there one time.
 
 [00:23:30] Adam: Amazing!
 
@@ -778,17 +778,17 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:23:53] Will: I love to give books.
 
-[00:23:53] Adam: I also love to print out on archival quality paper photos that I have taken over the year of people that I love and give them framed prints. So I'll actually go to Cheap Pete's and buy a bunch of matted frames to fit. I have an eleven by seventeen printer, so I'll make a slightly bigger than eight and a half by eleven because I don't know for some reason I see an eight and a half by eleven print and I can tell that it's eight and a half by eleven.
+[00:23:53] Adam: I also love to print out on archival quality paper photos that I have taken over the year of people that I love and give them framed prints. So I'll actually go to Cheap Pete's and buy a bunch of matted frames to fit. I have an 11 by 17 printer, so I'll make a slightly bigger than 8.5 by 11 because I don't know for some reason I see an 8.5 by 11 print and I can tell that it's 8.5 by 11.
 
 [00:24:17] Will: Yeah.
 
-[00:24:18] Adam: So I'll go slightly bigger than that, and I'll spend a day before Christmas printing out ten or fifteen different ones and give those out. And I really like that because it's it's creative, it's thoughtful, and I've got. Fifty thousand photos in my collection, and some of them are family members that are great that we all forgot that I took, and they're wonderful to see.
+[00:24:18] Adam: So I'll go slightly bigger than that, and I'll spend a day before Christmas printing out 10 or 15 different ones and give those out. And I really like that because it's it's creative, it's thoughtful, and I've got. 50,000 photos in my collection, and some of them are family members that are great that we all forgot that I took, and they're wonderful to see.
 
 [00:24:39] Will: I mean, that's that's a wonderful gift for parents and grandparents and stuff like that. Is even if you don't have a great camera or a huge printer, you can get four by sixes printed at Target.
 
 [00:24:39] Adam: Oh yeah,
 
-[00:24:39] Will: and put them in one of those frames that has the sixteen different pictures. Collage frames, yeah.
+[00:24:39] Will: and put them in one of those frames that has the 16 different pictures. Collage frames, yeah.
 
 [00:24:51] Adam: Another great one is the books printed. Printed books like from Apple, which is probably it's you're almost close to too late now to be able to order them when we're recording this, let alone when this is playing.
 
@@ -810,7 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:25:18] Will: passes out on the living room floor at three o'clock in the afternoon.
 
-[00:25:22] Adam: Wraps up all ten strings of Christmas lights, which are all connected in series. Around a large cardboard tube, it takes me like forty five minutes to walk that many times around the Christmas tree to wrap them around. But every year at Christmas, when it's time to decorate the Christmas tree, I thank past me because it's totally trivial. Plug it in and walk around the tree.
+[00:25:22] Adam: Wraps up all 10 strings of Christmas lights, which are all connected in series. Around a large cardboard tube, it takes me like 45 minutes to walk that many times around the Christmas tree to wrap them around. But every year at Christmas, when it's time to decorate the Christmas tree, I thank past me because it's totally trivial. Plug it in and walk around the tree.
 
 [00:25:43] Will: I'll have to tell my wife; she's she's in charge of our lights,
 
@@ -852,7 +852,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:26:53] Will: We stayed
 
-[00:26:53] Adam: at the Fairmont, which felt like specifically like we'd gone about thirty years into the
+[00:26:53] Adam: at the Fairmont, which felt like specifically like we'd gone about 30 years into the
 
 [00:26:57] Will: past. Yeah. Well, I'll have the Fairmont lobby story I can't share on the podcast.
 
@@ -860,7 +860,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:27:05] Will: It's actually been in romantic comedies
 
-[00:27:07] Adam: before. Yes, it's been on multiple ones. The ceilings are like eighty feet tall, and it's like a football field wide. I'm totally lying about all of these dimensions.
+[00:27:07] Adam: before. Yes, it's been on multiple ones. The ceilings are like 80 feet tall, and it's like a football field wide. I'm totally lying about all of these dimensions.
 
 [00:27:15] Will: And the and the
 
@@ -1006,7 +1006,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:30:41] Adam: Detective Unstabler,
 
-[00:30:42] Will: we could have a Law and Order channel that's just Law and Order. It could. Thirty years of Law and Order.
+[00:30:42] Will: we could have a Law and Order channel that's just Law and Order. It could. 30 years of Law and Order.
 
 [00:30:47] Norm: It's the second longest running scripted show after Simpsons.
 
@@ -1070,7 +1070,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:32:06] Will: That's one of the things that I used to like. Well,
 
-[00:32:08] Adam: you can go to real bookstores, and I mean non-chain bookstores like Dogeared Books in the Mission or Green Apple over in the Sunset, and find old copies. If someone has a favorite book, buy them a first edition of it. Yeah, that is a great. Gift. It's a lovely. I bought Julia a limited edition of only. They were only printed fifty books of this poem, " Morning in Suburbia," by her favorite poet. And I bought a. I bought one of the monographs signed by the poet, and it was not crazy, crazy expensive.
+[00:32:08] Adam: you can go to real bookstores, and I mean non-chain bookstores like Dogeared Books in the Mission or Green Apple over in the Sunset, and find old copies. If someone has a favorite book, buy them a first edition of it. Yeah, that is a great. Gift. It's a lovely. I bought Julia a limited edition of only. They were only printed 50 books of this poem, " Morning in Suburbia," by her favorite poet. And I bought a. I bought one of the monographs signed by the poet, and it was not crazy, crazy expensive.
 
 [00:32:38] Will: Well, and I mean, we always talk about Etsy in this context.
 
@@ -1084,7 +1084,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:33:14] Adam: Yes,
 
-[00:33:15] Will: and probably on VHS, maybe DVD, I guess, but but I think Netflix has ruined that. In a lot of cases, because you know your eight dollars a month that everybody's paying for. Oh, that was me. Sorry. Oh, far out. Your eight bucks a month is, you know, taking care all the TVs there. Yeah. Um, the thing that just happened was I set on I set the accessibility alert so that when I get a ringtone, my light flashes, which is annoying and awesome.
+[00:33:15] Will: and probably on VHS, maybe DVD, I guess, but but I think Netflix has ruined that. In a lot of cases, because you know your $8 a month that everybody's paying for. Oh, that was me. Sorry. Oh, far out. Your $8 a month is, you know, taking care all the TVs there. Yeah. Um, the thing that just happened was I set on I set the accessibility alert so that when I get a ringtone, my light flashes, which is annoying and awesome.
 
 [00:33:38] Adam: I thought I was having an aneurysm.
 

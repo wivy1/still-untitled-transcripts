@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:04:17] Will: When did you teach them how to play?
 
-[00:04:18] Adam: Probably they knew by the time they were ten or eleven.
+[00:04:18] Adam: Probably they knew by the time they were 10 or 11.
 
 [00:04:21] Norm: Okay. Do you like chess for the same reason that you like pool? Because the learning curve is not. It definitely spikes up toward the end, but it has a nice hump where it's not like easy to learn.
 
@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:06:18] Will: You kind of get a hint of what you are going to do next, but you never can really predict your opponent. And playing German games, Norm and I have played a lot of, you know, starting with Catan, like everybody does, and going through all the other stuff. You eventually get to the point with the games that you play enough that you can see that stuff, and it's fascinating when it happens because it's a real weird brain feel.
 
-[00:06:34] Adam: So the the the thing that hooked me on this YouTube channel, the chess website, is this this Bobby Fischer game called that Bobby Fischer played when he was, I think, thirteen. And he, I am sorry if I get this wrong because I watched a whole bunch of them, but I think in this is the specific game I was watching in which he sacrifices his queen. Without a return on his investment,
+[00:06:34] Adam: So the the the thing that hooked me on this YouTube channel, the chess website, is this this Bobby Fischer game called that Bobby Fischer played when he was, I think, 13. And he, I am sorry if I get this wrong because I watched a whole bunch of them, but I think in this is the specific game I was watching in which he sacrifices his queen. Without a return on his investment,
 
 [00:07:02] Will: because he sees the return in five.
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:07:24] Unknown speaker: Oh, that's really cool.
 
-[00:07:24] Adam: what he's able to do by doing it. And each of these deep dives is really really thrilling. And having someone who is a high level chess player walk you through these choices and stratagems and alternate ways that it could have been done, and ways in which it's considered within the chess, is really enjoyable. And they're not too long. They're, none of these games are are hugely like extensive games either. So it's a nice bulleted sort of an intellectual deep dive into something that's only fifteen minutes long. So it's kind of a great like
+[00:07:24] Adam: what he's able to do by doing it. And each of these deep dives is really really thrilling. And having someone who is a high level chess player walk you through these choices and stratagems and alternate ways that it could have been done, and ways in which it's considered within the chess, is really enjoyable. And they're not too long. They're, none of these games are are hugely like extensive games either. So it's a nice bulleted sort of an intellectual deep dive into something that's only 15 minutes long. So it's kind of a great like
 
 [00:07:56] Norm: what's the best play by play?
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:08:27] Will: Well, it's funny because this is this is the place that like watching sports fails. Like the sports commentators, it's it's funny because the folks that make a video game called Dota do this big international tournament every few years, and they run multiple commentary streams. They run one for people who don't understand the game at all, and then they run others for people who like have played the game and understand basic strategy and stuff like that. And it's it's like that's the kind of thing that I think you miss on physical sports a lot of times. Like baseball commentators shoot for the median, right? Like they don't they don't explain the strategy of pulling the pitcher at this point.
 
-[00:09:01] Adam: No, and there have been some Deadspin articles about baseball moves where I'm like. I still don't understand why that's important. So then I'll go research that move and have to do all this research to fill in the story on deadspin because I want more. It's one of the actually. I mean, in general, on the internet, foundational perspective is often missing from stories that people are being paid eight bucks an hour to file fifty a day of.
+[00:09:01] Adam: No, and there have been some Deadspin articles about baseball moves where I'm like. I still don't understand why that's important. So then I'll go research that move and have to do all this research to fill in the story on deadspin because I want more. It's one of the actually. I mean, in general, on the internet, foundational perspective is often missing from stories that people are being paid $8 an hour to file 50 a day of.
 
 [00:09:27] Norm: YouTube is where the hobbyists really latch onto that,
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:09:30] Norm: Yeah.
 
-[00:09:30] Norm: and it happens in sports basketball especially, because all the footage is digital now, so they can find the people are uploading entire games, easy for you to rip. And there is some great literal play-by-play commentary where they're taking fifteen seconds of a forty-eight minute game, and you watch a ten-minute video about the decisions of all ten players on the court
+[00:09:30] Norm: and it happens in sports basketball especially, because all the footage is digital now, so they can find the people are uploading entire games, easy for you to rip. And there is some great literal play-by-play commentary where they're taking 15 seconds of a 48 minute game, and you watch a 10-minute video about the decisions of all 10 players on the court
 
 [00:09:51] Adam: Yeah.
 
@@ -236,7 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:10:13] Will: I mean, they would have played the
 
-[00:10:14] Norm: Ninety-six finals. I'm not sure.
+[00:10:14] Norm: '96 finals. I'm not sure.
 
 [00:10:15] Adam: Yeah, and so it was one of these famous games in which Jordan sinks the three-pointer by he does a fake, and the guy who's guarding him moves, and Jordan reaches out and just touches the guy's shoulder, and the guy just falls over.
 
@@ -280,9 +280,9 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:12:40] Adam: Mm-hmm.
 
-[00:12:40] Will: A few years ago, Matt Leacock, I think, made the Pandemic, or well, they they started making a Risk Legacy game, which is a game of Risk that's designed to be played twelve times, and the board changes as you play.
+[00:12:40] Will: A few years ago, Matt Leacock, I think, made the Pandemic, or well, they they started making a Risk Legacy game, which is a game of Risk that's designed to be played 12 times, and the board changes as you play.
 
-[00:12:52] Norm: Oh, so you only play it twelve times, and you have to buy a new set because you want to physically
+[00:12:52] Norm: Oh, so you only play it 12 times, and you have to buy a new set because you want to physically
 
 [00:12:56] Adam: because because that's like the real Risk where you only play it once before someone hurls the board across the room into the wall.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:13:14] Will: Right? Like it's it's it's those kinds of interactions are are are lovely, and getting to play like it's fun to dig into a game long enough to get to the meat of it.
 
-[00:13:22] Norm: Well, like every game, it's about the the shared experience and that story you've built together. Yeah. The fact that you can have then an artifact at the end of twelve games, whatever it is, that is a tangible, physical, marked up you know thing of that journey, and then someone gets to keep it.
+[00:13:22] Norm: Well, like every game, it's about the the shared experience and that story you've built together. Yeah. The fact that you can have then an artifact at the end of 12 games, whatever it is, that is a tangible, physical, marked up you know thing of that journey, and then someone gets to keep it.
 
 [00:13:37] Will: Did you ever? Did you ever finish one of those campaigns?
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:13:44] Will: No.
 
-[00:13:44] Adam: Okay. Set is a series of cards. You lay down, I think it's nine or twelve cards, and they're different shapes that are different colors, and you can either have them be all the same shape. Or all the same color, or all different shapes, or all different colors, and it's one of these brain benders because you're thinking at two ends of a spectrum of matching.
+[00:13:44] Adam: Okay. Set is a series of cards. You lay down, I think it's 9 or 12 cards, and they're different shapes that are different colors, and you can either have them be all the same shape. Or all the same color, or all different shapes, or all different colors, and it's one of these brain benders because you're thinking at two ends of a spectrum of matching.
 
 [00:14:04] Will: Okay.
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:14:08] Adam: and we were yeah yeah and we were having a lot of fun playing it with my boys and Julie and I played it a ton and then we played it with my niece who turns out to be I mean she's brilliant but she's like a savant at set and it's like she's so good at it I don't want to play anymore not because she's going to beat me every time because my brain literally cannot do what she can do she walks by the table we're all sitting there like staring at these cards and she's like set
 
-[00:14:36] Will: well that's I mean that's what that's what I mean that's what happens with the German with the German kind of board games I mean Gina and I have played some of those sometimes you play for ten games and somebody figures out the core strategy that the other person hasn't sussed out yet and then or you figure out how to break the game and then it just becomes a race to see who breaks the game that's not very much fun
+[00:14:36] Will: well that's I mean that's what that's what I mean that's what happens with the German with the German kind of board games I mean Gina and I have played some of those sometimes you play for 10 games and somebody figures out the core strategy that the other person hasn't sussed out yet and then or you figure out how to break the game and then it just becomes a race to see who breaks the game that's not very much fun
 
 [00:14:55] Adam: yeah
 
@@ -660,7 +660,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:28:16] Norm: Nice.
 
-[00:28:16] Adam: Yeah, but ultimately, look. Right now in television, we're in this state where if you watch twelve hours of a show, in my experience, oftentimes like three of those hours feel almost disposable.
+[00:28:16] Adam: Yeah, but ultimately, look. Right now in television, we're in this state where if you watch 12 hours of a show, in my experience, oftentimes like three of those hours feel almost disposable.
 
 [00:28:32] Will: Yeah, that's what was so refreshing about Fleabag.
 
@@ -674,9 +674,9 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:28:42] Will: I don't mind them. I don't mind a bottle episode.
 
-[00:28:44] Adam: But you know, I got to the end of the first season of Westworld, and I was like, I just watched ten hours, and I feel like I watched four and a half hours.
+[00:28:44] Adam: But you know, I got to the end of the first season of Westworld, and I was like, I just watched 10 hours, and I feel like I watched four and a half hours.
 
-[00:28:51] Will: Oh, you watched more than ten hours. You watched twenty-five hours.
+[00:28:51] Will: Oh, you watched more than 10 hours. You watched 25 hours.
 
 [00:28:54] Adam: Right.
 
@@ -684,7 +684,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:28:54] Adam: but of one season? No, that's two seasons.
 
-[00:28:57] Will: Oh, the first season might have been short, but the every season after that was twenty, twenty something episodes.
+[00:28:57] Will: Oh, the first season might have been short, but the every season after that was 20, 20 something episodes.
 
 [00:29:01] Norm: Really?
 
@@ -740,7 +740,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:31:12] Adam: A kind of a femme fatale, dark, smart operator, working on a bunch of different fronts at once. Look, the main thing that shines through this show is the intelligence of most of the characters. Funnily enough, the Supes are not among those. The the Supes don't show up as the smartest.
 
-[00:31:33] Will: I assume they fall into the Jon Hamm rule from Thirty Rock, where like the more beautiful you are, the dumber you get.
+[00:31:33] Will: I assume they fall into the Jon Hamm rule from 30 Rock, where like the more beautiful you are, the dumber you get.
 
 [00:31:38] Adam: You're in the bubble, Lemon.
 

@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:07:36] Kishore: but it ruined it. It kind of dulls the effect. I mean, we should talk about this. So if you've never done this experiment, do try this at home.
 
-[00:07:44] Adam: Look, microwaves are microwaves are exceedingly inexpensive. Right, you can buy a seventy dollar microwave
+[00:07:44] Adam: Look, microwaves are microwaves are exceedingly inexpensive. Right, you can buy a $70 microwave
 
 [00:07:50] Will: unless they're attached to the wall.
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:09:59] Adam: At any rate, let's watching them take it in and get that they get it and enjoy the humor of the language play. So much fun! So I, I totally see where you are going with this.
 
-[00:10:10] Will: Yeah, like you have a perfect audience. They laugh at everything, and as a result, your your sense of what is truly funny and what is not truly funny is is it's a dull knife. It goes from being very sharp and and rapier like when you are in your mid thirties to, uh, well,
+[00:10:10] Will: Yeah, like you have a perfect audience. They laugh at everything, and as a result, your your sense of what is truly funny and what is not truly funny is is it's a dull knife. It goes from being very sharp and and rapier like when you are in your mid 30s to, uh, well,
 
 [00:10:24] Kishore: you know, it's gone too far when you go to your wife. You are like, I think I should try stand up.
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:10:54] Will: We're getting something somewhere.
 
-[00:10:56] Adam: There we go. Chris Hardwick gave me time on stage at Largo to try out ten or fifteen minutes of material that I've written.
+[00:10:56] Adam: There we go. Chris Hardwick gave me time on stage at Largo to try out 10 or 15 minutes of material that I've written.
 
 [00:11:03] Kishore: So you tried it at like one of the great clubs in America?
 
@@ -312,9 +312,9 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:11:11] Will: Oh, no, it's yes and
 
-[00:11:12] Adam: okay. Largo is one of the great places to see comedy or music in the world, and it's an amazing place. And people like Patton Oswalt and Aimee Mann and Tig Notaro and that comedy troupe in LA, along with Thrilling Adventure Hour and folks like Wil Wheaton and our friends, it is a deeply wonderful place to go perform. But that's not. I want to tell you, I don't think that that's stand up because that's a deeply friendly, loving crowd. Stand up is going up and doing fifteen minutes at Cobb's, where it's an aggressive stand up audience and people who've gone through that meat grinder. I have nothing but all respect for them. So when I say I've tried standup, I told some joke. I wrote jokes that I told in a friendly atmosphere, and they went over really well, and that was great. But I don't, I don't like to the standup comedians out there and my friends who do it. I recognize that I have just glimpsed a little peek from the mountaintop.
+[00:11:12] Adam: okay. Largo is one of the great places to see comedy or music in the world, and it's an amazing place. And people like Patton Oswalt and Aimee Mann and Tig Notaro and that comedy troupe in LA, along with Thrilling Adventure Hour and folks like Wil Wheaton and our friends, it is a deeply wonderful place to go perform. But that's not. I want to tell you, I don't think that that's stand up because that's a deeply friendly, loving crowd. Stand up is going up and doing 15 minutes at Cobb's, where it's an aggressive stand up audience and people who've gone through that meat grinder. I have nothing but all respect for them. So when I say I've tried standup, I told some joke. I wrote jokes that I told in a friendly atmosphere, and they went over really well, and that was great. But I don't, I don't like to the standup comedians out there and my friends who do it. I recognize that I have just glimpsed a little peek from the mountaintop.
 
-[00:12:12] Will: The the the the crowd at the Chuckle Hut down at the Holiday Inn at Exit Twenty Seven is not quite as friendly on a Tuesday night.
+[00:12:12] Will: The the the the crowd at the Chuckle Hut down at the Holiday Inn at Exit 27 is not quite as friendly on a Tuesday night.
 
 [00:12:19] Kishore: I actually tried this. I tried doing open mics about more than a decade ago, and I remember my first one was at the Brainwash Cafe down here in Soma,
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:12:30] Kishore: which is a part laundromat, part cafe.
 
-[00:12:33] Adam: It's always been a hipster mecca for thirty years.
+[00:12:33] Adam: It's always been a hipster mecca for 30 years.
 
 [00:12:36] Kishore: Yeah, totally. And so I remember my first set, and I had written, I had written political humor, so that was going to go over well. And then I get off stage, and
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:16:26] Adam: is perusing threads on Reddit, you have bigger problems to deal with
 
-[00:16:30] Will: . Daughters can be all ages, Adam. Like they aren't all five. They can. She could be thirty. Dad, you know about this
+[00:16:30] Will: . Daughters can be all ages, Adam. Like they aren't all five. They can. She could be 30. Dad, you know about this
 
 [00:16:38] Adam: . You wanted to talk about grape fire, though.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:19:36] Adam: right, right, right.
 
-[00:19:36] Kishore: And then I just went into it, and then I'm hooked. You know, twenty minutes in, and it's it's that sort of Netflix model pushing stuff out. Where I just have none of this pre hype knowledge, anything else.
+[00:19:36] Kishore: And then I just went into it, and then I'm hooked. You know, 20 minutes in, and it's it's that sort of Netflix model pushing stuff out. Where I just have none of this pre hype knowledge, anything else.
 
 [00:19:48] Adam: I, I I love this show. It makes me so excited about science fiction and narrative. And I I love how, like I was saying to this last week on the podcast, the rules are weird and inscrutable, but they feel consistent.
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:25:40] Kishore: He's the best.
 
-[00:25:41] Adam: I love him. And yeah, so my my wife was like, " You get to see one of your math friends tonight," because she she's been making fun of me. I'll sit there with headphones on, watching Numberphile, and then deep dives into mathematics. And literally, about every ten minutes, I'll go, "
+[00:25:41] Adam: I love him. And yeah, so my my wife was like, " You get to see one of your math friends tonight," because she she's been making fun of me. I'll sit there with headphones on, watching Numberphile, and then deep dives into mathematics. And literally, about every 10 minutes, I'll go, "
 
 [00:25:58] Adam: Oh, oh!"
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:27:43] Adam: you can see all of your other opponents on your central screen.
 
-[00:27:46] Will: There is ninety forty-seven, forty-eight on each side, forty-nine on each side of you, and then one in the middle.
+[00:27:46] Will: There is ninety forty-seven, 48 on each side, 49 on each side of you, and then one in the middle.
 
 [00:27:51] Adam: And then, as you complete rows, you can send them to other players.
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:27:58] Adam: No, no no. This is the thing: is as you complete rows, you can take that row and send it to a specific player
 
-[00:28:03] Will: , and you can send it to a specific player, or you can send it to people in general. And the interesting thing is, like, if you can get a bunch of people to be attacking you, then you can send each of your rows out to all of the other people that are attacking you. So you can turn like one finished row into ten or twelve if you have six, ten or twelve people attacking you.
+[00:28:03] Will: , and you can send it to a specific player, or you can send it to people in general. And the interesting thing is, like, if you can get a bunch of people to be attacking you, then you can send each of your rows out to all of the other people that are attacking you. So you can turn like one finished row into 10 or 12 if you have 6, 10 or 12 people attacking you.
 
 [00:28:22] Adam: Oh,
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:29:36] Will: It's just normal Tetris in the beginning. Like you're just playing normal kind of slow Tetris, making lines. The overall strategy is the the meta for the overall strategy is a little bit different because it seems like instead of trying to build Tetrises and getting points, you're just trying to knock other people out, which generates more kind of a bigger multiplier for you for the number of lines.
 
-[00:29:54] Kishore: But then when you get down to like that final ten, final five, you're you're playing like 3D chess.
+[00:29:54] Kishore: But then when you get down to like that final 10, final five, you're you're playing like 3D chess.
 
 [00:29:59] Will: It's frenetic at a level that I've never experienced with Tetris before.
 
@@ -666,7 +666,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:31:07] Will: So Theranos, just to, so in case people don't know, is a company, is a startup that claimed to develop a blood test that would do
 
-[00:31:13] Adam: two hundred assays on a single on a pair of drops of blood
+[00:31:13] Adam: 200 assays on a single on a pair of drops of blood
 
 [00:31:16] Will: . Yeah. Versus taking multiple vials. Yes.
 
@@ -676,7 +676,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:31:42] Kishore: Renowned blood expert Henry Kissinger.
 
-[00:31:43] Adam: And yeah, I know. And it it turned out to be and all an absolute a Ponzi scheme, a complete fraud. They never had the technology working. They were using outside machines to do all their testing, even when they were in Walgreens all over California. And the podcast is riveting because they have recordings of actual depositions from lawsuits. They're interviewing lots of the folks that were the whistleblowers and stuff, and it's it's super intense to realize this company went on for like eleven years.
+[00:31:43] Adam: And yeah, I know. And it it turned out to be and all an absolute a Ponzi scheme, a complete fraud. They never had the technology working. They were using outside machines to do all their testing, even when they were in Walgreens all over California. And the podcast is riveting because they have recordings of actual depositions from lawsuits. They're interviewing lots of the folks that were the whistleblowers and stuff, and it's it's super intense to realize this company went on for like 11 years.
 
 [00:32:13] Will: Wow. Really?
 
@@ -762,7 +762,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:35:29] Will: There has to be a German word for it
 
-[00:35:30] Adam: . I know. I will say that I am in the middle of signing all the Sixty-five hundred bookplates for my book.
+[00:35:30] Adam: . I know. I will say that I am in the middle of signing all the 6,500 bookplates for my book.
 
 [00:35:36] Kishore, possibly Will: Ooh, Wow!
 
@@ -770,15 +770,15 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:35:40] Will: What's your What's your rate? Yeah, I we've talked about
 
-[00:35:42] Adam: . Sorry, I have my cheat sheet around here somewhere. I'm able to sign a hundred in less than four minutes.
+[00:35:42] Adam: . Sorry, I have my cheat sheet around here somewhere. I'm able to sign 100 in less than four minutes.
 
 [00:35:48] Will: Oh, that's really good.
 
-[00:35:48] Adam: Yeah, it's not bad at all. So that breaks down to about a about four plus hours to do sixty-five hundred. If I didn't ever stop, but of course a hundred uses up about a sharpie.
+[00:35:48] Adam: Yeah, it's not bad at all. So that breaks down to about a about four plus hours to do 6,500. If I didn't ever stop, but of course 100 uses up about a sharpie.
 
 [00:35:59] Will: Yeah,
 
-[00:35:59] Adam: hundred and fifty uses up about a sharpie. So I'm just slowly coming in here every few days and signing a few hundred and putting them over. And I have to buy some more sharpies now. That's where I'm at.
+[00:35:59] Adam: 150 uses up about a sharpie. So I'm just slowly coming in here every few days and signing a few hundred and putting them over. And I have to buy some more sharpies now. That's where I'm at.
 
 [00:36:08] Kishore: I'm totally calculating the amount of ink in a sharpie now, based off of this
 

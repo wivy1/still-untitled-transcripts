@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:10:29] Norm: Yeah, tell us about that whole experience. I wasn't there. It was at the White House.
 
-[00:10:32] Adam: It was at the White House. Uh, So this was the last major South Lawn event of the Obama administration. Uh, Inspired by his visit to South by Southwest last year, uh, they decided to throw South by South Lawn on the White House lawn, and this was, uh. I don't even know how many thousands of people, three or four thousand people, on the South Lawn all day from eleven a.m. until like ten p.m. And they had forums, they had onstage conversations, they had booths with amazing groups. Jose Andres was showing the future of, uh, fuelless. Cooking and really inexpensive ways of bringing cooking to the third world. Uh, Wonderful Oakland group called Black Girls Code. You know, all these amazing bands. The Lumineers were playing. I met Hannibal Buress, uh, and Leonardo DiCaprio and Obama interviewed on stage, uh. We're we're talking on stage about global warming and how we respond to it as a society and going to Mars.
+[00:10:32] Adam: It was at the White House. Uh, So this was the last major South Lawn event of the Obama administration. Uh, Inspired by his visit to South by Southwest last year, uh, they decided to throw South by South Lawn on the White House lawn, and this was, uh. I don't even know how many thousands of people, 3,000 or 4,000 people, on the South Lawn all day from eleven a.m. until like ten p.m. And they had forums, they had onstage conversations, they had booths with amazing groups. Jose Andres was showing the future of, uh, fuelless. Cooking and really inexpensive ways of bringing cooking to the third world. Uh, Wonderful Oakland group called Black Girls Code. You know, all these amazing bands. The Lumineers were playing. I met Hannibal Buress, uh, and Leonardo DiCaprio and Obama interviewed on stage, uh. We're we're talking on stage about global warming and how we respond to it as a society and going to Mars.
 
 [00:11:28] Norm: Wow,
 
@@ -264,13 +264,13 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:12:20] Will: So that people can see the talks.
 
-[00:12:21] Adam: and we were there recording. We were filming. We interviewed a bunch of different folks. Um and and but most importantly, uh I had been uh talking to Andrew Coy, the director of making for the Obama administration, um about the sign. Right. There was going to be a SXSL South by South Lawn sign, um and with this wonderful, uh, maker out of Baltimore, Jen Schachter and the Digital Harbor Foundation, um I uh I kind of did some of the first drawings and then Jen designed the mechanical sign and then we went to Digital Harbor in Baltimore on the Sunday before South by South Lawn. And built the sign out of plywood, seven and a half feet tall, with fifty kids.
+[00:12:21] Adam: and we were there recording. We were filming. We interviewed a bunch of different folks. Um and and but most importantly, uh I had been uh talking to Andrew Coy, the director of making for the Obama administration, um about the sign. Right. There was going to be a SXSL South by South Lawn sign, um and with this wonderful, uh, maker out of Baltimore, Jen Schachter and the Digital Harbor Foundation, um I uh I kind of did some of the first drawings and then Jen designed the mechanical sign and then we went to Digital Harbor in Baltimore on the Sunday before South by South Lawn. And built the sign out of plywood, seven and a half feet tall, with 50 kids.
 
 [00:13:05] Will: Oh, that's awesome!
 
 [00:13:06] Norm: All it's a huge collaboration.
 
-[00:13:07] Adam: Seven to seventeen, unbelievable. Like I actually had as much or more fun in Baltimore building that sign than I did at the South by South Lawn event. These kids were incredible. I mean, there was this, ah, it like the number of ways in which it was thrilling are too many to count. But there's one moment where this young girl is like thirteen years old. We're painting the back of this sign and painting it black so it disappears, and you just see the you know sign in the photos. And she's like repainting this footprint black, and she's like, " Yo, is this what your job is like?" And I was like, " Yes, it is, honey. I swear, like 90% of everything you'll ever do is drudgery, and if you do that really well, the 10% you get to do is really cool. And that's how life works. And it was like you know, and we're just talking. We were making that sign for eleven straight hours.
+[00:13:07] Adam: 7 to 17, unbelievable. Like I actually had as much or more fun in Baltimore building that sign than I did at the South by South Lawn event. These kids were incredible. I mean, there was this, ah, it like the number of ways in which it was thrilling are too many to count. But there's one moment where this young girl is like 13 years old. We're painting the back of this sign and painting it black so it disappears, and you just see the you know sign in the photos. And she's like repainting this footprint black, and she's like, " Yo, is this what your job is like?" And I was like, " Yes, it is, honey. I swear, like 90% of everything you'll ever do is drudgery, and if you do that really well, the 10% you get to do is really cool. And that's how life works. And it was like you know, and we're just talking. We were making that sign for 11 straight hours.
 
 [00:14:01] Norm: Yeah,
 
@@ -278,9 +278,9 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:14:13] Norm: It was like a pop-up makerspace.
 
-[00:14:14] Adam: It was, it was, and you know, kudos to the Digital Harbor Foundation for having such having fifty kids they can call at the drop of hat. I mean, and they asked me that morning. They were like, " Do you think you have enough work for fifty kids?" And I was like, " I have no idea. I've never built anything with this many people."
+[00:14:14] Adam: It was, it was, and you know, kudos to the Digital Harbor Foundation for having such having 50 kids they can call at the drop of hat. I mean, and they asked me that morning. They were like, " Do you think you have enough work for 50 kids?" And I was like, " I have no idea. I've never built anything with this many people."
 
-[00:14:29] Will: What do you do with fifty kids?
+[00:14:29] Will: What do you do with 50 kids?
 
 [00:14:31] Adam: Um, It you know, it, we were we were it took everybody. It ended up taking the effort of absolutely everybody there, and it was it was really inspiring. I the thing I said to the kids at the end, and this will be in the video that we put up on Tested, is, um, you know when you tell the story about building this sign, I want you to remember that I didn't build this sign with your help. You built the sign with my help. I was just one player in this. And when you see pictures of this, you get to say you get to say rightfully, I built that. And that's such an amazing thing because that sign was the selfie station at South by South Lawn. The letters were placed like the Hollywood sign letters, right in front of the South Lawn entrance to the White House, and everybody in the world took their picture in front of those letters.
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:16:49] Will: Really,
 
-[00:16:49] Adam: like we have an almost identical drawing style. So as we were before the you know in advance of this, because this all came together very quickly. Like we were first talking about the sign maybe twenty five days before the event, and Like she was cutting the pieces three days before the event, so there was lots of back and forth of me taking drawing in my notebook and sending her a screen grab of it, and she's doing the same thing. And I saw her drawing, and I was like, " Did I don't remember drawing that? It's oh, it's not my drawing." And she had had the exact same experience.
+[00:16:49] Adam: like we have an almost identical drawing style. So as we were before the you know in advance of this, because this all came together very quickly. Like we were first talking about the sign maybe 25 days before the event, and Like she was cutting the pieces three days before the event, so there was lots of back and forth of me taking drawing in my notebook and sending her a screen grab of it, and she's doing the same thing. And I saw her drawing, and I was like, " Did I don't remember drawing that? It's oh, it's not my drawing." And she had had the exact same experience.
 
 [00:17:20] Will: Oh, that's funny.
 
@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:19:53] Adam: Just great,
 
-[00:19:53] Will: and we had forty-five minutes to get as many books as we could get the librarians to give us.
+[00:19:53] Will: and we had 45 minutes to get as many books as we could get the librarians to give us.
 
 [00:19:57] Norm: Maybe it's retired that idea of. Needs to be quiet in the library for the local branches and reassign the quiet areas to.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:24:34] Norm: Was it packed?
 
-[00:24:35] Will: Um, it was a big enough space that I think you could have twenty thousand people in there, and it wouldn't feel packed out.
+[00:24:35] Will: Um, it was a big enough space that I think you could have 20,000 people in there, and it wouldn't feel packed out.
 
 [00:24:40] Norm: Oh my god, that's massive!
 
@@ -568,7 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:27:03] Norm: I think so.
 
-[00:27:03] Will: Closes on the thirtieth. I, I thought it was the end of the month.
+[00:27:03] Will: Closes on the 30th. I, I thought it was the end of the month.
 
 [00:27:05] Norm: End of the month.
 

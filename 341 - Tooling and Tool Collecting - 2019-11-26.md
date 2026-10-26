@@ -194,11 +194,11 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:10:42] Unknown speaker: Yeah.
 
-[00:10:42] Norm: And they've been doing it for decades, and you can buy them for you know fifty, sixty dollars, and they go out, they sell out, and eventually, like you literally piece them together to build out your scale model of Disneyland. And I think the the company is like the Olszewski or something that, um, but it's actually one guy. It's one artist.
+[00:10:42] Norm: And they've been doing it for decades, and you can buy them for you know $50, $60, and they go out, they sell out, and eventually, like you literally piece them together to build out your scale model of Disneyland. And I think the the company is like the Olszewski or something that, um, but it's actually one guy. It's one artist.
 
 [00:11:01] Unknown speaker (Adam or Zach): Oh, wow.
 
-[00:11:01] Norm: He's like seventy four years old. He's been doing it forever,
+[00:11:01] Norm: He's like 74 years old. He's been doing it forever,
 
 [00:11:06] Unknown speaker (Adam or Zach): Oh, my God.
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:18:28] Zach: Well, I mean, it depends. There's there's always different levels. You can do aluminum. You can do so. It's all how many you want to make, It’s how long the tool lasts,
 
-[00:18:34] Adam: how complex the tool is, how thick the part you're going to shoot in it. But you could you could start out with injection molding with a tool that costs you less than like 3,000 bucks.
+[00:18:34] Adam: how complex the tool is, how thick the part you're going to shoot in it. But you could you could start out with injection molding with a tool that costs you less than like $3,000.
 
 [00:18:42] Zach: Yeah,
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:18:53] Adam: out of styrene that he injection molded. He made the tools himself. He injection molded them himself, and we bought them by the metric ton at ILM as detailing on the sides of ships and stuff.
 
-[00:19:02] Zach: Yeah, absolutely. I mean, there's people that are actually doing injection molding out of 3D printed materials. So you know, if you only want like you know ten, or
+[00:19:02] Zach: Yeah, absolutely. I mean, there's people that are actually doing injection molding out of 3D printed materials. So you know, if you only want like you know 10, or
 
 [00:19:10] Norm: And you don't care about the longevity of it,
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:19:14] Unknown speaker: Yeah.
 
-[00:19:14] Zach: You know, you can you can do those sorts of things. And then you know, there's high temperature plastics that you can actually do lower temperature metals, and and you just barely get in there. Um, but but yeah, I mean, it's the the hard part is when you want. Ten thousand of something, or hundred thousand of something, or a million of something—and they have to be absolutely perfect.
+[00:19:14] Zach: You know, you can you can do those sorts of things. And then you know, there's high temperature plastics that you can actually do lower temperature metals, and and you just barely get in there. Um, but but yeah, I mean, it's the the hard part is when you want. 10,000 of something, or 100,000 of something, or 1 million of something—and they have to be absolutely perfect.
 
 [00:19:27] Unknown speaker: Right.
 
@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:20:49] Norm: detent's allowed to lock the joints to lock in place.
 
-[00:20:52] Adam: So that just the ball was something like a six piece collet on either side to release the ball on this tool that could do 16 parts. The tooling alone was over a million bucks, and at one point, one of the injection molders was holding the tooling hostage, and like a private jet was chartered to fly to the injection molder and take the tooling
+[00:20:52] Adam: So that just the ball was something like a six piece collet on either side to release the ball on this tool that could do 16 parts. The tooling alone was over $1 million, and at one point, one of the injection molders was holding the tooling hostage, and like a private jet was chartered to fly to the injection molder and take the tooling
 
 [00:21:16] Zach: because yeah, once you build it, like you can't really modify it. I mean, there's some tricks that they sometimes will add a little metal or they can take some metal away, but for the most part, it's like You you know you do it once and it's a long process again with that like you know sinking EDM.
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:21:30] Zach: Yeah, yeah, no,
 
-[00:21:31] Adam: it's exactly that. And it's it's something that weighs like 150 pounds and it's a million bucks worth of worth of effort.
+[00:21:31] Adam: it's exactly that. And it's it's something that weighs like 150 pounds and it's $1 million worth of worth of effort.
 
 [00:21:37] Norm: Oh, My God, that's that's a cool story right there. That's a that's a ripe for dramatization.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:23:25] Adam: Yeah,
 
-[00:23:26] Zach: yeah. I deal with that all the time because people, you know, people want to say, " Oh, how much is it going to cost to build a thing?" And I go, " Well, it depends. Are you going to build two or two thousand or two million?"
+[00:23:26] Zach: yeah. I deal with that all the time because people, you know, people want to say, " Oh, how much is it going to cost to build a thing?" And I go, " Well, it depends. Are you going to build 2 or 2,000 or 2 million?"
 
 [00:23:36] Adam: Well, that's a, my friend Kevin Binkert has SMP here in the city, and he has people call him up and say, " Hey, ballpark, what does it cost to machine something?" He's like, " That's not a question. Yeah, that's not. There's no. There's no actual question in the sentence you spoke.
 
@@ -550,7 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:28:31] Unknown speaker (Norm or Zach): Mm hmm.
 
-[00:28:31] Adam: The casting in Olive Kitteridge is incredible because the stories bounce around in time. So between episodes one, two, and three, we've traversed like fifteen years of time. So there's a kid we meet at sixteen, or there's a kid we meet at twelve or eleven, and then we meet him again at twenty.
+[00:28:31] Adam: The casting in Olive Kitteridge is incredible because the stories bounce around in time. So between episodes one, two, and three, we've traversed like 15 years of time. So there's a kid we meet at 16, or there's a kid we meet at 12 or 11, and then we meet him again at 20.
 
 [00:28:50] Unknown speaker (Norm or Zach): Oh, wow.
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:29:59] Zach: yeah,
 
-[00:29:59] Adam: a smaller one, you know, like five, four hundred, five hundred bucks.
+[00:29:59] Adam: a smaller one, you know, like five, $400, $500.
 
 [00:30:02] Zach: Yeah.
 
@@ -582,15 +582,15 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:30:23] Zach: which is now out of date because you don't you don't use it.
 
-[00:30:25] Adam: It was they spent twenty grand on this.
+[00:30:25] Adam: It was they spent $20,000 on this.
 
 [00:30:27] Zach: Oh my god!
 
-[00:30:27] Adam: Fifteen fifteen years ago.
+[00:30:27] Adam: 15 15 years ago.
 
 [00:30:29] Zach: Yeah.
 
-[00:30:29] Adam: Um. Then I had to try and make that work, and they had all those custom remotes that are like 350 bucks a piece.
+[00:30:29] Adam: Um. Then I had to try and make that work, and they had all those custom remotes that are like $350 a piece.
 
 [00:30:35] Zach: Oh yeah.
 
@@ -614,7 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:31:20] Norm: that's it.
 
-[00:31:21] Adam: And so I'm getting for 400 bucks, I'm getting this thing that would have cost me 10,000 dollars ten years ago.
+[00:31:21] Adam: And so I'm getting for $400, I'm getting this thing that would have cost me $10,000 10 years ago.
 
 [00:31:27] Zach: And it wouldn't work.
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:31:49] Zach: Yeah, sure, yeah, yeah. You already have.
 
-[00:31:51] Adam: Well, it's the big eight K, sixty five inch. It's one of the loveliest things I've ever seen. And the two things I love about it are one, it's three quarters of an inch thick, which blew my mind. But second, they didn't put an electrical cord in it. It's one little silver cord that's like forty feet long. It goes to a box way over there.
+[00:31:51] Adam: Well, it's the big eight K, 65 inch. It's one of the loveliest things I've ever seen. And the two things I love about it are one, it's three quarters of an inch thick, which blew my mind. But second, they didn't put an electrical cord in it. It's one little silver cord that's like 40 feet long. It goes to a box way over there.
 
 [00:32:10] Zach: Yeah.
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:33:11] Adam: It really is. Um, what are you are you hosting Thanksgiving at your house?
 
-[00:33:16] Norm: I am getting on an airplane in twelve hours to go to Indiana.
+[00:33:16] Norm: I am getting on an airplane in 12 hours to go to Indiana.
 
 [00:33:18] Adam: Oh my gosh!
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:33:37] Zach: They're harder to ship.
 
-[00:33:38] Adam: I flew with eleven month old twins alone.
+[00:33:38] Adam: I flew with 11 month old twins alone.
 
 [00:33:41] Norm: Wow,
 

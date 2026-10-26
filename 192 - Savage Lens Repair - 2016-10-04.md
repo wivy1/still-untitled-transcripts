@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:06:33] Adam: Zelig Zelig is a very powerful force.
 
-[00:06:36] Will: So that used to be my biggest fear on stage. The I am standing up there, and all of a sudden, I have no idea what to do. And then at Maker Faire this year, my confidence monitor didn't work, so I had like a forty five minute talk that I had to pull from memory, which was exciting.
+[00:06:36] Will: So that used to be my biggest fear on stage. The I am standing up there, and all of a sudden, I have no idea what to do. And then at Maker Faire this year, my confidence monitor didn't work, so I had like a 45 minute talk that I had to pull from memory, which was exciting.
 
 [00:06:50] Norm: Yeah,
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:07:07] Unknown: [speaker unclear: Norm / Will] Yeah,
 
-[00:07:07] Will: and. About three quarters of the way through this forty-minute talk, I am sitting there. I am thinking, " What if I take off the goggles and everybody's left?" Right?
+[00:07:07] Will: and. About three quarters of the way through this 40-minute talk, I am sitting there. I am thinking, " What if I take off the goggles and everybody's left?" Right?
 
 [00:07:17] Adam: Or your fly is down.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:07:18] Adam: is down. That's where I was going to go.
 
-[00:07:21] Will: I would be fine having no pants at all on, right? As long as there is still asses in the seats when I take the goggles off. Like I think, I think public nudity is way, way, way less bad than eight hundred people were bored and left.
+[00:07:21] Will: I would be fine having no pants at all on, right? As long as there is still asses in the seats when I take the goggles off. Like I think, I think public nudity is way, way, way less bad than 800 people were bored and left.
 
 [00:07:33] Norm: What if the thing they're laughing at isn't the things I am saying?
 
@@ -178,11 +178,11 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:07:44] Will: the first, the one that you did in 2012.
 
-[00:07:45] Adam: Yeah, Jamie and I were the opening act for Stephen and John. Wow! They asked us to do twenty minutes as a warm up to the crowd. We did a couple of experiments, and I am looking at a quarter of a million people.
+[00:07:45] Adam: Yeah, Jamie and I were the opening act for Stephen and John. Wow! They asked us to do 20 minutes as a warm up to the crowd. We did a couple of experiments, and I am looking at 250,000 people.
 
 [00:08:00] Will: As is it, is it an incomprehensible? Like
 
-[00:08:02] Adam: it's incomprehensible. Yes, we did a wave that started at the front and took something like sixty-five seconds to reach the back of the mall, a mile away. And back to the stage.
+[00:08:02] Adam: it's incomprehensible. Yes, we did a wave that started at the front and took something like 65 seconds to reach the back of the mall, a mile away. And back to the stage.
 
 [00:08:12] Will: And you were at the Washington Memorial or the
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:08:17] Will: Were you looking at the big pillar, or were you? You don’t remember?
 
-[00:08:19] Adam: I honestly can't remember. Because I walked out on stage to perform for a quarter of a million people.
+[00:08:19] Adam: I honestly can't remember. Because I walked out on stage to perform for 250,000 people.
 
 [00:08:24] Will: Yeah,
 
@@ -296,9 +296,9 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:12:16] Norm: Yes.
 
-[00:12:17] Will: The twenty-four eighty,
+[00:12:17] Will: The 24-80,
 
-[00:12:18] Norm: Uh, twenty-four seventy. Yeah.
+[00:12:18] Norm: Uh, 24-70. Yeah.
 
 [00:12:19] Unknown: [unclear: Will: “Oh”—Adam: “wow” / Will: “Oh, wow” / onset absent in M].
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:12:24] Unknown: [unclear: Adam: “Oh”—Norm: “yep. Yeah, everyone. It”—Will: “looks just like this. Actually”—Adam: “it gets very gentle. I notice” / Norm: “Yep. Yep”—Will: “It looks just like this, actually”—Adam: “It gets very gentle. I notice” / Adam: “Oh”—Will: “yeah, everyone’s just like this actually gets”—Adam: “very gentle. I noticed”].
 
-[00:12:28] Norm: I know. I'm going through the. I go through the twelve stages real quickly. Yeah, I just go right to the end. So [unclear: it's got to zoom].
+[00:12:28] Norm: I know. I'm going through the. I go through the 12 stages real quickly. Yeah, I just go right to the end. So [unclear: it's got to zoom].
 
 [00:12:36] Adam: I was thinking about this. We'll continue talking about this, but you know, it is all on Joey's time lapse, and we should do a separate intro and then show the time lapse.
 
@@ -380,9 +380,9 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:14:21] Adam: They're they're they're edge rounders.
 
-[00:14:24] Will: Somebody a farm hand with fifteen minutes and a pair of vice grips can do it easily 5,000 dollars a minute of damage.
+[00:14:24] Will: Somebody a farm hand with 15 minutes and a pair of vice grips can do it easily $5,000 a minute of damage.
 
-[00:14:31] Adam: Oh yeah, totally. And so I have channel locks that are very funny. I I had sent a runner out to go get something, and he was like, " I'm at eighty dollars, and they have a hundred dollar minimum at this store I'm at." And I was like, " Just get me the largest pair of vice grips they have." And they brought me back this pair of vice.
+[00:14:31] Adam: Oh yeah, totally. And so I have channel locks that are very funny. I I had sent a runner out to go get something, and he was like, " I'm at $80, and they have a $100 minimum at this store I'm at." And I was like, " Just get me the largest pair of vice grips they have." And they brought me back this pair of vice.
 
 [00:14:46] Norm: Oh my
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:16:51] Unknown: [speaker unclear: Will / Adam] Wow.
 
-[00:16:51] Adam: But it took all my strength with both hands to do it. No other method would have done it, and As I approached the bandsaw with the lens, I did one of these. I'm like, okay, I'm going to cut it. Hold on a second. Let's just make sure, because my body was responding like I was standing on the edge of a building. My body was responding to the adrenaline of bandsaw meeting thousand dollar
+[00:16:51] Adam: But it took all my strength with both hands to do it. No other method would have done it, and As I approached the bandsaw with the lens, I did one of these. I'm like, okay, I'm going to cut it. Hold on a second. Let's just make sure, because my body was responding like I was standing on the edge of a building. My body was responding to the adrenaline of bandsaw meeting $1,000
 
 [00:16:51] Adam: [speaker unclear: Will / Adam] lens.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:17:49] Norm: because that's an unconventional problem solving that you're doing. You're thinking as you're doing. it.
 
-[00:17:54] Will: Now the thing I'm looking forward to is the people in the comments that do camera repair who've undoubtedly encountered this problem before. Like, oh yeah, you just got to get the nine by twelve [unclear: Rasmuskiator / Rasmus skeeter / RAS mosquito] to whip that bad boy out, and it'll pop right
+[00:17:54] Will: Now the thing I'm looking forward to is the people in the comments that do camera repair who've undoubtedly encountered this problem before. Like, oh yeah, you just got to get the 9 by 12 [unclear: Rasmuskiator / Rasmus skeeter / RAS mosquito] to whip that bad boy out, and it'll pop right
 
 [00:17:54] Will: [speaker unclear: Norm / Will] out.
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:21:45] Adam: Yeah,
 
-[00:21:45] Will: and it's it's one camera, which is it's a thirty minute or twenty three minute, whatever. One camera, kind of drama, comedy. Some, it's just a story about this guy.
+[00:21:45] Will: and it's it's one camera, which is it's a 30 minute or 23 minute, whatever. One camera, kind of drama, comedy. Some, it's just a story about this guy.
 
 [00:21:55] Adam: It's like Louie. It's filmmaking.
 
@@ -624,7 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:22:03] Adam: It’s scripted.
 
-[00:22:03] Will: It's it's really, really delightfully written. It is incredibly intense and poignant and funny, all in the space of like thirty seconds. Sometimes, and the first, the first, I guess, the first episode ends. I don't want. I don't want to talk about plot at all.
+[00:22:03] Will: It's it's really, really delightfully written. It is incredibly intense and poignant and funny, all in the space of like 30 seconds. Sometimes, and the first, the first, I guess, the first episode ends. I don't want. I don't want to talk about plot at all.
 
 [00:22:19] Adam: [unclear: Yeah / onset absent in Q/M]. Let’s not talk about
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:26:24] Adam: Right, yeah.
 
-[00:26:25] Adam: totally. Well, because you got to get to the point in twenty minutes.
+[00:26:25] Adam: totally. Well, because you got to get to the point in 20 minutes.
 
 [00:26:27] Will: Yeah, but but in this, it's just kind of here's here's the story of this guy
 

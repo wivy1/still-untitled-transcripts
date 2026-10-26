@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:01:50] Norm: That's amazing.
 
-[00:01:51] Adam: So we were there filming, and then for the rest of this week, I'm assembling what they helped me build, and that's all I can say about it. Except I was in this workshop yesterday with ten students grinding a whole bunch of rare metals and getting this thing ready.
+[00:01:51] Adam: So we were there filming, and then for the rest of this week, I'm assembling what they helped me build, and that's all I can say about it. Except I was in this workshop yesterday with 10 students grinding a whole bunch of rare metals and getting this thing ready.
 
 [00:02:06] Norm: It's kind of thing, and I'm going to hype it up because. I have been hearing about the ambitions for this. If you had told me that this was something you are planning on doing, just in the conceptual stage, I would have nodded my head and then in my I would have shook my head in the inside.
 
@@ -60,17 +60,17 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:02:22] Norm: Never gonna happen. And so the fact that it's happening is pretty cool.
 
-[00:02:25] Adam: It's totally happening. Yeah, I so we I know you guys love it when we tease you with things we can't say, so I apologize, but suffice to say, when we can finally announce the the air date of my new show and its title, you'll hear more about some of the stuff we did in Golden, Colorado. But what a beautiful city! Yesterday it was like one of those days where it's warm; it's like in the high forties, but there is still snow on the ground. But of course, because it's Colorado, everyone's walking around in t shirts and shorts.
+[00:02:25] Adam: It's totally happening. Yeah, I so we I know you guys love it when we tease you with things we can't say, so I apologize, but suffice to say, when we can finally announce the the air date of my new show and its title, you'll hear more about some of the stuff we did in Golden, Colorado. But what a beautiful city! Yesterday it was like one of those days where it's warm; it's like in the high 40s, but there is still snow on the ground. But of course, because it's Colorado, everyone's walking around in t shirts and shorts.
 
 [00:02:57] Joey: That's what's funny about places that get really cold when it just gets a little bit warmer. Everybody gets sandals out, shorts. It's summer.
 
-[00:03:03] Adam: Years ago, MythBusters filmed in. In Alaska, and it was thirty below. Wow! Where we were filming, thirty below. It was so cold you would get a a headache moving from the van into the hotel. Just that like hundred foot walk, but it was also during prom weekend that we were filming there. So we're like, we're like huddling up like we're on hoth to make it from the car to the hotel. Meanwhile, there's like girls in miniskirts climbing out of limos with their boyfriends and like just taking it all in stride.
+[00:03:03] Adam: Years ago, MythBusters filmed in. In Alaska, and it was 30 below. Wow! Where we were filming, 30 below. It was so cold you would get a a headache moving from the van into the hotel. Just that like 100 foot walk, but it was also during prom weekend that we were filming there. So we're like, we're like huddling up like we're on hoth to make it from the car to the hotel. Meanwhile, there's like girls in miniskirts climbing out of limos with their boyfriends and like just taking it all in stride.
 
 [00:03:38] Joey: There was a moment when Norm and I were just in New York and it was starting to snow there. It was getting really cold, and we're kind of outside waiting to get into our car. And I'm looking around like, oh look at the snow! It's so cold. I'm looking at Norm like, we were in the Arctic. Why am I? What am I complaining about?
 
 [00:03:52] Norm: I think the difference was that when we were in the Arctic, we were surrounded by ice, like ice. Here is a city, like, and we're both from the West Coast, so our familiarity with snow extends to, you know, skiing Tahoe, right?
 
-[00:04:06] Adam: I I tend to think, having worked on MythBusters, a temperature spread from forty below zero to 120 degrees Fahrenheit. That all of the temperature extreme is about giving over to it and proper preparation. Sure. So if I'm ever going somewhere super cold, I'm wearing wool socks because as long as my feet are warm, I can kind of I can endure almost any other suffering. And I know that about myself, you know. And so when you go to some place where you know it's going to be cold, you prepare. You're wearing a couple of layers. You're able to attenuate. But when you're not prepared and you're just wearing San Francisco street clothes and you step off a plane and in at Kennedy and you're like, Holy cow!
+[00:04:06] Adam: I I tend to think, having worked on MythBusters, a temperature spread from 40 below zero to 120 degrees Fahrenheit. That all of the temperature extreme is about giving over to it and proper preparation. Sure. So if I'm ever going somewhere super cold, I'm wearing wool socks because as long as my feet are warm, I can kind of I can endure almost any other suffering. And I know that about myself, you know. And so when you go to some place where you know it's going to be cold, you prepare. You're wearing a couple of layers. You're able to attenuate. But when you're not prepared and you're just wearing San Francisco street clothes and you step off a plane and in at Kennedy and you're like, Holy cow!
 
 [00:04:45] Norm: Literally, I think that is what happened. That is Joey arrived. We in
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:27:06] Norm: as a pizza maker,
 
-[00:27:07] Joey: I think tell either. I think I could be able to tell. I don't know if other, like I don't know if any just anybody can just eat it and tell. Like I can tell the nuances of like different dough, like oh, I you know I handled this a little bit differently, or my [unclear: my yeast improved enough / my yeast isn’t proof enough]. Um, that's also because I've been spending so much time making pizzas over the last twenty years.
+[00:27:07] Joey: I think tell either. I think I could be able to tell. I don't know if other, like I don't know if any just anybody can just eat it and tell. Like I can tell the nuances of like different dough, like oh, I you know I handled this a little bit differently, or my [unclear: my yeast improved enough / my yeast isn’t proof enough]. Um, that's also because I've been spending so much time making pizzas over the last 20 years.
 
 [00:27:26] Adam: We got to get you and Dave Goelz together because Dave, the Muppet performer who performs Gonzo, and it's a Friend of the friend of tested and friend of mine is a very, very avid home pizza maker. Has been making some pizza for decades, and I've gone to his house and had it. It's stunning pizza. Yeah, we got to work. We got to get the two of you together,
 

@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:08:17] Will: There, there's a bar down in the financial district that has a very traditional poutine as well, and I can't remember the name, but it's on like, it's at like Battery and and.
 
-[00:08:26] Norm: I like that Skype cut out just as when Adam when you when you mentioned the address, you said Namu on Eighteenth, and then Skype cut the connection as if to protect Namu.
+[00:08:26] Norm: I like that Skype cut out just as when Adam when you when you mentioned the address, you said Namu on 18th, and then Skype cut the connection as if to protect Namu.
 
 [00:08:37] Adam: No, I want I I want them to have the business. They're not as busy as they should be.
 
@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:11:34] Will: oh, go ahead.
 
-[00:11:35] Adam: It's like an eighteen month eighteen month trip, so you bounce back and forth in time a bit. Testimonials from the astronauts, right to a camera, footage from all over the space station from fixed cameras, each one labeled every time you cut to it, and it it is really well constructed. It's a sophisticated and and well constructed film. Like I said, some of its budget shows up in some of the CG shots of the exterior of the capsule. I think they're CG, even if there’s even if they're model shots, they're still pretty low res. Like
+[00:11:35] Adam: It's like an 18 month 18 month trip, so you bounce back and forth in time a bit. Testimonials from the astronauts, right to a camera, footage from all over the space station from fixed cameras, each one labeled every time you cut to it, and it it is really well constructed. It's a sophisticated and and well constructed film. Like I said, some of its budget shows up in some of the CG shots of the exterior of the capsule. I think they're CG, even if there’s even if they're model shots, they're still pretty low res. Like
 
 [00:12:09] Adam: the model making isn't. Isn't as tight as I would have expected.
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:16:23] Will: It seems grim. Yeah,
 
-[00:16:24] Adam: it is. It is super grim. There was an off Broadway show in New York years ago that was nothing but dramatic reenactments of it. And the thing that you will find most shocking is how calm everybody is. I almost always just before the end, there's an " oh shit" or something like that, which they usually edit out of respect for the families, honestly. But for the most part, you hear pilots going, " All right, it's been a pleasure working with you. I’m really sorry about this." And then they crash. Like these folks who train to do this stuff really train, and they get those jobs because they are unflappable. You want someone like that flying a seven forty seven through a storm? You want someone like that piloting the ISS through a you know solar storm?
+[00:16:24] Adam: it is. It is super grim. There was an off Broadway show in New York years ago that was nothing but dramatic reenactments of it. And the thing that you will find most shocking is how calm everybody is. I almost always just before the end, there's an " oh shit" or something like that, which they usually edit out of respect for the families, honestly. But for the most part, you hear pilots going, " All right, it's been a pleasure working with you. I’m really sorry about this." And then they crash. Like these folks who train to do this stuff really train, and they get those jobs because they are unflappable. You want someone like that flying a 747 through a storm? You want someone like that piloting the ISS through a you know solar storm?
 
 [00:17:06] Norm: Adam, have have you have we talked about the movie Sunshine, the Danny Boyle movie?
 
@@ -318,11 +318,11 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:20:15] Will: moon spoilers incoming.
 
-[00:20:16] Adam: No, no, no! I couldn't bear it. I lasted twenty minutes. But the the trick is that he's a clone, right? Is that what it is?
+[00:20:16] Adam: No, no, no! I couldn't bear it. I lasted 20 minutes. But the the trick is that he's a clone, right? Is that what it is?
 
 [00:20:21] Norm: That is, yeah.
 
-[00:20:22] Adam: Okay, yeah. I figured that out ten minutes in, and I was like, ah, Christ! I can't take this.
+[00:20:22] Adam: Okay, yeah. I figured that out 10 minutes in, and I was like, ah, Christ! I can't take this.
 
 [00:20:26] Unknown speaker: Click.
 

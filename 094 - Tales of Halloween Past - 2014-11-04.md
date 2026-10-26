@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:00:30] Norm: We’re catching up to the future.
 
-[00:00:31] Adam: I'm actually I'm actually staring at poor Ackbar there, who looks like a a detainee with a bubble wrap around his. Looks like an extra from Twenty Four.
+[00:00:31] Adam: I'm actually I'm actually staring at poor Ackbar there, who looks like a a detainee with a bubble wrap around his. Looks like an extra from 24.
 
 [00:00:31] Will: Yeah,
 
@@ -74,13 +74,13 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:01:37] Norm: a cosplayer's mannequin.
 
-[00:01:38] Adam: The problem is, is that really, really good mannequins, like the kind they use in museums, those are a thousand bucks a piece.
+[00:01:38] Adam: The problem is, is that really, really good mannequins, like the kind they use in museums, those are $1,000 a piece.
 
 [00:01:38] Will: Wow.
 
 [00:01:38] Adam: And it turns out that there's a reason. Is it like when I think through solving the problem, I have a hard time thinking about coming in at less than that.
 
-[00:01:54] Will: But so this is one of those situations where. Are they they're a thousand bucks because there's mechanical there's a lot of mechanical work that goes in them or they're a thousand bucks because they don't sell very many and they need to make enough money to stay in business?
+[00:01:54] Will: But so this is one of those situations where. Are they they're $1,000 because there's mechanical there's a lot of mechanical work that goes in them or they're $1,000 because they don't sell very many and they need to make enough money to stay in business?
 
 [00:02:04] Adam: That's a good question. I'm not positive. Okay. But from an engineering standpoint, you want the you want the flesh as it were to be somewhat pliable so it can move. You want it to be poseable so you can get it. Now, when you talk about poseable and you're holding up an arm, if it has anything in it, even if it weighs two pounds, there's tremendous amount of stress right here on the shoulder, and that means that you've got to have some mechanical arrangement that's both movable and rigid. That's expensive. Yeah. It's just it's hard to do. Yes, you could do it with eye bolts and lock nuts and some heavy stuff, but to a degree that's fully 360 degree articulatable, maybe. Then that's not even the toughest problem. The toughest problem is you can't really support it through the feet like in the stores because they can just take an old pair of shoes and drill holes through them. When you're doing costume stuff, I don't want to drill holes in my costume shoes, which means I've got to support from really the center of the back. And again, in any kind of pose, there is a huge amount of stress on the mechanical linkage right there. Now, again, I can make it out of welded steel, and I can have it sock into a port that's on a piece of quarter-inch plate. But frankly, I've been thinking about this for days. It's been driving me crazy.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:04:07] Will: a few thousand practices. It's a piece of cake. Like there's when when Gina and I are are like doing the negotiation over which, well, I'll change the diaper if you do the do the dishes. I'll do the diaper every day. Yeah,
 
-[00:04:21] Norm: you're well on your way to ten thousand hours.
+[00:04:21] Norm: you're well on your way to 10,000 hours.
 
 [00:04:23] Adam: There's also this thing, well, the the way that comes in is that you realize instantly something important about your parents, which is once you've wiped somebody's ass several thousand times, you can never fully take them seriously. There's always going to be part of you that's like you're a helpless vegetable bean.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:06:33] Norm: And then transition into a piano.
 
-[00:06:35] Adam: No, do you remember when Yes released like seventeen music videos for the same song, and all they were was different toaster treatments? Do you remember the video toaster?
+[00:06:35] Adam: No, do you remember when Yes released like 17 music videos for the same song, and all they were was different toaster treatments? Do you remember the video toaster?
 
 [00:06:45] Will: Yeah, I've heard of the video toaster.
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:06:57] Will: It’s the one with the wavy the wavy lines and the kind of noise. over, right?
 
-[00:07:00] Adam: Heads turn into fish and all sorts. It's like clip art music video. And Yes did like seventeen music videos. That was just the total of them. I don't know, five or six or seven standing there. While like video editors like flip them upside down and squish them and stretch them and
+[00:07:00] Adam: Heads turn into fish and all sorts. It's like clip art music video. And Yes did like 17 music videos. That was just the total of them. I don't know, five or six or seven standing there. While like video editors like flip them upside down and squish them and stretch them and
 
 [00:07:17] Will: oh boy oh boy and just think if you wanted to do something amazing today you could recreate that using iMovie on your laptop
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:11:06] Will: oh, my father crashed a Segway when we did the Pacifica Segway tour.
 
-[00:11:09] Adam: My, I, I, when my kids were like six, we brought a Segway out to the we brought the Segway out to a park and. Both of them were run over by the Segway within ten minutes. One ran over the other, and then I ran over that one.
+[00:11:09] Adam: My, I, I, when my kids were like six, we brought a Segway out to the we brought the Segway out to a park and. Both of them were run over by the Segway within 10 minutes. One ran over the other, and then I ran over that one.
 
 [00:11:24] Norm: There was a little bit of a learning curve, as intuitive as they try to make it. You, there's a little bit of a leap of faith.
 
@@ -314,13 +314,13 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:11:50] Norm: and then yeah, and they they rehearsed it. Guess how many times they had the rehearsal?
 
-[00:11:54] Adam: I'm going to guess a hundred times.
+[00:11:54] Adam: I'm going to guess 100 times.
 
 [00:11:56] Norm: Oh, not that many.
 
 [00:11:56] Adam: Okay,
 
-[00:11:56] Norm: fifty to sixty times.
+[00:11:56] Norm: 50 to 60 times.
 
 [00:11:58] Adam: Yeah, it's good. It's an astonishing amount of. You just got to see it. And by the way, you missed my. You totally missed my Segway.
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:13:20] Adam: Oh.
 
-[00:13:20] Will: So like at parade time and at fireworks time, you go get and pretty much walk right onto stuff, which made the lines a lot better. And also now they have all these like line amortization issues where you like scan something and then it says come back in twenty five minutes. You'll just walk right on.
+[00:13:20] Will: So like at parade time and at fireworks time, you go get and pretty much walk right onto stuff, which made the lines a lot better. And also now they have all these like line amortization issues where you like scan something and then it says come back in 25 minutes. You'll just walk right on.
 
 [00:13:58] Adam: Yeah, yeah, yeah. That's that's that's good. I just doesn't
 
@@ -400,13 +400,13 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:14:04] Will: Like as a design challenge, Disney World is and Disneyland are fascinating.
 
-[00:14:07] Adam: When I went to Disney World and saw, I saw one of their 3D films. But what most astonished me about the 3D film was that they could fill a three thousand four thousand seat auditorium in about six minutes.
+[00:14:07] Adam: When I went to Disney World and saw, I saw one of their 3D films. But what most astonished me about the 3D film was that they could fill a 3,000-4,000 seat auditorium in about six minutes.
 
 [00:14:21] Will: That's amazing.
 
-[00:14:22] Adam: With with continental seating, no aisles. People just moved in through doors on one side. They sit, watch for ten minutes. They're out, and while they're out, another group comes.
+[00:14:22] Adam: With with continental seating, no aisles. People just moved in through doors on one side. They sit, watch for 10 minutes. They're out, and while they're out, another group comes.
 
-[00:14:32] Will: Well, that's the thing. Like when I went to Disney World as an adult, I had a friend who got married in Disney World when I was twenty four, twenty five.
+[00:14:32] Will: Well, that's the thing. Like when I went to Disney World as an adult, I had a friend who got married in Disney World when I was 24, 25.
 
 [00:14:32] Adam: What?
 
@@ -458,7 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:15:12] Adam: Right.
 
-[00:15:12] Will: And then the thing that ruins the whole effect is when you need to go to the bathroom, you go back in the dingy dark corner in the back of the bar. But instead of there being like one toilet and one sink and a line with sixty-five people, you go in and there's like seventy urinals, and it's all brightly lit, and there's paper towels and there's toilet paper, and it doesn't look like anybody's exploded anywhere, and it's really nice.
+[00:15:12] Will: And then the thing that ruins the whole effect is when you need to go to the bathroom, you go back in the dingy dark corner in the back of the bar. But instead of there being like one toilet and one sink and a line with 65 people, you go in and there's like 70 urinals, and it's all brightly lit, and there's paper towels and there's toilet paper, and it doesn't look like anybody's exploded anywhere, and it's really nice.
 
 [00:15:12] Adam: Wow.
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:17:19] Norm: yeah, the haunted mansion
 
-[00:17:20] Will: about the haunted mansion. Yeah, it's it's uh, it's funny because the haunted mansion is one of those things that I didn't appreciate as a kid at all. Like we went through the haunted mansion, despite my parents' misgivings that it was going to give everybody involved nightmares. And when I went back and saw that as like a twenty four, twenty five year old, I was like, " This is an incredible thing, considering that was built in like 1962."
+[00:17:20] Will: about the haunted mansion. Yeah, it's it's uh, it's funny because the haunted mansion is one of those things that I didn't appreciate as a kid at all. Like we went through the haunted mansion, despite my parents' misgivings that it was going to give everybody involved nightmares. And when I went back and saw that as like a 24, 25 year old, I was like, " This is an incredible thing, considering that was built in like 1962."
 
 [00:17:20] Adam: Yeah,
 
@@ -880,7 +880,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:30:01] Will: We should glue a fan on it.
 
-[00:30:02] Adam: Well, I think we can just buy it. They're like twenty dollars.
+[00:30:02] Adam: Well, I think we can just buy it. They're like $20.
 
 [00:30:05] Will: Oh, well, in that case,
 

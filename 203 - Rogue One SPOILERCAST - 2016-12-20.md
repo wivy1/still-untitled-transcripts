@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:12:55] Adam: because it's usually very doesn't give you a lot to go on. But as on sites like Gizmodo and IO9, where they really start to take a trailer and look at every single shot of multiple trailers to break the plot down, and they're often really right. I so I stopped. Here's your segue. I stopped watching the Rogue One trailers a month and a half ago. I just stopped. I wanted to be really surprised, and I didn't want to have a lot of stuff anticipated to me.
 
-[00:13:22] Norm: There's usually teaser one, then trailer one, theatrical trailer one, theatrical trailer two, under two minutes and thirty seconds.
+[00:13:22] Norm: There's usually teaser one, then trailer one, theatrical trailer one, theatrical trailer two, under two minutes and 30 seconds.
 
 [00:13:28] Will: and then some TV trailers and stuff like that too
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:13:47] Adam: I love Donnie Yen in this movie. Let's talk about Rogue One.
 
-[00:13:50] Norm: No, we've gone for a whole fifteen minutes.
+[00:13:50] Norm: No, we've gone for a whole 15 minutes.
 
 [00:13:52] Will: This is a spoiler cast.
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:13:55] Will: We will give you a warning when we're going to cross the point of spoilers.
 
-[00:13:58] Norm: No, no, no. That's. I think we should dive right into it. We gave them fifteen minutes of podcast.
+[00:13:58] Norm: No, no, no. That's. I think we should dive right into it. We gave them 15 minutes of podcast.
 
 [00:14:02] Will: Well, but I think we should.
 
@@ -490,11 +490,11 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:17:15] Norm: And I think it plays a lot of tribute to the it. It is how you remember Star Wars in a way without trying to become something completely different visually,
 
-[00:17:25] Adam: up to and including some of the sets looking kind of janky, like the original seventy-seven. Yeah. Some of the some of the effects looking a little bit janky.
+[00:17:25] Adam: up to and including some of the sets looking kind of janky, like the original '77. Yeah. Some of the some of the effects looking a little bit janky.
 
 [00:17:34] Norm: And that's not to say the Force Awakens didn't have that. The Force Awakens they built a great Millennium Falcon. They built a great Jakku lived in world. Yep. But it did have a kind of clean, you know, a polish to it.
 
-[00:17:45] Will: It was minimal. Like like the the what we saw of Jakku was basically a tiny tiny outpost presumably somewhere on the edge of the world yes but there was like thirty or forty buildings is what it felt like it was small right what we saw here were these dense lived in like worlds cities places where people live their entire lives and it it felt much more like it was much more reminiscent of Luke and Ben and the droids walking through Mos Eisley on Tatooine
+[00:17:45] Will: It was minimal. Like like the the what we saw of Jakku was basically a tiny tiny outpost presumably somewhere on the edge of the world yes but there was like 30 or 40 buildings is what it felt like it was small right what we saw here were these dense lived in like worlds cities places where people live their entire lives and it it felt much more like it was much more reminiscent of Luke and Ben and the droids walking through Mos Eisley on Tatooine
 
 [00:18:11] Adam: I agree yeah
 
@@ -718,7 +718,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:24:09] Norm: Walrus face.
 
-[00:24:09] Will: I wanted on twelve systems.
+[00:24:09] Will: I wanted on 12 systems.
 
 [00:24:10] Norm: Right. They had those as completely recast and makeup because those were makeup effects characters and had those brought back. And then they had Red Leader and Gold Leader, which was archival footage cropped around and put in new CG.
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:24:51] Norm: unscanned? Okay, let's scan it. Finding those test shots and then putting that in the film and having those were the biggest cheers. I thought,
 
-[00:24:59] Adam: and and here is the thing that I really I really enjoyed getting to the end of the movie and realizing, wow, this movie ends literally like forty minutes before Star Wars: New Hope.
+[00:24:59] Adam: and and here is the thing that I really I really enjoyed getting to the end of the movie and realizing, wow, this movie ends literally like 40 minutes before Star Wars: New Hope.
 
 [00:25:09] Norm: But No one expected that.
 
@@ -750,7 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:25:57] Norm: Yeah,
 
-[00:25:57] Will: like it moves at like twelve frames a second.
+[00:25:57] Will: like it moves at like 12 frames a second.
 
 [00:25:59] Adam: I feel like we're getting ahead of ourselves.
 
@@ -872,7 +872,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:29:15] Adam: they kill everybody off.
 
-[00:29:16] Will: They don't have to make a sequel for this because it's already you know it's already done. They're gonna re-release the original trilogy as they were originally intended to be seen and like like it was it was it's amazing to watch a hundred plus million dollar movie, 150,000,000 dollar movie, whatever it is that there's no cliffhanger that there's no to be continued.
+[00:29:16] Will: They don't have to make a sequel for this because it's already you know it's already done. They're gonna re-release the original trilogy as they were originally intended to be seen and like like it was it was it's amazing to watch a $100 million-plus movie, $150 million movie, whatever it is that there's no cliffhanger that there's no to be continued.
 
 [00:29:34] Adam: And and I found that really really lovely. I found that fantastic. The sacrifice for a greater good. The the
 
@@ -1184,7 +1184,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:39:16] Norm: The I mean, just like in Iceland, hadn’t it be, hadn’t it be windy with green grass? It looked gorgeous, and it didn't look like anything we'd seen in Star Wars before.
 
-[00:39:26] Will: Well, and and so they did. The screenwriters and Gareth Brown did the thing where they referenced the old movies without like saying, " Hey, look, guys, there’s a, there’s a, there’s this thing over here." Yeah. You know, like like like it was just clearly made by people who love love Star Wars and know Star Wars, but didn't need to go back and explain why the Kessel Run took twelve parsecs instead of an amount of time.
+[00:39:26] Will: Well, and and so they did. The screenwriters and Gareth Brown did the thing where they referenced the old movies without like saying, " Hey, look, guys, there’s a, there’s a, there’s this thing over here." Yeah. You know, like like like it was just clearly made by people who love love Star Wars and know Star Wars, but didn't need to go back and explain why the Kessel Run took 12 parsecs instead of an amount of time.
 
 [00:39:49] Adam: Right.
 
@@ -1242,7 +1242,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:41:56] Will: Yep. So
 
-[00:41:56] Norm: a character introduced less than ninety minutes ago.
+[00:41:56] Norm: a character introduced less than 90 minutes ago.
 
 [00:41:59] Will: Cassian, the other the Cassian, the intro to Cassian when he's meeting that informant,
 
@@ -1300,9 +1300,9 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:43:17] Unknown speaker: Yeah,
 
-[00:43:17] Will: and making it a capsule gives it the opportunity to do things that would be impossible. Like if at the end of episode seven they had murdered Luke and Leia and Han and Chewie and R2D2 and C3PO, like they would have just pissed away 4,000,000,000 dollars.
+[00:43:17] Will: and making it a capsule gives it the opportunity to do things that would be impossible. Like if at the end of episode seven they had murdered Luke and Leia and Han and Chewie and R2D2 and C3PO, like they would have just pissed away $4 billion.
 
-[00:43:30] Adam: It gave them a lot of narrative freedom too, because they're not having to tease. Is there somebody? I read something where I said if you didn't like the second Avengers, Age of Ultron, just think about having to tease, having to introduce fourteen new characters, a fight scene every twenty-five minutes, and you know you've got to tease eight other films.
+[00:43:30] Adam: It gave them a lot of narrative freedom too, because they're not having to tease. Is there somebody? I read something where I said if you didn't like the second Avengers, Age of Ultron, just think about having to tease, having to introduce 14 new characters, a fight scene every 25 minutes, and you know you've got to tease eight other films.
 
 [00:43:48] Norm: Yeah.
 
@@ -1316,7 +1316,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:44:19] Adam: Yeah, it really does. Yeah,
 
-[00:44:21] Will: yeah, awesome. I, I somebody, somebody said, I don't know why you need to have a whole movie to see to find out where the the hole on the spaceship is. It's it's at the end of the trench. You just find the trench and fly to the end. I was like, well, yeah, maybe, but if you dig a three foot hole in the middle of the median on I forty, and you're like, well, go find it. It's there somewhere. Well, also, we're going to be shooting at you the whole time.
+[00:44:21] Will: yeah, awesome. I, I somebody, somebody said, I don't know why you need to have a whole movie to see to find out where the the hole on the spaceship is. It's it's at the end of the trench. You just find the trench and fly to the end. I was like, well, yeah, maybe, but if you dig a three foot hole in the middle of the median on I-40, and you're like, well, go find it. It's there somewhere. Well, also, we're going to be shooting at you the whole time.
 
 [00:44:42] Adam: It answers the question and asked in Thumb Wars, which was fortunately they included a button that blows the whole thing up. Why would they do that? I don't know. Beats me. I would have left that part out.
 

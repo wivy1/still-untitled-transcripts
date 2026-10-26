@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:07:26] Norm: How big on the frame was that?
 
-[00:07:27] Adam: It's it's tiny. I mean, you really could see. I mean, it's as if I'm holding it thirty feet away from you. Okay, but I could I could tell I'm looking at big roads and small roads.
+[00:07:27] Adam: It's it's tiny. I mean, you really could see. I mean, it's as if I'm holding it 30 feet away from you. Okay, but I could I could tell I'm looking at big roads and small roads.
 
 [00:07:35] Norm: You knew it was a map.
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:08:22] Adam: Really?
 
-[00:08:22] Will: Yeah. This I went there when I was ten years old in 1985 with my father, and we went on a trip to Colorado. We flew to Denver, and then we drove up to Estes Park and all through Colorado. And we went to Central City. It was the first place we stopped after we got off the plane. And it was if it wasn't that exact map, it was the the ten years newer version of that.
+[00:08:22] Will: Yeah. This I went there when I was 10 years old in 1985 with my father, and we went on a trip to Colorado. We flew to Denver, and then we drove up to Estes Park and all through Colorado. And we went to Central City. It was the first place we stopped after we got off the plane. And it was if it wasn't that exact map, it was the the 10 years newer version of that.
 
 [00:08:22] Adam: Right.
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:11:17] Norm: that's the more satisfying result.
 
-[00:11:38] Adam: Well, and I suspected just knowing what, so I knew that researchers went out into the U.S. for Kubrick and came back with all sorts of pictures, information, and ephemera, and that he said, all right, so here I want a bulletin board thing, and just Put up some things that you've gotten on your journeys from folder seventy-five, right? I'm sure that's exactly how that direction went. So knowing that, I was the the auction only showed this page and this page, and I I wanted to see what was inside. So when I got it, having spent hours looking at the like Blu-ray screen grab of The Shining, when I opened it up, and I saw that, right? I recognized that that was clearly an illustration of a building that must have been in some sort of old town tourist trap type of place. That reveal in my house at that time was super thrilling.
+[00:11:38] Adam: Well, and I suspected just knowing what, so I knew that researchers went out into the U.S. for Kubrick and came back with all sorts of pictures, information, and ephemera, and that he said, all right, so here I want a bulletin board thing, and just Put up some things that you've gotten on your journeys from folder 75, right? I'm sure that's exactly how that direction went. So knowing that, I was the the auction only showed this page and this page, and I I wanted to see what was inside. So when I got it, having spent hours looking at the like Blu-ray screen grab of The Shining, when I opened it up, and I saw that, right? I recognized that that was clearly an illustration of a building that must have been in some sort of old town tourist trap type of place. That reveal in my house at that time was super thrilling.
 
 [00:11:38] Will: That’s really good.
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:19:09] Will: So to paint the word picture to loop back around on the pamphlet, it's literally the it's one of those what like a six by three sixfold pamphlets.
 
-[00:19:19] Adam: It's a sixfold eight and a half by eleven pamphlet that you would get for going to Century City, Colorado, and discovering historic Central City aspects and turn of the century photographs, maps of how to get there, and the beautiful illustrated map of what it's like downtown.
+[00:19:19] Adam: It's a sixfold 8.5 by 11 pamphlet that you would get for going to Century City, Colorado, and discovering historic Central City aspects and turn of the century photographs, maps of how to get there, and the beautiful illustrated map of what it's like downtown.
 
 [00:19:34] Will: You you find them in literally every Holiday Inn in in in Middle America, gas stations, rest stops,
 
@@ -726,7 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:26:25] Adam: I wonder how they came up with that.
 
-[00:26:28] Adam: You remind me of Tracy Morgan had a joke on Thirty Rock. You should have a safe word, and it should not be more.
+[00:26:28] Adam: You remind me of Tracy Morgan had a joke on 30 Rock. You should have a safe word, and it should not be more.
 
 [00:26:37] Norm: Have you guys done haunts before?
 
@@ -766,7 +766,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:27:40] Adam: yeah, yeah, yeah.
 
-[00:27:40] Norm: Twelve months a year.
+[00:27:40] Norm: 12 months a year.
 
 [00:27:41] Will: There's a lot of like local stage people that fund their entire year off of their Halloween.
 
@@ -872,7 +872,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:31:42] Adam: How come? How come?
 
-[00:31:42] Will: Well, because the Disney Store Halloween costumes are—it is as if the merchandising people at the fine Walt Disney Corporation saw a bunch of three to ten-year-old girls and just started making like the money signs open in their eyes
+[00:31:42] Will: Well, because the Disney Store Halloween costumes are—it is as if the merchandising people at the fine Walt Disney Corporation saw a bunch of 3 to 10-year-old girls and just started making like the money signs open in their eyes
 
 [00:31:42] Adam: Right.
 
@@ -880,7 +880,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:32:22] Adam: but it doesn't have any semblance of what she's wearing.
 
-[00:32:25] Will: No, and they position it in the store in such a way that the kids see another hundred dollars worth of accessories and nonsense that also have nothing to do with the film.
+[00:32:25] Will: No, and they position it in the store in such a way that the kids see another $100 worth of accessories and nonsense that also have nothing to do with the film.
 
 [00:32:33] Norm: Right, but have the logo
 

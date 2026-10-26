@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:06:27] Jeremy: That’s great.
 
-[00:06:31] Jeremy: We've been rewatching Star Trek: Next Generation in my household because my ten year old is now interested in this, and it's so cool to see all the displays in the earlier seasons because none of them are actual displays. It's just like plastic with some moving, you know, filters behind them that reveal light in various ways, and it just creates an effect.
+[00:06:31] Jeremy: We've been rewatching Star Trek: Next Generation in my household because my 10 year old is now interested in this, and it's so cool to see all the displays in the earlier seasons because none of them are actual displays. It's just like plastic with some moving, you know, filters behind them that reveal light in various ways, and it just creates an effect.
 
 [00:06:49] Adam: Is this original series or next gen?
 
@@ -236,7 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:08:23] Norm: You know, FBFX putting in monitors and LCDs in there. Yes, it's for ambient light, but also it helps immerse the actors into the character.
 
-[00:08:41] Adam: In the Prometheus helmets, there's one, two, three, four, five, six, seven, eight, nine. I think eleven working animated screens in the Prometheus costumes.
+[00:08:41] Adam: In the Prometheus helmets, there's one, two, three, four, five, six, seven, eight, nine. I think 11 working animated screens in the Prometheus costumes.
 
 [00:08:51] Jeremy: Yeah, those are awesome.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:16:40] Jeremy: there's a
 
-[00:16:40] Adam: yeah there's like fifty thou margin of error. That's ten sheets of paper, man. That's a veritable canyon.
+[00:16:40] Adam: yeah there's like 50 thou margin of error. That's 10 sheets of paper, man. That's a veritable canyon.
 
 [00:16:47] Jeremy: I mean, but you don't want to hit the lens, so you go through enough metal. Is there some left over that you just have to rip apart?
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:16:54] Jeremy: right
 
-[00:16:54] Adam: that's like probably eighty thou.
+[00:16:54] Adam: that's like probably 80 thou.
 
 [00:17:10] Jeremy: I got it
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:21:51] Norm: which is not an American film.
 
-[00:21:53] Adam: It's not an American film. It's a Chinese film with American. So what what's been going on over the past? I'm not exactly sure how long—ten, fifteen years—is that China's film community of of investors has started to really join up with Hollywood, and so there's a lot more. You'll see a lot more Chinese companies listed in the opening producer credits of of big movies. There's a lot of money coming from China. There's a lot of cross pollination, and it struck me that the Great Wall was this sort of key moment of a huge Chinese production starring an A-list major American actor. I don't, I wasn't sure whether this was whitewashing or an attempt to join two cultures through a film.
+[00:21:53] Adam: It's not an American film. It's a Chinese film with American. So what what's been going on over the past? I'm not exactly sure how long—10, 15 years—is that China's film community of of investors has started to really join up with Hollywood, and so there's a lot more. You'll see a lot more Chinese companies listed in the opening producer credits of of big movies. There's a lot of money coming from China. There's a lot of cross pollination, and it struck me that the Great Wall was this sort of key moment of a huge Chinese production starring an A-list major American actor. I don't, I wasn't sure whether this was whitewashing or an attempt to join two cultures through a film.
 
 [00:22:34] Norm: It's an interesting take on that exchange, that cultural exchange, because the way we typically think of it is that there's an American film made in the Hollywood studio system that maybe has some foreign investment, and for that movie to be successful overseas, then they put in a token character, and that's it happens so often. Token casting.
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:26:16] Norm: Yeah, he's
 
-[00:26:16] Adam: terrible. Everyone in it's earnest. Everyone in it's working really hard. And I mean, because it's a Chinese production, it's like when there's ten thousand extras. There's ten thousand extras. This is like it is. The battle scenes are incredible. The costumes are amazing. The sets are gorgeous. The monsters are okay.
+[00:26:16] Adam: terrible. Everyone in it's earnest. Everyone in it's working really hard. And I mean, because it's a Chinese production, it's like when there's 10,000 extras. There's 10,000 extras. This is like it is. The battle scenes are incredible. The costumes are amazing. The sets are gorgeous. The monsters are okay.
 
 [00:26:33] Norm: No, okay, yes,
 
@@ -622,7 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:27:35] Norm: Oh, I don't know. Sword of Destiny.
 
-[00:27:36] Adam: Sword of destiny. Well done. That was that was because you were like, I don't know. Oh, actually, I do. The sequel, Sword of Destiny, is ten minutes in. If you loved Crouching Tiger, ten minutes into Sword of Destiny, you'll be like, I don't know about this movie, but I'm here to say, Sword of Destiny is really lovely. I'm. It's not as. It's not as. Technically amazing as Crouching Tiger, it doesn't include such transcendent moments as the sword fight in the bamboo forest, in the trees of the bamboo forest, or things like that. But it has a lovely heart, and Donnie Yen and Michelle Yeoh do a tremendous job at bringing in a fabulously complex relationship, unfulfilled relationship, into the into the core of this film. And I really, really liked it. I found that it hit its emotional moments, even as it wasn't, like I said, it wasn't as as as technically masterfully put together as as Crouching Tiger.
+[00:27:36] Adam: Sword of destiny. Well done. That was that was because you were like, I don't know. Oh, actually, I do. The sequel, Sword of Destiny, is 10 minutes in. If you loved Crouching Tiger, 10 minutes into Sword of Destiny, you'll be like, I don't know about this movie, but I'm here to say, Sword of Destiny is really lovely. I'm. It's not as. It's not as. Technically amazing as Crouching Tiger, it doesn't include such transcendent moments as the sword fight in the bamboo forest, in the trees of the bamboo forest, or things like that. But it has a lovely heart, and Donnie Yen and Michelle Yeoh do a tremendous job at bringing in a fabulously complex relationship, unfulfilled relationship, into the into the core of this film. And I really, really liked it. I found that it hit its emotional moments, even as it wasn't, like I said, it wasn't as as as technically masterfully put together as as Crouching Tiger.
 
 [00:28:32] Jeremy: I would expect that a movie like that, probably done on a stricter budget, who knows? Netflix has, you know, their own banks probably, but that it would be done using a lot more computers than the originally used wires. Yeah,
 
@@ -760,7 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:32:53] Norm: If you watched the trailer. The the brief for the scriptwriter was like, write me a movie in which. Jackie Chan is sad and never smiles. Entire movie.
 
-[00:33:01] Jeremy: And the dude was too old to do his own stunts fifteen years ago, and he's still doing them like a champion.
+[00:33:01] Jeremy: And the dude was too old to do his own stunts 15 years ago, and he's still doing them like a champion.
 
 [00:33:07] Norm: He looks just sullen and depressed.
 
@@ -814,7 +814,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:34:55] Adam: Wow, that's a really good question. So, how old are yours?
 
-[00:34:57] Jeremy: Ten and seven. So we'll start with the ten-year-old.
+[00:34:57] Jeremy: 10 and 7. So we'll start with the 10-year-old.
 
 [00:35:00] Adam: Yeah. So. I mean, you could start with the early.
 
@@ -860,7 +860,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:35:54] Norm: the filmmaking, then you gotta wait later till they're old enough, and then go back to From Russia with Love.
 
-[00:36:00] Adam: I don't know if they have to be older than ten to enjoy Russia with Love. I mean, there's all the wonderful gadgets. Doctor No, Goldfinger, and From Russia with Love are all really good for gadgets and toys and good chases and like fine, semi-cheesy fights. But Connery is really great.
+[00:36:00] Adam: I don't know if they have to be older than 10 to enjoy Russia with Love. I mean, there's all the wonderful gadgets. Doctor No, Goldfinger, and From Russia with Love are all really good for gadgets and toys and good chases and like fine, semi-cheesy fights. But Connery is really great.
 
 [00:36:18] Norm: Don't show many of the '80s ones.
 
@@ -918,7 +918,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:39:10] Norm: Yeah.
 
-[00:39:10] Adam: I haven't watched Starship Troopers in twenty years. I think it's about time.
+[00:39:10] Adam: I haven't watched Starship Troopers in 20 years. I think it's about time.
 
 [00:39:16] Jeremy: I'm not in the Starship Trooper fan brigade. I don't. I don't know. Maybe I won't be invited back.
 
@@ -950,7 +950,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:40:30] Jeremy: How young?
 
-[00:40:32] Adam: They they keep lambasting me about this. I think they were like just just under ten or ten, right around ten.
+[00:40:32] Adam: They they keep lambasting me about this. I think they were like just just under 10 or 10, right around 10.
 
 [00:40:39] Jeremy: That's when I saw The Shining, and that was a mistake.
 
@@ -1010,7 +1010,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:42:08] Norm: We went wide ranging there.
 
-[00:42:09] Adam: Love to hear your guys' thoughts on the proper way to introduce a ten-year-old to the James Bond canon and the ways in which to give them the widest cultural scope. Because Bond is important to us culturally,
+[00:42:09] Adam: Love to hear your guys' thoughts on the proper way to introduce a 10-year-old to the James Bond canon and the ways in which to give them the widest cultural scope. Because Bond is important to us culturally,
 
 [00:42:22] Jeremy: indeed,
 

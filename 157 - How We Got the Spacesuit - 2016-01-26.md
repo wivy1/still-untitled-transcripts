@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:05:47] Norm: Okay,
 
-[00:05:47] Adam: the one the one off the 405, ten miles before the Staples Center, that one was a Denny's. Holy shit, that one was so bad.
+[00:05:47] Adam: the one the one off the 405, 10 miles before the Staples Center, that one was a Denny's. Holy shit, that one was so bad.
 
 [00:06:06] Will: [unclear: Denny’s bathroom / Yeah, Denny’s bathrooms are good].
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:08:22] Will: Yeah, the guy he knows where you live
 
-[00:08:23] Adam: first. Frequently, they are delivering, they're delivering something and it's nineteen dollars and 26 cents, and this is more common than not. Someone says, " Keep the change, kid." What?
+[00:08:23] Adam: first. Frequently, they are delivering, they're delivering something and it's $19.26, and this is more common than not. Someone says, " Keep the change, kid." What?
 
 [00:08:23] Norm: That's like a movie thing. That's just a movie thing.
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:15:39] Adam: Yeah, yeah, potentially, absolutely.
 
-[00:15:42] Will: But but people are fine with just looky-loos coming in to appreciate because you know the person who appreciates now may be a person who buys in five, ten, twenty years, whatever.
+[00:15:42] Will: But but people are fine with just looky-loos coming in to appreciate because you know the person who appreciates now may be a person who buys in 5, 10, 20 years, whatever.
 
 [00:15:51] Unknown speaker: Yeah.
 
@@ -314,13 +314,13 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:16:30] Will: Could you tell which one it was?
 
-[00:16:31] Adam: There were. It's a hodgepodge, as many suits like this are after filming, right? Because, really specifically, the company that makes them, I don't know how much, how many FBFX made for the Martian, but I'm going to guess it's somewhere around twenty.
+[00:16:31] Adam: There were. It's a hodgepodge, as many suits like this are after filming, right? Because, really specifically, the company that makes them, I don't know how much, how many FBFX made for the Martian, but I'm going to guess it's somewhere around 20.
 
 [00:16:31] Unknown speaker: Okay.
 
-[00:16:31] Adam: And that means they made twenty of everything: twenty helmets, backpacks, front packs, boots, gloves, everything.
+[00:16:31] Adam: And that means they made 20 of everything: 20 helmets, backpacks, front packs, boots, gloves, everything.
 
-[00:16:51] Will: And that includes the stuff that like the other cast members wore for the ten minutes that they were on Mars?
+[00:16:51] Will: And that includes the stuff that like the other cast members wore for the 10 minutes that they were on Mars?
 
 [00:16:54] Adam: right, right. So, and then they're making some that are different sizes for the different actors. But when it comes by the end of filming. Things have gotten mixed and matched because something broke, and we got to replace this. And this actor has got bigger hands than we thought, or something, et cetera. So we know it's definitely a Watney labeled helmet inside of the suit. It said " stunt" inside of one of the parts. Certainly, it might not have started as a stunt, but it might have ended as a stunt because it got broken. So it's fine, just for a running shot, that kind of thing. But this is the kind of access I have never gotten from from anybody.
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:21:19] Adam: It’s a, yeah. That it's it's not always career ending, but it certainly is. Like if I knew someone that did that for something, look, I had yeah. I mean, you just when you have intellectual property, you want the people you hire who build and work on that to protect it. So no, no, no effects company is ever going to let you have that thing. It's just that's just not going to happen. It has to come through official channels. No, don’t get me wrong; there are plenty of places in which stuff gets auctioned, and that that you know that's one of the ways in which the RPF members and I all get that kind of stuff, get that kind of data. But as for reaching out directly to the effects company, that's not the that's they have no interest in helping you on that.
 
-[00:22:00] Will: And so the studios have. So, so, and there's there's other ways to get stuff too. So, for example, we went to the hand prop museum a few years ago, where they rent stuff out for that that's not bespoke for a film. So, for example, if Quentin Tarantino wants a pipe for for a film, he'll call hand prop and look at fifty five pipes and pick the one that he wants for for Christoph Waltz's character or whatever
+[00:22:00] Will: And so the studios have. So, so, and there's there's other ways to get stuff too. So, for example, we went to the hand prop museum a few years ago, where they rent stuff out for that that's not bespoke for a film. So, for example, if Quentin Tarantino wants a pipe for for a film, he'll call hand prop and look at 55 pipes and pick the one that he wants for for Christoph Waltz's character or whatever
 
 [00:22:20] Adam: A big meerschaum, for instance.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:22:22] Norm: it's incredible because those companies, those the people who run those companies, they spend their entire lives shopping basically for things that they feel like, based on their experience, could could work for these directors or for these studios for these films.
 
-[00:22:34] Adam: When you're an actor and you're playing someone who's married, someone comes over to you with a box of like forty wedding rings in it and says, " Which one feels like your character would wear it?"
+[00:22:34] Adam: When you're an actor and you're playing someone who's married, someone comes over to you with a box of like 40 wedding rings in it and says, " Which one feels like your character would wear it?"
 
 [00:22:42] Norm: And especially method actors who want to completely embody the character, even things that never make it on screen, what will be in their pockets, they'll pick out things just to put in their pockets,
 

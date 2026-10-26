@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:01:30] Adam: This is a fantastic attraction. I mean, when I lived in New York, I would go to the Empire State Building probably once a year because it is truly an amazing thing to do, and locals never do that. And same thing here. Alcatraz is one of the world's great tourist attractions, and I've been out here half a dozen times.
 
-[00:01:48] Will: It's, for a while, every time I came out, every time somebody came to visit me in town, I would bring them to Alcatraz, and then after the tenth or twelfth time, I was like, No, I'm not going to do this anymore. But have fun. It's a really great time. I'll see you in the afternoon.
+[00:01:48] Will: It's, for a while, every time I came out, every time somebody came to visit me in town, I would bring them to Alcatraz, and then after the 10th or 12th time, I was like, No, I'm not going to do this anymore. But have fun. It's a really great time. I'll see you in the afternoon.
 
 [00:01:58] Norm: Quite a hill,
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:10:47] Will: Explain the Bay Model.
 
-[00:10:48] Adam: U.S. Army Corps of Engineers built a scale model of the Bay. That is, it's scale in X Y dimension. In Z dimension, I think it's multiplied by ten, so that the effects of the water moving in and out of the Bay can be magnified and monitored. But we were able to. Drop objects off of Alcatraz in the bay model, and as the tide ebbed and flowed, we were able to actually match some of the patterns of the found artifacts from the escape and where they landed. And the fact is, is if if they got washed out to the ocean, they would have ended up south of Monterey. It's very peculiar to me that we didn't find any parts of the real raft or of their clothes or or or paddles or anything. Everything that we have was left behind by them. They left behind a paddle. They left behind one of their pontoons. But I can't imagine, after reading extensively about those three, that they could have avoided the law for the ensuing decades.
+[00:10:48] Adam: U.S. Army Corps of Engineers built a scale model of the Bay. That is, it's scale in X Y dimension. In Z dimension, I think it's multiplied by 10, so that the effects of the water moving in and out of the Bay can be magnified and monitored. But we were able to. Drop objects off of Alcatraz in the bay model, and as the tide ebbed and flowed, we were able to actually match some of the patterns of the found artifacts from the escape and where they landed. And the fact is, is if if they got washed out to the ocean, they would have ended up south of Monterey. It's very peculiar to me that we didn't find any parts of the real raft or of their clothes or or or paddles or anything. Everything that we have was left behind by them. They left behind a paddle. They left behind one of their pontoons. But I can't imagine, after reading extensively about those three, that they could have avoided the law for the ensuing decades.
 
 [00:11:48] Norm: A loss at sea. Right.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:12:27] Will: is in the Henry Ford Museum. It's one another one of the great museums.
 
-[00:12:33] Norm: So twelve years later.
+[00:12:33] Norm: So 12 years later.
 
 [00:12:33] Will: Yeah.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:19:44] Will: what was on it Creedence
 
-[00:19:44] Adam: I have no idea but the the my cameraman Soz and I did stretch it out to see how what the distance of a tape cassette was of a sixty minute tape cassette was and it wasn't as far as I thought it was like 450 feet
+[00:19:44] Adam: I have no idea but the the my cameraman Soz and I did stretch it out to see how what the distance of a tape cassette was of a 60 minute tape cassette was and it wasn't as far as I thought it was like 450 feet
 
 [00:19:57] Will: that's a lot
 
@@ -590,6 +590,6 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:22:27] Norm: and we'll be back in a little bit.
 
-[00:22:27] Will: Yeah, we'll be back in like thirty minutes or an hour or something. See you guys then. Thanks for coming out.
+[00:22:27] Will: Yeah, we'll be back in like 30 minutes or an hour or something. See you guys then. Thanks for coming out.
 
 [00:22:32] Adam: Thanks, everybody.

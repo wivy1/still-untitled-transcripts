@@ -16,7 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:01:04] Norm: Man, that swim back from Alcatraz is really long.
 
-[00:01:07] Will: It was so cold. It was only about fifty-five minutes. It went faster than I thought.
+[00:01:07] Will: It was so cold. It was only about 55 minutes. It went faster than I thought.
 
 [00:01:11] Adam: It was, you know, but you get a little extra push off all the bodies floating in the bay who tried to escape before.
 
@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:02:26] Adam: Don't get me started on that crap.
 
-[00:02:29] Adam: But one of the great whites that was nearby that was tagged immediate immediately upon the attack, this great white that wasn't being attacked dropped to seventy meters and swam to Hawaii.
+[00:02:29] Adam: But one of the great whites that was nearby that was tagged immediate immediately upon the attack, this great white that wasn't being attacked dropped to 70 meters and swam to Hawaii.
 
 [00:02:44] Will: Wait, what?
 
@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:04:30] Will: Was it the Jennifer Aniston one?
 
-[00:04:31] Norm: It's the jetpack one. They pulled this stunt, and it bears. You have to watch it. I mean, it has like a million views on YouTube already. But they had two guys with these the wing jetpacks fly. I got maybe within 200 feet of the airplane with the city in the background.
+[00:04:31] Norm: It's the jetpack one. They pulled this stunt, and it bears. You have to watch it. I mean, it has like 1 million views on YouTube already. But they had two guys with these the wing jetpacks fly. I got maybe within 200 feet of the airplane with the city in the background.
 
 [00:04:50] Will: That's terrifying.
 
@@ -124,13 +124,13 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:05:09] Norm: So I don't know what the altitude was. Don't know how fast they were flying. It was
 
-[00:05:13] Adam: well over one hundred.
+[00:05:13] Adam: well over 100.
 
 [00:05:15] Norm: But
 
-[00:05:15] Adam: even if it's a plane, it has well over one hundred fifty, two hundred miles an hour. Right
+[00:05:15] Adam: even if it's a plane, it has well over 150, 200 miles an hour. Right
 
-[00:05:18] Will: around 200 miles an hour. Especially if it's a triple seven or a seven forty seven or 787,
+[00:05:18] Will: around 200 miles an hour. Especially if it's a triple seven or a 747 or 787,
 
 [00:05:21] Adam: and it's coming in for a landing.
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:15:46] Adam: and
 
-[00:15:46] Will: or or the the hook together sentences, right? Anytime you see coverage over a confessional type video, that means that probably you know those people wear the same clothes in all their confessional videos for a reason, and they take something from episode thirty five and something from episode three and jam them together, so you sound like a horrible person.
+[00:15:46] Will: or or the the hook together sentences, right? Anytime you see coverage over a confessional type video, that means that probably you know those people wear the same clothes in all their confessional videos for a reason, and they take something from episode 35 and something from episode three and jam them together, so you sound like a horrible person.
 
 [00:16:01] Adam: And the stakes at the end of the commercial breaks and all of those conventions, you know, I think it's reasonable to want to give people a reason to tune back in after the commercial break, but it doesn't have to be the end of the world.
 
@@ -424,11 +424,11 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:19:01] Will: Are all those things you just went through things that you do with the crew before? You're not talking about shooting stuff necessarily.
 
-[00:19:06] Adam: Oh, yeah. So yeah, these are all things that have to be buttoned down. So let's say we're blown. Let's actually forget about the helicopter day in San Francisco. Let's say we're blowing stuff up at the bomb range. So we'll go out to the bomb range, and the first thing we do is an arrival. Where are we? Actually, the first thing we do is an arrival of Jamie and I either driving in, walking in, coming in on stilts, whatever. Some yeah, yeah. Then there's a piece to camera from one of us, and we call those pieces to camera, um, PMTs, which stands for pre or post match talk, like in a sports show, it is a term that is completely unique to MythBusters. That one of our producers came up with more than a decade ago, and we still use it. So, I'll do a PMT to camera about where are we? We're at the Alameda County Sheriff's Bomb Range. This is our secondary shop. We've blown up a bunch of stuff out here today. We're going to do X, Y, and Z. Then you'd probably cut to Jamie doing something, talking more specifically about what we're doing. We're going to take C four. We're going to put it up against a steel plate. We're going to see what happens when we do this. Our theory is blah blah blah blah blah blah blah blah blah. Now, in general, it's hard to sustain editorially a piece to camera that's more than forty five seconds to a minute long.
+[00:19:06] Adam: Oh, yeah. So yeah, these are all things that have to be buttoned down. So let's say we're blown. Let's actually forget about the helicopter day in San Francisco. Let's say we're blowing stuff up at the bomb range. So we'll go out to the bomb range, and the first thing we do is an arrival. Where are we? Actually, the first thing we do is an arrival of Jamie and I either driving in, walking in, coming in on stilts, whatever. Some yeah, yeah. Then there's a piece to camera from one of us, and we call those pieces to camera, um, PMTs, which stands for pre or post match talk, like in a sports show, it is a term that is completely unique to MythBusters. That one of our producers came up with more than a decade ago, and we still use it. So, I'll do a PMT to camera about where are we? We're at the Alameda County Sheriff's Bomb Range. This is our secondary shop. We've blown up a bunch of stuff out here today. We're going to do X, Y, and Z. Then you'd probably cut to Jamie doing something, talking more specifically about what we're doing. We're going to take C four. We're going to put it up against a steel plate. We're going to see what happens when we do this. Our theory is blah blah blah blah blah blah blah blah blah. Now, in general, it's hard to sustain editorially a piece to camera that's more than 45 seconds to a minute long.
 
 [00:20:13] Will: Yeah.
 
-[00:20:13] Adam: So if the story is really complicated, um, Steveo, Steve Christiansen, our director and I will sit there and figure out, ah, we can't tell all this story in one shot. It's going to take like ninety seconds, and there's too many pieces. So you try to think about how not to over tire the audience in terms of how much information you've got to impart. So we'll do one piece to camera, and we'll say, " This is the broad rudiments of this experiment." Then, once we get into the build, where all of a sudden I'm handling the, let's say, key piece that is the experiment, I'll say, " We've chosen this for these reasons,
+[00:20:13] Adam: So if the story is really complicated, um, Steveo, Steve Christiansen, our director and I will sit there and figure out, ah, we can't tell all this story in one shot. It's going to take like 90 seconds, and there's too many pieces. So you try to think about how not to over tire the audience in terms of how much information you've got to impart. So we'll do one piece to camera, and we'll say, " This is the broad rudiments of this experiment." Then, once we get into the build, where all of a sudden I'm handling the, let's say, key piece that is the experiment, I'll say, " We've chosen this for these reasons,
 
 [00:20:48] Will: okay?
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:23:47] Adam: Um, there is a sequence that is incredibly complex that involves hundreds and hundreds of pieces of something that we built, uh, many different things that we built, and it has to be contextualized before we execute it. And that contextualization can't last more than
 
-[00:24:08] Will: [unclear: Forty minutes / four].
+[00:24:08] Will: [unclear: 40 minutes / four].
 
 [00:24:08] Adam: no, well, then two minutes. We got two minutes to contextualize this.
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:24:42] Will: or zoom in and zoom out and
 
-[00:24:44] Adam: yeah so that's all choices made on the on the set depending on what the day looks like and you know Scott Sorensen, uh, our A camera is super super, uh, deeply obsessed with film and with photography so he'll have his own ideas he'll often storyboard the he'll storyboard key shots he wants that day oh and then there's second camera what we call second camera which is second through sixteenth camera
+[00:24:44] Adam: yeah so that's all choices made on the on the set depending on what the day looks like and you know Scott Sorensen, uh, our A camera is super super, uh, deeply obsessed with film and with photography so he'll have his own ideas he'll often storyboard the he'll storyboard key shots he wants that day oh and then there's second camera what we call second camera which is second through 16th camera
 
 [00:25:09] Will: is this is this like it's not like second location filming it's not like a
 
@@ -488,21 +488,21 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:25:42] Will: Of course,
 
-[00:25:42] Adam: Um, the Blackmagics are great for the depth of field, GoPros for the stuff where they might get destroyed, and you know we only have three cameramen. There's Scott, there's Duncan, and there's Willie, and those guys will set up sixteen cameras that all have to be set rolling.
+[00:25:42] Adam: Um, the Blackmagics are great for the depth of field, GoPros for the stuff where they might get destroyed, and you know we only have three cameramen. There's Scott, there's Duncan, and there's Willie, and those guys will set up 16 cameras that all have to be set rolling.
 
 [00:25:57] Will: Wow!
 
-[00:25:57] Adam: Before we execute an experiment, at which point we, we've got forty-five minutes, or we have to stop them all and reload their SD cards and start again.
+[00:25:57] Adam: Before we execute an experiment, at which point we, we've got 45 minutes, or we have to stop them all and reload their SD cards and start again.
 
 [00:26:03] Will: Right.
 
 [00:26:04] Norm: That's an editing challenge. That's an amazing. You're talking about just the pre-production and then the post.
 
-[00:26:09] Adam: Well, and so the the post producers will get lists of where the key shots are, what was covered, and how it was covered. Most of the time, sometimes they'll just get you know forty hours of raw footage, but a good portion of the time they're getting a lot of context for this.
+[00:26:09] Adam: Well, and so the the post producers will get lists of where the key shots are, what was covered, and how it was covered. Most of the time, sometimes they'll just get you know 40 hours of raw footage, but a good portion of the time they're getting a lot of context for this.
 
 [00:26:25] Will: Do you have somebody on like a lot of times when Norm and I have been on location on on shoots? Do you have somebody there sitting that's just ingesting footage and and noting what each thing is, or do you just send them Terabytes of video. Uh,
 
-[00:26:36] Adam: So the cameramen are logging each SD card and each disc as they're shooting it. They're carefully logging what's on it and where that places within the story. Um, but still a slog for someone to go through. And then when we watch the rough cuts, we will still keenly remember awesome shots. And if they're not in the rough cut, we'll call up and be like, " We think you guys might have missed something." And sure, sometimes that happens. Sometimes when all the tapes, they're like, " Oh, I didn't realize that at the thirty-second mark of this execution of the experiment, there was a really awesome thing where something flew through the air." Okay, let's put that in.
+[00:26:36] Adam: So the cameramen are logging each SD card and each disc as they're shooting it. They're carefully logging what's on it and where that places within the story. Um, but still a slog for someone to go through. And then when we watch the rough cuts, we will still keenly remember awesome shots. And if they're not in the rough cut, we'll call up and be like, " We think you guys might have missed something." And sure, sometimes that happens. Sometimes when all the tapes, they're like, " Oh, I didn't realize that at the 30-second mark of this execution of the experiment, there was a really awesome thing where something flew through the air." Okay, let's put that in.
 
 [00:27:09] Norm: Logging is so important. Yeah, everything. Whether you're shooting photos, video, that's why I love on some of those DSLRs where you can record an audio clip to attach to each photo. Yeah. And it's when people professional photographers, will take photos at events and then record names and context. Yeah.
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:28:38] Will: Yeah,
 
-[00:28:38] Will: you can't you can't do a a thirty six minute episode of a forty three minute show. It turns out
+[00:28:38] Will: you can't you can't do a a 36 minute episode of a 43 minute show. It turns out
 
 [00:28:42] Adam: exactly. Um, but that's rare. I mean, because we're covering everything as it's happening, it's really rare that we finish a day without enough.
 
@@ -586,13 +586,13 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:32:06] Will: That was a big question.
 
-[00:32:08] Adam: It was a big question. The typical MythBusters day is a great. It's a great question because I I will say this. A good friend of mine's worked in television for well over two decades and says there is no other show he's ever been on the set of that works like we do. That we're a tiny crew, relatively not much more than eight to twelve people on on a busy day. And we really show up with such a loose plan and make it so up as we go that it that's why the show feels like it does. That's why it feels genuine. And you know, I I I love that process so much. It is going to be a process that I am going to try and impose on every other show I work on because I think it works.
+[00:32:08] Adam: It was a big question. The typical MythBusters day is a great. It's a great question because I I will say this. A good friend of mine's worked in television for well over two decades and says there is no other show he's ever been on the set of that works like we do. That we're a tiny crew, relatively not much more than 8 to 12 people on on a busy day. And we really show up with such a loose plan and make it so up as we go that it that's why the show feels like it does. That's why it feels genuine. And you know, I I I love that process so much. It is going to be a process that I am going to try and impose on every other show I work on because I think it works.
 
-[00:32:50] Will: This the there is so I we Norm and I both started out on magazines, working on small niche publications with very small teams by magazine standards. We'd have five people that produced fifty pages of magazine a month,
+[00:32:50] Will: This the there is so I we Norm and I both started out on magazines, working on small niche publications with very small teams by magazine standards. We'd have five people that produced 50 pages of magazine a month,
 
 [00:33:01] Adam: right?
 
-[00:33:01] Will: And and not not sending out assignments and taking articles back and the people actually writing fifty pages of magazine. When you tell somebody at Wired or or a big publication, yeah, we wrote I wrote fourteen pages of magazine last month. They're like, you are out of your mind. How did you do that? And and the thing that I learned is that when you take a small team of people that are all highly invested in the end product, then you can do things that are truly amazing.
+[00:33:01] Will: And and not not sending out assignments and taking articles back and the people actually writing 50 pages of magazine. When you tell somebody at Wired or or a big publication, yeah, we wrote I wrote 14 pages of magazine last month. They're like, you are out of your mind. How did you do that? And and the thing that I learned is that when you take a small team of people that are all highly invested in the end product, then you can do things that are truly amazing.
 
 [00:33:25] Adam: Yeah.
 

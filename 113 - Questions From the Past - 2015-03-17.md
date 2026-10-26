@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:01:48] Adam: decades.
 
-[00:01:55] Will: fifteen twenty years.
+[00:01:55] Will: 15 20 years.
 
 [00:01:56] Adam: Yeah. So you know, he it's not only the tone, but he actually is able to speak in the type of sentences. That that NPR that that that radio requires. He
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:07:17] Adam: And I was thinking, wow, time is moving so slowly for him. He can see. He knows what I'm going to say. He can see the jokes coming from a mile away, find his space to slot them in, and comfortably drop them in where they're necessary. Where for me, I'm like, there's so much I want to cover.
 
-[00:07:37] Will: But it's his what twenty thousandth show or something,
+[00:07:37] Will: But it's his what 20,000th show or something,
 
 [00:07:39] Adam: right? Right, right. So
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:09:40] Adam: And really, so the trick is taking some of that mental energy and giving yourself the space to realize time moves much faster for you than it is for your listener, and you can take even what a five second pause before speaking. Your audience won't feel like it's that much, and they'll forget it almost as soon as it happened. Whereas for you, you start sweating, and you know you’re clenching.
 
-[00:10:02] Will: What if I don't have another question? What if the questions are gone? What if they're all gone? I still have at least ten minutes left.
+[00:10:02] Will: What if I don't have another question? What if the questions are gone? What if they're all gone? I still have at least 10 minutes left.
 
 [00:10:02] Adam: Wait, where are my pants?
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:15:50] Adam: Yeah.
 
-[00:15:50] Will: And I said, " Look, the general advice for everybody that's going to college the first year is, unless you want to be an engineer or a doctor or a lawyer or something that has a well-defined track that requires four or five years of school and you have to take stuff in a specific order, take that first semester and just take a ton of one hundred-level survey courses in a bunch of different disciplines, and and you might find something that you absolutely love that you didn't even know existed. So, worst case, out of four years, you learn how to learn how to learn things, and you find an avocation.
+[00:15:50] Will: And I said, " Look, the general advice for everybody that's going to college the first year is, unless you want to be an engineer or a doctor or a lawyer or something that has a well-defined track that requires four or five years of school and you have to take stuff in a specific order, take that first semester and just take a ton of 100-level survey courses in a bunch of different disciplines, and and you might find something that you absolutely love that you didn't even know existed. So, worst case, out of four years, you learn how to learn how to learn things, and you find an avocation.
 
 [00:16:34] Adam: And frankly, I also frankly, there's one of my verbal tics. I say frankly too much.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:18:36] Adam: Yeah, totally.
 
-[00:18:38] Will: Um, but the the spend as little as you can, unless you're going to be an engineer or a doctor or a lawyer or something. Where the difference between graduating first in your class at law school and graduating last in your class at law school is, you know, half a million dollars a year versus 35,000 dollars a year. Yeah, you know, you don't spend as avoid debt as much as possible. When it comes to college, so in that regard, I think the community college thing is the way to go.
+[00:18:38] Will: Um, but the the spend as little as you can, unless you're going to be an engineer or a doctor or a lawyer or something. Where the difference between graduating first in your class at law school and graduating last in your class at law school is, you know, $500,000 a year versus $35,000 a year. Yeah, you know, you don't spend as avoid debt as much as possible. When it comes to college, so in that regard, I think the community college thing is the way to go.
 
 [00:19:03] Adam: All right, next question. Okay,
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:19:54] Will: Excellent, and and then. The other thing is that there's also there's a ton of other free resources that if you aren't going to spend money and you don't then you don't have the requirement for money. You can audit tons of classes at MIT and Carnegie Mellon and stuff like that. They're all available for you.
 
-[00:20:07] Adam: I also want to state, like, for the record, I think that there's a tremendous amount to be gotten out of a real education. I I don't have a college degree, and that's largely because it was a combination of a family chip on the shoulder and a level of personal arrogance in my late teens and early twenties.
+[00:20:07] Adam: I also want to state, like, for the record, I think that there's a tremendous amount to be gotten out of a real education. I I don't have a college degree, and that's largely because it was a combination of a family chip on the shoulder and a level of personal arrogance in my late teens and early 20s.
 
 [00:20:25] Will: I can't imagine.
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:23:55] Will: You're playing the piano.
 
-[00:23:56] Adam: Like I'm tapping my fingers on the table, and you do that, and eventually the island will disappear. As you mix up the plaster, you let that settle for a little bit so it doesn't separate, right? Water and plaster, you probably for about ten minutes, and it'll start to gel a little bit more, and then you can pour it. And you could probably pour it in a vessel with a tube going into the soda can, and it would all feed into there quite nicely.
+[00:23:56] Adam: Like I'm tapping my fingers on the table, and you do that, and eventually the island will disappear. As you mix up the plaster, you let that settle for a little bit so it doesn't separate, right? Water and plaster, you probably for about 10 minutes, and it'll start to gel a little bit more, and then you can pour it. And you could probably pour it in a vessel with a tube going into the soda can, and it would all feed into there quite nicely.
 
 [00:23:56] Norm: Okay.
 
@@ -450,7 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:25:58] Adam: I don't bring spares, but at any given point in time, I make sure I have two pairs of glasses. With my current prescription in them.
 
-[00:26:06] Will: It's a it's a like as somebody who can't see without his glasses. I've been doing that for about fifteen years, and it just removes one level of anxiety completely.
+[00:26:06] Will: It's a it's a like as somebody who can't see without his glasses. I've been doing that for about 15 years, and it just removes one level of anxiety completely.
 
 [00:26:15] Adam: Because let me tell you, all you have to do when you're getting into your car and putting on your sunglasses is accidentally place your glasses on the roof of your car to lose them.
 
@@ -496,11 +496,11 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:27:30] Will: Contacts. I always keep a pair of contacts in my bag.
 
-[00:27:36] Adam: I actually, I don't keep them in my bag, but I have, I have about twenty or thirty pairs on hand
+[00:27:36] Adam: I actually, I don't keep them in my bag, but I have, I have about 20 or 30 pairs on hand
 
 [00:27:42] Will: of the one day throwaways.
 
-[00:27:43] Adam: Of the one day throwaways, yeah, those those are for costuming and stuff. And when I get down below like ten pairs, I start to get nervous, and I'll order some new ones.
+[00:27:43] Adam: Of the one day throwaways, yeah, those those are for costuming and stuff. And when I get down below like 10 pairs, I start to get nervous, and I'll order some new ones.
 
 [00:27:50] Will: The the I've never felt luxury like I did the first time I put those contacts in, wore them for like four hours, and it's like okay. Time to take them out.
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:28:00] Will: it's terrible.
 
-[00:28:01] Adam: I used to wear my old ones for twenty days at a thirty days at a stretch.
+[00:28:01] Adam: I used to wear my old ones for 20 days at a 30 days at a stretch.
 
 [00:28:04] Will: Oh, I, I had, I wore extended wear week week wears for years. Amazing, like reusables that you wash every week. It was terrible.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:28:44] Adam: There you go. I bet there is a whole eBay collector’s group for that.
 
-[00:28:46] Will:  Great idea. Man, I got some sort of novel form of pink eye that hasn't been seen in thirty years. Bred in a vat.
+[00:28:46] Will:  Great idea. Man, I got some sort of novel form of pink eye that hasn't been seen in 30 years. Bred in a vat.
 
 [00:28:54] Adam: Gross.
 
@@ -608,13 +608,13 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:30:50] Norm: It's not Linda Fiorentino. I'm gonna look this up because that's like a sense memory.
 
-[00:30:54] Adam: Good God! Anyway, so this body was a key moment in the film. Because it's super horrible. Because he was supposedly engaging in S and M play, and there he is, like flayed on the bed and slashed to bits, naked. So they built this body at C W I, Chris Walas' special effects company. They did Arachnophobia and Naked Lunch and RoboCop and a bunch of other things. And my friend [unclear: Carol Beulman / Bowman] had to drive this complete. So when you finish a body like this, right? It's expensive. I don't know what they spent. Hundred grand, two hundred grand.
+[00:30:54] Adam: Good God! Anyway, so this body was a key moment in the film. Because it's super horrible. Because he was supposedly engaging in S and M play, and there he is, like flayed on the bed and slashed to bits, naked. So they built this body at C W I, Chris Walas' special effects company. They did Arachnophobia and Naked Lunch and RoboCop and a bunch of other things. And my friend [unclear: Carol Beulman / Bowman] had to drive this complete. So when you finish a body like this, right? It's expensive. I don't know what they spent. $100,000, $200,000.
 
 [00:30:54] Adam: to build this thing.
 
 [00:30:54] Adam: I mean,
 
-[00:31:24] Will: it looks. It looks very real. I mean, it's what twenty years old now. It looks really good.
+[00:31:24] Will: it looks. It looks very real. I mean, it's what 20 years old now. It looks really good.
 
 [00:31:28] Adam: Looks phenomenal. So they finished it. It was all fresh and wounded and everything. And they had to get it to L A. You can't just put something like that in a box and drive it.
 
@@ -652,7 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:32:33] Will: Our last question comes from Andy I, and he says, " You guys have all spoken of ideas for things to build that were percolating your minds for ages before you actually started the project. What's the usual tipping point that moves you from 'I want to do this sometime' to 'I'm going to start ordering stuff and building it right now'? Can you identify a point of no return when you realize that you're now absolutely committed to finishing something?
 
-[00:32:54] Adam: Wow. No, it's not. It's not specific. It's very random. Sometimes it could be as simple. I I've started working on my 32 inch Millennium Falcon. I did that because Comic Con. What I finished, like I finished two long-term projects for Comic Con, but I also mostly finished two other long-term projects, which we're going to reveal later on this year, or maybe even early next year. At this point, so like a whole bunch that had been sitting on the benches and on shelves got went into deep storage because I didn't need to work on it anymore. So I looked around for the first time in years and thought, what What would I like to work on? And the thirty-two-inch Falcon was sitting there on top of my vacuum former, and I pulled it down and started playing.
+[00:32:54] Adam: Wow. No, it's not. It's not specific. It's very random. Sometimes it could be as simple. I I've started working on my 32 inch Millennium Falcon. I did that because Comic Con. What I finished, like I finished two long-term projects for Comic Con, but I also mostly finished two other long-term projects, which we're going to reveal later on this year, or maybe even early next year. At this point, so like a whole bunch that had been sitting on the benches and on shelves got went into deep storage because I didn't need to work on it anymore. So I looked around for the first time in years and thought, what What would I like to work on? And the 32-inch Falcon was sitting there on top of my vacuum former, and I pulled it down and started playing.
 
 [00:33:36] Will: You've had it for a long time, right?
 

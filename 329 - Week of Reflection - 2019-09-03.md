@@ -36,7 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:01:10] Adam: It's already back.
 
-[00:01:11] Will: I I rented a car last week, and the rental car place had one of the best disclaimers I've ever seen on this on the counter when you were renting the car, and it was basically like, look, we allow you to take your car to Burning these rental cars to Burning Man, but when it comes back, we're going to check the engine compartment and the interior, and if there's any dust, we're going to charge you a 400 dollar detailing fee.
+[00:01:11] Will: I I rented a car last week, and the rental car place had one of the best disclaimers I've ever seen on this on the counter when you were renting the car, and it was basically like, look, we allow you to take your car to Burning these rental cars to Burning Man, but when it comes back, we're going to check the engine compartment and the interior, and if there's any dust, we're going to charge you a $400 detailing fee.
 
 [00:01:32] Adam: Oh, nice.
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:05:55] Adam: I know Jose Andres and his people are all out there.
 
-[00:05:58] Will: They're there. I I didn't realize he had served. Two million meals, in Puerto Rico.
+[00:05:58] Will: They're there. I I didn't realize he had served. 2 million meals, in Puerto Rico.
 
 [00:06:02] Adam: dude. The guy is
 
@@ -210,13 +210,13 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:08:44] Norm: The lounge, right? The famous lounge. That's a great selfie station. You take pictures, and you have about 30 people there. And then you're given little tickets, like with a color code, you know, yellow, blue, orange, red. Six people at a time, with their colors codes, are then pulled in, into a corridor, and a door. Now the corridor has multiple doorways, and you only if you go to the first door, that's one part of the carousel. The second door is another carousel.
 
-[00:09:15] Will: Oh, so they can load thirty people at a time then they turn the carousel.
+[00:09:15] Will: Oh, so they can load 30 people at a time then they turn the carousel.
 
 [00:09:18] Norm: And each carousel has, I believe, five or six different cockpits that then are on a rotation. Plus, here's the thing I didn't realize: there's also a third door that's for ADA for slow boarders. So that's on a separate Millennium Falcon, so they can take their time and not hold up the carousel.
 
 [00:09:38] Will: Oh, that's that's really smart. I mean, but yeah.
 
-[00:09:41] Norm: And then once you're boarded, the attendant says you got thirty seconds to buckle in because they need to move the carousel and close that door. And so within thirty seconds, you're buckled in. The ride takes off and you're flying the Falcon?
+[00:09:41] Norm: And then once you're boarded, the attendant says you got 30 seconds to buckle in because they need to move the carousel and close that door. And so within 30 seconds, you're buckled in. The ride takes off and you're flying the Falcon?
 
 [00:09:51] Will: Is it like a fast ride? Is it like a roller coaster? Or is it like a Star Tours? Kind of situation?
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:11:35] Will: You'd watched it before.
 
-[00:11:36] Adam: I had back when it first aired on HBO. It's stunning, really worth anybody's time, and an incredible cast. And Michael Fassbender shows up in the last couple episodes as a bit player, and you'd barely recognize him because he's like nineteen.
+[00:11:36] Adam: I had back when it first aired on HBO. It's stunning, really worth anybody's time, and an incredible cast. And Michael Fassbender shows up in the last couple episodes as a bit player, and you'd barely recognize him because he's like 19.
 
 [00:11:49] Will: Oh man,
 
@@ -460,13 +460,13 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:20:33] Adam: yeah. I.
 
-[00:20:35] Norm: Aren't your kids like thirteen years old? That's what I remember.
+[00:20:35] Norm: Aren't your kids like 13 years old? That's what I remember.
 
-[00:20:39] Adam: Twenty.
+[00:20:39] Adam: 20.
 
 [00:20:39] Norm: Oh my.
 
-[00:20:40] Adam: Twenty.
+[00:20:40] Adam: 20.
 
 [00:20:40] Norm: How did that happen? I remember
 
@@ -502,11 +502,11 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:21:37] Adam: Twitter is loving the spit out of the new series. I have not yet dived in.
 
-[00:21:40] Norm: So it's it's ten episodes. It is, you know, as practical as any as it could be, and I find myself I find myself watching every fifteen minutes, like pinching myself. How does this show exist? How could right you know? How could
+[00:21:40] Norm: So it's it's 10 episodes. It is, you know, as practical as any as it could be, and I find myself I find myself watching every 15 minutes, like pinching myself. How does this show exist? How could right you know? How could
 
-[00:21:57] Will: 4,000,000,000 dollars a year, Norm?
+[00:21:57] Will: $4 billion a year, Norm?
 
-[00:21:58] Norm: Right? Obviously, Netflix paid for it, and and they've been trying to work on this for a long time. I listened to a couple interviews with the director. All ten episodes directed by the French director Louis Leterrier. He did The Incredible Hulk. He did Transporter. That was like one of his first films.
+[00:21:58] Norm: Right? Obviously, Netflix paid for it, and and they've been trying to work on this for a long time. I listened to a couple interviews with the director. All 10 episodes directed by the French director Louis Leterrier. He did The Incredible Hulk. He did Transporter. That was like one of his first films.
 
 [00:22:14] Adam: Jason Statham.
 
@@ -584,9 +584,9 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:25:12] Adam: Amazing!
 
-[00:25:13] Norm: All right, and it's big and deep, and ten episodes. Yeah, enjoyed it.
+[00:25:13] Norm: All right, and it's big and deep, and 10 episodes. Yeah, enjoyed it.
 
-[00:25:15] Will: Are they hour episodes or thirty minute episodes?
+[00:25:15] Will: Are they hour episodes or 30 minute episodes?
 
 [00:25:17] Norm: hour
 
@@ -698,7 +698,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:27:36] Adam: he's a wonderful filmmaker.
 
-[00:27:38] Will: So I I had to make a single night trip to L. A. This week, which but spent a lot of time driving on the five. It turns out, which is nice because I got to listen to about twelve hours of fall.
+[00:27:38] Will: So I I had to make a single night trip to L. A. This week, which but spent a lot of time driving on the five. It turns out, which is nice because I got to listen to about 12 hours of fall.
 
 [00:27:49] Adam: Yeah.
 
@@ -708,7 +708,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:27:50] Adam: Yes.
 
-[00:27:49] Will: like I used the power of the Kindle to switch from the book that I was reading to the you know audio book, which that still feels like magic. And that the reading is really good. The I don't know if you've listened to the audio book, but I've been zipping back and forth between the two, and it's it is a really delightful presentation. And I finally got. Sometimes Stephenson books start a little slow, as we all know. This is definitely one of those, and I finally got to the part where it got to the big idea, and I was like, " Oh, I've got to, I," every waking moment is going to be contained inside this book now. Yeah, it's it's it's astounding. It's truly like it. It is. It became clear about halfway through this that either he backed into the premise that he's been trying to write toward for the last twenty years. Oh, which I don't think happened
+[00:27:49] Will: like I used the power of the Kindle to switch from the book that I was reading to the you know audio book, which that still feels like magic. And that the reading is really good. The I don't know if you've listened to the audio book, but I've been zipping back and forth between the two, and it's it is a really delightful presentation. And I finally got. Sometimes Stephenson books start a little slow, as we all know. This is definitely one of those, and I finally got to the part where it got to the big idea, and I was like, " Oh, I've got to, I," every waking moment is going to be contained inside this book now. Yeah, it's it's it's astounding. It's truly like it. It is. It became clear about halfway through this that either he backed into the premise that he's been trying to write toward for the last 20 years. Oh, which I don't think happened
 
 [00:28:33] Adam: about the intersection of our need for religion to create a structure within which to operate.
 
@@ -730,7 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:28:58] Will: You know what what what do post-meatspace humans look like?
 
-[00:29:04] Adam: I loved how casually he posits the future and then tosses it aside for the narrative. Right, like the idea that we don't carry phones anymore in twenty years—it's all eyeglasses. Yeah, I think that's totally right.
+[00:29:04] Adam: I loved how casually he posits the future and then tosses it aside for the narrative. Right, like the idea that we don't carry phones anymore in 20 years—it's all eyeglasses. Yeah, I think that's totally right.
 
 [00:29:16] Will: Yeah,
 

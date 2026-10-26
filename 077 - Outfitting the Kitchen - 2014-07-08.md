@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:00:41] Norm: Not that much. What do you mean when not that much?
 
-[00:00:54] Adam: I believe it's somewhere in the 2,000 dollar range.
+[00:00:54] Adam: I believe it's somewhere in the $2,000 range.
 
 [00:00:58] Norm: The actual, like, how many heads they make? Not
 
@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:01:39] Adam: You know, one of the things, one of the nice things about knowing Neil Gaiman, who's a good friend of mine, is the things he gets. I get to hear him tell me about other people I admire, like he was good friends with Adams and just talks about him being the sweetest guy alive.
 
-[00:01:54] Will: He wrote a biography of Adams that was the first thing I read by Neil Gaiman when I was probably fourteen. So that would have been in like 1988 or '89.
+[00:01:54] Will: He wrote a biography of Adams that was the first thing I read by Neil Gaiman when I was probably 14. So that would have been in like 1988 or '89.
 
 [00:01:54] Adam: Yeah,
 
@@ -190,11 +190,11 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:07:37] Will: Tons of glossy pictures.
 
-[00:07:37] Adam: I wish there were other magazines that were written in this format. So, in every issue, there is what like ten recipes.
+[00:07:37] Adam: I wish there were other magazines that were written in this format. So, in every issue, there is what like 10 recipes.
 
-[00:07:37] Will: Um, it's somewhere between eight and like sixteen, depending on which episode, which issue it is.
+[00:07:37] Will: Um, it's somewhere between 8 and like 16, depending on which episode, which issue it is.
 
-[00:07:37] Adam: So for each recipe, there is two things going on. On one. There's just the recipe. Here's how to make this great brisket. But on the other is like, what, two thousand words on how they came about understanding that this was the best brisket. They tried four different things along three different avenues and multiple tests. And I tried it with a sauce. I tried it without a sauce. And these are the things that how it tastes.
+[00:07:37] Adam: So for each recipe, there is two things going on. On one. There's just the recipe. Here's how to make this great brisket. But on the other is like, what, 2,000 words on how they came about understanding that this was the best brisket. They tried four different things along three different avenues and multiple tests. And I tried it with a sauce. I tried it without a sauce. And these are the things that how it tastes.
 
 [00:08:13] Will: We tried starting at a high temperature and coming down to a low to finish. We tried low the whole way through. They go through. They go through not just what they ended up with, but their whole testing process. So you understand, and they explain the science of what they found
 
@@ -262,9 +262,9 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:12:19] Will: a pot.
 
-[00:12:19] Adam: There is no need. We cook a ton, and the the pans that get the most use in our house are the eight inch and the fourteen inch non-stick frying pan. And we buy the cheapest restaurant version for like fifteen bucks. They last for about a year until one of my kids or some guest in the house uses a metal utensil and scratches the crap out of it, and we toss it in the garbage.
+[00:12:19] Adam: There is no need. We cook a ton, and the the pans that get the most use in our house are the 8 inch and the 14 inch non-stick frying pan. And we buy the cheapest restaurant version for like $15. They last for about a year until one of my kids or some guest in the house uses a metal utensil and scratches the crap out of it, and we toss it in the garbage.
 
-[00:12:43] Will: Yeah, even if you don't do that, it eventually it ages out and you start to get bubbles. The one Test Kitchen recommends is a T-fal that's like twenty dollars, eighteen dollars. It's great,
+[00:12:43] Will: Yeah, even if you don't do that, it eventually it ages out and you start to get bubbles. The one Test Kitchen recommends is a T-fal that's like $20, $18. It's great,
 
 [00:12:52] Adam: and it's it's no need to go any fancier than that for your basic egg frying pan, your meat frying pan, and the stuff.
 
@@ -304,11 +304,11 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:15:01] Will: awesome inside. Yeah,
 
-[00:15:03] Adam: then you take them, you heat up a sauté pan with vegetable oil to just under 400 degrees. Like three ninety,
+[00:15:03] Adam: then you take them, you heat up a sauté pan with vegetable oil to just under 400 degrees. Like 390,
 
 [00:15:15] Will: smoking or shimmering?
 
-[00:15:16] Adam: Uh, no, not smoking, but definitely shimmering. It's hot. Okay, like my candy thermometer doesn't go higher than four hundred, right? So it starts beeping. When it beeps, I know it's ready. So just around 400 degrees, and I throw in a handful at a time, um, but and then cook them for exactly five minutes.
+[00:15:16] Adam: Uh, no, not smoking, but definitely shimmering. It's hot. Okay, like my candy thermometer doesn't go higher than 400, right? So it starts beeping. When it beeps, I know it's ready. So just around 400 degrees, and I throw in a handful at a time, um, but and then cook them for exactly five minutes.
 
 [00:15:16] Will: Okay,
 
@@ -342,7 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:15:41] Adam: Yeah,
 
-[00:15:41] Will: um, like vegetable peelers, a good vegetable peeler. A ceramic blade—it's worth twenty bucks for a vegetable peeler.
+[00:15:41] Will: um, like vegetable peelers, a good vegetable peeler. A ceramic blade—it's worth $20 for a vegetable peeler.
 
 [00:16:13] Adam: Totally, totally, totally. Vegetable peelers—you're going to use it more than any other thing. And by the way, go and get the bright one.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:16:34] Adam: Yeah.
 
-[00:16:34] Will: You don’t need to go out and spend 400 dollars on All-Clad or Revere.
+[00:16:34] Will: You don’t need to go out and spend $400 on All-Clad or Revere.
 
 [00:16:34] Adam: You really don’t. You won’t notice the difference. Most people.
 
@@ -376,7 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:17:05] Adam: Sure.
 
-[00:17:05] Will: And the Revere ware stuff is made to be used once a day and last twenty years.
+[00:17:05] Will: And the Revere ware stuff is made to be used once a day and last 20 years.
 
 [00:17:12] Adam: I'll tell you something else. If uh, if you're if you're trying to buy a gift for someone who likes to cook, there is a never fail gift for someone who likes to cook. Cutting board.
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:18:47] Adam: and again, those aren't hard to get good quality ones for
 
-[00:18:50] Will: twenty twenty bucks. Yeah, I mean, you can once you decide you're going to do this, go out and buy the Henckels. They're great.
+[00:18:50] Will: $20 $20. Yeah, I mean, you can once you decide you're going to do this, go out and buy the Henckels. They're great.
 
 [00:18:50] Adam: Absolutely,
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:21:45] Adam: The the the the thermapens are fantastic. We've got yeah we've got a bunch of them.
 
-[00:21:49] Will: Um, I mean they they are expensive. It is a lovely gift to give someone who wants to cook in your life. It's like a hundred bucks. They sometimes do them on sale. Um, it is a tool that will last an entire lifetime.
+[00:21:49] Will: Um, I mean they they are expensive. It is a lovely gift to give someone who wants to cook in your life. It's like $100. They sometimes do them on sale. Um, it is a tool that will last an entire lifetime.
 
 [00:22:00] Adam: When you say care, I will say that. Nothing is worse than trying to clean out someone's non-stick frying pan of some slow-cooked scrambled eggs that have been
 
@@ -570,11 +570,11 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:22:48] Adam: of that.
 
-[00:23:01] Will: Two pounds is probably two kilograms. Rather is a is a good. This is the one I use most of the time. If you're going to do a lot of meat, then you might want more. And I'm going to go ahead and head off the complaints about the hundred dollar thermometer. If you're cooking a piece of meat, if you buy a nice piece of meat for Thanksgiving or Christmas or whatever, if you buy a fifty dollar turkey, which isn't impossible these days, yeah. If you buy a big giant T-bone roast or or a rib roast or anything that's a nice expensive piece of meat, you're going to have fifty or sixty or seventy dollars worth of meat. And if the hundred dollar thermometer saves you from ruining two of those money that you know you've saved yourself a lot of heartache.
+[00:23:01] Will: Two pounds is probably two kilograms. Rather is a is a good. This is the one I use most of the time. If you're going to do a lot of meat, then you might want more. And I'm going to go ahead and head off the complaints about the $100 thermometer. If you're cooking a piece of meat, if you buy a nice piece of meat for Thanksgiving or Christmas or whatever, if you buy a $50 turkey, which isn't impossible these days, yeah. If you buy a big giant T-bone roast or or a rib roast or anything that's a nice expensive piece of meat, you're going to have $50 or $60 or $70 worth of meat. And if the $100 thermometer saves you from ruining two of those money that you know you've saved yourself a lot of heartache.
 
 [00:23:38] Adam: Yeah, I totally agree. Um, it's also easy. It's it's a brilliant design and really really robust.
 
-[00:23:45] Will: You can also get if you if that's too much for you, you can get an instant read thermometer for about ten dollars. It has a dial on it. You calibrate it by putting it in boiling water.
+[00:23:45] Will: You can also get if you if that's too much for you, you can get an instant read thermometer for about $10. It has a dial on it. You calibrate it by putting it in boiling water.
 
 [00:23:45] Adam: I believe they make one that plugs into the iPhone.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:24:19] Adam: Um, I love the lasagna trays for all sorts of things, from baking and prepping and Pyrex. Yeah,
 
-[00:24:25] Will: a good Dutch oven is a like we. I got a Le Creuset for Christmas a few ten years ago. Now it is probably the most used piece of cookware in our house because you can you can sauté stuff in it, and then when you are ready to turn, if you are making chili, you sauté the meat, you brown the meat, you chuck all your vegetables in, and then you just boil it. If you are making a casserole, you can start it up on the on the range, move it into the oven. It's great.
+[00:24:25] Will: a good Dutch oven is a like we. I got a Le Creuset for Christmas a few 10 years ago. Now it is probably the most used piece of cookware in our house because you can you can sauté stuff in it, and then when you are ready to turn, if you are making chili, you sauté the meat, you brown the meat, you chuck all your vegetables in, and then you just boil it. If you are making a casserole, you can start it up on the on the range, move it into the oven. It's great.
 
 [00:24:48] Adam: Um, and the
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:25:34] Norm: That's like okay.
 
-[00:25:34] Will: They're like 300 bucks. If you if you—
+[00:25:34] Will: They're like $300. If you if you—
 
 [00:25:34] Adam: Costco has a cheaper one,
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:26:14] Adam: That’s what I love the blender for.
 
-[00:26:15] Will: Blender is great for soups. You can do dough in the food processor. You can, you can chop fifteen cucumbers in about thirty-five seconds.
+[00:26:15] Will: Blender is great for soups. You can do dough in the food processor. You can, you can chop 15 cucumbers in about 35 seconds.
 
 [00:26:15] Adam: Yeah.
 
@@ -660,7 +660,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:26:15] Will: I make pizza sauce and and and like I'll puree tomatoes in the food processor.
 
-[00:26:15] Adam: One of the nice things that's happened in the past ten years is because cooking has become much more of an American sport. Things like the Vitamix have gone down in price.
+[00:26:15] Adam: One of the nice things that's happened in the past 10 years is because cooking has become much more of an American sport. Things like the Vitamix have gone down in price.
 
 [00:26:15] Will: That’s true.
 
@@ -672,7 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:27:04] Adam: Not yet. Well. We ended up with two for some strange reason. So I use I go back and forth with both vessels. But I'm also very assiduous about cleaning it out very quickly.
 
-[00:27:14] Will: I like the stick blender as a starter because it's 20 bucks. Yes, and you can you can fix a lot of crimes with a stick blender.
+[00:27:14] Will: I like the stick blender as a starter because it's $20. Yes, and you can you can fix a lot of crimes with a stick blender.
 
 [00:27:20] Adam: We have one. We have not yet used it. I just I got it. I got it for Christmas.
 
@@ -700,7 +700,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:28:51] Adam: Soups are so good, like a like a cucumber gazpacho and stuff like that. Oh yeah.
 
-[00:28:51] Will: Since it’s eighty degrees outside right now, that sounds really nice,
+[00:28:51] Will: Since it’s 80 degrees outside right now, that sounds really nice,
 
 [00:28:51] Adam: doesn't it? There's this. Did we talk about plenty?
 
@@ -728,7 +728,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:29:39] Adam: You can't go wrong with America's Test Kitchen back issues of Cook's Illustrated. Um, and I sorry, or
 
-[00:30:03] Will: subscribe to their website. They have a website that you can pay like ten dollars a month and get all the recipes for
+[00:30:03] Will: subscribe to their website. They have a website that you can pay like $10 a month and get all the recipes for
 
 [00:30:07] Adam: so good.
 
@@ -738,7 +738,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:30:22] Will: Oh yeah,
 
-[00:30:23] Adam: who's incredible at explaining in great detail both the method and the science of what you are doing. So it's not like you have to parse a tremendous amount of like, like I don't know what he means by this. He'll actually tell you. But they're not simple recipes like when his cookbook Ad Hoc at Home, which is supposedly his simple recipes, it's like there’s not a single one of those without thirty ingredients,
+[00:30:23] Adam: who's incredible at explaining in great detail both the method and the science of what you are doing. So it's not like you have to parse a tremendous amount of like, like I don't know what he means by this. He'll actually tell you. But they're not simple recipes like when his cookbook Ad Hoc at Home, which is supposedly his simple recipes, it's like there’s not a single one of those without 30 ingredients,
 
 [00:30:43] Will: four days, four days of prep. You have to start by going out to the farm and getting the meat fresh from the cow. Crime. Alice Waters' Art of Simple Food or Art of Simple Cooking, I can't remember, is is a it's a it's a classic cookbook. It is the exact opposite of Tom of the Thomas Keller book. It's three, maybe four ingredients per recipe. It's here’s how to poach a piece of salmon, you know, and then there’s a lot of it. It's very Berkeley in a lot of ways,
 
@@ -754,7 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:31:28] Will: I am beginning to see the merits of the toaster oven now that we have three people in the house.
 
-[00:31:28] Adam: That’s the thing. It's like when you want to cook like eight or ten pieces. I have also started broiling.
+[00:31:28] Adam: That’s the thing. It's like when you want to cook like 8 or 10 pieces. I have also started broiling.
 
 [00:31:28] Will: Yeah.
 
@@ -780,9 +780,9 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:31:53] Adam: Oh, really?
 
-[00:31:53] Will: And it's like smooth, polished finish. So yeah, of course we could just go get some inch, quarter-inch thick pizza sheets of steel. Yeah. Bring them in here, slap them on the mill, and finish it ourselves. I’ll see you in about twelve hours.
+[00:31:53] Will: And it's like smooth, polished finish. So yeah, of course we could just go get some inch, quarter-inch thick pizza sheets of steel. Yeah. Bring them in here, slap them on the mill, and finish it ourselves. I’ll see you in about 12 hours.
 
-[00:32:21] Adam: Now that wouldn't take twelve hours.
+[00:32:21] Adam: Now that wouldn't take 12 hours.
 
 [00:32:21] Will: Okay,
 
@@ -836,7 +836,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:33:46] Norm: is it all on the batter?
 
-[00:34:00] Adam: It's one cup of flour, one egg, one cup of water. Mix it with chopsticks. You want it lumpy, but more than that, the water that you use that you pour in should be Ice cold. I mean, literally, like you should have a big thing of ice water that you've let sit for half an hour before you pour out your one cup of water, and then mix it in a metal bowl that's sitting in another metal bowl with ice and salt. You want your mixture for tempura to be super cold. It actually helps it adhere to your vegetables or your hot dog, and throw it in again hot oil, like three hundred and eighty. Uh huh. And yeah, these were stunning. This is not my technique. It's Japa Dog in Vancouver. It's one of the greatest roadside hot dogs in history.
+[00:34:00] Adam: It's one cup of flour, one egg, one cup of water. Mix it with chopsticks. You want it lumpy, but more than that, the water that you use that you pour in should be Ice cold. I mean, literally, like you should have a big thing of ice water that you've let sit for half an hour before you pour out your one cup of water, and then mix it in a metal bowl that's sitting in another metal bowl with ice and salt. You want your mixture for tempura to be super cold. It actually helps it adhere to your vegetables or your hot dog, and throw it in again hot oil, like 380. Uh huh. And yeah, these were stunning. This is not my technique. It's Japa Dog in Vancouver. It's one of the greatest roadside hot dogs in history.
 
 [00:34:43] Will: Well, but it's. I mean, that's that that whole thing, like the using the chopsticks. A lot of times, you'll read the recipe and be like, " Ah, I don't. This seems like I'll just use my fork, " and it's not going to be right. Yeah. Like there's when you're first starting out, follow the recipe. Yeah. Follow the the instructions are there for a reason. I can't remember who it was we were talking to, but um, went off one of our one of our chef friends went off on the well. I made this, but I substituted this for this, and I'm like, well, if you're not going to make the recipe, then just just you know. Make your own thing. That's cool. That's awesome. That's great. But don't bitch about the recipe being bad if you went in and didn't follow the recipe.
 
@@ -846,13 +846,13 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:35:21] Adam: It is. I'm sure we're going to get lots of suggestions for key kitchen tools.
 
-[00:35:25] Will: Yeah. The let's see. Well, let's run down the list as I remember it. A decent chef's knife, twenty bucks,
+[00:35:25] Will: Yeah. The let's see. Well, let's run down the list as I remember it. A decent chef's knife, $20,
 
 [00:35:30] Adam: without a doubt.
 
 [00:35:31] Will: Mixing bowls.
 
-[00:35:31] Adam: Mixing bowls. Non-stick, eight inch or ten inch frying pan.
+[00:35:31] Adam: Mixing bowls. Non-stick, 8 inch or 10 inch frying pan.
 
 [00:35:31] Will: A stick. Cheap. Cheap frying pan as well is good or or cast iron. That's a good place to use your cast iron.
 
@@ -940,7 +940,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:37:28] Norm: Oranges.
 
-[00:37:29] Will: I'm trying to think what else. What other stuff? The stuff that I hate is like the you know the one dumb thing that I should hate that's wonderful. You know those things that you jam into the top of a strawberry to get the the flower part out, the green part. You can just jam it in there. You can do a pint of strawberries in like ten minutes with that thing. It is super super dumb.
+[00:37:29] Will: I'm trying to think what else. What other stuff? The stuff that I hate is like the you know the one dumb thing that I should hate that's wonderful. You know those things that you jam into the top of a strawberry to get the the flower part out, the green part. You can just jam it in there. You can do a pint of strawberries in like 10 minutes with that thing. It is super super dumb.
 
 [00:37:47] Adam: Like a cherry pitter too. I felt like such a loser when I realized how great those were, and I'm sitting there.
 
@@ -968,7 +968,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:38:05] Will: spike the apple on the thing, and you turn it, and the apple turns, and then it comes off with no. And I was like, if he's okay with that, that excuses a lot of the terrible things I've done.
 
-[00:38:28] Adam: Have we covered the peeled an entire head of garlic in twenty seconds technique?
+[00:38:28] Adam: Have we covered the peeled an entire head of garlic in 20 seconds technique?
 
 [00:38:32] Will: The shaking.
 
@@ -978,7 +978,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:38:32] Will: Yeah,
 
-[00:38:32] Adam: take garlic, take a head of garlic. You want to peel it. I can do it in twenty seconds.
+[00:38:32] Adam: take garlic, take a head of garlic. You want to peel it. I can do it in 20 seconds.
 
 [00:38:43] Norm: The whole head.
 
@@ -996,7 +996,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:38:53] Will: Yeah, like ideally, I think the YouTube videos always show like big prep bowls, basically, like they make the salad house of bread
 
-[00:38:53] Adam: bowls. Sixteen inch.
+[00:38:53] Adam: bowls. 16 inch.
 
 [00:38:53] Norm: You put them between them.
 
@@ -1004,7 +1004,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:39:07] Will: it's it's a big open it's it's the the two open faces facing each other
 
-[00:39:07] Adam: so it's this interior space bang bang bang bang bang twenty seconds turn it up they'll all be perfectly peeled there's a corollary you have never gotten this to work
+[00:39:07] Adam: so it's this interior space bang bang bang bang bang 20 seconds turn it up they'll all be perfectly peeled there's a corollary you have never gotten this to work
 
 [00:39:19] Will: I've never gotten it to work
 
@@ -1040,7 +1040,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:39:45] Adam: it's a bit nutty
 
-[00:39:45] Will: he took a drywall mud bucket and put the put a ten pounds of potatoes in there
+[00:39:45] Will: he took a drywall mud bucket and put the put a 10 pounds of potatoes in there
 
 [00:39:45] Adam: and filled it with water
 
@@ -1064,7 +1064,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:40:10] Adam: twine is—
 
-[00:40:10] Will: fifty cents worth of twine.
+[00:40:10] Will: $0.50 worth of twine.
 
 [00:40:22] Adam: Trussing the chicken,
 
@@ -1072,7 +1072,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:40:23] Adam: one of the easiest things to make really good chicken. It's a significant and notable difference because you are keeping the extremities from drying out. You're making it into a single unified thing, and it's just it's yeah.
 
-[00:40:37] Will: And and it takes thirty seconds, if
+[00:40:37] Will: And and it takes 30 seconds, if
 
 [00:40:39] Adam: that. Yeah, there's no mystery to it. It's and there's no technique that's right or wrong. As long as you're trussing it up, you're good.
 

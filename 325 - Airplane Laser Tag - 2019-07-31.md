@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:06:00] Norm: Every iteration, they learn so much more.
 
-[00:06:12] Adam: When you, when you, when you are at JPL and you realize, it's like they said, they're as as full up with people as they've been in a long time. It's like sixty five hundred some odd engineers there. Um, and you think that's it? Like, given what these guys have done, how many amazing things that they've done, and sent things to other worlds and to the outer solar system, it's totally amazing.
+[00:06:12] Adam: When you, when you, when you are at JPL and you realize, it's like they said, they're as as full up with people as they've been in a long time. It's like 6,500 some odd engineers there. Um, and you think that's it? Like, given what these guys have done, how many amazing things that they've done, and sent things to other worlds and to the outer solar system, it's totally amazing.
 
 [00:06:35] Zach: And their success rate is just amazing.
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:13:30] Norm: There's a flowchart of of possibilities that all those paths can tell a good story.
 
-[00:13:37] Adam: Right. But in and thirteen years of MythBusters has taught me to smell out the things that will not let you have an episode if it doesn't go right. And if for some reason our electronics are 100% not working when we get to New Zealand, that's there's no other option. What are we going to shoot dart guns at each other?
+[00:13:37] Adam: Right. But in and 13 years of MythBusters has taught me to smell out the things that will not let you have an episode if it doesn't go right. And if for some reason our electronics are 100% not working when we get to New Zealand, that's there's no other option. What are we going to shoot dart guns at each other?
 
 [00:13:57] Zach: Right. That was so my fear for three weeks. Actually, like I was up all night worrying about that. So yeah.
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:20:33] Zach: Ah, New Zealand.
 
-[00:20:33] Adam: The I know. Wow. And the pilots, Gary and Bevin, were both telling me because both of them fly all sorts of vintage aircraft. I mean, Bevin was sitting on the coffee table in the mess room was a picture of Bevin flying a P fifty one Mustang, right? Like waving to the camera. They read a lot about the pilots' personal accounts of flying these planes. They feel a real simpatico, a historical simpatico with their with their forebears, and they came down from the dogfight. All three, each dogfight we did, solidified for them more. They're like, we're starting to really, really get what we were reading that we never understood on this visceral level before.
+[00:20:33] Adam: The I know. Wow. And the pilots, Gary and Bevin, were both telling me because both of them fly all sorts of vintage aircraft. I mean, Bevin was sitting on the coffee table in the mess room was a picture of Bevin flying a P-51 Mustang, right? Like waving to the camera. They read a lot about the pilots' personal accounts of flying these planes. They feel a real simpatico, a historical simpatico with their with their forebears, and they came down from the dogfight. All three, each dogfight we did, solidified for them more. They're like, we're starting to really, really get what we were reading that we never understood on this visceral level before.
 
 [00:20:33] Zach: Wow.
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:24:01] Zach: yeah well I mean there's still a ton of light in there even when it is you know closed up and whatnot so we're looking for shadows and we're looking for like places where it's like oh there's a little less sunlight and you can kind of make it out and and the first test that we did actually wasn't aligned at all and it was kind of just like close. Enough to go. Yeah, I think that'll work. It's worth the keep going.
 
-[00:24:18] Norm: Did you have that hundred fifty yards to to line?
+[00:24:18] Norm: Did you have that 150 yards to to line?
 
 [00:24:18] Adam: We did.
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:33:03] Zach: It just rots.
 
-[00:33:03] Adam: Yeah, so they're peeling the canvas off, and inside the the leading edge of one of the wings, they find this rolled up drawing of a British officer. And Peter asked if I could crowdsource using my platform a solution to who that pilot might have been, and we put it up on YouTube and Twitter. And what was it? Less than thirty minutes.
+[00:33:03] Adam: Yeah, so they're peeling the canvas off, and inside the the leading edge of one of the wings, they find this rolled up drawing of a British officer. And Peter asked if I could crowdsource using my platform a solution to who that pilot might have been, and we put it up on YouTube and Twitter. And what was it? Less than 30 minutes.
 
 [00:33:39] Norm: Yeah, and within the first hour.
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:34:15] Zach: Well, and it turned into a time capsule. I mean, that's
 
-[00:34:19] Adam: And that's the part that's really lovely, and you realize that's also part of why Peter loves these things because, and the whole point of the episode, it turned out was I realized we made a time machine. We we did something that no one's done in not a hundred years, but maybe like eighty-five years. A real a real with some stakes included dogfight in these planes, and understood things about them that that aren't obvious from just flying them and just knowing about what their capabilities are.
+[00:34:19] Adam: And that's the part that's really lovely, and you realize that's also part of why Peter loves these things because, and the whole point of the episode, it turned out was I realized we made a time machine. We we did something that no one's done in not 100 years, but maybe like 85 years. A real a real with some stakes included dogfight in these planes, and understood things about them that that aren't obvious from just flying them and just knowing about what their capabilities are.
 
 [00:34:47] Jeremy: It sounds like even to the pilots that you worked with, that was true.
 

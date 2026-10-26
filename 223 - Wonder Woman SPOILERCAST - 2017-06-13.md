@@ -114,13 +114,13 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:04:58] Adam: Like they have been pillaging longer than anybody else. They have all the best stuff.
 
-[00:05:03] Norm: Scale was a big, surprising thing too, both in the art and the architecture. The art, when you see in the textbook or even on your phone or your tablet, it's it's you can visualize the whole thing. But when you see a massive Rembrandt painting in person, and it's you know thirty feet wide by twenty feet tall, it engulfs your entire visage, and you can see all the textural brushwork.
+[00:05:03] Norm: Scale was a big, surprising thing too, both in the art and the architecture. The art, when you see in the textbook or even on your phone or your tablet, it's it's you can visualize the whole thing. But when you see a massive Rembrandt painting in person, and it's you know 30 feet wide by 20 feet tall, it engulfs your entire visage, and you can see all the textural brushwork.
 
-[00:05:26] Adam: Well, and so I went to the National Gallery. The most recent time was about five years ago with my sons. So they were eleven or twelve, and I didn't, I hadn't been there for a decade, and I didn't realize until I was walking through that oh, actually, even though I never really took a college level art history class, I know a college level art history's amount of information, and I started talking to them about what they were looking at about 15th, 16th, 17th, 18th, 19th, and 20th century painting, and because of the way that it was laid out at that point. We were getting a course in the shifting movement of how painting changed how we look at ourselves, and there was this way in which you moved from the the mannerist sort of slightly weird portraits of the 17th century to the more realistic and the the more incredible, and then you get to the impressionists. And I just remember coming upon the Degas paintings of the dancers and the light, and I'm getting goosebumps as I describe it. I like I got teary because it was so overwhelming to feel this this progression of history of aesthetic history happen. Yeah, and the gallery lays it out so beautifully.
+[00:05:26] Adam: Well, and so I went to the National Gallery. The most recent time was about five years ago with my sons. So they were 11 or 12, and I didn't, I hadn't been there for a decade, and I didn't realize until I was walking through that oh, actually, even though I never really took a college level art history class, I know a college level art history's amount of information, and I started talking to them about what they were looking at about 15th, 16th, 17th, 18th, 19th, and 20th century painting, and because of the way that it was laid out at that point. We were getting a course in the shifting movement of how painting changed how we look at ourselves, and there was this way in which you moved from the the mannerist sort of slightly weird portraits of the 17th century to the more realistic and the the more incredible, and then you get to the impressionists. And I just remember coming upon the Degas paintings of the dancers and the light, and I'm getting goosebumps as I describe it. I like I got teary because it was so overwhelming to feel this this progression of history of aesthetic history happen. Yeah, and the gallery lays it out so beautifully.
 
 [00:06:41] Danica: It's extraordinary.
 
-[00:06:43] Norm: Yeah, the Musée d'Orsay in Paris has Degas dancers as well as his sculptures of those dancers working in multiple mediums, and then the the buildings, the scaled. I mean, you know, in America we're lucky if we have things that are over hundred years old in the cities that we live in, and Yes. and you're standing in you know at eleven p.m. in the center of the Louvre, and everything's well lit. Yeah. So like all their massive. Monuments and and museums are lit at night, and people are walking around, engulfed by what looks like buildings for giants. Yeah.
+[00:06:43] Norm: Yeah, the Musée d'Orsay in Paris has Degas dancers as well as his sculptures of those dancers working in multiple mediums, and then the the buildings, the scaled. I mean, you know, in America we're lucky if we have things that are over 100 years old in the cities that we live in, and Yes. and you're standing in you know at 11 p.m. in the center of the Louvre, and everything's well lit. Yeah. So like all their massive. Monuments and and museums are lit at night, and people are walking around, engulfed by what looks like buildings for giants. Yeah.
 
 [00:06:43] Adam: Yeah, so
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:11:29] Adam: Yeah,
 
-[00:11:29] Norm: the movie came out I think June 1. First, I want to say in the states, and we the the ramp up, the contextual ramp up, like the buzz for this film was building. The reviews had come out. Rotten Tomatoes, 95%, glowing reviews everywhere. Studios were reevaluating what how much money you think it was going to make. I think they initially estimated seventy five million at most. You know, comparing it to Thor and Captain America,
+[00:11:29] Norm: the movie came out I think June 1. First, I want to say in the states, and we the the ramp up, the contextual ramp up, like the buzz for this film was building. The reviews had come out. Rotten Tomatoes, 95%, glowing reviews everywhere. Studios were reevaluating what how much money you think it was going to make. I think they initially estimated 75 million at most. You know, comparing it to Thor and Captain America,
 
 [00:12:05] Adam: they thought that globally or U S.
 
@@ -268,7 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:15:16] Adam: As Joss Whedon famously said after Guardian's success, well, now that Hollywood has seen that a raccoon can anchor a tentpole film, maybe they'll let a woman try it.
 
-[00:15:26] Norm: And he at one point was attached to direct a Wonder Woman movie ten years ago.
+[00:15:26] Norm: And he at one point was attached to direct a Wonder Woman movie 10 years ago.
 
 [00:15:32] Adam: A wonderful choice to do it too. Yeah. I mean, he has always been wonderfully pro-fem, female centric in his direction. Has made some of my favorite female characters in any media.
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:25:19] Norm: The kid, the
 
-[00:25:20] Adam: the like ten years old and then fourteen years old.
+[00:25:20] Adam: the like 10 years old and then 14 years old.
 
 [00:25:24] Danica: No, it was great. It was spot on. It was lovely. But I want to talk about that Robin Wright performance because, besides the fact that she's just cut and handling business, her actual just her performance of her dialogue is with that accent that is so like could be awful in its little not peculiarities, but its idiosyncrasies. She delivers a very Interesting performance with that accent, and you feel it, and it's so good. Like she is an actress.
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:29:34] Adam: Right.
 
-[00:29:34] Norm: It doesn't. It's not twenty years. It's you know, it's enough time to be a true warrior to read all these texts to learn all these languages, and
+[00:29:34] Norm: It doesn't. It's not 20 years. It's you know, it's enough time to be a true warrior to read all these texts to learn all these languages, and
 
 [00:30:03] Adam: that's actually. So when we're talking superpowers, I love that Diana's polyglot, that she can speak all the languages except for Native American, except for whatever the the Native American
 
@@ -756,7 +756,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:39:13] Danica: Eric Stoltz.
 
-[00:39:15] Adam: Eric Stoltz plays another angel. Chris Meloni plays the human. Christopher Walken plays Gabriel, and and Viggo Mortensen at like twenty five plays the devil, and he is the scariest devil in almost any film except the devil from Constantine, and I can never remember that actor's name. The devil from Constantine is an actor who was in eight millimeter. Is
+[00:39:15] Adam: Eric Stoltz plays another angel. Chris Meloni plays the human. Christopher Walken plays Gabriel, and and Viggo Mortensen at like 25 plays the devil, and he is the scariest devil in almost any film except the devil from Constantine, and I can never remember that actor's name. The devil from Constantine is an actor who was in eight millimeter. Is
 
 [00:39:38] Danica: this one we figured out? Was it?
 

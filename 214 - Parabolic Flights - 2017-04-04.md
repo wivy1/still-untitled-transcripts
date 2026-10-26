@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:02:15] Simone: Yeah, what are your complaints?
 
-[00:02:18] Adam: Well, I decided to finally muscle through and figure out how to put all the songs that are on my computer, numbering fifteen thousand, on my phone, which is big enough to hold them. But Apple makes getting the physical music data onto your phone really, really difficult because they clearly their business model is not built on that. They want you to go to the cloud. They want you to use their services. They want you to stream. And since most of my listening happens where streaming is difficult, either on long road trips where the cell reception can be spotty, or specifically on long flights. Where I don't necessarily feel like paying twenty bucks to listen to music that I own, I wanted it all on my phone, and it honestly took like a dozen hours of downloading and like workarounds to figure out how to get the music on this damn thing.
+[00:02:18] Adam: Well, I decided to finally muscle through and figure out how to put all the songs that are on my computer, numbering 15,000, on my phone, which is big enough to hold them. But Apple makes getting the physical music data onto your phone really, really difficult because they clearly their business model is not built on that. They want you to go to the cloud. They want you to use their services. They want you to stream. And since most of my listening happens where streaming is difficult, either on long road trips where the cell reception can be spotty, or specifically on long flights. Where I don't necessarily feel like paying $20 to listen to music that I own, I wanted it all on my phone, and it honestly took like a dozen hours of downloading and like workarounds to figure out how to get the music on this damn thing.
 
 [00:03:10] Norm: Yeah, the fact that iTunes as a piece of software is the gateway between all the data on your mobile device and on your desktop device, which are made by the same company, like you have to convert it, and they want you to use iTunes Match, which I hate. Like the idea that they catalog your library and then have you download their version of the song with their bit rates, it's just it makes no sense to me.
 
@@ -50,7 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:03:33] Simone: Like overall, iTunes is such a weird program. Like especially that you're syncing your phone throughout iTunes. It's just like a remnant of an old infrastructure that really doesn't make sense.
 
-[00:03:45] Norm: Yeah, because they want people to stream, right? They want people to use the Apple Music with the bought Beats Music to do just that. It's even worse for me the other way around. Like I film a lot of video with my phone, Simone. I know you do too. But getting your photos and your video, like fifteen twenty minute long videos. Off of the phone onto a computer, they want you use iCloud. They want you to send it up
+[00:03:45] Norm: Yeah, because they want people to stream, right? They want people to use the Apple Music with the bought Beats Music to do just that. It's even worse for me the other way around. Like I film a lot of video with my phone, Simone. I know you do too. But getting your photos and your video, like 15 20 minute long videos. Off of the phone onto a computer, they want you use iCloud. They want you to send it up
 
 [00:03:45] Adam: Oh.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:05:20] Adam: The problem again, the problem is, is I own all this great music. I own some really weird B sides of Peter Gabriel songs that you can't get anywhere else, and iTunes Match doesn't give them to me because you can't, they're not on their catalog. I've got some Bob Seger CDs that aren't and aren't digital because I digitized them. You know, there's there's all sorts of ways in which streaming services don't work for a user like me. And I'm sorry, but I hate the cloud. I don't want all my information up there. I certainly don't feel like it's safe, so I keep it all on my local devices.
 
-[00:05:52] Norm: Not just the information, but you're listening. Like they know what you're listening to, and they have to track that to pay the royalties. But like I don't need someone to know that I. I'm listening to this album this many times, and if you look at your like paying history, I did this once exercise. Like I've been subscribing to Spotify since it basically started. I spent like 500 dollars now on Spotify subscriptions, and that's a lot of money. I don't think I would have bought that many albums. I haven't definitely listened to 500 dollars worth of albums.
+[00:05:52] Norm: Not just the information, but you're listening. Like they know what you're listening to, and they have to track that to pay the royalties. But like I don't need someone to know that I. I'm listening to this album this many times, and if you look at your like paying history, I did this once exercise. Like I've been subscribing to Spotify since it basically started. I spent like $500 now on Spotify subscriptions, and that's a lot of money. I don't think I would have bought that many albums. I haven't definitely listened to $500 worth of albums.
 
 [00:06:22] Simone: But I feel that considering or like I feel that the music I’m listening to is probably one of the data points that I'm most okay with people having access to.
 
@@ -204,9 +204,9 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:13:42] Norm: That's bad for everyone. Yeah. So what was like? I mean, the idea is, it's how many seconds at a time do you get to experience this?
 
-[00:13:48] Simone: So you do do about thirty seconds. So the airplane does parabolas, so it goes up and down, and when you're going down, you get to be weightless for about thirty seconds, and we did fifteen of them, and it was. I was really nervous about it because I was like, I get motion or like really nauseous on airplanes, and I tend to throw up on airplanes, but I felt Perfect. I felt so great, and it wasn't until I landed and got off the airplane that I started feeling really weird because I'm like my body rejects gravity right now. Yeah, I'm a free bird now.
+[00:13:48] Simone: So you do do about 30 seconds. So the airplane does parabolas, so it goes up and down, and when you're going down, you get to be weightless for about 30 seconds, and we did 15 of them, and it was. I was really nervous about it because I was like, I get motion or like really nauseous on airplanes, and I tend to throw up on airplanes, but I felt Perfect. I felt so great, and it wasn't until I landed and got off the airplane that I started feeling really weird because I'm like my body rejects gravity right now. Yeah, I'm a free bird now.
 
-[00:14:18] Norm: And you were there. You were shooting video there, so you had like every thirty seconds. I mean, but every every parabola you had to plan what you wanted to do in that thirty seconds.
+[00:14:18] Norm: And you were there. You were shooting video there, so you had like every 30 seconds. I mean, but every every parabola you had to plan what you wanted to do in that 30 seconds.
 
 [00:14:28] Simone: Yeah.
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:20:01] Simone: Yeah.
 
-[00:20:02] Adam: So people don't know this about me, but I'm totally obsessed with Leonardo da Vinci's notebooks, and I found a seller. An Italian maker of replicas of Leonardo's notebooks, and picked up a unbelievable copy of of the Lycaster, the Codex Leicester, the the the folios that Bill Gates bought for 30,000,000 dollars.
+[00:20:02] Adam: So people don't know this about me, but I'm totally obsessed with Leonardo da Vinci's notebooks, and I found a seller. An Italian maker of replicas of Leonardo's notebooks, and picked up a unbelievable copy of of the Lycaster, the Codex Leicester, the the the folios that Bill Gates bought for $30 million.
 
 [00:20:02] Norm: Wow!
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:26:34] Adam: Does that adult have to be above the age of 21? Am I correct about that?
 
-[00:26:37] Simone: I think so. I'm not sure if I have any friends that are below the age of twenty-one.
+[00:26:37] Simone: I think so. I'm not sure if I have any friends that are below the age of 21.
 
 [00:26:40] Adam: because because honestly, um, uh, thing thing thing two, my son, he's a really excellent driver. I'm sure he'd be happy to teach you.
 
@@ -420,7 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:28:52] Simone: How many shows have you done in total?
 
-[00:28:56] Adam: Um. Uh. Thirty. Thirty-four. I have six left. So yeah, no, thirty-five shows, and I have six left.
+[00:28:56] Adam: Um. Uh. 30. 34. I have six left. So yeah, no, 35 shows, and I have six left.
 
 [00:29:08] Simone: That is a crazy amount. I don't. Do you like? Ever like feel that your brain? I mean, your you must definitely like confuse the different shows between one another.
 

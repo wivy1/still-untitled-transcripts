@@ -188,7 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:07:15] Will: Okay,
 
-[00:07:15] Adam: totally.  So he had a tremendous amount of contacts. When I was eighteen and dropped out of eighteen nineteen, dropped out of college and wanted to get some work, he we opened up the real directory, and he was like, " Okay, that guy used to be my assistant. That guy's an old friend. That guy's and and I just started calling them, and I called a bunch of different guys, and several of them gave me work. Like,
+[00:07:15] Adam: totally.  So he had a tremendous amount of contacts. When I was 18 and dropped out of 18 19, dropped out of college and wanted to get some work, he we opened up the real directory, and he was like, " Okay, that guy used to be my assistant. That guy's an old friend. That guy's and and I just started calling them, and I called a bunch of different guys, and several of them gave me work. Like,
 
 [00:07:40] Will: and this is when you were this is when you learned to be a graphic designer.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:07:43] Will: Garbage day.
 
-[00:07:43] Adam: Oh right, and that that those animations were done by an illustrator, a wonderful illustrator named Bob Blechman, and he had an animation company in Midtown, actually in the Diamond District on 47th Street, called the Ink Tank. Still one of the great names for an animation company ever. Yeah, and his office was on the top floor of this fourteen-story building in the Diamond District, and he had when he rented it, it was drop ceiling and and like drywall, and he knocked out the drywall to find all of this like wood wainscoting from the turn of the century and restored the office to its turn of the century glory.
+[00:07:43] Adam: Oh right, and that that those animations were done by an illustrator, a wonderful illustrator named Bob Blechman, and he had an animation company in Midtown, actually in the Diamond District on 47th Street, called the Ink Tank. Still one of the great names for an animation company ever. Yeah, and his office was on the top floor of this 14-story building in the Diamond District, and he had when he rented it, it was drop ceiling and and like drywall, and he knocked out the drywall to find all of this like wood wainscoting from the turn of the century and restored the office to its turn of the century glory.
 
 [00:08:45] Unknown speaker: Wow.
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:14:16] Will: Tuesday night was quarter tacos.
 
-[00:14:18] Adam: Exactly, I was like nineteen and a total asshole. What did I know?
+[00:14:18] Adam: Exactly, I was like 19 and a total asshole. What did I know?
 
 [00:14:22] Will: Oh my god!
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:14:37] Adam: I think it's really only in retrospect. You know, I mean, I knew I worked with people that I liked. I knew I got to try different things, and I got to see examples. I mean, I was working with these young illustrators who'd be like, one of them got a village voice. One of them got their illustration in the village voice. Right. We all had a party about it, and it was like everyone was at the beginning of their careers.
 
-[00:14:58] Will: And and I mean, when you are nineteen years old, or at least when I was nineteen years old. I didn't have any sense of perspective.
+[00:14:58] Will: And and I mean, when you are 19 years old, or at least when I was 19 years old. I didn't have any sense of perspective.
 
 [00:14:58] Adam: No,
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:16:08] Adam: Can you imagine?
 
-[00:16:08] Will: He had ten fingers,
+[00:16:08] Will: He had 10 fingers,
 
 [00:16:14] Adam: right?
 
@@ -416,7 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:19:49] Adam: yeah.
 
-[00:19:51] Will: And there's also a wonderful time when you're in your early twenties, you don't have a family, you're probably not married yet, where if if you if it's Tuesday night and you don't have something better to do and you're enjoying what you're doing at work, then you'll just sit there and keep working at it until you get it done.
+[00:19:51] Will: And there's also a wonderful time when you're in your early 20s, you don't have a family, you're probably not married yet, where if if you if it's Tuesday night and you don't have something better to do and you're enjoying what you're doing at work, then you'll just sit there and keep working at it until you get it done.
 
 [00:20:04] Adam: I did. I would stay late all the time.
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:24:09] Adam: absolutely, and that was invaluable.
 
-[00:24:11] Will: Um. What the other thing I would say is that when you're in your twenties, the mistake I made was that I didn't take enough risks in my twenties. You did, I think. Um. But but you when you before you have kids before you have a family.
+[00:24:11] Will: Um. What the other thing I would say is that when you're in your 20s, the mistake I made was that I didn't take enough risks in my 20s. You did, I think. Um. But but you when you before you have kids before you have a family.
 
 [00:24:27] Adam: I had the luxury. As I said last week, I had the luxury of being able to take a risk. I had a little bit of a cushion in my parents.
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:24:39] Adam: Yeah.
 
-[00:24:39] Will: Um. As long as you can, I know that's that's with people coming out of school with 200,000 dollars worth of debt.
+[00:24:39] Will: Um. As long as you can, I know that's that's with people coming out of school with $200,000 worth of debt.
 
 [00:24:39] Adam: Yeah.
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:25:42] Will: which t-shirts were they, Norm?
 
-[00:25:43] Norm: They were they they were the t-shirts of a failed American Idol contestant, and we sold like twenty thousand of them.
+[00:25:43] Norm: They were they they were the t-shirts of a failed American Idol contestant, and we sold like 20,000 of them.
 
 [00:25:43] Adam: Whoa!
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:26:00] Norm: But yeah,
 
-[00:26:00] Will: but you all, and then your first your first twenty thousand.
+[00:26:00] Will: but you all, and then your first your first 20,000.
 
 [00:26:04] Norm: Yep,
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:26:12] Will: Wow! I'm totally amazed when when you applied for the internship at PC Gamer.
 
-[00:26:17] Norm: Yeah, fifteen years old when I forgot my first internship, and back then, I mean, labor laws. Back then, we really
+[00:26:17] Norm: Yeah, 15 years old when I forgot my first internship, and back then, I mean, labor laws. Back then, we really
 
 [00:26:24] Will: We were loose with labor laws. Yes,
 
@@ -612,13 +612,13 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:27:40] Norm: applied to other jobs, and they all feed each other.
 
-[00:27:55] Adam: Absolutely for for a while in the early '90s, actually for a long time, for two and a half years, I worked as a backstage tech for Beach Blanket Babylon in North Beach. Now I was an understudy tech, which is an exhausting job because. Every position in Beach Blanket Babylon, which is this San Francisco institution that's been going for like thirty-five years or more, forty years maybe,
+[00:27:55] Adam: Absolutely for for a while in the early '90s, actually for a long time, for two and a half years, I worked as a backstage tech for Beach Blanket Babylon in North Beach. Now I was an understudy tech, which is an exhausting job because. Every position in Beach Blanket Babylon, which is this San Francisco institution that's been going for like 35 years or more, 40 years maybe,
 
 [00:28:16] Norm: Had such a big anniversary?
 
 [00:28:17] Will: Yeah,
 
-[00:28:17] Adam: yeah, and it's it's a frenetic show with tons of like drag and comedy and performance, and each position backstage has two hundred plus cues in an eighty-minute show.
+[00:28:17] Adam: yeah, and it's it's a frenetic show with tons of like drag and comedy and performance, and each position backstage has 200 plus cues in an 80-minute show.
 
 [00:28:31] Will: Good God!
 
@@ -658,7 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:30:22] Adam: right? God,
 
-[00:30:25] Adam: don't you? It's, I mean, it's particularly the thing with me and my my kids being fifteen. It's like I know you feel like you are immortal. I know you feel like there's just like endless things.
+[00:30:25] Adam: don't you? It's, I mean, it's particularly the thing with me and my my kids being 15. It's like I know you feel like you are immortal. I know you feel like there's just like endless things.
 
 [00:30:35] Will: You need to teach them what real pain is. It's the only way to be make them safe. So it's it's the the Paul Muad'Dib thing where you put the hand in the pain box. This is this is what.
 
@@ -690,9 +690,9 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:31:47] Adam: Um,
 
-[00:31:51] Will: give me a PG thirteen example of crazy.
+[00:31:51] Will: give me a PG-13 example of crazy.
 
-[00:31:53] Adam: No, no, no, no. We had this the show the show we did the show I worked on was called " The Architecture of Catastrophic Change" and involved. Sort of loosely based around the Loma Prieta earthquake, and the stage was this huge ramp that lifted up and down, and actors flew across the stage on ropes and wire ropes and harnesses and stuff. And during one portion of the show, an actor supposed to has gets clicked into a harness, and he gets sort of supported on a block and fall while other actors support like a fifteen foot ladder, and he climbs to the top. But he's supported by a block and fall. One night, the block and fall failed, and George ran to the front and made them actually climb the ladder anyway, while actors below supported the ladder.
+[00:31:53] Adam: No, no, no, no. We had this the show the show we did the show I worked on was called " The Architecture of Catastrophic Change" and involved. Sort of loosely based around the Loma Prieta earthquake, and the stage was this huge ramp that lifted up and down, and actors flew across the stage on ropes and wire ropes and harnesses and stuff. And during one portion of the show, an actor supposed to has gets clicked into a harness, and he gets sort of supported on a block and fall while other actors support like a 15 foot ladder, and he climbs to the top. But he's supported by a block and fall. One night, the block and fall failed, and George ran to the front and made them actually climb the ladder anyway, while actors below supported the ladder.
 
 [00:32:36] Will: Oh my god!
 

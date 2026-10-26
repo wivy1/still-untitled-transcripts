@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:04:32] Adam: Relatable in today's political climate, and a glimpse of the political climate from China, which is so different than ours. They've gone through completely. You know how it's like every now and then you're talking to a European and they bring up World War II, and eventually the conversation has to come around to the fact that Americans have no idea what it was like to have a war on our soil. We haven't had a city over there destroyed or a church over there
 
-[00:04:55] Will: or been on rations for fifteen years
+[00:04:55] Will: or been on rations for 15 years
 
 [00:04:57] Adam: or been on exactly. So there's China. Like again, completely different experience of the last of the last couple of millennia than we did,
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:10:00] Norm: and he drops the mic.
 
-[00:10:01] Will: It was like a 600 dollar mic, right? It was a really this is the thing I know about this it was a really expensive microphone. I happened to be on blogs. Talking about recent destruction of invaluable or priceless instruments.
+[00:10:01] Will: It was like a $600 mic, right? It was a really this is the thing I know about this it was a really expensive microphone. I happened to be on blogs. Talking about recent destruction of invaluable or priceless instruments.
 
 [00:10:12] Norm: So the part of the story you know is about how expensive. Oh, this mic.
 
@@ -322,7 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:11:21] Adam: And there is a human need. It is the same, I think, personally, that it has a similar impetus as people believing that the world's about to end. We want to believe we're that that that that famous what do you call it wish that you can give to someone: may you live in interesting times, right? I, I think that that—
 
-[00:11:47] Norm: that the fifty to hundred years that we occupy is a special significance in in the history of not only mankind but of Earth and the universe on a cosmic scale.
+[00:11:47] Norm: that the 50 to 100 years that we occupy is a special significance in in the history of not only mankind but of Earth and the universe on a cosmic scale.
 
 [00:11:57] Will: I mean, if you look at
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:13:54] Adam: I think that if you could also crack open the brain of like the Koch brothers and those people who are funding the denial of climate change and climate science, you'd find you might find in some of them a feeling of like, damn straight, we are changing the world. That is power. I once knew someone who thought it was a bragable thing that in Manhattan trees only grow where humans say they grow, like that. That was a triumph.
 
-[00:14:20] Will: Well, that was. I mean, that's the way we approached engineering and civic engineering for the last hundred years. Yeah. Till like twenty twenty five years ago,
+[00:14:20] Will: Well, that was. I mean, that's the way we approached engineering and civic engineering for the last 100 years. Yeah. Till like 20 25 years ago,
 
 [00:14:27] Norm: it's remarkable, but it's not necessarily a triumph.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:14:59] Norm: cognitive biases, and a lot of these fall under cognitive biases, right? And it's tough to step out of that. If you look at the list, there are so many that you can look at and say—
 
-[00:15:07] Adam: Oh God, I can't read more than ten of them before I'm so depressed. I have to move on.
+[00:15:07] Adam: Oh God, I can't read more than 10 of them before I'm so depressed. I have to move on.
 
 [00:15:11] Norm: Right.
 

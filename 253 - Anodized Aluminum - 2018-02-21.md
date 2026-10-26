@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:00:57] Will: San Francisco cold.
 
-[00:00:58] Adam: San Francisco. It's in the forties, and everyone's losing their minds.
+[00:00:58] Adam: San Francisco. It's in the 40s, and everyone's losing their minds.
 
 [00:01:01] Will: It's. Look, there was a. I saw a little tiny bit of frost in my backyard this morning. Well,
 
@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:01:06] Adam: yeah,
 
-[00:01:06] Will: it's colder even. I saw one of my friends in Chicago posted a picture of like six inches or twelve inches of snow on top of her car this morning.
+[00:01:06] Will: it's colder even. I saw one of my friends in Chicago posted a picture of like 6 inches or 12 inches of snow on top of her car this morning.
 
 [00:01:06] Unknown speaker (Will or Adam): Yeah.
 
@@ -48,23 +48,23 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:01:17] Will: It's only cold because our houses aren't built very well.
 
-[00:01:20] Adam: By the same token, when I was visiting, when we were down in New Zealand in Wellington, the week we were there, they were having a heat wave and it was as high as eighty degrees Fahrenheit, which is what like thirty four Celsius. I can’t quite remember.
+[00:01:20] Adam: By the same token, when I was visiting, when we were down in New Zealand in Wellington, the week we were there, they were having a heat wave and it was as high as 80 degrees Fahrenheit, which is what like 34 Celsius. I can’t quite remember.
 
-[00:01:34] Will: 98.6 is is oh man, twenty degrees is room temperature. Seventy degrees, twenty degrees Celsius is seventy degrees Fahrenheit.
+[00:01:34] Will: 98.6 is is oh man, 20 degrees is room temperature. 70 degrees, 20 degrees Celsius is 70 degrees Fahrenheit.
 
-[00:01:42] Adam: Well, at any rate, it was like eighty degrees Fahrenheit, and everyone in Wellington was losing their minds, and they were like apologizing, " We're really sorry for this crazy, debilitating heat." And I'm like, " That is so cute that you guys think this is debilitating heat.
+[00:01:42] Adam: Well, at any rate, it was like 80 degrees Fahrenheit, and everyone in Wellington was losing their minds, and they were like apologizing, " We're really sorry for this crazy, debilitating heat." And I'm like, " That is so cute that you guys think this is debilitating heat.
 
 [00:01:55] Will: " There was a point last summer here one time when it was 111 degrees when I got in the car, and my my office was 96 degrees Fahrenheit inside with the fan blowing.
 
 [00:01:55] Adam: Yes,
 
-[00:01:55] Will: it's like this is eighty is totally tolerable and very comfortable.
+[00:01:55] Will: it's like this is 80 is totally tolerable and very comfortable.
 
 [00:02:10] Adam: Completely,
 
 [00:02:10] Will: yeah.
 
-[00:02:10] Adam: So this isn't real cold, just as eighty degrees isn't real hot.
+[00:02:10] Adam: So this isn't real cold, just as 80 degrees isn't real hot.
 
 [00:02:14] Will: No,
 
@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:02:42] Adam: I actually don’t know.
 
-[00:02:49] Will: It was like it was a fifty fifty split back in the day.
+[00:02:49] Will: It was like it was a 50/50 split back in the day.
 
 [00:02:52] Adam: But if you watch the podcast, you see behind me frequently, or in the thumbnail, you'll see behind us frequently a Apollo A seven L suit. Made by Ryan Nagata with some parts contributed by me, but it's Ryan's amazing, incredible, beautiful work, including couplers like this, which is cast resin, but it looks really metallic and it's got weathering in the corners, and it's it's just his work is top-notch.
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:07:12] Unknown speaker: Wow.
 
-[00:07:12] Adam: and it took me about twelve hours of machining. I mean, probably take a real machinist a fraction of that.
+[00:07:12] Adam: and it took me about 12 hours of machining. I mean, probably take a real machinist a fraction of that.
 
 [00:07:25] Norm: You were making a set for you, and you were making a set for Ryan. So,
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:07:57] Norm: to make a do a run because you were figuring out the order of operations as you were going. So If you had the wrong order of operations, you were doing five at a time. That's five pieces wasted.
 
-[00:08:06] Will: And and with hand machining, it's not like making fifty of them. You not. It's not like there's efficiencies in making fifty of them versus three. Like once you once you get the process down, you'll be a little bit faster each time. But you're not going to be an order of magnitude faster each time, like you would with casting or something like that.
+[00:08:06] Will: And and with hand machining, it's not like making 50 of them. You not. It's not like there's efficiencies in making 50 of them versus three. Like once you once you get the process down, you'll be a little bit faster each time. But you're not going to be an order of magnitude faster each time, like you would with casting or something like that.
 
 [00:08:21] Adam: You know, I lost a lot of time double and triple checking everything. Yeah. This is where just basic experience helps you run the disasters off at the pass. Where I was really nervous about running into disasters.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:10:43] Will: We tried that once.
 
-[00:10:44] Norm: I don't know about you, but when you see something have like fifty million views on Facebook, immediate skepticism.
+[00:10:44] Norm: I don't know about you, but when you see something have like 50 million views on Facebook, immediate skepticism.
 
 [00:10:44] Will: Yeah.
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:11:34] Will: a tiny boat,
 
-[00:11:35] Norm: a tiny boat, a six foot long boat that is all made of parts, 90% made of parts that he laser cut either laser cut in his own hundred watt laser cutter in his home slash shop or 3D printed.
+[00:11:35] Norm: a tiny boat, a six foot long boat that is all made of parts, 90% made of parts that he laser cut either laser cut in his own 100 watt laser cutter in his home slash shop or 3D printed.
 
 [00:11:49] Will: And you rode in one of these boats.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:12:27] Will and Norm: [Will] Electric. [Norm] Electric.
 
-[00:12:29] Norm: literally, they they put a twelve volt car battery.
+[00:12:29] Norm: literally, they they put a 12 volt car battery.
 
 [00:12:29] Will: Yep.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:17:18] Will: Oh my God, that's one less pair of those in the world.
 
-[00:17:20] Adam: [unclear speaker: Adam or Will] God. Ah, and then of course it flashed up Tom Sachs Nike X Mars Yard shoes, 200 dollars.
+[00:17:20] Adam: [unclear speaker: Adam or Will] God. Ah, and then of course it flashed up Tom Sachs Nike X Mars Yard shoes, $200.
 
 [00:17:20] Unknown speaker (Norm or Adam): What?
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:18:41] Adam: This is Netflix. Yeah. So episode one is with this old Kentucky guy named Tom, big beard, rosacea, you know, trying to trying to get himself out of a rut. This seems to be the theme, and Tom is so open. To everything, that it is very moving to watch the episode.
 
-[00:19:04] Will: It's funny hearing that because, like, the first time they did this, which was what probably fifteen years ago now, ten, fifteen years ago, it was very much a like here's coastal people and then here's rubes in the middle of the country, and it wasn't like it wasn't poking fun, but it could have it could have been very easily.
+[00:19:04] Will: It's funny hearing that because, like, the first time they did this, which was what probably 15 years ago now, 10, 15 years ago, it was very much a like here's coastal people and then here's rubes in the middle of the country, and it wasn't like it wasn't poking fun, but it could have it could have been very easily.
 
 [00:19:22] Norm: Well, just the premise, right? Yeah, the name Queer Eye for the Straight Guy
 
@@ -538,9 +538,9 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:21:39] Will: Look, it goes once you get it going; it goes. Yeah,
 
-[00:21:41] Adam: they're little nuggets. Yeah, they are twenty, like
+[00:21:41] Adam: they're little nuggets. Yeah, they are 20, like
 
-[00:21:44] Will: twenty-three minutes. Yeah, that knowing the big spoiler, we're not going to spoil it again. But if you didn't listen to the back half of last week because you didn't want to spoil the show, you're probably okay. Like I can I can safely say, I think that I'm I'm really enjoying watching this show, knowing what's coming.
+[00:21:44] Will: 23 minutes. Yeah, that knowing the big spoiler, we're not going to spoil it again. But if you didn't listen to the back half of last week because you didn't want to spoil the show, you're probably okay. Like I can I can safely say, I think that I'm I'm really enjoying watching this show, knowing what's coming.
 
 [00:21:44] Adam and Will: [Adam] It’s a spoiler. [Will] Because they did a. [Adam] Spoiler proof.
 
@@ -744,7 +744,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:28:16] Will: every bit of it is yeah is there or five years from now.
 
-[00:28:20] Adam: Amazing, yeah. I can't wait to jump in. I am still reading the Silk Roads, a new book about the history of the world through the Silk Roads, which is a completely riveting. I just finished Mary Beard's SPQR, kind of an overall history of Rome from about six hundred BC to two hundred AD.
+[00:28:20] Adam: Amazing, yeah. I can't wait to jump in. I am still reading the Silk Roads, a new book about the history of the world through the Silk Roads, which is a completely riveting. I just finished Mary Beard's SPQR, kind of an overall history of Rome from about 600 BC to 200 AD.
 
 [00:28:20] Will: Okay,
 
@@ -910,7 +910,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:33:11] Adam: I think you freak out a little bit. You know, your life is radically changed because you eat, sleep, slept and breathe this thing for so long. Then it goes out into the world, and hopefully, you enjoy some success from that. But yeah, I think you know, I think it's a modified version of what it goes through, what you go through with any like big life change, except as an animation director like that, you go through that with every movie.
 
-[00:33:32] Will: I mean one of one of the things game developers are kind of on the same time frame a lot of times because they're anywhere from like eighteen months to four or five years sometimes. And and usually when you ask them what what they want to get out of the thing that they're making right then, they they tell you they say, look, we just want to sell enough of these that we get to do this again,
+[00:33:32] Will: I mean one of one of the things game developers are kind of on the same time frame a lot of times because they're anywhere from like 18 months to four or five years sometimes. And and usually when you ask them what what they want to get out of the thing that they're making right then, they they tell you they say, look, we just want to sell enough of these that we get to do this again,
 
 [00:33:32] Adam: right?
 
@@ -936,7 +936,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:34:28] Will: Really?
 
-[00:34:29] Adam: Oh, I have a picture of an that Norm took of a grocery store wall of like fifteen different flavors.
+[00:34:29] Adam: Oh, I have a picture of an that Norm took of a grocery store wall of like 15 different flavors.
 
 [00:34:35] Will: It's like Lacroix.
 

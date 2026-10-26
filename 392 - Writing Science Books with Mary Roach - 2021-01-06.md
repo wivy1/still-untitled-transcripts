@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:04:01] Adam: oh neat
 
-[00:04:02] Mary Roach: that could all be done at home. It's basically just take eighty thousand words, turn it into twenty thousand words, and rewrite every single one of those twenty thousand words. You know, I was like, hey, no problem. We'll just jettison some chapters, throw it together. Well, no, no, no, uh, more work than you'd think, but fun. So you know, I had and then I yeah had. I'm doing an update. Stiff. It's been twenty years since Stiff came out.
+[00:04:02] Mary Roach: that could all be done at home. It's basically just take 80,000 words, turn it into 20,000 words, and rewrite every single one of those 20,000 words. You know, I was like, hey, no problem. We'll just jettison some chapters, throw it together. Well, no, no, no, uh, more work than you'd think, but fun. So you know, I had and then I yeah had. I'm doing an update. Stiff. It's been 20 years since Stiff came out.
 
 [00:04:28] Adam: Wow,
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:07:26] Mary Roach: Wow!
 
-[00:07:26] Adam: And in that difference, she's like, " Wow, we may be able to actually compute things that aren't mathematical at all because we can symbolize everything." And you’re like, she saw this a hundred and some—you know, a hundred and forty years ago.
+[00:07:26] Adam: And in that difference, she's like, " Wow, we may be able to actually compute things that aren't mathematical at all because we can symbolize everything." And you’re like, she saw this 100 and some—you know, 140 years ago.
 
 [00:07:40] Mary Roach: It's amazing.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:07:56] Adam: Have you guys? Do I find that on? That my wife Julia and I take any excuse to get out of the house together. So, like, even a small errand, we we drove to A&W, uh, uh, A&W Burgers in Marin a couple of days ago just for the hot dog.
 
-[00:08:13] Mary Roach: Yeah, yeah, yeah. No, I believe it. Yesterday, because we we redid our the the our fireplace, we realized something was wrong. It, it, the facade was separating from the wall, and for the past ten years we've thought, well, it's happening slowly. We'll just let it. We'll monitor. We're going to monitor that. Well, we finally took it down, and the fireplace. Somebody essentially just shoved some remnants of bricks in there and like stuck them together with I don't know mayonnaise, and then slapped quickly slapped something. It was completely falling apart. Anyway, we're finally done with that process, but we needed to get a mantel, and so we were looking at a piece. We're going to get a slab of wood for the mantel. So Ed, someone said, " Hey, there's this place in San Leandro that's got a bunch of different woods that are pretty cool." And I'm like. I'm coming with you, so we're like so excited. We're driving to San Leandro to look at wood. It was very so, yeah, yeah. Any excuse to get out.
+[00:08:13] Mary Roach: Yeah, yeah, yeah. No, I believe it. Yesterday, because we we redid our the the our fireplace, we realized something was wrong. It, it, the facade was separating from the wall, and for the past 10 years we've thought, well, it's happening slowly. We'll just let it. We'll monitor. We're going to monitor that. Well, we finally took it down, and the fireplace. Somebody essentially just shoved some remnants of bricks in there and like stuck them together with I don't know mayonnaise, and then slapped quickly slapped something. It was completely falling apart. Anyway, we're finally done with that process, but we needed to get a mantel, and so we were looking at a piece. We're going to get a slab of wood for the mantel. So Ed, someone said, " Hey, there's this place in San Leandro that's got a bunch of different woods that are pretty cool." And I'm like. I'm coming with you, so we're like so excited. We're driving to San Leandro to look at wood. It was very so, yeah, yeah. Any excuse to get out.
 
 [00:09:10] Adam: I'm curious in the in the last nine months. I mean, there's been such a a battleground about science and truth, but specifically since so much of what's been talked about the last eight months has been about the the body and things that are within your realm. I'm curious if your body of knowledge from writing your books gave you a a different perspective on what's been going on.
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:10:34] Adam: Like the lunchbox, the miners' lunchbox. Yeah,
 
-[00:10:36] Mary Roach: exactly, exactly. That would be left on your step, uh, and when you went for a walk with someone, you had a string, you had to stay thirty feet apart. So it was like I was social distancing back in 1985, and thinking this is hilarious. Uh, and little did I know that, uh, uh, fast forward 40 years or whatever it is. Uh, I'd be. I don't have the string, but I think that people we should have a string. We should have this. I think people need a six foot string, and they need to hold it because you know you got the creep.
+[00:10:36] Mary Roach: exactly, exactly. That would be left on your step, uh, and when you went for a walk with someone, you had a string, you had to stay 30 feet apart. So it was like I was social distancing back in 1985, and thinking this is hilarious. Uh, and little did I know that, uh, uh, fast forward 40 years or whatever it is. Uh, I'd be. I don't have the string, but I think that people we should have a string. We should have this. I think people need a six foot string, and they need to hold it because you know you got the creep.
 
 [00:11:08] Adam: Oh yeah, you have the creep.
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:15:35] Adam: No, it sounds amazing.
 
-[00:15:36] Mary Roach: Anyway, there's a it's a murder story. This woman and and the people who show up are called beforeigners, like as in before and foreigner. There's a lot of parallels to immigration, and I mean, there's you know there's these people showing up. There's a lot of hostility towards them, but they try to fit in, and like the ones who are really the old Norse, they're just like in the woods running around getting rabbits, and the people the Edwardians are you know have brought in their own weird drugs. The Viking. Anyway, there's a woman the police department hires as a publicity thing, of a foreigner, and she's awesome. She's really tough, and she works with a regular Oslo guy, and they're trying to solve this murder. It's really good. This I just did this whole ten minute ad for Beforeigners, and I'm not even being paid anything by Netflix or was it Netflix or HBO? Anyway,
+[00:15:36] Mary Roach: Anyway, there's a it's a murder story. This woman and and the people who show up are called beforeigners, like as in before and foreigner. There's a lot of parallels to immigration, and I mean, there's you know there's these people showing up. There's a lot of hostility towards them, but they try to fit in, and like the ones who are really the old Norse, they're just like in the woods running around getting rabbits, and the people the Edwardians are you know have brought in their own weird drugs. The Viking. Anyway, there's a woman the police department hires as a publicity thing, of a foreigner, and she's awesome. She's really tough, and she works with a regular Oslo guy, and they're trying to solve this murder. It's really good. This I just did this whole 10 minute ad for Beforeigners, and I'm not even being paid anything by Netflix or was it Netflix or HBO? Anyway,
 
 [00:16:23] Adam: it sounds like
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:18:06] Adam: Yeah, I read the novel way back in the '80s because I was collecting books on pool, and Walter Tevis wrote * The Hustler* and * The Color of Money*, obviously. And then I read that, and I read it. I read the book about four years ago because Rian Johnson and I were talking about it, and he was saying he'd read it and he thought it was a nearly impossible book to film. And then we ended up having this long discussion over dinner about ways to visualize chess, and I thought the show threaded that needle beautifully.
 
-[00:18:34] Mary Roach: I did too, because the thing about the book that was extraordinary to me is I don't I don't play chess. I know how, but only in that I know what the pieces do. You know, I would be beat by any a child could beat me in sixty seconds. And, but there's a lot of chess in the book. A lot of discussion of different tactics and openings and maneuvers, but it never lost me. It was that was done so well, and it was hard enough to do that. Kind of like the way the Martian was able to talk about the technology that he was going to use to survive, and even if you didn't quite understand it, he just he did it in a way that you you didn't get bored, you didn't lose the thread. So Tevis did that so well, and then I thought the added dimension of of visual presentation. How is that going to work? Because the chess is an internal procedure. It's an it's it's anyway. They I thought they did a really good job of that with the ceiling. the thing on the ceiling, yeah.
+[00:18:34] Mary Roach: I did too, because the thing about the book that was extraordinary to me is I don't I don't play chess. I know how, but only in that I know what the pieces do. You know, I would be beat by any a child could beat me in 60 seconds. And, but there's a lot of chess in the book. A lot of discussion of different tactics and openings and maneuvers, but it never lost me. It was that was done so well, and it was hard enough to do that. Kind of like the way the Martian was able to talk about the technology that he was going to use to survive, and even if you didn't quite understand it, he just he did it in a way that you you didn't get bored, you didn't lose the thread. So Tevis did that so well, and then I thought the added dimension of of visual presentation. How is that going to work? Because the chess is an internal procedure. It's an it's it's anyway. They I thought they did a really good job of that with the ceiling. the thing on the ceiling, yeah.
 
 [00:19:32] Norm: Yes, I listened to a podcast of one of the the editor who did the entire series, and she said the way she edited the the chess scenes was it was a conversation as if it was dialogue. So every move was a line of dialogue, and then just like they could condense a conversation as long as you get the salient points.
 
@@ -412,11 +412,11 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:38:38] Adam: Uh, well, we actually took separate routes. I drove from here to Nashville, basically taking, um, I didn't know that you could take Route 80 for like 1,700 miles.
 
-[00:38:49] Mary Roach: Eighty goes all the way across.
+[00:38:49] Mary Roach: 80 goes all the way across.
 
 [00:38:50] Adam: Yeah, well, I took it all the way to Wisconsin, and then down to Salt Lake, Denver, and then across, um, Kansas. Wow, that was yeah. Kansas was a little bit flat.
 
-[00:39:01] Mary Roach: Wow, wow, yeah. I came out. I originally came out west on the on eighty. In the
+[00:39:01] Mary Roach: Wow, wow, yeah. I came out. I originally came out west on the on 80. In the
 
 [00:39:06] Adam: oh, really?
 
@@ -460,13 +460,13 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:40:50] Mary Roach: Yeah, I think we could have done it. Yeah. That way, yeah, cool.
 
-[00:40:55] Adam: Um, and it was. I miss. I miss like you. I miss travel. I, you know, I flew a hundred thousand miles a year every year for the last twenty years, and uh.
+[00:40:55] Adam: Um, and it was. I miss. I miss like you. I miss travel. I, you know, I flew 100,000 miles a year every year for the last 20 years, and uh.
 
 [00:41:04] Mary Roach: yeah, no, I, I, there were years when I was on the road for like four months, w—reporting.
 
 [00:41:09] Adam: Oh my god!
 
-[00:41:10] Mary Roach: Back in the, um, well, not so much these days. I think it was back in my twenties and thirties when I had less of a home life to come back to. I think about the relationship I was in. It's like there is kind of a reason maybe I was always on the road. I am not quite so eager to get home, I guess. But, but, but, yeah, I, I, I miss it. It doesn't have to be exotic. I am not looking at. I mean, beaches and loveliness is great, but kind of boring compared for me to being in somebody's lab.
+[00:41:10] Mary Roach: Back in the, um, well, not so much these days. I think it was back in my 20s and 30s when I had less of a home life to come back to. I think about the relationship I was in. It's like there is kind of a reason maybe I was always on the road. I am not quite so eager to get home, I guess. But, but, but, yeah, I, I, I miss it. It doesn't have to be exotic. I am not looking at. I mean, beaches and loveliness is great, but kind of boring compared for me to being in somebody's lab.
 
 [00:41:44] Adam: Oh no, I remember you saying that one of your favorite things to do is to look out the window of a plane and go, " What is that? Oh my god, I want to go there!"
 

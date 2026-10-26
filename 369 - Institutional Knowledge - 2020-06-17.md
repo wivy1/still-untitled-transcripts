@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:01:16] Will: Are you okay?
 
-[00:01:17] Adam: I yeah, I'm okay. I I thought that I got it out, but the next morning the irritation was such that it was clear that I hadn't. So, even though I have, you know, even though I pay forty grand a year for my health insurance, and that's just the silver plan, I can't get an appointment with my GP in less than like ten days, right? Like that's just what it takes. So I also have a membership with One Medical, which is like the accelerated, the extra add-on that accelerates it. One Medical got me in within an hour. And then referred me to an ophthalmologist just within two hours.
+[00:01:17] Adam: I yeah, I'm okay. I I thought that I got it out, but the next morning the irritation was such that it was clear that I hadn't. So, even though I have, you know, even though I pay $40,000 a year for my health insurance, and that's just the silver plan, I can't get an appointment with my GP in less than like 10 days, right? Like that's just what it takes. So I also have a membership with One Medical, which is like the accelerated, the extra add-on that accelerates it. One Medical got me in within an hour. And then referred me to an ophthalmologist just within two hours.
 
 [00:02:01] Will: Wow!
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:07:26] Adam: but she also points out that if you really want to be safe, you should be wearing the goggles as well.
 
-[00:07:30] Will: A literal pair of five dollar goggles. There's a couple of reporters that got hit in the face. One of one in Minneapolis who is looks like she's going to lose her eye and has a mortgage worth of medical bills to pay. Ah. And like a pair of five dollar goggles would have protected her in that situation, which it doesn't help now, but. Yeah,
+[00:07:30] Will: A literal pair of $5 goggles. There's a couple of reporters that got hit in the face. One of one in Minneapolis who is looks like she's going to lose her eye and has a mortgage worth of medical bills to pay. Ah. And like a pair of $5 goggles would have protected her in that situation, which it doesn't help now, but. Yeah,
 
 [00:07:47] Norm: We were doing, um, a shoot with a blacksmith, um, a couple months ago before the lockdown, which will come out after lockdown. And one of the guys there was wearing these, which apparently are very popular. If you're, they are they are goggles that look like my glasses, but they have
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:36:15] Adam: Right. My my my son Thing Two watched * The Shining* the other night with some friends who no he had seen it but his friends hadn't. And the thing that I have you watched * The Shining* recently?
 
-[00:36:26] Will: It's been ten years, probably.
+[00:36:26] Will: It's been 10 years, probably.
 
 [00:36:28] Adam: Okay. The thing about * The Shining* is that in your head, I'll bet that I bet in your head you feel like * The Shining* is a little bit slow at the beginning, but then it picks up. And the answer is, * The Shining* starts off at a gallop and never stops.
 

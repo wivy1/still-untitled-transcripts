@@ -14,7 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:00:08] Adam: I delayed a little bit long.
 
-[00:00:09] Will: I, I know. I was ready to do it, and I was like, "Wait, do I say the Adam Savage Project?" I should know this by now. We've done like thirty of these.
+[00:00:09] Will: I, I know. I was ready to do it, and I was like, "Wait, do I say the Adam Savage Project?" I should know this by now. We've done like 30 of these.
 
 [00:00:14] Adam: It's not just implied.
 
@@ -34,7 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:00:43] Adam: Is it really?
 
-[00:00:44] Will: It is a. Typically, last year we were like eighteen hours, twenty hours a day, either walking show floor, shooting after shows, covering night events, and then like video editing and podcasting and all that stuff. And then you would maybe sleep three or four hours. And Norm—
+[00:00:44] Will: It is a. Typically, last year we were like 18 hours, 20 hours a day, either walking show floor, shooting after shows, covering night events, and then like video editing and podcasting and all that stuff. And then you would maybe sleep three or four hours. And Norm—
 
 [00:01:01] Norm: Depends where you want to get out of it.
 
@@ -64,13 +64,13 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:01:43] Adam: Okay.
 
-[00:01:44] Norm: For journalists to report to the world, and there would be press conferences, and they would, you know, roll out, literally roll out, "Here is twenty-five different TVs."
+[00:01:44] Norm: For journalists to report to the world, and there would be press conferences, and they would, you know, roll out, literally roll out, "Here is 25 different TVs."
 
 [00:01:53] Will: Bryant Gumbel would be there.
 
 [00:01:55] Adam: So how many, how many products are, are premiered at CES, like this year? Is there a number? Does someone compile?
 
-[00:02:01] Norm: I don't think there is a number. Uh, the number is, they only released, were there are one hundred fifty thousand people there. At CES every day.
+[00:02:01] Norm: I don't think there is a number. Uh, the number is, they only released, were there are 150,000 people there. At CES every day.
 
 [00:02:07] Will: That's a little low.
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:03:04] Norm: Yeah.
 
-[00:03:04] Will: Panasonic all the way down to, like, some guy who had a weird idea and then developed a nano-coating for phones, and he has like a ten-foot-by-ten-foot booth, just like you'd have at Comic-Con.
+[00:03:04] Will: Panasonic all the way down to, like, some guy who had a weird idea and then developed a nano-coating for phones, and he has like a 10-foot-by-10-foot booth, just like you'd have at Comic-Con.
 
 [00:03:14] Adam: Which is costing him a half of his yearly budget.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:04:19] Unknown speaker: Okay.
 
-[00:04:19] Will: Multi-story. You know, Panasonic will have a wall of two hundred TVs. It's, I mean, it makes no sense because nobody's going to put two hundred TVs on their wall. It's crazy town. Um.
+[00:04:19] Will: Multi-story. You know, Panasonic will have a wall of 200 TVs. It's, I mean, it makes no sense because nobody's going to put 200 TVs on their wall. It's crazy town. Um.
 
 [00:04:31] Adam: Um, so I, I would assume that in this, in this vast mix of all these products, there are, there's categories of, there's things you know are going to be there that you want to see.
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:05:09] Will: Hey, Norm, was there a really big TV there?
 
-[00:05:11] Norm: There were really big TVs. Sony last year, they were first to market with a 4K TV. When we say 4K, it's four thousand lines of vertical resolution, I believe.
+[00:05:11] Norm: There were really big TVs. Sony last year, they were first to market with a 4K TV. When we say 4K, it's 4,000 lines of vertical resolution, I believe.
 
 [00:05:20] Will: No, no, no, horizontal resolution, right?
 
@@ -206,13 +206,13 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:05:39] Adam: How do they look?
 
-[00:05:39] Norm: Uh, they look gorgeous. They released one TV that was 84 inches late in November, I believe, and that was 25,000 dollars in stores. And this year there is—
+[00:05:39] Norm: Uh, they look gorgeous. They released one TV that was 84 inches late in November, I believe, and that was $25,000 in stores. And this year there is—
 
-[00:05:50] Adam: That's twenty-four and a half thousand dollars more than I want to pay for a TV.
+[00:05:50] Adam: That's $24,500 more than I want to pay for a TV.
 
 [00:05:53] Will: Exactly. That's, that's the right, that's the right response.
 
-[00:05:55] Norm: Yeah. And, and you know what? It's not worth 24,500 dollars more in terms of your enjoyment.
+[00:05:55] Norm: Yeah. And, and you know what? It's not worth $24,500 more in terms of your enjoyment.
 
 [00:06:01] Will: Well, because there is no content.
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:06:27] Adam: Because it makes everything look like a Lakers game.
 
-[00:06:29] Norm: Don't buy a new TV if you, if you bought a TV two years ago. What you can do? Pay a specialist a couple hundred dollars or maybe just a hundred bucks to tune your TV to the right settings and just have your movie presets and your live TV presets, and you will enjoy that experience, looks, that much—
+[00:06:29] Norm: Don't buy a new TV if you, if you bought a TV two years ago. What you can do? Pay a specialist a couple hundred dollars or maybe just $100 to tune your TV to the right settings and just have your movie presets and your live TV presets, and you will enjoy that experience, looks, that much—
 
 [00:06:47] Will: I have, infinitely better.
 
@@ -242,7 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:07:09] Will: You can.
 
-[00:07:10] Adam: I just bought the, a Samsung for my kids downstairs, for their downstairs, and it was. Brian Lam, Wirecutter, gave me the recommendation. I think it was less than 400 dollars for a forty-two-inch television, plasma. The blacks are gorgeous. That TV is magnificent.
+[00:07:10] Adam: I just bought the, a Samsung for my kids downstairs, for their downstairs, and it was. Brian Lam, Wirecutter, gave me the recommendation. I think it was less than $400 for a 42-inch television, plasma. The blacks are gorgeous. That TV is magnificent.
 
 [00:07:27] Will: Well, so the thing that's happened with TVs is the, the vendors got hooked on selling TVs every few years because, you know, we had to switch to HD and we had to switch to flat panels, and then, you know—
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:07:52] Adam: They were durable. They were a durable good.
 
-[00:07:53] Will: Yeah, you bought a new TV when the old one broke and it was two, more than 200 dollars to fix it, right?
+[00:07:53] Will: Yeah, you bought a new TV when the old one broke and it was two, more than $200 to fix it, right?
 
 [00:07:57] Adam: So, so, so how are the 4Ks though? Are they just 4K stunningly—
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:08:21] Unknown speaker: Right.
 
-[00:08:21] Norm: But I'll stand there for ten minutes in front of their demo.
+[00:08:21] Norm: But I'll stand there for 10 minutes in front of their demo.
 
 [00:08:23] Adam: Yeah.
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:09:18] Norm: LG does have a short throw.
 
-[00:09:19] Adam: I will tell you something. A friend of mine who installs theaters in millionaires' and billionaires' homes gave me this secret. He said, "You can go out and—" I'd use this on a job. He said, "You can go out and spend 4,000 bucks on a screen, or, or, how big is your screen to be?" I said, "It needs to be eight feet by twelve feet." He says, "Oh, six feet by, by ten feet." He goes, "Oh, great. Okay, go out and buy a double-wide, rubberized silver Lycra. They make it for costumes and stuff like that. You buy it at the fabric store."
+[00:09:19] Adam: I will tell you something. A friend of mine who installs theaters in millionaires' and billionaires' homes gave me this secret. He said, "You can go out and—" I'd use this on a job. He said, "You can go out and spend $4,000 on a screen, or, or, how big is your screen to be?" I said, "It needs to be 8 feet by 12 feet." He says, "Oh, 6 feet by, by 10 feet." He goes, "Oh, great. Okay, go out and buy a double-wide, rubberized silver Lycra. They make it for costumes and stuff like that. You buy it at the fabric store."
 
 [00:09:54] Will: Really?
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:10:10] Adam: You know? Yeah, you can buy the micro-balloons.
 
-[00:10:11] Will: Yeah, yeah, yeah. I mean, and then my other favorite dumb thing to project on is the glass that you put the special, the special, like, prismatic coating on the back of the glass, and then you shoot from behind at 45 degrees below or forty-five.
+[00:10:11] Will: Yeah, yeah, yeah. I mean, and then my other favorite dumb thing to project on is the glass that you put the special, the special, like, prismatic coating on the back of the glass, and then you shoot from behind at 45 degrees below or 45.
 
 [00:10:22] Adam: Oh, I haven't seen that.
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:11:12] Norm: We saw an 8K TV last year.
 
-[00:11:14] Will: So the 8K TV had sixteen HDMI cables hanging off the back of it.
+[00:11:14] Will: So the 8K TV had 16 HDMI cables hanging off the back of it.
 
 [00:11:18] Adam: And what do you shoot?
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:11:38] Adam: Yeah, of course, the best footage ever.
 
-[00:11:39] Will: And, and then the other thing that was great on that one was there was this video of, of, you've seen the guys that push the logs down the, down the mountain in Japan, and it's like a, it's like, it's like four hundred people probably standing around this enormous, huge, huge, huge tree trunk, like, like a, like a ten-foot-around tree trunk, and they're all—
+[00:11:39] Will: And, and then the other thing that was great on that one was there was this video of, of, you've seen the guys that push the logs down the, down the mountain in Japan, and it's like a, it's like, it's like 400 people probably standing around this enormous, huge, huge, huge tree trunk, like, like a, like a 10-foot-around tree trunk, and they're all—
 
 [00:11:57] Norm: They, pushing—
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:12:05] Adam: Yeah.
 
-[00:12:05] Norm: Straddles the tree trunk, a giant, maybe fifteen-foot diameter.
+[00:12:05] Norm: Straddles the tree trunk, a giant, maybe 15-foot diameter.
 
 [00:12:08] Adam: Oh, it's not rolling.
 
@@ -442,7 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:12:39] Norm: So much fun.
 
-[00:12:39] Will: It's the run of your life for the last glorious forty-five seconds.
+[00:12:39] Will: It's the run of your life for the last glorious 45 seconds.
 
 [00:12:42] Adam: Yeah, I guess so.
 
@@ -460,13 +460,13 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:13:06] Adam: Yeah. It's a pipeline.
 
-[00:13:07] Will: Yeah, because, because, like your thirty-two-gig SD card, it's gonna run out real fast.
+[00:13:07] Will: Yeah, because, because, like your 32-gig SD card, it's gonna run out real fast.
 
 [00:13:12] Adam: Yeah, yeah, yeah.
 
 [00:13:13] Will: Um, and even with the, with the new GoPros, Joey's found that the, that you have to have a pretty good SD card in order to record to that at 4K.
 
-[00:13:20] Adam: No, I was looking at my, my new Sony camera has a, uh, I got a FS700, and, uh, it's 3K compatible. I have to upgrade it to 3K with a firmware update, and then among the drives that you have to choose from that can take that signal, they can cost up to twenty grand.
+[00:13:20] Adam: No, I was looking at my, my new Sony camera has a, uh, I got a FS700, and, uh, it's 3K compatible. I have to upgrade it to 3K with a firmware update, and then among the drives that you have to choose from that can take that signal, they can cost up to $20,000.
 
 [00:13:35] Will: Oh yeah, yeah. Well, it's, it's like—
 
@@ -580,7 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:16:32] Adam: Yeah.
 
-[00:16:33] Will: Um, and instead of looking like one of those Sony headsets or any of the other goggles that you've seen over the last twenty years, you put it on, and he has optics that are between you and a, and a, and a screen, and the optics distort everything to fill your whole field of vision.
+[00:16:33] Will: Um, and instead of looking like one of those Sony headsets or any of the other goggles that you've seen over the last 20 years, you put it on, and he has optics that are between you and a, and a, and a screen, and the optics distort everything to fill your whole field of vision.
 
 [00:16:49] Adam: Okay.
 
@@ -600,7 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:17:03] Norm: Which you couldn't do when you're wearing a traditional headset, which looks like just an image in a box. But then it's also head tracking. So there are three sensors, gyros, accelerometers.
 
-[00:17:10] Adam: Right? That head tracking, which was so hard to do twenty years ago.
+[00:17:10] Adam: Right? That head tracking, which was so hard to do 20 years ago.
 
 [00:17:13] Norm: Yes, they've got the, the, the latency down to, basically, indistinguishable from when you're moving your head.
 
@@ -636,13 +636,13 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:18:11] Will: So, and they're taking advantage of a lot of the research that's happened in that stuff to build these in a more intelligent way, so you don't have like nausea effects and headaches and things like that.
 
-[00:18:20] Norm: And they're sampling so much data from your head movement, even though you're, you're, you're only getting sixty hertz of information in your eyes. That they're using predictive informations, so they can think ahead and, and show you images to where it thinks your head is moving.
+[00:18:20] Norm: And they're sampling so much data from your head movement, even though you're, you're, you're only getting 60 hertz of information in your eyes. That they're using predictive informations, so they can think ahead and, and show you images to where it thinks your head is moving.
 
 [00:18:33] Will: So, um.
 
 [00:18:34] Adam: So they were stunning. It was awesome.
 
-[00:18:36] Norm: It, it was one of those when you, when you, it was wow, like a wow demo. Like you sit down, you put it on, and you go, "Wow, I want this." And it was, it's 300 bucks, the dev kit, which is I think totally affordable.
+[00:18:36] Norm: It, it was one of those when you, when you, it was wow, like a wow demo. Like you sit down, you put it on, and you go, "Wow, I want this." And it was, it's $300, the dev kit, which is I think totally affordable.
 
 [00:18:46] Adam: Crazy.
 
@@ -652,7 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:18:58] Norm: Panel, seven—
 
-[00:18:59] Will: Twenty pixel, seven-twenty-p panel. So, like, don't, don't go out and buy this. Don't go out and buy the dev kit. There's nothing really to use it for.
+[00:18:59] Will: 20 pixel, 720p panel. So, like, don't, don't go out and buy this. Don't go out and buy the dev kit. There's nothing really to use it for.
 
 [00:19:05] Adam: Okay.
 
@@ -726,9 +726,9 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:21:36] Adam: And how, how, how expensive is it to do it?
 
-[00:21:38] Will: 59 dollars for a phone.
+[00:21:38] Will: $59 for a phone.
 
-[00:21:39] Norm: Sixty dollars. You can mail in your phone, but they're also gonna establish a retail presence.
+[00:21:39] Norm: $60. You can mail in your phone, but they're also gonna establish a retail presence.
 
 [00:21:43] Adam: Yeah, I can't mail in my phone.
 
@@ -770,9 +770,9 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:22:28] Unknown speaker: Yeah.
 
-[00:22:29] Adam: So you, so, so when you said you'd get out of it what you wanted, you were, you doing eighteen-hour days there?
+[00:22:29] Adam: So you, so, so when you said you'd get out of it what you wanted, you were, you doing 18-hour days there?
 
-[00:22:34] Norm: We were doing, I would say like twelve-hour days.
+[00:22:34] Norm: We were doing, I would say like 12-hour days.
 
 [00:22:37] Adam: All right, that's not so bad.
 
@@ -780,7 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:22:40] Will: Do we need to talk about work ethic, Chan?
 
-[00:22:42] Norm: Twelve- to sixteen-hour days, including travel.
+[00:22:42] Norm: 12- to 16-hour days, including travel.
 
 [00:22:42] Unknown speaker: Yeah.
 
@@ -788,7 +788,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:22:48] Unknown speaker: Right.
 
-[00:22:48] Will: It wasn't like last year. We turned out forty, forty-two videos during the week of CES.
+[00:22:48] Will: It wasn't like last year. We turned out 40, 42 videos during the week of CES.
 
 [00:22:52] Norm: We usually finished at midnight, and then, you know, hung out for an hour and then went to bed. Up until eight a.m.
 
@@ -810,9 +810,9 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:23:27] Norm: It, you could have fun at CES without, without being a, you know—
 
-[00:23:30] Adam: Yeah. I have to say I had, just so that we should explain, the TV-B-Gone is this little device you can buy. It costs like five bucks.
+[00:23:30] Adam: Yeah. I have to say I had, just so that we should explain, the TV-B-Gone is this little device you can buy. It costs like $5.
 
-[00:23:37] Will: It's five bucks, yeah.
+[00:23:37] Will: It's $5, yeah.
 
 [00:23:38] Adam: And it turns off every TV, turns on or off every TV in the world.
 
@@ -892,9 +892,9 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:26:18] Adam: Right, right, right. That's a big thing.
 
-[00:26:19] Will: It's like going to camp. I mean, at least for us. I mean, you go and you work all day, and then you go to the bar at the end of the day, and you see people that you see literally once a year. And I mean, that's that part of it's really nice. But I don't know, like I don't think we'll ever go to CES like we did two years ago and, and bring ten people and, and, um, try, try to get forty or fifty videos out of, out of the week there. I don't think it's worth the. I mean, it's a lot of. It's just not worth it.
+[00:26:19] Will: It's like going to camp. I mean, at least for us. I mean, you go and you work all day, and then you go to the bar at the end of the day, and you see people that you see literally once a year. And I mean, that's that part of it's really nice. But I don't know, like I don't think we'll ever go to CES like we did two years ago and, and bring 10 people and, and, um, try, try to get 40 or 50 videos out of, out of the week there. I don't think it's worth the. I mean, it's a lot of. It's just not worth it.
 
-[00:26:42] Norm: And some people will do the full coverage thing. You know, they'll send sixty people this year, and because they want to be comprehensive—
+[00:26:42] Norm: And some people will do the full coverage thing. You know, they'll send 60 people this year, and because they want to be comprehensive—
 
 [00:26:49] Will: They're insane.
 
@@ -908,11 +908,11 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:26:55] Will: Yeah, it was The Verge.
 
-[00:26:56] Norm: Sixty people.
+[00:26:56] Norm: 60 people.
 
-[00:26:57] Will: Topolsky posted on Twitter, "We're bringing sixty people to Vegas this year," and everyone else in the world was like, "Really?"
+[00:26:57] Will: Topolsky posted on Twitter, "We're bringing 60 people to Vegas this year," and everyone else in the world was like, "Really?"
 
-[00:27:04] Norm: It's like thirty people, thirty hotel rooms, and, and sixty flights.
+[00:27:04] Norm: It's like 30 people, 30 hotel rooms, and, and 60 flights.
 
 [00:27:08] Unknown speaker: Yeah.
 

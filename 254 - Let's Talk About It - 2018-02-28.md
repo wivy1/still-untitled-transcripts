@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:01:00] Adam: but there isn't a place for everything. But we are constantly working towards that.
 
-[00:01:06] Will: I, you know what you should start doing here, and it's probably too late for this space. But if you ever move, you should you should take a picture maybe every Friday or the last day of every month, just the same way. Frame it, do a three hundred and sixty or something, and then like build a time lapse of that over. Interesting. Because the evolution of this space in the just seven six years that Norm and I have been coming here is astounding.
+[00:01:06] Will: I, you know what you should start doing here, and it's probably too late for this space. But if you ever move, you should you should take a picture maybe every Friday or the last day of every month, just the same way. Frame it, do a 360 or something, and then like build a time lapse of that over. Interesting. Because the evolution of this space in the just seven six years that Norm and I have been coming here is astounding.
 
 [00:01:30] Adam: That is a really good idea. I do have pictures of the space before I moved in when it was a marble cutting shop, and then I have pictures of the construction of the floor, and I do have some photos. I actually did a make magazine cover shoot just after I moved in.
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:08:34] Will: For me, the iconic is iconic. It’s that it's an icon of the film, like right, like it's it's a it's a thing from a thing that I saw in a theater, and wanted to have my own.
 
-[00:08:47] Adam: Look, Jim, I think that there's also something that's compelling to. It tends to be gendered, but it's not necessarily. But the the the action at a distance that a gun provides is like a magical power for human beings. Jim Jefferies, in his amazing like twenty minute stand up about stand up about American gun gun culture, and boy, you should go look at it because it's brilliant. He says, " Look, there's only one really good argument for guns, and it's boy, I really like guns." And he goes, " And that's a reasonable argument. I get it, and I get it. I totally get that." So I think it's twofold. I think it's multifold. I think there is the to me the Blade Runner blaster is my favorite weapon from a film because it feels so different and weird compared to what we normally have, yet it doesn't feel so fantastical like a ray gun from Lost in Space.
+[00:08:47] Adam: Look, Jim, I think that there's also something that's compelling to. It tends to be gendered, but it's not necessarily. But the the the action at a distance that a gun provides is like a magical power for human beings. Jim Jefferies, in his amazing like 20 minute stand up about stand up about American gun gun culture, and boy, you should go look at it because it's brilliant. He says, " Look, there's only one really good argument for guns, and it's boy, I really like guns." And he goes, " And that's a reasonable argument. I get it, and I get it. I totally get that." So I think it's twofold. I think it's multifold. I think there is the to me the Blade Runner blaster is my favorite weapon from a film because it feels so different and weird compared to what we normally have, yet it doesn't feel so fantastical like a ray gun from Lost in Space.
 
 [00:09:46] Norm: With an aesthetic appreciation,
 
@@ -182,11 +182,11 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:11:23] Norm: We just had earthquake ones.
 
-[00:11:24] Will: We didn't have. We just had fire. We had fires and tornadoes where I grew up, and and like the thought of what that does to your psyche when you when you start out at five years old and they're telling you to all sit in the closet and be really quiet and have a good time, versus when these kids are eighteen years old and they realize why they were fifteen years old and they realize why they've been hiding in closets their entire life. Like I understand why they're angry. That like I would be angry. I I'm angry knowing about it now and that I didn't know about it before. Um, and and like I grew up with guns. I grew up in the south. I I got a . 410 when I turned ten years old, probably. And you know, grew up shooting skeet every weekend and shooting rifles when we went to the range and all that. And guns are fun. It's fun, fun to go out and it's a it is a skill that you can get proficient at. It's very satisfying, and you know they're they're fun tools. I went to the desert with a friend of mine one time in Arizona, and we shot assault rifles, and I was shocked. Yeah, I'd never I'd never been exposed. I'd been exposed to semi-automatic shotguns, which is a little different because you get like five rounds, but a semi-automatic assault rifle with with a twenty-round clip magazine. Sorry, sorry, gun people. Um, like, there's the reason you have that is because you like to collect guns, not because you need need it for hunting. You don't you don't need to be able to shoot twenty rounds, reload in three seconds, and shoot another twenty rounds
+[00:11:24] Will: We didn't have. We just had fire. We had fires and tornadoes where I grew up, and and like the thought of what that does to your psyche when you when you start out at five years old and they're telling you to all sit in the closet and be really quiet and have a good time, versus when these kids are 18 years old and they realize why they were 15 years old and they realize why they've been hiding in closets their entire life. Like I understand why they're angry. That like I would be angry. I I'm angry knowing about it now and that I didn't know about it before. Um, and and like I grew up with guns. I grew up in the south. I I got a . 410 when I turned 10 years old, probably. And you know, grew up shooting skeet every weekend and shooting rifles when we went to the range and all that. And guns are fun. It's fun, fun to go out and it's a it is a skill that you can get proficient at. It's very satisfying, and you know they're they're fun tools. I went to the desert with a friend of mine one time in Arizona, and we shot assault rifles, and I was shocked. Yeah, I'd never I'd never been exposed. I'd been exposed to semi-automatic shotguns, which is a little different because you get like five rounds, but a semi-automatic assault rifle with with a 20-round clip magazine. Sorry, sorry, gun people. Um, like, there's the reason you have that is because you like to collect guns, not because you need need it for hunting. You don't you don't need to be able to shoot 20 rounds, reload in three seconds, and shoot another 20 rounds
 
 [00:12:42] Adam: when you're going after a deer.
 
-[00:12:43] Will: Yeah, if you if you need if you need forty rounds to kill a deer, you're probably you probably shouldn't be hunting.
+[00:12:43] Will: Yeah, if you if you need if you need 40 rounds to kill a deer, you're probably you probably shouldn't be hunting.
 
 [00:12:49] Norm: That's counteractive to the the the skill required.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:19:07] Will: Like in the movies that she’s watched.
 
-[00:19:12] Adam: I'm not against people smoking on screen. I just think. I I like the the reversion back to less smoking in movies that has happened over the last twenty.
+[00:19:12] Adam: I'm not against people smoking on screen. I just think. I I like the the reversion back to less smoking in movies that has happened over the last 20.
 
 [00:19:12] Adam: Years.
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:20:35] Norm: Awfully thoughtful.
 
-[00:20:36] Adam: Look, this is a guy who every time he comes up on Reddit, someone is like, " Yeah, I wrote him a letter when I was eight, and when I was twelve, I got a response because he handwri- wrote a response to every-."
+[00:20:36] Adam: Look, this is a guy who every time he comes up on Reddit, someone is like, " Yeah, I wrote him a letter when I was eight, and when I was 12, I got a response because he handwri- wrote a response to every-."
 
 [00:20:36] Unknown speaker: Oh yeah.
 
@@ -340,7 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:20:50] Will: Look, we can talk about Mr. Rogers as much as you want. I'm fine with that.
 
-[00:20:53] Norm: Well, the documentary is directed by a guy named Morgan Neville. And he directed the, I believe, Oscar-winning documentary " Twenty Feet from Stardom" about backup singers.
+[00:20:53] Norm: Well, the documentary is directed by a guy named Morgan Neville. And he directed the, I believe, Oscar-winning documentary " 20 Feet from Stardom" about backup singers.
 
 [00:20:53] Adam: Amazing.
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:28:28] Norm: Yeah.
 
-[00:28:28] Will: And Yelp looked good. Like it was like five thousand positive reviews, four and a half stars. We were like, yes.
+[00:28:28] Will: And Yelp looked good. Like it was like 5,000 positive reviews, four and a half stars. We were like, yes.
 
 [00:28:43] Norm: And so it was like a 20 minute drive.
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:31:46] Adam: that show religiously.
 
-[00:31:47] Will: I mean, just just the the moment when Marco Rubio stood up and said, " Look, it's really difficult to to identify assault rifles." There are two, three thousand on the market, and we, you know, blah blah blah blah blah, and
+[00:31:47] Will: I mean, just just the the moment when Marco Rubio stood up and said, " Look, it's really difficult to to identify assault rifles." There are 2,000, 3,000 on the market, and we, you know, blah blah blah blah blah, and
 
 [00:31:57] Adam: and the crowd went,
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:32:12] Adam: What there is nothing else you could do. Talk honestly to the bloody situation.
 
-[00:32:16] Will: Yeah, I mean the the thing to remember is that if if you, NRA is there's 330 million people in the United States right now. There's five million members of the NRA, and and we are voting as if 90 percent of people are walking around carrying guns every day. So, vote for people who maybe don't believe the same things as uh as who maybe believe the same things as you do. That's what I'm going to suggest. There you go. Midterms are coming up.
+[00:32:16] Will: Yeah, I mean the the thing to remember is that if if you, NRA is there's 330 million people in the United States right now. There's 5 million members of the NRA, and and we are voting as if 90 percent of people are walking around carrying guns every day. So, vote for people who maybe don't believe the same things as uh as who maybe believe the same things as you do. That's what I'm going to suggest. There you go. Midterms are coming up.
 
 [00:32:40] Adam: There we go. That's as political as we've ever gotten on the podcast, and if that made you upset, I am sorry, but I'm we're also interested in the debate.
 

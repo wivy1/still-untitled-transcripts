@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:02:05] Will: We we It's unavoidable. Like the kids are all locked up inside all the time. Yeah, my
 
-[00:02:11] Adam: dogs are walking about ten minutes a day. Yeah, three, three minute increments.
+[00:02:11] Adam: dogs are walking about 10 minutes a day. Yeah, three, three minute increments.
 
 [00:02:15] Kayte: Everybody on the streets wearing masks.
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:08:07] Adam: or unofficial?
 
-[00:08:09] Will: We charged people. There was there were cash transactions. We did have an occasional person try to drive up and steal a tree late at night. We usually just gave it to him because you know if you're Desperate enough to steal a Christmas tree, probably you could use the ten dollars Christmas tree. But it was interesting living on a farm that people came to to like to harvest something,
+[00:08:09] Will: We charged people. There was there were cash transactions. We did have an occasional person try to drive up and steal a tree late at night. We usually just gave it to him because you know if you're Desperate enough to steal a Christmas tree, probably you could use the $10 Christmas tree. But it was interesting living on a farm that people came to to like to harvest something,
 
 [00:08:09] Adam: right?
 
@@ -220,7 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:08:48] Adam: exactly.
 
-[00:08:50] Will: Yeah, we we weren't allowed to use chainsaws or anything because I was like twelve.
+[00:08:50] Will: Yeah, we we weren't allowed to use chainsaws or anything because I was like 12.
 
 [00:08:50] Unknown speaker (Will or Kayte): Right.
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:09:16] Unknown speaker (Adam then Kayte then Will or Will): [unclear: Oh, man! Oh, man / Oh, man].
 
-[00:09:17] Will: Have you ever watched those guys work in practice? Like we had a we had an eighty foot Monterey cypress in the backyard that had to be cut down about ten years ago.
+[00:09:17] Will: Have you ever watched those guys work in practice? Like we had a we had an 80 foot Monterey cypress in the backyard that had to be cut down about 10 years ago.
 
 [00:09:25] Adam: Genuine tree work. Watching it being done by professionals is an unalloyed pleasure, and it's like going to the freaking circus. Yeah,
 
@@ -248,15 +248,15 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:09:32] Unknown speaker (Will or Adam): Yeah.
 
-[00:09:32] Will: Because like, like when the when the guy who came out to assess the tree at first, who was like the main the lead contractor on the on the job, um, came, he was like this eighty year old guy, and he looked at the tree. He's like, " Well, this one's got to come down, so I can use my spikes." And he was excited, right? So he usually doesn't get to use the the boot spikes because they're bad.
+[00:09:32] Will: Because like, like when the when the guy who came out to assess the tree at first, who was like the main the lead contractor on the on the job, um, came, he was like this 80 year old guy, and he looked at the tree. He's like, " Well, this one's got to come down, so I can use my spikes." And he was excited, right? So he usually doesn't get to use the the boot spikes because they're bad.
 
 [00:09:55] Adam: He put on a full ninja costume.
 
-[00:09:57] Will: Yeah. And dude, he was sixty feet up in that tree before you blinked. Like I went inside to get a flashlight because it was at nine o'clock at night, and he was like, " I'll be right back," and he's just up the tree, boom, like nothing. Wow. Um. And this was a it was a fourteen foot diameter stump when when it came down, and it had cracked at the base. So it was there was nothing we could do to save the tree, but they took it down in like three days, and it was it's on a property line there where it could hit four or five houses if it had fallen
+[00:09:57] Will: Yeah. And dude, he was 60 feet up in that tree before you blinked. Like I went inside to get a flashlight because it was at nine o'clock at night, and he was like, " I'll be right back," and he's just up the tree, boom, like nothing. Wow. Um. And this was a it was a 14 foot diameter stump when when it came down, and it had cracked at the base. So it was there was nothing we could do to save the tree, but they took it down in like three days, and it was it's on a property line there where it could hit four or five houses if it had fallen
 
 [00:09:57] Unknown speaker (Will or Adam): right,
 
-[00:09:57] Will: and they took it down in just ten ten foot segments, and they you know tie it off on the bottom and the top, and then cut it, and it would swing, and then they lower it down,
+[00:09:57] Will: and they took it down in just 10 10 foot segments, and they you know tie it off on the bottom and the top, and then cut it, and it would swing, and then they lower it down,
 
 [00:10:35] Adam: and all of that knowledge that they have, I mean the the thing about what I was talking about YouTube videos of tree surgery gone wrong is because it's a really complex engineering feat with things that don't behave the way you think they're going to behave that they can get caught up on stuff, and so watching real professionals do it is such a so there's a video that just went viral a few days ago of some guys who were like they'd cut a branch and as it swung off the tree they're letting it out so it literally swings over to a truck where they boop drop it in the back of the flatbed
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:11:07] Adam: yeah
 
-[00:11:07] Will: yeah these these guys one of the things that they have that I'd never seen before Is a giant belt that goes around the base of the tree. It's like it's like a nylon webbing that was like a foot foot wide, and then it has maybe an eighteen inch diameter. But looks like a like a tire, a wheel hub on a car that they wrap around, and they use that as the brake on the belay, so that one guy can lower 400 pounds of log without having to use like a block and tackle or something off just a single pulley. And like it's it's amazing, like it's it's so much like. And they don't go to arborist school for this. Like these guys go on, and the guy who's the eighty year old was like, " Yeah, I apprenticed when I was fourteen years old, and I worked for the city for a long time, and I've I've just been cutting down big trees in Northern California my entire life. It's what I do. Wow, very cool.
+[00:11:07] Will: yeah these these guys one of the things that they have that I'd never seen before Is a giant belt that goes around the base of the tree. It's like it's like a nylon webbing that was like a foot foot wide, and then it has maybe an 18 inch diameter. But looks like a like a tire, a wheel hub on a car that they wrap around, and they use that as the brake on the belay, so that one guy can lower 400 pounds of log without having to use like a block and tackle or something off just a single pulley. And like it's it's amazing, like it's it's so much like. And they don't go to arborist school for this. Like these guys go on, and the guy who's the 80 year old was like, " Yeah, I apprenticed when I was 14 years old, and I worked for the city for a long time, and I've I've just been cutting down big trees in Northern California my entire life. It's what I do. Wow, very cool.
 
 [00:11:57] Adam: Yeah, I I love I love watching specialized crafts people like that
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:12:08] Kayte: had I recently had a few trees cut down that are actually quite large, and I asked the tree service to leave the logs. Because I desperately want to make things out of them and have it be part of my house or furniture or outside, something like that. And now I've been falling into these YouTube holes of like, okay, what if I try to somewhat mill it to start with? Because I am having a hard time actually finding mills that will come get it, transport it, work with it. And I, I do find that I am just mesmerized. Like it's the you know crappiest quality videos and like cheesy music on top of it because it's just some guy who did it and his wife like uploaded it.
 
-[00:12:46] Adam: Oh yeah, people with their like they've bolted a chainsaw onto some arrangement of old farm equipment they had and they're like pulling logs through it. Yep. Speaking of which, you know, I really could use a like eighteen-inch diameter, three-foot-high stump in the shop.
+[00:12:46] Adam: Oh yeah, people with their like they've bolted a chainsaw onto some arrangement of old farm equipment they had and they're like pulling logs through it. Yep. Speaking of which, you know, I really could use a like 18-inch diameter, three-foot-high stump in the shop.
 
 [00:13:03] Kayte: I am your guy.
 
@@ -328,15 +328,15 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:14:22] Adam: Um, I uh, I am starting on the next show I'm working on for the Science Channel,
 
-[00:14:28] Will: MythBusters Seniors. Twenty five old people.
+[00:14:28] Will: MythBusters Seniors. 25 old people.
 
-[00:14:32] Adam: Look, it's I, you know, I won't lie. It's definitely got some some some of that DNA in it because it's me. Um, but literally just this week we've started official pre production on it, and um, you know, MythBusters Junior is going to air starting January 2. Uh, ten episodes. I couldn't be prouder of them. I cannot wait to see the world receive these six new MythBusters and embrace them into their hearts. They
+[00:14:32] Adam: Look, it's I, you know, I won't lie. It's definitely got some some some of that DNA in it because it's me. Um, but literally just this week we've started official pre production on it, and um, you know, MythBusters Junior is going to air starting January 2. Uh, 10 episodes. I couldn't be prouder of them. I cannot wait to see the world receive these six new MythBusters and embrace them into their hearts. They
 
 [00:14:55] Kayte: are a delight. I've I've met them a few times, and I've you know been chatting, and we keep up on social media with a few of the kids, and I just love them. And what's funny is that I feel bad referring to them as the kids too, because for so much of it, like I have so much to learn from them. Like they are all so capable.
 
 [00:15:12] Adam: I worked really hard on set to not say kids as much as possible, just to say MythBusters colleagues, friends, these fellow scientists.
 
-[00:15:19] Kayte: Right, but it's funny to step back and be like. Oh right, they're fourteen. Yes, I can't even believe. Like, I'm not sure what I was doing at fourteen, but it definitely wasn't as advanced as what they’re doing.
+[00:15:19] Kayte: Right, but it's funny to step back and be like. Oh right, they're 14. Yes, I can't even believe. Like, I'm not sure what I was doing at 14, but it definitely wasn't as advanced as what they’re doing.
 
 [00:15:31] Adam: No, not at all. So that's been really fun. The show involves a lot of collaboration between me and some wonderful folks, and we're just reaching out on those collaborations, and we're receiving pretty much unalloyed cooperation and excitement from people I want to play with. So that's really exciting. More more details about this show will be coming very soon, but for right now, we've we've just started rolling up our sleeves.
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:17:18] Will: get two TVs.
 
-[00:17:19] Adam: Well, so with with our boys, thing one and thing two, they did that for years. They they they got up on Saturday mornings and watched TV, and that was great. My wife and I slept in, and then around about my fortieth birthday, I guess they're I can't quite remember. Do all the math in my head about how old they are. I think they're about just under eight years old. I bought myself a brand new Sony Bravia forty inch television, which at that point was like the biggest LCD TV you could get, and it was beautiful. And it was my fortieth birthday present to myself. And I probably told this story on the podcast before years ago, but I'm woken up at six in the morning on my birthday, and it's thing one. And he said, my brother and I were playing with lightsabers, and we accidentally smacked a TV.
+[00:17:19] Adam: Well, so with with our boys, thing one and thing two, they did that for years. They they they got up on Saturday mornings and watched TV, and that was great. My wife and I slept in, and then around about my 40th birthday, I guess they're I can't quite remember. Do all the math in my head about how old they are. I think they're about just under eight years old. I bought myself a brand new Sony Bravia 40 inch television, which at that point was like the biggest LCD TV you could get, and it was beautiful. And it was my 40th birthday present to myself. And I probably told this story on the podcast before years ago, but I'm woken up at six in the morning on my birthday, and it's thing one. And he said, my brother and I were playing with lightsabers, and we accidentally smacked a TV.
 
 [00:18:11] Kayte: Oh no!
 
@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:19:48] Adam: Absolutely.
 
-[00:19:48] Will: But every once in a while, you'd be like, you know, you should get these cables. They're gold plated and they're going to carry the bits better. And it's a digital cable. And you're like, probably not. You don't need to spend sixty dollars on that. That's a three dollar cable, buddy. And I used to tell people, I used to like, like not not a confrontation, but just be like, hey, you know, that cable doesn't. You can buy the cheapest one that they have, or just go to the internet and buy an even cheaper one. You'll be fine. And the sales guy caught me doing it one time, and he was a viewer. He had seen tested videos. This was, I think, before we were even involved with you.
+[00:19:48] Will: But every once in a while, you'd be like, you know, you should get these cables. They're gold plated and they're going to carry the bits better. And it's a digital cable. And you're like, probably not. You don't need to spend $60 on that. That's a $3 cable, buddy. And I used to tell people, I used to like, like not not a confrontation, but just be like, hey, you know, that cable doesn't. You can buy the cheapest one that they have, or just go to the internet and buy an even cheaper one. You'll be fine. And the sales guy caught me doing it one time, and he was a viewer. He had seen tested videos. This was, I think, before we were even involved with you.
 
 [00:19:48] Adam: Yeah.
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:25:38] Adam: so amazing.
 
-[00:25:39] Will: The the new the American Ninja Warrior the adult version is very very good. This they take three age ranges starting at like nine and going up to fifteen or sixteen, I think, and they kind of bracket them out in in groups, and then they do head to head races against each other, and they each get like two passes through the course, so nobody's single eliminated. It's really really good. They do a good job telling the kids stories, but there's also a lot of like there's a lot of actual time on the obstacle course, which is kind of my one complaint about American Ninja Warrior
+[00:25:39] Will: The the new the American Ninja Warrior the adult version is very very good. This they take three age ranges starting at like 9 and going up to 15 or 16, I think, and they kind of bracket them out in in groups, and then they do head to head races against each other, and they each get like two passes through the course, so nobody's single eliminated. It's really really good. They do a good job telling the kids stories, but there's also a lot of like there's a lot of actual time on the obstacle course, which is kind of my one complaint about American Ninja Warrior
 
 [00:25:39] Adam: Right.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:25:39] Adam: Wow,
 
-[00:25:39] Will: and you know, like they don't chain twelve of them together,
+[00:25:39] Will: and you know, like they don't chain 12 of them together,
 
 [00:25:39] Adam: right?
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:28:27] Unknown speaker (Will or Kayte): Yeah.
 
-[00:28:27] Will: Of course. It's it's fun, like the thing that I like about that show is it's relentlessly, like it's it's so positive. They don't do the thing where they try to keep people up for thirty six hours,
+[00:28:27] Will: Of course. It's it's fun, like the thing that I like about that show is it's relentlessly, like it's it's so positive. They don't do the thing where they try to keep people up for 36 hours,
 
 [00:28:27] Kayte: right, right,
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:28:48] Will: Top Chef,
 
-[00:28:48] Adam: Top Chef Masters, and how grueling that shoot really is, and how disconnected you end up getting from reality because it's like [unclear: sixteen solid days / sixteen hours, sixteen solid days] and incredibly long. And when you're done with all the cooking, it's like hours and hours of of videotaped interviews at the end of every day. It's just
+[00:28:48] Adam: Top Chef Masters, and how grueling that shoot really is, and how disconnected you end up getting from reality because it's like [unclear: 16 solid days / 16 hours, 16 solid days] and incredibly long. And when you're done with all the cooking, it's like hours and hours of of videotaped interviews at the end of every day. It's just
 
 [00:29:18] Will: well, they. Stick you in the room with infinite wine, hoping that people are going to get loaded and dish.
 

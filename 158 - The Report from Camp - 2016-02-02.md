@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:00:34] Adam: I'm doing pretty good. I've had half a cup of coffee, and I'm hoping to remedy that after this podcast.
 
-[00:00:39] Will: Sixteen ounces exactly, because it's empty.
+[00:00:39] Will: 16 ounces exactly, because it's empty.
 
 [00:00:42] Adam: Does it text you when you're done?
 
@@ -224,7 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:08:19] Norm: I'm like high imposter syndrome.
 
-[00:08:20] Will: Yeah, it's hard. Yeah, I mean, it's easy to fall into that. But you do that. There's an opening session. They do a disrupt, which is like a kind of like it's a presentation where you have five minutes. You have, I think, twenty slides or something like that, and the slides advance every five seconds, regardless of whether you press the button or not. You can't speed them up or slow them down. And people like tell funny talks. This was probably the best disrupt I've seen a bunch of these over the years because people do them here all the time.
+[00:08:20] Will: Yeah, it's hard. Yeah, I mean, it's easy to fall into that. But you do that. There's an opening session. They do a disrupt, which is like a kind of like it's a presentation where you have five minutes. You have, I think, 20 slides or something like that, and the slides advance every five seconds, regardless of whether you press the button or not. You can't speed them up or slow them down. And people like tell funny talks. This was probably the best disrupt I've seen a bunch of these over the years because people do them here all the time.
 
 [00:08:20] Adam: Oh, okay.
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:08:53] Adam: Right. Right. Right.
 
-[00:08:53] Will: And they did. Twelve of those, I guess, and they were twelve. Like it, widely ranged from really personal stuff and and stuff about health and and you know social social reform and stuff like that to you know a funny story that the guy who made exploding kittens told about the card game. Yeah, about
+[00:08:53] Will: And they did. 12 of those, I guess, and they were 12. Like it, widely ranged from really personal stuff and and stuff about health and and you know social social reform and stuff like that to you know a funny story that the guy who made exploding kittens told about the card game. Yeah, about
 
 [00:09:22] Adam: actually exploding kittens.
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:09:23] Norm: Yeah.
 
-[00:09:23] Will: Said, " Here's here are twenty things that you can do that are safe and fun and illustrate interesting scientific principles using liquid nitrogen. Like like here's how to make liquid oxygen because it oxygen freezes out of the air
+[00:09:23] Will: Said, " Here's here are 20 things that you can do that are safe and fun and illustrate interesting scientific principles using liquid nitrogen. Like like here's how to make liquid oxygen because it oxygen freezes out of the air
 
 [00:09:23] Norm: Right, right.
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:12:26] Adam: looking for a specific space in the gallop to fire.
 
-[00:12:29] Will: Well, no, it's not even that. It's it's a it's a completely like normal archery. You you take your shot and you line up. You take a really long time and you line up the shot and you get it exactly right. And with horseback archery, it's much more about just kind of developing the instincts to fire quickly because, like, if you are riding at a canter or a gallop and your target, like, it's a it's a competitive sport. You ride down a straight line for the most part, and there is targets on either side, and you have twelve shots and you have ten targets or something like that. You want to hit the targets, but if but like the normal thing where you pull back and hold just doesn't work.
+[00:12:29] Will: Well, no, it's not even that. It's it's a it's a completely like normal archery. You you take your shot and you line up. You take a really long time and you line up the shot and you get it exactly right. And with horseback archery, it's much more about just kind of developing the instincts to fire quickly because, like, if you are riding at a canter or a gallop and your target, like, it's a it's a competitive sport. You ride down a straight line for the most part, and there is targets on either side, and you have 12 shots and you have 10 targets or something like that. You want to hit the targets, but if but like the normal thing where you pull back and hold just doesn't work.
 
 [00:12:29] Adam: Right,
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:17:17] Norm: Post apocalypse. Any other details?
 
-[00:17:20] Will: Um, so the it um it it's a very personal story told in a in a in a on both the immediate pre and immediate post apocalypse, and then it jumps fifteen years in the future and kind of intercuts between the past and the and the future, um in a way that gives you it's it's it's a really like I said it's it's in the same like Pat Pat Rothfuss for the name of the wind in those books has this framework story that is a great construction for um giving not to avoid the omnipotent narrator problem right um and this is the same situation you I really had no idea where the book was going. It connected in a what is an incredibly implausible way in a way that I felt was very believable and quite good. And I finished the Three Body Problem, which I think we talked a little bit about a few weeks ago. And that book is outstanding.
+[00:17:20] Will: Um, so the it um it it's a very personal story told in a in a in a on both the immediate pre and immediate post apocalypse, and then it jumps 15 years in the future and kind of intercuts between the past and the and the future, um in a way that gives you it's it's it's a really like I said it's it's in the same like Pat Pat Rothfuss for the name of the wind in those books has this framework story that is a great construction for um giving not to avoid the omnipotent narrator problem right um and this is the same situation you I really had no idea where the book was going. It connected in a what is an incredibly implausible way in a way that I felt was very believable and quite good. And I finished the Three Body Problem, which I think we talked a little bit about a few weeks ago. And that book is outstanding.
 
 [00:18:11] Adam: All right, I'm definitely, I'm definitely going to grab that.
 

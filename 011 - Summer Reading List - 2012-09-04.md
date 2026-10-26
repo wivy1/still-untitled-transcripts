@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:08:05] Adam: I would start with Chandler. There's only seven Chandler books. Like I said, I read the Little Sister this weekend. I'm a fast reader, but you couldn't plow through all seven in about a month.
 
-[00:08:12] Will: I mean, they're pulp they're pulp books, so they couldn't have been. They're not thousand page tomes.
+[00:08:12] Will: I mean, they're pulp they're pulp books, so they couldn't have been. They're not 1,000 page tomes.
 
 [00:08:16] Adam: No, no, no, no, not at all. You could finish one of them in the time it would take you to finish a Harry Potter book, and you could finish all of them in the time it would take you to finish a Harry Potter book. I would recommend reading Chandler in order that he wrote them,
 
@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:09:22] Adam: He has some descriptions of Oakland and Berkeley that are shocking, just wonderful.
 
-[00:09:28] Will: I'm really looking forward to that as as a it's one of the first. It's not often that you get to read about the city that you live in while the book is current. Because, like, I, I read the William Gibson San Francisco books, you know, twenty years afterwards, before I moved here,
+[00:09:28] Will: I'm really looking forward to that as as a it's one of the first. It's not often that you get to read about the city that you live in while the book is current. Because, like, I, I read the William Gibson San Francisco books, you know, 20 years afterwards, before I moved here,
 
 [00:09:41] Adam: Yes.
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:12:11] Will: Fantastic.
 
-[00:12:11] Adam: And he writes verbal Tourette's tics into the narrative like they happen. You you are seeing them through the narrator's eyes. It's kind of amazing. So I finished that and I loved it. And then I immediately picked up Fortress of Solitude, the next book, and I got like fifty pages in and I'm like I can't deal with this. Now, seven months later, I picked it up again, and it's one of my favorite books. Like
+[00:12:11] Adam: And he writes verbal Tourette's tics into the narrative like they happen. You you are seeing them through the narrator's eyes. It's kind of amazing. So I finished that and I loved it. And then I immediately picked up Fortress of Solitude, the next book, and I got like 50 pages in and I'm like I can't deal with this. Now, seven months later, I picked it up again, and it's one of my favorite books. Like
 
 [00:12:36] Will: Sometimes that happens.
 

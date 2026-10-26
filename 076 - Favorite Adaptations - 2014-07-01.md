@@ -178,7 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:05:39] Adam: So I will say I've said this before that I think there are two kinds of people in the world: Hammett people and Chandler people. Dashiell Hammett, detective fiction writer, who basically reinvented the genre in the '30s, and Raymond Chandler, who took it and made it a mature and genuine literary form. I think that's my opinion. Your results may vary. Hammett has been adapted umpteen times, probably most famously the Maltese Falcon, which is if you've got an afternoon of five or six hours, you can read the entire book, the Maltese Falcon, in about two and a half, three hours,
 
-[00:06:16] Will: like one hundred and eighty pages, and
+[00:06:16] Will: like 180 pages, and
 
 [00:06:17] Adam: then watch the movie. And they are fantastic. They are such a pair. They are really just joined together and a beautiful sort of equation of a fantastic translation from one medium to another, where almost nothing's lost.
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:08:15] Norm: Lord of the Rings and Harry Potter's, and this is where the fan base and the people who they want to get to go on the first day, and are have a special connection to the material. It happens, you know, with Twilight and all that stuff. It's. I'm not a screenwriter, and I knew I wasn't a screenwriter because I can read a book and I can, and everyone has read a book and imagine how it would be on screen, and you and you think you're a director. I know exactly how this seemed to play out. But when you watch a movie, and you see how they twist the words around, and how they shorten scenes, or how does the craft,
 
-[00:08:47] Will: the cuts, the cuts are the heart. Like if you look at what came out of those Harry Potter books to make a movie that feels exactly like those Harry Potter books made made me feel, you know. I the Harry Potter books were probably the first adaptation I read because I don't I wasn't I love the Lord of the Rings movies as movies I don't think they're particularly good adaptations of the things that I liked about the Lord of the Rings books when I was fifteen I also watched them when I was thirty
+[00:08:47] Will: the cuts, the cuts are the heart. Like if you look at what came out of those Harry Potter books to make a movie that feels exactly like those Harry Potter books made made me feel, you know. I the Harry Potter books were probably the first adaptation I read because I don't I wasn't I love the Lord of the Rings movies as movies I don't think they're particularly good adaptations of the things that I liked about the Lord of the Rings books when I was 15 I also watched them when I was 30
 
 [00:08:47] Norm: you wanted more songs
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:09:40] Will: Moore hates everything though that doesn't narrow
 
-[00:09:42] Norm: and that that's from the per that's from the perspective the direction was a fan yeah a fan adaptation a big budget 100,000,000 dollar fan adaptation
+[00:09:42] Norm: and that that's from the per that's from the perspective the direction was a fan yeah a fan adaptation a big budget $100 million fan adaptation
 
 [00:09:53] Will: well in a dramatically different ending
 
@@ -268,7 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:10:42] Norm: and to distance yourself.
 
-[00:11:03] Adam: What gets me excited about what's happening with television now, where even more than we have this golden age, seven seasons of The Sopranos and Breaking Bad, et cetera, but it's also these short-run seasons, like ten-episode runs of American Horror Story and True Detectives, where all of a sudden that is potentially the ultimate playing ground for an adaptation of a novel in a way that it really can breathe.
+[00:11:03] Adam: What gets me excited about what's happening with television now, where even more than we have this golden age, seven seasons of The Sopranos and Breaking Bad, et cetera, but it's also these short-run seasons, like 10-episode runs of American Horror Story and True Detectives, where all of a sudden that is potentially the ultimate playing ground for an adaptation of a novel in a way that it really can breathe.
 
 [00:11:27] Norm: Well, Fargo, and
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:13:55] Will: yeah,
 
-[00:13:55] Adam: I mean. From what I know of the directors that I know, and the process of movie making, I know you can do all the right things and end up with a terrible movie, and you can do all the wrong things and end up with an amazing movie. Francis Ford Coppola thought he was going to be fired every day on The Godfather, and he was under thirty. He was working under the most egregiously terrible conditions and made one of the greatest movies in cinema. Right? You never have any idea what when you put all the elements in and shake them, what you're going to come out with. So, you know, I feel like it's a it's there's always people going to be unhappy. There's all there are always going to be people unhappy with an adaptation because it didn't follow the source material, or took things in a different direction, or it didn't even con it didn't think that the main point that they liked was actually the point that the film.
+[00:13:55] Adam: I mean. From what I know of the directors that I know, and the process of movie making, I know you can do all the right things and end up with a terrible movie, and you can do all the wrong things and end up with an amazing movie. Francis Ford Coppola thought he was going to be fired every day on The Godfather, and he was under 30. He was working under the most egregiously terrible conditions and made one of the greatest movies in cinema. Right? You never have any idea what when you put all the elements in and shake them, what you're going to come out with. So, you know, I feel like it's a it's there's always people going to be unhappy. There's all there are always going to be people unhappy with an adaptation because it didn't follow the source material, or took things in a different direction, or it didn't even con it didn't think that the main point that they liked was actually the point that the film.
 
 [00:14:43] Norm: Reading is subjective.
 
@@ -326,25 +326,25 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:15:11] Norm: Yeah.
 
-[00:15:12] Adam: Which is this is Robert Altman's The Long Goodbye, which is the it's the Chandler. Chandler only wrote seven novels, and he didn't start till he was forty three. So he's a wonderful—
+[00:15:12] Adam: Which is this is Robert Altman's The Long Goodbye, which is the it's the Chandler. Chandler only wrote seven novels, and he didn't start till he was 43. So he's a wonderful—
 
 [00:15:21] Will: Still hope for all of us.
 
-[00:15:22] Adam: Still hope for all of us. Morgan Freeman's first movie when he was fifty.
+[00:15:22] Adam: Still hope for all of us. Morgan Freeman's first movie when he was 50.
 
 [00:15:26] Will: There you go.
 
 [00:15:27] Adam: But so the long goodbye. Sorry, the long goodbye is Chandler's last novel written. What's that?
 
-[00:15:34] Will: His first car commercial wasn't until he was sixty-two.
+[00:15:34] Will: His first car commercial wasn't until he was 62.
 
-[00:15:36] Norm: Morgan Freeman's first movie when he was fifty.
+[00:15:36] Norm: Morgan Freeman's first movie when he was 50.
 
-[00:15:38] Adam: Yeah, his first big breakthrough movie, which was Street Smart with Christopher Reeve. Morgan Freeman was fifty years old.
+[00:15:38] Adam: Yeah, his first big breakthrough movie, which was Street Smart with Christopher Reeve. Morgan Freeman was 50 years old.
 
 [00:15:44] Norm: No, how old was he in like Robin Hood?
 
-[00:15:46] Will: Oh, oh, he was much older, over sixty. Yeah.
+[00:15:46] Will: Oh, oh, he was much older, over 60. Yeah.
 
 [00:15:49] Norm: Okay,
 
@@ -472,9 +472,9 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:21:05] Norm: I mean, we're talking about good cinematic remakes, but Italian job, I think, is the most.
 
-[00:21:10] Will: No, Gone in sixty seconds, man.
+[00:21:10] Will: No, Gone in 60 seconds, man.
 
-[00:21:12] Will: Gone in sixty seconds is a
+[00:21:12] Will: Gone in 60 seconds is a
 
 [00:21:13] Will: terrible movie.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:22:11] Will: Wow!
 
-[00:22:11] Adam: Right, he starts to characterize multiple personality types who are showing up to help, and this leads to an unbelievable impression of a coked-up dolphin, which is amazing. And then there comes this point where, after it's been going on for like twenty-five minutes, because they haven't called him back on set, that you realize that your boss is waiting for you back in the shop, and that actually you might get in trouble. And you find yourself saying something that you never imagined in your whole life you would say. And I'm literally talking about myself in the second person.
+[00:22:11] Adam: Right, he starts to characterize multiple personality types who are showing up to help, and this leads to an unbelievable impression of a coked-up dolphin, which is amazing. And then there comes this point where, after it's been going on for like 25 minutes, because they haven't called him back on set, that you realize that your boss is waiting for you back in the shop, and that actually you might get in trouble. And you find yourself saying something that you never imagined in your whole life you would say. And I'm literally talking about myself in the second person.
 
 [00:23:48] Will: Yeah.
 
@@ -674,7 +674,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:27:42] Will: Yeah,
 
-[00:27:42] Adam: and Elmore Leonard has written a million books that got made into great movies. Starting, I mean, you know, Fifty Two Pickup with Roy Scheider and Ann-Margret, and then Get Shorty and Be Cool, which is eh.
+[00:27:42] Adam: and Elmore Leonard has written a million books that got made into great movies. Starting, I mean, you know, 52 Pickup with Roy Scheider and Ann-Margret, and then Get Shorty and Be Cool, which is eh.
 
 [00:28:17] Will: But Get Shorty's great,
 

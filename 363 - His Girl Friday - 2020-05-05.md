@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:06:32] Norm: Let's do that.
 
-[00:06:33] Adam: Yeah. This is a Howard Hawks film, a classic and important Hollywood director, the inventor of that quick style of rapid fire speech with all sorts of like characters talking over each other. It's very funny. The the the Coen brothers famously. Paid great homage to it in the Hudsucker Proxy. Jennifer Jason Leigh saying it took sometimes twenty or thirty takes to talk as fast as she was talking in that movie. His Girl Friday is Rosalind Russell and Cary Grant at at their absolute best. It's a when is It's a Wonderful Life? Is that '38?
+[00:06:33] Adam: Yeah. This is a Howard Hawks film, a classic and important Hollywood director, the inventor of that quick style of rapid fire speech with all sorts of like characters talking over each other. It's very funny. The the the Coen brothers famously. Paid great homage to it in the Hudsucker Proxy. Jennifer Jason Leigh saying it took sometimes 20 or 30 takes to talk as fast as she was talking in that movie. His Girl Friday is Rosalind Russell and Cary Grant at at their absolute best. It's a when is It's a Wonderful Life? Is that '38?
 
 [00:07:13] Norm: Yeah, and this is '40.
 
@@ -104,11 +104,11 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:07:16] Adam: this is 1940. Do you know how old Cary Grant was when he made this?
 
-[00:07:19] Will: Looks like he was like twenty seven,
+[00:07:19] Will: Looks like he was like 27,
 
-[00:07:20] Adam: thirty six. He's thirty six.
+[00:07:20] Adam: 36. He's 36.
 
-[00:07:22] Will: Good God, he's almost forty years old in 1940, and he looks like that.
+[00:07:22] Will: Good God, he's almost 40 years old in 1940, and he looks like that.
 
 [00:07:27] Adam: Wow,
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:07:52] Norm: And and even though
 
-[00:07:54] Adam: That was like ten or twelve years ago,
+[00:07:54] Adam: That was like 10 or 12 years ago,
 
 [00:07:56] Norm: you know Cary Grant's probably the more famous of the actors here. It really is more of a Rosalind Russell movie.
 
@@ -128,9 +128,9 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:08:07] Adam: yeah,
 
-[00:08:07] Norm: we're gonna do like a whole spoiler discussion about it. But it's you know it's a it's a sixty year old film now, so there's not much to spoil. But if you haven't seen it, it is on the
+[00:08:07] Norm: we're gonna do like a whole spoiler discussion about it. But it's you know it's a it's a 60 year old film now, so there's not much to spoil. But if you haven't seen it, it is on the
 
-[00:08:15] Adam: Eighty-year-old film.
+[00:08:15] Adam: 80-year-old film.
 
 [00:08:16] Will: Yeah, Norm.
 
@@ -142,17 +142,17 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:08:25] Adam: forever. It's 2000 in my head is the lead single of Norm's boy band.
 
-[00:08:30] Will: That's that's that's a Stephen King thing. He says that we always picture ourselves. Our mental picture of ourselves is locked when we turn nineteen, and you always imagine yourself at nineteen from that point forward.
+[00:08:30] Will: That's that's that's a Stephen King thing. He says that we always picture ourselves. Our mental picture of ourselves is locked when we turn 19, and you always imagine yourself at 19 from that point forward.
 
 [00:08:40] Adam: Yeah,
 
 [00:08:40] Will: I think he's off by a few years, but you know,
 
-[00:08:42] Adam: no, I think everyone. I actually think that everyone has a different age that they lock off at. Mine was thirteen. I weirdly feel like I locked off around thirteen in terms of. A lot of the ways in which I think.
+[00:08:42] Adam: no, I think everyone. I actually think that everyone has a different age that they lock off at. Mine was 13. I weirdly feel like I locked off around 13 in terms of. A lot of the ways in which I think.
 
-[00:08:54] Norm: Okay. But eighty-year-old film.
+[00:08:54] Norm: Okay. But 80-year-old film.
 
-[00:08:56] Adam: Eighty-year-old movie.
+[00:08:56] Adam: 80-year-old movie.
 
 [00:08:57] Norm: Yeah. And um, we'll go deep in the the plot, but it's a screwball comedy, right? Like you said, it's fast-paced.
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:14:27] Unknown speaker: Omg.
 
-[00:14:29] Will: Yeah, it was. There, there were multiple surprising moments in terms. I mean, it's an eighty-year-old movie, so the the thing that cracked me up as I was watching this and I saw the opening the opening reel and it's like, hey, this is based on a play that's based on a movie. I was like, oh, so already by 1940, Hollywood was going back to the well multiple times on the same property just because they knew it worked before.
+[00:14:29] Will: Yeah, it was. There, there were multiple surprising moments in terms. I mean, it's an 80-year-old movie, so the the thing that cracked me up as I was watching this and I saw the opening the opening reel and it's like, hey, this is based on a play that's based on a movie. I was like, oh, so already by 1940, Hollywood was going back to the well multiple times on the same property just because they knew it worked before.
 
 [00:14:52] Adam: Oh, totally! Maltese Falcon was made three separate times.
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:15:58] Will: Okay.
 
-[00:15:59] Adam: As he's meeting the fiance and pretending he's mistaking the fiance for somebody else, he's doing all of these levels of stuff. They're both having like two conversations each, and then there's two other characters that are attempting to speak. And Cary, both Cary Grant and Rosalind Russell's complete mastery of every little beat. I've been watching Thirty Rock, and one of my favorite things about Thirty Rock is watching how well actors like Alec Baldwin hit every comedy note with just the perfect amount of inflection, like like Yo-Yo Ma. And watching Cary Grant and Rosalind Russell going back and forth, having these conversations at a speed which seems impossible. One of the things I was grateful for, Norm, was that you told me to turn on subtitles, and
+[00:15:59] Adam: As he's meeting the fiance and pretending he's mistaking the fiance for somebody else, he's doing all of these levels of stuff. They're both having like two conversations each, and then there's two other characters that are attempting to speak. And Cary, both Cary Grant and Rosalind Russell's complete mastery of every little beat. I've been watching 30 Rock, and one of my favorite things about 30 Rock is watching how well actors like Alec Baldwin hit every comedy note with just the perfect amount of inflection, like like Yo-Yo Ma. And watching Cary Grant and Rosalind Russell going back and forth, having these conversations at a speed which seems impossible. One of the things I was grateful for, Norm, was that you told me to turn on subtitles, and
 
 [00:16:46] Will: Yes.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:30:45] Unknown speaker (Adam or Karen): she's pretty.
 
-[00:30:46] Adam: There's, I think this all serves to talk about something that's kind of interesting, which is like we often think of black and white movies, movies from the '30s, '20s, '30s, '40s, '50s, as Quaint portions of our culture, right? With with easy plots and and simplistic and nothing could be further from the truth. There are some surpassing, obviously, there are some surpassingly beautiful films, dark films, crazy stuff. I remember being shocked at how moved I was watching Gilda. Right, right. Like I didn't know a black and white movie could make me feel that way when I first watched it. I was probably twenty or something like that. And there's just this within film history, this rich mine of real bizarre strangeness, and I had no idea what I was in for in watching this film.
+[00:30:46] Adam: There's, I think this all serves to talk about something that's kind of interesting, which is like we often think of black and white movies, movies from the '30s, '20s, '30s, '40s, '50s, as Quaint portions of our culture, right? With with easy plots and and simplistic and nothing could be further from the truth. There are some surpassing, obviously, there are some surpassingly beautiful films, dark films, crazy stuff. I remember being shocked at how moved I was watching Gilda. Right, right. Like I didn't know a black and white movie could make me feel that way when I first watched it. I was probably 20 or something like that. And there's just this within film history, this rich mine of real bizarre strangeness, and I had no idea what I was in for in watching this film.
 
 [00:31:43] Norm: And most of those are character studies. I mean, not a lot happens because the effects weren't there, and you can only have so many sets, and so it all had to be on the characterizations and the dialogue.
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:31:59] Will: newsroom,
 
-[00:32:01] Adam: and it all takes place inside of like eighteen hours.
+[00:32:01] Adam: and it all takes place inside of like 18 hours.
 
 [00:32:03] Norm: Yes, yeah, it's yeah, super, super fast.
 

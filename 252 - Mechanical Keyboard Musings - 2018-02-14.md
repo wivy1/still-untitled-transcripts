@@ -106,11 +106,11 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:04:01] Norm: Sometimes we just want more information. I just more information would be fine.
 
-[00:04:06] Will: I was thinking about this the other day as I was sitting looking at an order form, and I was like, " Man, they're charging me six dollars for two-day shipping. I don't like this company. I'm not going to buy this. I'm going to go buy it someplace else." And I thought back to like probably the first time I mail-ordered anything with like with my money was when I built my first computer when I was maybe a sophomore in college, right? And at that time, like there was no Amazon. Newegg wasn't a thing. You went to some. you went to some terrible website like with with with like frames.
+[00:04:06] Will: I was thinking about this the other day as I was sitting looking at an order form, and I was like, " Man, they're charging me $6 for two-day shipping. I don't like this company. I'm not going to buy this. I'm going to go buy it someplace else." And I thought back to like probably the first time I mail-ordered anything with like with my money was when I built my first computer when I was maybe a sophomore in college, right? And at that time, like there was no Amazon. Newegg wasn't a thing. You went to some. you went to some terrible website like with with with like frames.
 
 [00:04:32] Adam: Yeah.
 
-[00:04:32] Will: And from someplace in Kansas, and you put it in your credit card, and you're like, I don't know, this seems really risky. I don't know about this one. And then, like ten days later, the pieces would trickle in one piece at a time, and like just I’m, I was, I was thinking, I really don't get very many packages that I need that urgently, and now my fucking groceries come in the mail,
+[00:04:32] Will: And from someplace in Kansas, and you put it in your credit card, and you're like, I don't know, this seems really risky. I don't know about this one. And then, like 10 days later, the pieces would trickle in one piece at a time, and like just I’m, I was, I was thinking, I really don't get very many packages that I need that urgently, and now my fucking groceries come in the mail,
 
 [00:04:53] Unknown speaker: Yeah, yeah, yeah,
 
@@ -128,7 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:05:02] Norm: That's true. That's it too. Yeah, you don't have to put your own GPS tracker on your things for shipping.
 
-[00:05:07] Adam: Also, every now and then I go to. I just tried this on Amazon. You know how you order something ridiculous like a light bulb, and Amazon will go, " Would you like the three-year protection plan on this for another dollar seventy-five? " Could you do it? No, I'm always saying no, but of course because it comes up every single time, there's there's a certain error rate.
+[00:05:07] Adam: Also, every now and then I go to. I just tried this on Amazon. You know how you order something ridiculous like a light bulb, and Amazon will go, " Would you like the three-year protection plan on this for another $1.75? " Could you do it? No, I'm always saying no, but of course because it comes up every single time, there's there's a certain error rate.
 
 [00:05:24] Will: Yeah.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:07:01] Adam: Oh no, it's better than the one that was too thin. That the the its predecessor was actually even worse.
 
-[00:07:05] Will: The twelve inch MacBook.
+[00:07:05] Will: The 12 inch MacBook.
 
 [00:07:06] Adam: No, the same same MacBook. Just the last years.
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:16:28] Norm: It's also an example of an event when it's not hosted here locally, where they do not abide by our viewing schedules, and they have no reason to. And NBC, who does the has the rights to broadcast it here, everything has to be on delay to maximize their ratings here.
 
-[00:16:44] Adam: But not only that, they do things like during the opening ceremonies, where when America's entrance lasts seven and a half minutes, when NBC airs it ten hours later, it's twenty three minutes long.
+[00:16:44] Adam: But not only that, they do things like during the opening ceremonies, where when America's entrance lasts seven and a half minutes, when NBC airs it 10 hours later, it's 23 minutes long.
 
 [00:16:54] Norm: Right,
 
@@ -552,7 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:20:03] Unknown speaker: Yeah,
 
-[00:20:03] Will: it was like, look, Jason Bourne had a nightmare and he was in India, and then he woke up and he went to the bathroom. It was really clear that the hum from the fluorescent lights, which came through in the audio, was at sixty hertz instead of fifty, which is what it would be if you were in India.
+[00:20:03] Will: it was like, look, Jason Bourne had a nightmare and he was in India, and then he woke up and he went to the bathroom. It was really clear that the hum from the fluorescent lights, which came through in the audio, was at 60 hertz instead of 50, which is what it would be if you were in India.
 
 [00:20:03] Unknown speaker: Wow,
 
@@ -710,7 +710,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:24:39] Adam: Okay.
 
-[00:24:35] Will: If you haven't seen it yet, it's amazing. They had like two hundred and fifty or three hundred drones or some ridiculous number flying in formation with lights on in the night, and they made a bunch of different shapes. And it was it was astounding.
+[00:24:35] Will: If you haven't seen it yet, it's amazing. They had like 250 or 300 drones or some ridiculous number flying in formation with lights on in the night, and they made a bunch of different shapes. And it was it was astounding.
 
 [00:24:49] Adam: Amazing
 
@@ -774,7 +774,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:26:49] Adam: How much are these things?
 
-[00:26:51] Norm: 2,500 dollars, and it will fly and follow you or be in front of you and avoid trees and branches. And we could not get crash.
+[00:26:51] Norm: $2,500, and it will fly and follow you or be in front of you and avoid trees and branches. And we could not get crash.
 
 [00:26:59] Norm: Like playing hide and seek with the drone.
 
@@ -942,7 +942,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:32:17] Adam: yeah. I've spent the first half of the season wondering how they're going to get from here to where I know they're getting. And I spent the second season wondering how's I going to get a whole second season out of this?
 
-[00:32:25] Will: I mean, the first so like the first ten minutes of the first episode was like I don't know how this show lasts at all
+[00:32:25] Will: I mean, the first so like the first 10 minutes of the first episode was like I don't know how this show lasts at all
 
 [00:32:29] Adam: Right.
 

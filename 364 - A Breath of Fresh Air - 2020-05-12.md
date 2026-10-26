@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:00:19] Adam: Two.
 
-[00:00:20] Adam: I hit traffic this weekend for the first time in ten weeks.
+[00:00:20] Adam: I hit traffic this weekend for the first time in 10 weeks.
 
 [00:00:25] Will: I I drove the car this morning for the first time since March 6. I think.
 
@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:02:51] Will: It was really good.
 
-[00:02:53] Norm: Backlit with the sun. Yeah, you guys in the shadow. We'll put it in the link. Yeah, to your tweet in the description. But it's, I definitely because I've done a lot of takeout on on the regular, but notice they're feel like it feels like even looking out the window, more people going on runs, more people, and it's like fifty fifty. I think at least in San Francisco, people wearing masks at least in this neighborhood, and some not wearing masks.
+[00:02:53] Norm: Backlit with the sun. Yeah, you guys in the shadow. We'll put it in the link. Yeah, to your tweet in the description. But it's, I definitely because I've done a lot of takeout on on the regular, but notice they're feel like it feels like even looking out the window, more people going on runs, more people, and it's like 50-50. I think at least in San Francisco, people wearing masks at least in this neighborhood, and some not wearing masks.
 
 [00:03:18] Adam: We could like drives me. Everyone needs to wear masks. It's just making me. I go outdoors just to get annoyed at people,
 
@@ -100,7 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:07:41] Adam: It's a really good question. I mean, I'm reading about how there are places like Hong Kong that are dealing with this really, really well, even though they never did a lockdown. Because, and I'm not sure if I'm right that it's Hong Kong; it might be a different city, but they never did a full shelter-in-place, and yet they flattened the curve because everyone's wearing a mask.
 
-[00:08:03] Will: Well, but like, if you look at the places that were affected by SARS twenty years ago, they weathered this a lot better than we have because everybody's used to wearing masks, and like, masks are part of the culture. And
+[00:08:03] Will: Well, but like, if you look at the places that were affected by SARS 20 years ago, they weathered this a lot better than we have because everybody's used to wearing masks, and like, masks are part of the culture. And
 
 [00:08:14] Adam: and maybe that'll be a thing that you know. Once a whole bunch more people die, unfortunately, everyone will kind of come around to that. I think that's the worst way to learn that lesson. I mean, the biggest thing for me that made it really clear is you wear the mask so that you don't infect other people. That's the primary reason you wear it, not to protect. I mean, you also protect yourself. That’s a bonus, but you wear it to stop from spreading.
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:10:58] Norm: Well, One felt like the stepping stone to this by doing the die filer kit and also all the upgrades you've done since to your your your existing shop tools at that scale. Right then, this you—you felt like you could tackle that, and it's been it's been bigger than you. The scope is even bigger than you—what you set it out to be.
 
-[00:11:14] Adam: Well, there's this very specific thing that, um, I’ve talked about in the, uh, in the lathe chuck video, which we’ll—we’re cutting now and we’ll go up in a while. Um, in that, having a consciousness about things that weigh like five to twenty pounds and their concentricity within a few thousandths of an inch, which is actually of real concern when you're using these machines and and trying to get accurate. Um, I had a funny thing this morning, so I have a three jaw chuck, which was my main bread and butter chuck in the lathe, and I took it apart last week and put it back together and filmed the process and talked about it. Uh, and when I put it back together, I put the micrometer on it and I was getting run out of about eight thousandths on it, which is a lot. That's like three sheets of paper. And again, this is a big twenty pound chuck, but eight thousandths you can get better than that. Standard on these is about four thousandths, right? Like three to four is considered acceptable and like good enough for a three-jaw chuck. So this weekend, I thought about it, and I was like, " Oh, I'm going to remachine the adapter plate from the cam spindle lock to the lathe to the lathe chuck, and I'm going to make it adjustable, and I'm going to dial it all in." Because I had it, I—I managed through a bunch of trial and error and testing to get it to about four thou.
+[00:11:14] Adam: Well, there's this very specific thing that, um, I’ve talked about in the, uh, in the lathe chuck video, which we’ll—we’re cutting now and we’ll go up in a while. Um, in that, having a consciousness about things that weigh like 5 to 20 pounds and their concentricity within a few thousandths of an inch, which is actually of real concern when you're using these machines and and trying to get accurate. Um, I had a funny thing this morning, so I have a three jaw chuck, which was my main bread and butter chuck in the lathe, and I took it apart last week and put it back together and filmed the process and talked about it. Uh, and when I put it back together, I put the micrometer on it and I was getting run out of about eight thousandths on it, which is a lot. That's like three sheets of paper. And again, this is a big 20 pound chuck, but eight thousandths you can get better than that. Standard on these is about four thousandths, right? Like three to four is considered acceptable and like good enough for a three-jaw chuck. So this weekend, I thought about it, and I was like, " Oh, I'm going to remachine the adapter plate from the cam spindle lock to the lathe to the lathe chuck, and I'm going to make it adjustable, and I'm going to dial it all in." Because I had it, I—I managed through a bunch of trial and error and testing to get it to about four thou.
 
 [00:12:36] Norm: How do I identify? How do you diagnose and find where your slop is?
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:14:51] Adam: Right?
 
-[00:14:52] Will: Yeah. The what they're really asking for is the hard part, right? Because like, like you see this. It's funny. We get this on TechPod emails a lot, and somebody's like, hey, you know, I have this thing, and it does exactly what I need, and you get that from the first three sentences. But they're like, but there's this other one out there that's a little bit better, and I should should I spend 3,000 dollars and get rid of this old thing that's been perfect? For it? It happens in cameras too, Norm. You know, like this happens in all all all of the places where there’s, where there’s product density. You can you can go crazy,
+[00:14:52] Will: Yeah. The what they're really asking for is the hard part, right? Because like, like you see this. It's funny. We get this on TechPod emails a lot, and somebody's like, hey, you know, I have this thing, and it does exactly what I need, and you get that from the first three sentences. But they're like, but there's this other one out there that's a little bit better, and I should should I spend $3,000 and get rid of this old thing that's been perfect? For it? It happens in cameras too, Norm. You know, like this happens in all all all of the places where there’s, where there’s product density. You can you can go crazy,
 
 [00:15:23] Adam: yeah. And it's what what are the and the increments? You spend more time on the last 1% of accuracy than on the first 98%, right?
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:21:44] Adam: That's great. That's great.
 
-[00:21:46] Norm: He tells this story about when he was first working on like, uh, Avatar: The Last Airbender and like Nickelodeon, and Lucasfilm called him up under the recommendation of George Lucas, and he thought it was a joke to work on the Clone Wars or the animated show that he ended up. You know, show running and running and and being the head producer on, and he didn't came in for an interview with George Lucas, and he was like a super fan who got to pick George Lucas's brain about did you this is what when you meant when you wrote this in the prequels and when you wrote this in the original trilogy, and he didn't think he was going to get the job, and the prevailing thing top of his mind he says was he knew he was never going to speak to George Lucas again. This was his ten minutes of
+[00:21:46] Norm: He tells this story about when he was first working on like, uh, Avatar: The Last Airbender and like Nickelodeon, and Lucasfilm called him up under the recommendation of George Lucas, and he thought it was a joke to work on the Clone Wars or the animated show that he ended up. You know, show running and running and and being the head producer on, and he didn't came in for an interview with George Lucas, and he was like a super fan who got to pick George Lucas's brain about did you this is what when you meant when you wrote this in the prequels and when you wrote this in the original trilogy, and he didn't think he was going to get the job, and the prevailing thing top of his mind he says was he knew he was never going to speak to George Lucas again. This was his 10 minutes of
 
 [00:22:22] Will: Right, right.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:22:39] Norm: what top of his mind, and that tells you everything we know about like he's one of us.
 
-[00:22:44] Will: That's yeah. I I I have been watching, so I found a list someplace, and I'll dig it up and send you the link if you want to share it, Norm. But it's like the the here are the twenty or fifty or something Clone Wars episodes you should watch because there's there's a lot of Clone Wars. I I powered through Rebels really fast, which was Like I was blown away by Rebels. Like it is an astounding animated series. The stuff that I've seen of the Clone Wars, it's like it's all over the place, and there's so much of it. It's hard for me to watch, you know, six or seven seasons or whatever. But but what this list has pushed me to has been so much fun and so good. And it's the things that I liked about Star Wars when I was a kid. It's the things I still like about Star Wars as an adult. And it's it's just it's just really really delightful and really well done. And and it's on Disney Plus, so I've been.
+[00:22:44] Will: That's yeah. I I I have been watching, so I found a list someplace, and I'll dig it up and send you the link if you want to share it, Norm. But it's like the the here are the 20 or 50 or something Clone Wars episodes you should watch because there's there's a lot of Clone Wars. I I powered through Rebels really fast, which was Like I was blown away by Rebels. Like it is an astounding animated series. The stuff that I've seen of the Clone Wars, it's like it's all over the place, and there's so much of it. It's hard for me to watch, you know, six or seven seasons or whatever. But but what this list has pushed me to has been so much fun and so good. And it's the things that I liked about Star Wars when I was a kid. It's the things I still like about Star Wars as an adult. And it's it's just it's just really really delightful and really well done. And and it's on Disney Plus, so I've been.
 
 [00:23:29] Adam: I I didn't realize Filoni was, uh, Avatar: The Last Airbender.
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:23:36] Adam: Yeah. Okay, so when we were down in New Zealand, Richard Taylor and a bunch of the Weta folks, Johnny Fraser Allen, sung the praises of that show, and I watched. Um, I think I'm midway through season three now. Um, it’s terrific. It's really really fun, and it's a beautiful show.
 
-[00:23:52] Norm: And I I think there are a lot of probably similarities in that these they're fantasy stories. Where we think of Star Wars, not necessarily science fiction, but a fantasy. But both Avatar and Star Wars have these kind of universal truths. and tell a hero, a traditional hero’s journey. Um, that’s very resonant, and it made me think about, you know, obviously under Disney, you have the MCU and you have Star Wars, and they're both billion-dollar franchise machines, and they have a you know a shared audience, at least in the United States. But why is it that fans? What is it that separates like the expectations between an MCU movie, like an Avengers movie, and a next Star Wars movie, and why are they maybe held to different standards, or why, and as fans, why do you why do we weigh them different? I have I have I'll
+[00:23:52] Norm: And I I think there are a lot of probably similarities in that these they're fantasy stories. Where we think of Star Wars, not necessarily science fiction, but a fantasy. But both Avatar and Star Wars have these kind of universal truths. and tell a hero, a traditional hero’s journey. Um, that’s very resonant, and it made me think about, you know, obviously under Disney, you have the MCU and you have Star Wars, and they're both $1 billion franchise machines, and they have a you know a shared audience, at least in the United States. But why is it that fans? What is it that separates like the expectations between an MCU movie, like an Avengers movie, and a next Star Wars movie, and why are they maybe held to different standards, or why, and as fans, why do you why do we weigh them different? I have I have I'll
 
 [00:24:38] Adam: yeah, but
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:25:40] Adam: You know what's really funny? Here's the thing about that argument: is I'm not saying it should be like Ragnarok. I'm saying something as Ragnarok is a is a narrative weird left turn in a way that's as we know abiding and delightful. I don't I don't have to see a Star Wars comedy. I just mean a unique director's unique vision for a franchise that I love that takes it in a direction I didn't expect.
 
-[00:26:06] Will: Well, so there's there's two things, right? One is that the Star Wars fandom is a lot older than. I mean, I realize that Marvel has been around for a really long time, but Marvel as a massive cultural phenomena that goes outside of comic books is relatively, you know, ten ten fifteen years old. Star Wars has been around for forty years, and they have now three fully distinct generations of fans of those films. Yeah. The original trilogy, people, the people that came twenty years later with the prequels, and then the people that came twenty years after that with the, with the with the with the new movies, plus all the other stuff in between. But but I mean, on on this current run of Star Wars films, the big thing is that they aren't like the MCU is releasing two or three movies a year, and they can afford to take chances like putting giving the guy who made Hunt for the Wilderpeople a Thor movie to make right. And when the Star Wars, you know, they took some chances with this with the the I can’t remember what they called the anthology stories, the you know the Solo and the and the and Rogue One. But those mainline movies were so are so big and so important. I feel like they they weren't able to take, you know, they couldn't even take like a like a no civil war, yeah, or or a Winter Soldier type risk with them. So it's it's yeah, I don't know. I I I'm hopeful that the TV stuff will give them those smaller stakes opportunities to expand.
+[00:26:06] Will: Well, so there's there's two things, right? One is that the Star Wars fandom is a lot older than. I mean, I realize that Marvel has been around for a really long time, but Marvel as a massive cultural phenomena that goes outside of comic books is relatively, you know, 10 10 15 years old. Star Wars has been around for 40 years, and they have now three fully distinct generations of fans of those films. Yeah. The original trilogy, people, the people that came 20 years later with the prequels, and then the people that came 20 years after that with the, with the with the with the new movies, plus all the other stuff in between. But but I mean, on on this current run of Star Wars films, the big thing is that they aren't like the MCU is releasing two or three movies a year, and they can afford to take chances like putting giving the guy who made Hunt for the Wilderpeople a Thor movie to make right. And when the Star Wars, you know, they took some chances with this with the the I can’t remember what they called the anthology stories, the you know the Solo and the and the and Rogue One. But those mainline movies were so are so big and so important. I feel like they they weren't able to take, you know, they couldn't even take like a like a no civil war, yeah, or or a Winter Soldier type risk with them. So it's it's yeah, I don't know. I I I'm hopeful that the TV stuff will give them those smaller stakes opportunities to expand.
 
 [00:27:28] Adam: Well, here's the thing: I would never want to have to weigh and make the decisions that people like Kevin Feige and Kathleen Kennedy have to make. They are the stakes are. I mean, the stakes are really high monetarily and from your employment standpoint, and they serve so many different masters. It is it's amazing to me that a machine that gigantic can do marvelous magical things after a period of time. You know,
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:32:45] Norm: Most of it, yeah. I think Berlin or Germany or maybe it was. It was definitely they had you know false LA and false San Francisco and using the architecture of Singapore and was was part of it.
 
-[00:32:58] Adam: Their vision of the future, which was undefined, how far into the future you were looking, but my guess is somewhere around fifty to eighty years. Was fascinating and really lovely. I really enjoyed that. I found it meaty and delicious all the way through.
+[00:32:58] Adam: Their vision of the future, which was undefined, how far into the future you were looking, but my guess is somewhere around 50 to 80 years. Was fascinating and really lovely. I really enjoyed that. I found it meaty and delicious all the way through.
 
 [00:33:15] Will: So does does that mean Anthony Hopkins is Norm's age?
 
@@ -390,9 +390,9 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:36:52] Adam: Um, so we might have some work to do, but we're going to show her Captain Marvel tonight.
 
-[00:36:57] Will: You should get her to rank them. Just to get—show her all all twenty five movies and put them in order from best to worst.
+[00:36:57] Will: You should get her to rank them. Just to get—show her all all 25 movies and put them in order from best to worst.
 
-[00:37:03] Adam: That is a that's a tough thing to do to an eighty five year old broad. Come on,
+[00:37:03] Adam: That is a that's a tough thing to do to an 85 year old broad. Come on,
 
 [00:37:07] Will: that's a tough thing to do. Dave, we've been threatening to do it for four years now, or something. I don't know. It's yeah, no.
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:43:51] Unknown speaker (Will or Adam): Wow. Wow.
 
-[00:43:51] Adam: And that was the scene. Seven minutes of that scene. And Cameron Crowe, he said he wrote fifty some odd drafts of that script, and that scene never left the script. It was his. It was for him this anchor point, and the relationship between those two. And once he cut the movie together, he realized he had to chuck it.
+[00:43:51] Adam: And that was the scene. Seven minutes of that scene. And Cameron Crowe, he said he wrote 50 some odd drafts of that script, and that scene never left the script. It was his. It was for him this anchor point, and the relationship between those two. And once he cut the movie together, he realized he had to chuck it.
 
 [00:44:11] Will: Yeah,
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:45:00] Norm: homework.
 
-[00:45:01] Adam: You want to do that one? You know what I love about Crowe is how much he really, really workshopped. The films of his we really love. Jerry Maguire famously went through over fifty drafts with James L. Brooks, I think, if I remember correctly, acting as a consigliere on the on the script writing process. And Almost Famous also was really really workshoped and, uh, like let's we could watch Almost Famous and try and watch as much behind the scenes material as we can get our hands on and really just and talk about that whole process.
+[00:45:01] Adam: You want to do that one? You know what I love about Crowe is how much he really, really workshopped. The films of his we really love. Jerry Maguire famously went through over 50 drafts with James L. Brooks, I think, if I remember correctly, acting as a consigliere on the on the script writing process. And Almost Famous also was really really workshoped and, uh, like let's we could watch Almost Famous and try and watch as much behind the scenes material as we can get our hands on and really just and talk about that whole process.
 
 [00:45:36] Will: I I would, well, let's discuss offline.
 

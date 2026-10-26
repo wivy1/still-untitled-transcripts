@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:01:19] Norm: to DreamWorks. Obviously, DreamWorks SKG.
 
-[00:01:32] Will: So it's been it's been in the works for twenty years.
+[00:01:32] Will: So it's been it's been in the works for 20 years.
 
 [00:01:34] Norm: Uh, not for not exactly for that long. And then Chris Nolan came aboard. Uh, Kip, um, Kip Thorne, I believe, the astrophysicist PhD. He's one. He has a great book just about black holes. I remember reading this in middle school. Uh, he's he was one who pitched the idea, executive producer on it, and he brought in. They brought in Chris Nolan.
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:04:23] Adam: In some ways,
 
-[00:04:24] Norm: like a go, you know, IMAX cameras mounted to the side of trucks and virtual spaceships. The movie is two hours and fifty minutes long, as long as movie by far, and I thought it felt real fast.
+[00:04:24] Norm: like a go, you know, IMAX cameras mounted to the side of trucks and virtual spaceships. The movie is two hours and 50 minutes long, as long as movie by far, and I thought it felt real fast.
 
 [00:04:36] Will: I did not.
 
@@ -236,7 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:06:13] Adam: But I saw it coming from six. I saw it coming from the moment he started talking about like oh the fulfillment of human destiny. I'm like you're about to kill someone.
 
-[00:06:20] Norm: And I love that he monologues because he's been isolation for ten years. It was that's that's psychology.
+[00:06:20] Norm: And I love that he monologues because he's been isolation for 10 years. It was that's that's psychology.
 
 [00:06:24] Adam: Well, I don’t know.
 
@@ -336,13 +336,13 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:10:52] Norm: but I think it's a dialogue. Because the moments that he are most touching are when he doesn't talk, when he pulls the covers to see that his daughter isn't there.
 
-[00:10:59] Adam: When he when he when he's driving away from his daughter. I mean, it was. There's a lot of the plot, beats that are apparent in the trailer, and they're just as moving in the film as they would be in the trailer. And, frankly, at the very end of the film, when he sees his daughter, and big spoiler alert, she's like ninety-five, and he's still
+[00:10:59] Adam: When he when he when he's driving away from his daughter. I mean, it was. There's a lot of the plot, beats that are apparent in the trailer, and they're just as moving in the film as they would be in the trailer. And, frankly, at the very end of the film, when he sees his daughter, and big spoiler alert, she's like 95, and he's still
 
-[00:11:19] Will: One hundred and twenty. I think.
+[00:11:19] Will: 120. I think.
 
-[00:11:19] Adam: Oh, one hundred and twenty. Oh, and he's yeah, right, right. Um, I found it insanely moving. Um, just because I have kids, and that's the sort of yeah, the sort of thing that gets to me. But, they were repeated, so the blight wasn't fully explained to my satisfaction. Um, about why you know now all of a sudden we're against technology, we're not doing anything except farming.
+[00:11:19] Adam: Oh, 120. Oh, and he's yeah, right, right. Um, I found it insanely moving. Um, just because I have kids, and that's the sort of yeah, the sort of thing that gets to me. But, they were repeated, so the blight wasn't fully explained to my satisfaction. Um, about why you know now all of a sudden we're against technology, we're not doing anything except farming.
 
-[00:11:40] Will: Well, okay, so they did explain that there was a famine that wiped out five billion people,
+[00:11:40] Will: Well, okay, so they did explain that there was a famine that wiped out 5 billion people,
 
 [00:11:40] Adam: Right.
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:17:41] Adam: Yeah. Who that was?
 
-[00:17:41] Norm: Yeah, I love that the other dude they had to live on the ship for twenty three years.
+[00:17:41] Norm: Yeah, I love that the other dude they had to live on the ship for 23 years.
 
 [00:17:46] Will: That was great.
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:17:52] Norm: No.
 
-[00:17:52] Adam: I really wanted some. I wanted to see twenty-three years on his face.
+[00:17:52] Adam: I really wanted some. I wanted to see 23 years on his face.
 
 [00:18:07] Will: Well, but he slept some. He said, "
 
@@ -542,7 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:18:49] Adam: Yeah, all of that stuff. All the space stuff, every last bit of it—from the thing moving across Saturn to clouds that you can break off chunks of, to the planet surfaces, to the the the black hole and the wormhole—all that stuff, worth going to this movie for. Totally.
 
-[00:19:07] Norm: In IMAX seventy millimeters.
+[00:19:07] Norm: In IMAX 70 millimeters.
 
 [00:19:08] Adam: Preferably.
 
@@ -622,7 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:20:59] Norm: That this was the last chance.
 
-[00:21:15] Will: And the conceit of the thirteen people that got sent to the thirteen planets and were doomed, twelve of them. Yeah. I thought that was nice.
+[00:21:15] Will: And the conceit of the 13 people that got sent to the 13 planets and were doomed, 12 of them. Yeah. I thought that was nice.
 
 [00:21:21] Adam: Yeah, I agree. I thought that was very very cool, and I loved realizing that Anne Hathaway does still have the the the fertilized eggs.
 
@@ -652,7 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:22:25] Will: What if that really happened? What if we sent our best of the best of the best? But
 
-[00:22:25] Will: Away thirty years ago?
+[00:22:25] Will: Away 30 years ago?
 
 [00:22:27] Norm: it was all '60s. It was in the '60s, and
 

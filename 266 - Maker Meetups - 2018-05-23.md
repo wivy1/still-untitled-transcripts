@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:03:25] Adam: Yeah.
 
-[00:03:25] Norm: that you can get for like 200 dollars. Toys R Us going out of business has it for like 150 bucks, and he took the shell of that and it fit perfectly over a Razor. Remember, Razor had those little scooters.
+[00:03:25] Norm: that you can get for like $200. Toys R Us going out of business has it for like $150, and he took the shell of that and it fit perfectly over a Razor. Remember, Razor had those little scooters.
 
 [00:03:25] Adam: Yeah,
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:04:22] Adam: It'll go up.
 
-[00:04:22] Norm: There's a video on the site right now about it, and we can build one. The the razor thing is like 250 bucks.
+[00:04:22] Norm: There's a video on the site right now about it, and we can build one. The the razor thing is like $250.
 
 [00:04:28] Adam: We got to build one.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:08:55] Will: Norm did it. That Norm right there.
 
-[00:08:56] Adam: This year, I I knew that I wanted to talk about sharing ideas and things and materials and processes. I knew I wanted to talk about sharing your toys, and that's the only thing I held in my brain. So this is sometimes how I do this. I just held that thought in my brain. And Sunday morning, I got up at seven a.m. and in ninety minutes, I wrote that fourteen-minute piece that I that I spoke, and I was really surprised where it went. I said that on stage, I was I didn't realize it was going to go this philosophical, as it were. But I was really pleased with with how it came out, and the response has been incredibly lovely.
+[00:08:56] Adam: This year, I I knew that I wanted to talk about sharing ideas and things and materials and processes. I knew I wanted to talk about sharing your toys, and that's the only thing I held in my brain. So this is sometimes how I do this. I just held that thought in my brain. And Sunday morning, I got up at seven a.m. and in 90 minutes, I wrote that 14-minute piece that I that I spoke, and I was really surprised where it went. I said that on stage, I was I didn't realize it was going to go this philosophical, as it were. But I was really pleased with with how it came out, and the response has been incredibly lovely.
 
 [00:09:34] Norm: Yeah, we're gonna put the full audio of that after this podcast. But you said it didn't it went somewhere you didn't expect. Is in form like in in structure or just in theme? Like what was it before it ended up being? What it ended up being?
 
@@ -266,15 +266,15 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:12:42] Adam: Cool. Also signed autographs for a couple of hours. Such great stories. People bring stuff to give me. They bring stuff to show me. A couple of young illustrators did drawings with beautiful. I mean, it's intense when some 13 year old kid brings their sketchbook for me to sign and said, " I started drawing because of watching your videos on Tested, and they're so much better at drawing than I will ever be, and that is like awesome.
 
-[00:13:08] Will: But that's great. I mean, that like that that stuff like that's the thing that I love. I've said this before, I know, but the thing that I love about Maker Faire is walking around and looking at five year olds who are tired of looking at robots because I'm like, oh right, if there's a five year old that's that's They've seen more robots in the first five minutes walking around Maker Faire than I saw until I was twenty, probably.
+[00:13:08] Will: But that's great. I mean, that like that that stuff like that's the thing that I love. I've said this before, I know, but the thing that I love about Maker Faire is walking around and looking at five year olds who are tired of looking at robots because I'm like, oh right, if there's a five year old that's that's They've seen more robots in the first five minutes walking around Maker Faire than I saw until I was 20, probably.
 
 [00:13:08] Adam: Yeah.
 
-[00:13:08] Will: And like the things that these kids, we're we're we're already starting to see it. The kids, you know, a few years ago when we saw the kids that made the Battlestar Galactica simulator, they were like high school kids. They've been coming to Maker Faire since they were eight, and when they were fifteen, they decided they wanted to build a three-axis space sim. You know, like a a flight trainer, cockpit flight trainer. Um, we see stuff like it's like open ROV. Those guys have been coming to Maker Faire since I've been coming to Maker Faire.
+[00:13:08] Will: And like the things that these kids, we're we're we're already starting to see it. The kids, you know, a few years ago when we saw the kids that made the Battlestar Galactica simulator, they were like high school kids. They've been coming to Maker Faire since they were eight, and when they were 15, they decided they wanted to build a three-axis space sim. You know, like a a flight trainer, cockpit flight trainer. Um, we see stuff like it's like open ROV. Those guys have been coming to Maker Faire since I've been coming to Maker Faire.
 
 [00:13:08] Adam: Yeah, yeah.
 
-[00:13:08] Will: And they started out with a thing that was glued together plexiglass, and now they have like they have a they have an underwater robot that goes fast enough that the pool that they've been bringing for ten years isn't big enough to accelerate to full speed, and they can actually fight currents and rivers and stuff like that and take that thing to places they've never been able to go before.
+[00:13:08] Will: And they started out with a thing that was glued together plexiglass, and now they have like they have a they have an underwater robot that goes fast enough that the pool that they've been bringing for 10 years isn't big enough to accelerate to full speed, and they can actually fight currents and rivers and stuff like that and take that thing to places they've never been able to go before.
 
 [00:14:11] Adam: Actually, some little girl at my autograph signing, she was like, " I I have made some robots." I was like, " Oh, have you made any robots recently?" And she's like, " Nah, just an underwater one."
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:15:00] Norm: this week
 
-[00:15:02] Adam: that'll go up on the site on last Thursday because a lot of people come from all over the country who are working hard to bring making and maker culture to the most marginalized communities that really need it. A couple of my fellow board members from Nation of Makers and I held an event for forty people here in the cave. That was just a long conversation. With some of the old people from Obama's Office of Science and Technology Policy, some people I knew, many people that I didn't—a really, really fruitful conversation—and all of that—and kind of engendered by the fact that they're all here for Maker Faire.
+[00:15:02] Adam: that'll go up on the site on last Thursday because a lot of people come from all over the country who are working hard to bring making and maker culture to the most marginalized communities that really need it. A couple of my fellow board members from Nation of Makers and I held an event for 40 people here in the cave. That was just a long conversation. With some of the old people from Obama's Office of Science and Technology Policy, some people I knew, many people that I didn't—a really, really fruitful conversation—and all of that—and kind of engendered by the fact that they're all here for Maker Faire.
 
 [00:15:43] Will: It's, it's. I mean, they call it the world's greatest show and tell, but I think that really undersells what what you get out of coming to this event.
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:17:17] Adam: There’s a lot of Strandbeests there that have wheels as a backup, not this one.
 
-[00:17:21] Will: Yeah. So, and it's not just the big scale stuff. It's not the stuff that somebody spends a thousand hours on some enormous project or two hundred thousand hours on a huge enormous project like the prosthesis. Um. There were there were people there was a there was a team that 3D prints marble mazes like little fidget mazes where the marbles go through and they had built they built a bunch of incredible designs they were in a little booth in one of the big big big rooms but they had designed a Sisyphus climber
+[00:17:21] Will: Yeah. So, and it's not just the big scale stuff. It's not the stuff that somebody spends 1,000 hours on some enormous project or 200,000 hours on a huge enormous project like the prosthesis. Um. There were there were people there was a there was a team that 3D prints marble mazes like little fidget mazes where the marbles go through and they had built they built a bunch of incredible designs they were in a little booth in one of the big big big rooms but they had designed a Sisyphus climber
 
 [00:17:21] Adam: oh
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:19:37] Will: Anything else you saw that was exceptional?
 
-[00:19:39] Norm: Well, one of the things I wanted to point out is that Adam talks about a lot of people coming into town, right? And it's New York is officially the World Maker Faire, but I met a lot of people who had come from other countries, from Australia, from England, for Bay Area Maker Faire, and there was like definitely a Silicon Valley vibe to some of the projects there. I never thought a Maker Faire in my mind was never like a Comic Con or Dragon Con. It was always like the the event for the hours from ten to six. That's the fair. But when we went to a Comic Con, there's a lot of after parties, right? And this is the first year I heard about a lot of the after stuff that went on. A lot of people, like Bill and Laura, who met up at restaurants and bars and and and groups that set up meetups after Maker Faire, and I think it's something that we'd love to see more of.
+[00:19:39] Norm: Well, one of the things I wanted to point out is that Adam talks about a lot of people coming into town, right? And it's New York is officially the World Maker Faire, but I met a lot of people who had come from other countries, from Australia, from England, for Bay Area Maker Faire, and there was like definitely a Silicon Valley vibe to some of the projects there. I never thought a Maker Faire in my mind was never like a Comic Con or Dragon Con. It was always like the the event for the hours from 10 to 6. That's the fair. But when we went to a Comic Con, there's a lot of after parties, right? And this is the first year I heard about a lot of the after stuff that went on. A lot of people, like Bill and Laura, who met up at restaurants and bars and and and groups that set up meetups after Maker Faire, and I think it's something that we'd love to see more of.
 
 [00:20:22] Will: Yeah, I think that'd be great.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:21:45] Adam: That's true. That's
 
-[00:21:45] Will: insane. Well, they adjust. I mean, they adjust the outflow on the steam. Like I sat, my daughter was fascinated with those. We sat and watched them for a long time. I got to talk to them. My favorite part about that steam engine setup actually is how they level the track. Yeah. So they have an oval that's probably thirty feet long and twenty feet, fifteen feet, fifteen or twenty feet wide,
+[00:21:45] Will: insane. Well, they adjust. I mean, they adjust the outflow on the steam. Like I sat, my daughter was fascinated with those. We sat and watched them for a long time. I got to talk to them. My favorite part about that steam engine setup actually is how they level the track. Yeah. So they have an oval that's probably 30 feet long and 20 feet, 15 feet, 15 or 20 feet wide,
 
 [00:22:03] Adam: Being perfectly level is important.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:23:20] Adam: Oh,
 
-[00:23:20] Norm: yeah, and they have this. Massive train set made of twenty eight different segments. Each segment's about like a yard long,
+[00:23:20] Norm: yeah, and they have this. Massive train set made of 28 different segments. Each segment's about like a yard long,
 
 [00:23:20] Unknown speaker: Oh, man.
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:24:10] Unknown speaker (Adam or Norm then Adam then Norm): That’s really cool.
 
-[00:24:10] Norm: and it takes them two hours to set the whole thing up. And it's a segment can one of the segments was made twenty five years ago, and one was made two years ago, and they all electronically work.
+[00:24:10] Norm: and it takes them two hours to set the whole thing up. And it's a segment can one of the segments was made 25 years ago, and one was made two years ago, and they all electronically work.
 
 [00:24:18] Will: That's super clever.
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:29:10] Unknown speaker (Adam or Will): Awesome.
 
-[00:29:10] Norm: Ever, even if you don't know the Muppets. And the other thing, a huge shout out. Bill and I were working on a project earlier or yesterday, actually, and we're making a model kit and we did some electronics in the model kit. And a lot of times, you buy garage kits and you buy like a or you buy a model kit, and there'll be some electronics you can buy afterward on eBay because people make aftermarket kits. Our board on the kit, we were doing soldering, working the LEDs wired up, the sound, everything, and it wouldn't work. And we're troubleshooting. Oh no, what's going on? And we realize after like. Ten minutes troubleshooting. The board was missing the chip, the controller,
+[00:29:10] Norm: Ever, even if you don't know the Muppets. And the other thing, a huge shout out. Bill and I were working on a project earlier or yesterday, actually, and we're making a model kit and we did some electronics in the model kit. And a lot of times, you buy garage kits and you buy like a or you buy a model kit, and there'll be some electronics you can buy afterward on eBay because people make aftermarket kits. Our board on the kit, we were doing soldering, working the LEDs wired up, the sound, everything, and it wouldn't work. And we're troubleshooting. Oh no, what's going on? And we realize after like. 10 minutes troubleshooting. The board was missing the chip, the controller,
 
 [00:29:10] Adam: the IC chip.
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:29:49] Unknown speaker (Adam then Will or Will or unknown speaker then Adam then unknown speaker): [unclear: There’s a socket. I’m like, let’s just solder it on / You have to solder it on / There’s a socket. Oh my God. There’s a socket. You have to solder it on]?
 
-[00:29:52] Norm: It's it's not in the bag, or it was in the mag. So I'm like, what do we do? Oh, this this shoot is a bust. So we look at the instructions, and the person who made the kit has his contact phone number on there, an email, and says, " Call me if you run into problems." I'm like, no way. Like, first of all, is this a kit that was made like ten years ago? No way, right? Like, it it wasn't. It was like two years ago or whatever.
+[00:29:52] Norm: It's it's not in the bag, or it was in the mag. So I'm like, what do we do? Oh, this this shoot is a bust. So we look at the instructions, and the person who made the kit has his contact phone number on there, an email, and says, " Call me if you run into problems." I'm like, no way. Like, first of all, is this a kit that was made like 10 years ago? No way, right? Like, it it wasn't. It was like two years ago or whatever.
 
 [00:29:52] Adam: Yeah.
 
@@ -736,7 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:31:29] Will: I can't believe that you use this this 18th century technology, telephone, 19th century technology.
 
-[00:31:35] Adam: Margaret, Margaret, hook me up to Pennsylvania six five thousand.
+[00:31:35] Adam: Margaret, Margaret, hook me up to Pennsylvania 6-5000.
 
 [00:31:39] Norm: Uh, next week I think we'll probably be talking about solo.
 
@@ -770,7 +770,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:32:31] Norm: Check it out on Steam VR and foovr.com.
 
-[00:32:33] Will: Yeah, just go to Steam and type Foo Show, and it'll be right there. It's five bucks.
+[00:32:33] Will: Yeah, just go to Steam and type Foo Show, and it'll be right there. It's $5.
 
 [00:32:33] Adam: Thanks, guys.
 
@@ -784,7 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:33:35] Adam: here's another year. Um, I uh, I've been thinking about what I was going to say this morning for weeks. I wrote it down this morning, and I didn't expect it to go where it went. But here we go.
 
-[00:33:35] Adam: My life is centered around the stories that we tell each other. It is centered around the products of our making, and the stories that those objects bring with them, as well as the stories they tell. But I have ignored, sometimes, a key aspect of what happens when we make, and that aspect is generosity. Our making, in and of itself, is a radical and deeply generous human act. When we construct, code, sew, or bake something new into existence, we are no longer passive observers or simple receivers of the realities around us. We declare ourselves participants. We are installing light on a path that others may choose to follow. Whenever we put something into the world that didn't exist, we're trying to solve a problem that we see. It might simply be. How to paint a portrait of a person in front of us, or it might be how to elicit a specific emotion with sound. It might be how to safely pull a shark from the water for tagging with twenty dollars worth of local hardware. It might be how to turn oneself into an approximation of a favorite superhero, or how to bypass a local crumbling infrastructure to ensure the safe distribution of medicine to far-flung and hard-to-serve communities.
+[00:33:35] Adam: My life is centered around the stories that we tell each other. It is centered around the products of our making, and the stories that those objects bring with them, as well as the stories they tell. But I have ignored, sometimes, a key aspect of what happens when we make, and that aspect is generosity. Our making, in and of itself, is a radical and deeply generous human act. When we construct, code, sew, or bake something new into existence, we are no longer passive observers or simple receivers of the realities around us. We declare ourselves participants. We are installing light on a path that others may choose to follow. Whenever we put something into the world that didn't exist, we're trying to solve a problem that we see. It might simply be. How to paint a portrait of a person in front of us, or it might be how to elicit a specific emotion with sound. It might be how to safely pull a shark from the water for tagging with $20 worth of local hardware. It might be how to turn oneself into an approximation of a favorite superhero, or how to bypass a local crumbling infrastructure to ensure the safe distribution of medicine to far-flung and hard-to-serve communities.
 
 [00:33:35] Adam: Every time we make anything, we are identifying a problem, however trivial that it may seem, or local or personal. And in seeking to solve that problem, and we seek to solve that problem through and with what we make. And any look at history, at all of human history, will center upon the things that we make and the stories we tell about them. When we make things, anything at all, we're asserting that we're part of that history, not simply receivers of it. We become players in the human race. Making is communion with fellow humans. It's community. It's sharing. And whether that's sharing ideas, aesthetics, or engineering, it's an act of sharing with our fellow passengers on this delicate sphere. And it turns out that our parents were right. It is so much better to share your toys. I'm here to defend sharing as a vital aspect of maker culture that is intrinsic to the underlying ethos of what it means to be a maker, and by extension, in my opinion, a human being.
 
@@ -800,7 +800,7 @@ Episode URL: https://www.youtube.com/watch?v=II2XYyJIKEA
 
 [00:33:35] Adam: One of my favorite things to do when I'm building something complicated is to make more than one of them. And sometimes that's just because I'm going to screw one up. But usually at the end, I end up with at least two of the thing, and that means I can trade the other one away. And this is this whole new bonus because not only do I get a new thing, but in the barter exchange, the person I've traded with and I each get a story associated with the things that we've traded, and those stories become part of the lifeblood of my collection and my shop.
 
-[00:33:35] Adam: I believe deeply in open source. Last year, I released my first product, a tool bag that addressed my issues around the idea of a tool bag. And in a few weeks, I'm going to release a bunch more products and a second iteration of this bag, including a brand new design. At the same time, I'm going to release for literally my cost a set of inexpensive patterns for both bags, so that anyone who wants to make one can pay like 15 bucks and make their own. Yeah, I I cannot wait to see what people do with this, and I don't think of this as eating into my profit margin. I see it as investing in building and learning from a community interested in solving and benefiting from the same common problems that I have. I get to see executions of my original idea that drift untold distances from anything I could have imagined.
+[00:33:35] Adam: I believe deeply in open source. Last year, I released my first product, a tool bag that addressed my issues around the idea of a tool bag. And in a few weeks, I'm going to release a bunch more products and a second iteration of this bag, including a brand new design. At the same time, I'm going to release for literally my cost a set of inexpensive patterns for both bags, so that anyone who wants to make one can pay like $15 and make their own. Yeah, I I cannot wait to see what people do with this, and I don't think of this as eating into my profit margin. I see it as investing in building and learning from a community interested in solving and benefiting from the same common problems that I have. I get to see executions of my original idea that drift untold distances from anything I could have imagined.
 
 [00:33:35] Adam: The thing about sharing is Paul McCartney is right at the end of Abbey Road: the love you take is equal to the love that you make.
 

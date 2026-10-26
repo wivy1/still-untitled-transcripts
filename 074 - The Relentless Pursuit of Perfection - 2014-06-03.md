@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:01:53] Norm: Yes.
 
-[00:01:53] Adam: And Baker was thrilled with this project and did a whole bunch of actually apparently 700,000 dollars worth of Maquettes and animatronics for these completely radical and awesome aliens.
+[00:01:53] Adam: And Baker was thrilled with this project and did a whole bunch of actually apparently $700,000 worth of Maquettes and animatronics for these completely radical and awesome aliens.
 
 [00:02:16] Norm: We're talking about late '70s, before before ET.
 
@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:02:38] Norm: he'll just post it.
 
-[00:02:53] Adam: Yeah, and it's great, great stuff. Stuff you've always wondered about. I mean, there. It turned out there were fans of the idea of night skies who'd been wondering what those alien looked like for the last thirty years.
+[00:02:53] Adam: Yeah, and it's great, great stuff. Stuff you've always wondered about. I mean, there. It turned out there were fans of the idea of night skies who'd been wondering what those alien looked like for the last 30 years.
 
 [00:02:53] Norm: Wow, God!
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:03:31] Adam: yeah, of character design and animatronics and integration of different types of special effects to serve different shots. I mean, just working with great directors. That period of special effects is so fertile and so amazing.
 
-[00:03:45] Will: When it set the tone for everything that came for the next forty years.
+[00:03:45] Will: When it set the tone for everything that came for the next 40 years.
 
 [00:03:45] Adam: Yes.
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:08:18] Will: It seemed like it was a few thousand RPMs at least, right,
 
-[00:08:20] Adam: maybe a couple thousand RPM. And when you turn it off, it spins by itself for another twenty five minutes.
+[00:08:20] Adam: maybe a couple thousand RPM. And when you turn it off, it spins by itself for another 25 minutes.
 
 [00:08:25] Will: My the game that I was playing.
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:10:05] Will: exactly. Um, but but yeah, so the the like, how do you When you are working on stuff, because I know, I mean, you are working on a project right now that you've been working on for I think probably years.
 
-[00:10:16] Adam: Years, yeah, yeah, ten years.
+[00:10:16] Adam: Years, yeah, yeah, 10 years.
 
 [00:10:17] Will: Um, and
 
@@ -238,13 +238,13 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:10:22] Will: and it seems like we're in the latter right now.
 
-[00:10:43] Adam: We are totally in the latter right now, and it's not. I am actually I am spending less time in the shop than normal. I am only coming in for like twenty five minutes every morning before work to just do one thing and then head out to go work.
+[00:10:43] Adam: We are totally in the latter right now, and it's not. I am actually I am spending less time in the shop than normal. I am only coming in for like 25 minutes every morning before work to just do one thing and then head out to go work.
 
 [00:10:54] Will: So how do you how do you keep? So I I was working on a super simple project,
 
 [00:10:54] Adam: right?
 
-[00:10:54] Will: You are working on stuff that's very complex. Has lots of pieces, has electronics, has lights, has you know all sorts of stuff that has to go together. How do you keep from getting If you're working on something you've been working on for ten years, how do you keep from how do you dodge the perfect
+[00:10:54] Will: You are working on stuff that's very complex. Has lots of pieces, has electronics, has lights, has you know all sorts of stuff that has to go together. How do you keep from getting If you're working on something you've been working on for 10 years, how do you keep from how do you dodge the perfect
 
 [00:10:54] Adam: Oh, man.
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:11:22] Adam: Yes. Um, Two is I do a lot of thinking, and so I encounter lots of problems that I then just stop working while I think about the problem, and so it's not—
 
-[00:11:35] Will: that's why the ZF1 has taken twenty years to put together
+[00:11:35] Will: that's why the ZF1 has taken 20 years to put together
 
 [00:11:38] Adam: exactly. Okay. And so I hit a thing where it's like, oh my gosh, you know, it's these side plates which I have at 58 millimeters, which I need to re water cut a bunch of panels because they're actually supposed to be 52 millimeters apart. I finally learned from someone who worked on the actual guns, and it's killing me. But wait, wait, wait! I'm getting away from myself. Understand when I'm thinking through a project and I'm trying to avoid the pitfalls. The only way I'm Successfully avoiding the pitfalls is the fact that I've screwed up in all of the ways that I am now avoiding. So, like, I've built I've built enough things when I have I fucked up in every way possible in all of these things.
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:24:09] Norm: But you've done that for like Blade Runner Gun. So is that difficult to to build the thing you want and then find the motivation again to rebuild it, having all that experience?
 
-[00:24:38] Adam: Sometimes yes, and sometimes no. It depends upon. So one of my main techniques for making stuff is I almost never make a single one of anything anymore. I always make two or five or ten. It's not that much harder, and it allows me enough parts. Like if I want to make if I want to make three of something, I'll buy enough parts to make five, because I guarantee I will screw up in some way enough that I'll be wanting for parts at Sunday at six a six a.m. or something like that. And it also allows me to solve problems on a throwaway piece that I can fix on the final piece.
+[00:24:38] Adam: Sometimes yes, and sometimes no. It depends upon. So one of my main techniques for making stuff is I almost never make a single one of anything anymore. I always make two or five or 10. It's not that much harder, and it allows me enough parts. Like if I want to make if I want to make three of something, I'll buy enough parts to make five, because I guarantee I will screw up in some way enough that I'll be wanting for parts at Sunday at six a six a.m. or something like that. And it also allows me to solve problems on a throwaway piece that I can fix on the final piece.
 
 [00:25:16] Will: Or more importantly, it takes the risk out of that first piece.
 
@@ -500,19 +500,19 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:27:24] Adam: yeah.
 
-[00:27:26] Adam: And I'm going. I mean, it's literally like one pass and looking, and then it gets so so subtle. Moving down through that, you know, from eighty grit all the way up to four hundred grit, and then polishing something, it is—it's a whole set of processes that if you do it wrong, will take you five times as long.
+[00:27:26] Adam: And I'm going. I mean, it's literally like one pass and looking, and then it gets so so subtle. Moving down through that, you know, from 80 grit all the way up to 400 grit, and then polishing something, it is—it's a whole set of processes that if you do it wrong, will take you five times as long.
 
-[00:27:49] Will: Yeah, if you start with two twenty instead of eighty, it's going to take forever.
+[00:27:49] Will: Yeah, if you start with 220 instead of 80, it's going to take forever.
 
-[00:27:52] Adam: Oh, and the number of times I would see students with a piece of one hundred and twenty grit that was totally caked smooth with material sitting there, keep it going. Buy buy ten sheets of sandpaper. Don't buy one sheet. Buy ten sheets and keep throwing them out.
+[00:27:52] Adam: Oh, and the number of times I would see students with a piece of 120 grit that was totally caked smooth with material sitting there, keep it going. Buy buy 10 sheets of sandpaper. Don't buy one sheet. Buy 10 sheets and keep throwing them out.
 
-[00:28:04] Will: When you go to the sandpaper aisle at Home Depot, they have one sheet, they have five sheets, and they have sixty sheets.
+[00:28:04] Will: When you go to the sandpaper aisle at Home Depot, they have one sheet, they have five sheets, and they have 60 sheets.
 
-[00:28:10] Adam: Right, get the sixty.
+[00:28:10] Adam: Right, get the 60.
 
-[00:28:11] Will: The sixty sheets is the way to go.
+[00:28:11] Will: The 60 sheets is the way to go.
 
-[00:28:12] Adam: Let me tell you, get the sixty sheets. It's a big deal.
+[00:28:12] Adam: Let me tell you, get the 60 sheets. It's a big deal.
 
 [00:28:15] Will: Um, and change it, change it all the time,
 

@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:00:24] Will: No, it's really heavy.
 
-[00:00:26] Adam: All right, Will. It's twenty.
+[00:00:26] Adam: All right, Will. It's 20.
 
 [00:00:26] Will: Oh, it's my turn.
 
@@ -92,7 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:01:55] Will: It’s true. It's like the baby's asleep in the living room. You don't want to say anything, so you know.
 
-[00:01:59] Adam: So this is actually. Julia and I confront this a lot, both because of our own digital addictions, which we, like every other modern person, suffers from to greater and lesser degrees, but also because you know we're raising two fifteen-year-olds, digital natives, I guess as they're called.
+[00:01:59] Adam: So this is actually. Julia and I confront this a lot, both because of our own digital addictions, which we, like every other modern person, suffers from to greater and lesser degrees, but also because you know we're raising two 15-year-olds, digital natives, I guess as they're called.
 
 [00:02:17] Will: They don't. No, no, but I mean,
 
@@ -138,7 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:03:37] Adam: Yeah.
 
-[00:03:37] Will: It's since since TiVo was a thing, I, my wife was like, " Hey, you got to get one of those." It's the first time she ever said that about TV electronics. So I went straight down to Best Buy and dropped the dropped 300 bucks.
+[00:03:37] Will: It's since since TiVo was a thing, I, my wife was like, " Hey, you got to get one of those." It's the first time she ever said that about TV electronics. So I went straight down to Best Buy and dropped the dropped $300.
 
 [00:03:37] Adam: Right.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:04:41] Will: Do you have Do you have a shared TV? Like, if you and Julia and the kids want to watch a movie, do you?
 
-[00:04:46] Adam: We do in the living room, um, behind a cabinet. There, there is a there is a television. It's a big one, and I mean, big one. It's like fifty inches.
+[00:04:46] Adam: We do in the living room, um, behind a cabinet. There, there is a there is a television. It's a big one, and I mean, big one. It's like 50 inches.
 
 [00:04:53] Will: It's it's a it's a big one for the 2000s. It's not a big one for the 2010s.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:06:05] Will: How much? How much did it cost?
 
-[00:06:07] Adam: Twelve and a half thousand dollars.
+[00:06:07] Adam: $12,500.
 
 [00:06:08] Will: Holy Jesus!
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:06:15] Norm: Wait, wait, wait, that's what you were surfing—[unclear: the one I own, the one hundred / the one I own, the one I own / the one that owned the 1-800] websites.
 
-[00:06:18] Adam: Rogers Wireless at that point was charging something like ten cents a kilobyte.
+[00:06:18] Adam: Rogers Wireless at that point was charging something like $0.10 a kilobyte.
 
 [00:06:23] Will: Holy God!
 
@@ -224,9 +224,9 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:06:23] Adam: Yep.
 
-[00:06:30] Adam: Yeah, I am not kidding about the ten cents a kilobyte. That's that's like that's a real
+[00:06:30] Adam: Yeah, I am not kidding about the $0.10 a kilobyte. That's that's like that's a real
 
-[00:06:34] Will: So, like two YouTube videos and you are at a grand.
+[00:06:34] Will: So, like two YouTube videos and you are at $1,000.
 
 [00:06:36] Adam: So here is what happened.
 
@@ -240,13 +240,13 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:07:20] Will: Oh, that was your first mistake. No, I lost my phone yesterday.
 
-[00:07:24] Adam: She said, " Uh, I said, what's the bill?" And she said, " Twelve and a half thousand dollars." And I was like, "Good. What?" And then she said, " So I started the first right, the first stage of dealing with death with, was denial, right? I was like, okay, what can we do? Can we backdate it? Give me a give me an international plan, backdate it, right? Which has worked for me in the past for for bad charges. And then by the way, the cell phone companies will often, frequently backdate things that you got overcharged for and couch them under a policy you can pay much less for, like pennies on the dollar.
+[00:07:24] Adam: She said, " Uh, I said, what's the bill?" And she said, " $12,500." And I was like, "Good. What?" And then she said, " So I started the first right, the first stage of dealing with death with, was denial, right? I was like, okay, what can we do? Can we backdate it? Give me a give me an international plan, backdate it, right? Which has worked for me in the past for for bad charges. And then by the way, the cell phone companies will often, frequently backdate things that you got overcharged for and couch them under a policy you can pay much less for, like pennies on the dollar.
 
 [00:07:59] Will: How much do you pay?
 
 [00:08:00] Will: What do you think to get you to pay?
 
-[00:08:02] Adam: Right. So, I mean, I've had something like a 600 dollar bill reduced to a 150 dollar bill.
+[00:08:02] Adam: Right. So, I mean, I've had something like a $600 bill reduced to a $150 bill.
 
 [00:08:07] Will: That's a little more reasonable, but still a lot.
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:08:09] Will: twelve thousand
 
-[00:08:10] Adam: dollars. She's like, we can reduce it to two and a half thousand dollars, and I was like, you know what? I know somewhere at some point I clicked a box at the end of a EULA that said yes to this, but I am not going to pay a penny of this. This is you. This is literally
+[00:08:10] Adam: dollars. She's like, we can reduce it to $2,500, and I was like, you know what? I know somewhere at some point I clicked a box at the end of a EULA that said yes to this, but I am not going to pay a penny of this. This is you. This is literally
 
 [00:08:10] Will: It’s extortion.
 
@@ -274,13 +274,13 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:08:49] Will: Okay.
 
-[00:08:50] Adam: Because I, I at that point, I had forty thousand Twitter followers.
+[00:08:50] Adam: Because I, I at that point, I had 40,000 Twitter followers.
 
 [00:08:50] Will: Yeah.
 
 [00:08:54] Will: I, I have, I have, I'm in that neighborhood. So, like, powerful number of Twitter followers.
 
-[00:08:58] Adam: So I, I tweeted. I tweeted, uh, something along the lines of " The hell with AT&T." I just got a 12,000 dollar bill for surfing in Canada. hashtag Something like " Screw AT&T."
+[00:08:58] Adam: So I, I tweeted. I tweeted, uh, something along the lines of " The hell with AT&T." I just got a $12,000 bill for surfing in Canada. hashtag Something like " Screw AT&T."
 
 [00:08:58] Will: Screw AT&T.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:09:21] Adam: With with websites about the bill, and then AT and T called and they said, " We can take care of this." We can make this go away.
 
-[00:09:56] Will: But that’s bullshit, kind of, because like if that happened to somebody who doesn't have twenty thousand Twitter followers,
+[00:09:56] Will: But that’s bullshit, kind of, because like if that happened to somebody who doesn't have 20,000 Twitter followers,
 
 [00:09:56] Adam: Agreed.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:11:14] Will: Yeah.
 
-[00:11:27] Will: You had seven hundred nineteen hundred.
+[00:11:27] Will: You had 700 1900.
 
 [00:11:28] Adam: Because I'm in Verizon, it's not so trivial, and you have to jailbreak your phone in order to make new SIM cards work.
 
@@ -380,7 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:11:53] Adam: Right.
 
-[00:11:53] Will: The six has thirty-seven different antennas or something ridiculous.
+[00:11:53] Will: The six has 37 different antennas or something ridiculous.
 
 [00:11:47] Adam: Right.
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:12:08] Norm: Yes, so I want to know what is the the burner Nokia phone look like today.
 
-[00:12:13] Adam: Oh, it is. It looks like a phone that I was using ten years ago. It is a little screen up top that's color and the crappiest resolution ever.
+[00:12:13] Adam: Oh, it is. It looks like a phone that I was using 10 years ago. It is a little screen up top that's color and the crappiest resolution ever.
 
 [00:12:20] Norm: Still color.
 
@@ -476,11 +476,11 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:14:54] Adam: Oh, I've something about.
 
-[00:14:55] Will: Oh, it's the best dumb idea ever. It's why I like a smart is because you can have smart. It's nine hundred and fifty-one beats right now. They just divide the day into a thousand equal slices, and it starts at four p.m. on the West Coast. I don't know.
+[00:14:55] Will: Oh, it's the best dumb idea ever. It's why I like a smart is because you can have smart. It's 951 beats right now. They just divide the day into 1,000 equal slices, and it starts at four p.m. on the West Coast. I don't know.
 
 [00:14:55] Adam: This is terrible.
 
-[00:14:55] Will: It's it's it's you could buy watches that did this, like I've always I've always loved the twenty-five hour and change watches that the that the JPL guys who are running the Martian rover missions use.
+[00:14:55] Will: It's it's it's you could buy watches that did this, like I've always I've always loved the 25 hour and change watches that the that the JPL guys who are running the Martian rover missions use.
 
 [00:14:55] Adam: Oh, right.
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:16:23] Adam: Well—
 
-[00:16:23] Will: That and it's such an opportunity to ream them to the tune of 12,500 dollars.
+[00:16:23] Will: That and it's such an opportunity to ream them to the tune of $12,500.
 
 [00:16:32] Adam: The thing that really gets me is how complicated it is to turn off all the proper stuff on your phone internationally, right? Like there's like five different slider buttons of voice and data, data, cellular data, and it's like I I'm pretty savvy, and I don't know where the crossover is for some of that, and how it’ll directly affect. And it's like, come on. This is a screen that displays text. Can't you show me what each of these things does and why I'd want to click them?
 
@@ -566,9 +566,9 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:18:19] Norm: I think there is a correlation between the nicer the hotel, the bigger the hotel, the more expensive was to redo their IT.
 
-[00:18:25] Adam: Oh, yeah, no, no, no. I look, I know these big nice hotels that were built in the '20s are all brick and really hard to put Wi Fi signals through. And the companies, the third party companies, they contract to put the repeaters and routers everywhere. It's a nightmare. Hell with them. 35 bucks a day is a stupid price to pay for internet.
+[00:18:25] Adam: Oh, yeah, no, no, no. I look, I know these big nice hotels that were built in the '20s are all brick and really hard to put Wi Fi signals through. And the companies, the third party companies, they contract to put the repeaters and routers everywhere. It's a nightmare. Hell with them. $35 a day is a stupid price to pay for internet.
 
-[00:18:42] Will: Yes, even even anything a day is stupid. When you are paying two hundred and fifty plus a night. If I could go to the to the Holiday Inn Express and pay 79 dollars a night and get free Wi Fi,
+[00:18:42] Will: Yes, even even anything a day is stupid. When you are paying two hundred and fifty plus a night. If I could go to the to the Holiday Inn Express and pay $79 a night and get free Wi Fi,
 
 [00:18:52] Adam: fastest Wi Fi I've ever gotten in a hotel was in the one in Mojave Desert. Was the Motel in Mojave Desert?
 
@@ -604,7 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:19:59] Adam: Yeah.
 
-[00:19:59] Will: And it was, I think, right before my honeymoon, the Kindle came out. So I, we were going for like ten days or two weeks or something like that, and I, I'm a fast reader.
+[00:19:59] Will: And it was, I think, right before my honeymoon, the Kindle came out. So I, we were going for like 10 days or two weeks or something like that, and I, I'm a fast reader.
 
 [00:19:59] Adam: Yeah.
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:21:50] Will: That sounds wonderful.
 
-[00:21:51] Adam: And it took her over a hundred days, and it was absolutely backbreaking and grueling and transformative and. Transcendent, and the book is all of those things as well. Um, it's just
+[00:21:51] Adam: And it took her over 100 days, and it was absolutely backbreaking and grueling and transformative and. Transcendent, and the book is all of those things as well. Um, it's just
 
 [00:22:03] Will: It's the story of the walk.
 
@@ -660,7 +660,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:22:50] Norm: Okay.
 
-[00:22:50] Adam: She was, I guess, around twenty-six. 27, and so it was the I think the mid, the middle late '90s.
+[00:22:50] Adam: She was, I guess, around 26. 27, and so it was the I think the mid, the middle late '90s.
 
 [00:23:00] Norm: Is that something that anyone, either any of these people, any of you guys on this table, ever want to do? A long walk across country. It's a very cliche thing to do, but it's very like there's something very enamoring about. it.
 
@@ -742,7 +742,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:26:18] Will: Um, I think I'd like to do a month and then a month and then take some time off or or you know rent an Airbnb someplace and and then get back on the trail at the end of that two weeks or.
 
-[00:26:53] Adam: But also, you know, maybe even do it with your family. I've, I've been. I bought the boys packs because I figured, you know, this is a good age. Fifteen, they get some camping and some hiking. And now, um, and then when they leave home in a few years, which will be like that, they'll have a a pack for life. You know, they'll they'll have the skills to to do that. Um, every hike we did in Australia, New Zealand, Julia and I were were thinking and talking about Wild because it's so powerful. The way she writes about how the isolation is both liberating and claustrophobic. How how her feelings about the trail and her isolation on it change over the course of a hundred days. How she changes.
+[00:26:53] Adam: But also, you know, maybe even do it with your family. I've, I've been. I bought the boys packs because I figured, you know, this is a good age. 15, they get some camping and some hiking. And now, um, and then when they leave home in a few years, which will be like that, they'll have a a pack for life. You know, they'll they'll have the skills to to do that. Um, every hike we did in Australia, New Zealand, Julia and I were were thinking and talking about Wild because it's so powerful. The way she writes about how the isolation is both liberating and claustrophobic. How how her feelings about the trail and her isolation on it change over the course of 100 days. How she changes.
 
 [00:27:38] Norm: You change day to day.
 

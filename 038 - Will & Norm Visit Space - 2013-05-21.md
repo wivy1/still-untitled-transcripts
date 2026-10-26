@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:04:07] Will: Outside Mission Control, on the wall in about six-inch letters, there's a, there's, there is the quote. They don't say—you know, there's no—actually, it wasn't even there. It was at the, it was at the Saturn rocket park across the street. They don't say, "Hey, Tom Hanks messed up the quote." It's just there for you to take note of and, and appreciate.
 
-[00:04:25] Adam: I don't think that anyone at NASA, I really would be surprised if anyone at NASA is bothered by Hanks getting that quote slightly off from what it really was, given the amount of love and attention and beautiful narratives Hanks has rained down via NASA over the past fifteen years.
+[00:04:25] Adam: I don't think that anyone at NASA, I really would be surprised if anyone at NASA is bothered by Hanks getting that quote slightly off from what it really was, given the amount of love and attention and beautiful narratives Hanks has rained down via NASA over the past 15 years.
 
 [00:04:44] Will: I would say you're right. They like Tom Hanks.
 
@@ -232,9 +232,9 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:07:42] Adam: Oh, right, right. The LCD light bulb, LED light bulbs.
 
-[00:07:45] Will: Yeah, yeah. Hundred thousand years, hundred thousand hours. That's twenty—every—
+[00:07:45] Will: Yeah, yeah. 100,000 years, 100,000 hours. That's twenty—every—
 
-[00:07:49] Adam: Twenty years to change the bulb. The lamp will fail before the bulb does.
+[00:07:49] Adam: 20 years to change the bulb. The lamp will fail before the bulb does.
 
 [00:07:51] Will: Most likely. So Norm interviewed one of the divers who works in the Neutral Buoyancy Lab.
 
@@ -260,9 +260,9 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:08:17] Adam: So how big, how big is this pool?
 
-[00:08:18] Norm: This pool is like a hundred by two hundred by forty.
+[00:08:18] Norm: This pool is like 100 by 200 by 40.
 
-[00:08:21] Will: I think it's a hundred. It's even a little bit bigger than that. But yeah, it's so deep that when you stand on the edge, well, they have marks a foot back from the expansion joint, so you have to step back away from it because you kind of get vertigo when you look down into it. But it's so big and clear that you kind of don't—you're not able to process how deep and clear it is. It looks like it's about ten feet deep, twenty feet deep, and it's actually forty feet deep. It's, it's—it kind of reminds me of the reactor vessel at, um, at, uh, at, at, uh, the Reed Reactor—
+[00:08:21] Will: I think it's 100. It's even a little bit bigger than that. But yeah, it's so deep that when you stand on the edge, well, they have marks a foot back from the expansion joint, so you have to step back away from it because you kind of get vertigo when you look down into it. But it's so big and clear that you kind of don't—you're not able to process how deep and clear it is. It looks like it's about 10 feet deep, 20 feet deep, and it's actually 40 feet deep. It's, it's—it kind of reminds me of the reactor vessel at, um, at, uh, at, at, uh, the Reed Reactor—
 
 [00:08:47] Adam: Right.
 
@@ -362,19 +362,19 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:11:09] Adam: Oh, right. You would think they'd strip out the cockpit.
 
-[00:11:11] Will: Well, before they put those put them in the places, they they took in the gigapans and they did like the the 400 megapixel images of the inside three hundred sixty panorama, so we could see it all. But then they're they're being preserved, so they seal them off, and you know it's limited access and all that.
+[00:11:11] Will: Well, before they put those put them in the places, they they took in the gigapans and they did like the the 400 megapixel images of the inside 360 panorama, so we could see it all. But then they're they're being preserved, so they seal them off, and you know it's limited access and all that.
 
 [00:11:26] Adam: But even with a limited access, I mean, you were saying you'll probably never get to space, but I would have to say that you guys in your position as communicators,
 
 [00:11:35] Will: yes,
 
-[00:11:35] Adam: Might be among the seven billion people on Earth—
+[00:11:35] Adam: Might be among the 7 billion people on Earth—
 
 [00:11:38] Will: Yes.
 
 [00:11:39] Adam: On a shorter list of people who might get to space.
 
-[00:11:42] Will: yes. And I am going to go ahead and tell you right now: if I had 60,000,000 dollars, I would spend fifty million for for two weeks, no question.
+[00:11:42] Will: yes. And I am going to go ahead and tell you right now: if I had $60 million, I would spend fifty million for for two weeks, no question.
 
 [00:11:50] Adam: So I have to tell you when this. All right, so yeah, this won't mess up the auction right now. There is. Freaking Mercury helmet on eBay,
 
@@ -386,11 +386,11 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:12:07] Will: Wow.
 
-[00:12:08] Adam: It's really genuine, or it's one of the best—it's the best copy I have ever seen. It's sitting currently at about 1,500 bucks.
+[00:12:08] Adam: It's really genuine, or it's one of the best—it's the best copy I have ever seen. It's sitting currently at about $1,500.
 
 [00:12:15] Will: Ooh.
 
-[00:12:16] Adam: I've put in a maximum bid of thousand dollars.
+[00:12:16] Adam: I've put in a maximum bid of $1,000.
 
 [00:12:20] Norm: You're not sniping.
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:13:40] Will: The flight test.
 
-[00:13:41] Norm: The flight test, and never went to space. But you get to get, you know, ten feet close to it, but you don't get to actually go inside.
+[00:13:41] Norm: The flight test, and never went to space. But you get to get, you know, 10 feet close to it, but you don't get to actually go inside.
 
 [00:13:46] Norm: And the director of the museum there, at the Intrepid in New York, said that he had brought astronauts inside, because who had actually flown into space.
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:15:04] Will: Farts and sweat.
 
-[00:15:05] Adam: She says one of their hazing tricks they do to newbies who are bringing in the the gangway to the plane is they go now when you open the door, you have to be holding on to it, and they really they they engineer it so that the person's face is right there where the seal is broken, so they crack the door and get this face full of two hundred people's farts.
+[00:15:05] Adam: She says one of their hazing tricks they do to newbies who are bringing in the the gangway to the plane is they go now when you open the door, you have to be holding on to it, and they really they they engineer it so that the person's face is right there where the seal is broken, so they crack the door and get this face full of 200 people's farts.
 
 [00:15:30] Will: Concentrated fart smell.
 
@@ -592,7 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:18:00] Norm: But the new stuff.
 
-[00:18:01] Will: They didn't want us to eat forty-year-old food. I don't know why.
+[00:18:01] Will: They didn't want us to eat 40-year-old food. I don't know why.
 
 [00:18:03] Norm: Although Traci was super excited because apparently the French,
 
@@ -630,7 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:18:47] Norm: Only in the vacuum on the shade side, and there is a module on ISS where you—experiments where organic life and stuff is—they're all exposed to the vacuum. It's on the Japanese module, but no, there's no—space shuttle had refrigeration. ISS, because the power requirements would be too much.
 
-[00:19:02] Will: Right, right, right. So they're they're running off of like four megawatts or something like that, and with the with all the other stuff that goes on, it's just it was too much of a load. They have a little bit of a chiller that you can put a thing of water in, and it'll it'll make it cool so that after they finish working out, they can drink a cold beverage. But no refrigeration space, so it all has to be shelf stable, which means it has to survive at ambient temperature, ambient room temperature for the length of time it takes to get there, and then twelve months afterwards thereabouts. So
+[00:19:02] Will: Right, right, right. So they're they're running off of like four megawatts or something like that, and with the with all the other stuff that goes on, it's just it was too much of a load. They have a little bit of a chiller that you can put a thing of water in, and it'll it'll make it cool so that after they finish working out, they can drink a cold beverage. But no refrigeration space, so it all has to be shelf stable, which means it has to survive at ambient temperature, ambient room temperature for the length of time it takes to get there, and then 12 months afterwards thereabouts. So
 
 [00:19:30] Adam: that's a rough requirement.
 
@@ -674,7 +674,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:21:51] Norm: It's just bloody.
 
-[00:21:52] Will: Like I think pirates ate better food than that in the sixteen hundreds.
+[00:21:52] Will: Like I think pirates ate better food than that in the 1600s.
 
 [00:21:55] Adam: What was awful about it?
 
@@ -824,7 +824,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:27:50] Norm: And and they and they have so much insight, and they have stories, and you know, even before we start shooting video, we had long conversations, and it was wonderful.
 
-[00:27:59] Will: Yeah, I I wish. I mean, I know sometimes it's difficult to get people to talk in a kind of off the cuff way when you aim a camera at them, and and I think that the next time we get to go do something with NASA folks, I am probably going to just roll the cameras the entire time, and then we'll have these massive, long, sprawling forty minute conversations. So we just post and see what see people like.
+[00:27:59] Will: Yeah, I I wish. I mean, I know sometimes it's difficult to get people to talk in a kind of off the cuff way when you aim a camera at them, and and I think that the next time we get to go do something with NASA folks, I am probably going to just roll the cameras the entire time, and then we'll have these massive, long, sprawling 40 minute conversations. So we just post and see what see people like.
 
 [00:28:16] Adam: Totally agree. I totally agree. I think that's a plan.
 

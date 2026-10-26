@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:01:22] Adam: So the whole time we were working on that project, you were building a moon city in your head.
 
-[00:01:28] Andy: Yeah, I was. It was still. I was in the early stages back then, and I was actually working on a different novel that I. Oh. I got about seventy thousand words into a completely different novel before I realized one day, " Oh dear, this sucks."
+[00:01:28] Andy: Yeah, I was. It was still. I was in the early stages back then, and I was actually working on a different novel that I. Oh. I got about 70,000 words into a completely different novel before I realized one day, " Oh dear, this sucks."
 
 [00:01:47] Norm: That that was the one that you had teased or mentioned when we did the talking room
 
@@ -56,9 +56,9 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:01:52] Norm: What was percolating in your head?
 
-[00:01:53] Andy: Yeah, it was called Jacques. And it was it had aliens and faster than light travel and all these soft sci-fi concepts and that would have been fine for me to depart from my hard sci-fi roots, but it was also not very good. So I just went no, I can't do this. Seventy thousand words, by the way, is about three quarters of an entire novel.
+[00:01:53] Andy: Yeah, it was called Jacques. And it was it had aliens and faster than light travel and all these soft sci-fi concepts and that would have been fine for me to depart from my hard sci-fi roots, but it was also not very good. So I just went no, I can't do this. 70,000 words, by the way, is about three quarters of an entire novel.
 
-[00:02:11] Adam: When this is really interesting. When so I'm sure writers out there who want to get published would be loath to throw out seventy thousand words, but that's kind of part of a process of being a writer, isn't it?
+[00:02:11] Adam: When this is really interesting. When so I'm sure writers out there who want to get published would be loath to throw out 70,000 words, but that's kind of part of a process of being a writer, isn't it?
 
 [00:02:25] Andy: Yeah, it hurts. Yeah, it that was not fun, but I just had to. I didn't want to, and you know, there was a lot of pressure following up The Martian.
 
@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:03:47] Norm: What was the straw that broke the camel's back?
 
-[00:03:50] Andy: Um, when I got to about the seventy thousand word mark, I was like, " I am still in the first act."
+[00:03:50] Andy: Um, when I got to about the 70,000 word mark, I was like, " I am still in the first act."
 
 [00:03:56] Norm: Oh,
 
@@ -404,7 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:19:26] Unknown speaker (Norm or Andy): even half
 
-[00:19:26] Andy: impulse would only take fifteen minutes
+[00:19:26] Andy: impulse would only take 15 minutes
 
 [00:19:28] Norm: half impulse is eighth eighth light speed one eighth c yeah
 

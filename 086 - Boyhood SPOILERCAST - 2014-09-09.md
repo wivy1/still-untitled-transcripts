@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:03:22] Will: of course.
 
-[00:03:22] Adam: And they were almost going to close down, and Quentin bought it and said, " As long as I'm rich, the New Beverly will have double features for five bucks."
+[00:03:22] Adam: And they were almost going to close down, and Quentin bought it and said, " As long as I'm rich, the New Beverly will have double features for $5."
 
 [00:03:35] Will: That's awesome.
 
@@ -160,11 +160,11 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:04:55] Adam: Kill Bill spoiler alert.
 
-[00:04:57] Will: It's a ten year old movie. It's fine.
+[00:04:57] Will: It's a 10 year old movie. It's fine.
 
 [00:04:57] Adam: The crying game is a man.
 
-[00:05:01] Norm: Two hundred ninety nine of them die.
+[00:05:01] Norm: 299 of them die.
 
 [00:05:05] Will: Luke is his son. No, at the at the end of the first movie, when he kills [unclear: over], when she kills O-Ren Ishii,
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:06:34] Will: Oh, yeah.
 
-[00:06:34] Adam: negative three seconds. And the posters are on eBay. They're expensive. They're about 600 bucks.
+[00:06:34] Adam: negative three seconds. And the posters are on eBay. They're expensive. They're about $600.
 
 [00:06:34] Norm: You have it, Tyler Stout.
 
@@ -252,9 +252,9 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:07:45] Will: Right. I mean, wash them out, but they're absolutely gorgeous in person a lot of times.
 
-[00:07:45] Adam: Oh yeah, so I bought Julia. I bought Julia a first. So in movie posters, you can pay five bucks for a movie poster, or you can buy one from the year the film came out in the country that it was first released and made in, and that's going to be the most. Expensive one. That's always going to,
+[00:07:45] Adam: Oh yeah, so I bought Julia. I bought Julia a first. So in movie posters, you can pay $5 for a movie poster, or you can buy one from the year the film came out in the country that it was first released and made in, and that's going to be the most. Expensive one. That's always going to,
 
-[00:07:45] Norm: and that's the bigger than when people buy posters. When you go to the local college art store, it's twenty-four by thirty-six is the reprint, but movie posters are bigger. They're forty-seven. tall.
+[00:07:45] Norm: and that's the bigger than when people buy posters. When you go to the local college art store, it's 24 by 36 is the reprint, but movie posters are bigger. They're 47. tall.
 
 [00:07:45] Adam: often, yeah. And if you buy the originals, sometimes they come that they've never been really unfolded. So it is, it is comes in a thing like this.
 
@@ -298,11 +298,11 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:09:42] Will: Yeah. Why do people do that? Why do you? Why that? Like when I, even when I was a little kid, it made me crazy when I would go buy the Kenner Han Solo blaster, and it had fucking Han Solo written on the side of it. Why do they do that?
 
-[00:09:42] Norm: It’s for the kids. Oh. Two tips for posters. There's a great website. Internet Movie Poster Awards. It's a. I don't know if it looks like a 1998 era site, but it has all the movie posters plus the alt international versions that you can get high res downloads of. And also, if you buy prints, invest in an art portfolio, not just like your Alvin zip portfolio, but the ones with the sleeves. They're kind of pricey. You get a 24 by 36 one for about 170 dollars.
+[00:09:42] Norm: It’s for the kids. Oh. Two tips for posters. There's a great website. Internet Movie Poster Awards. It's a. I don't know if it looks like a 1998 era site, but it has all the movie posters plus the alt international versions that you can get high res downloads of. And also, if you buy prints, invest in an art portfolio, not just like your Alvin zip portfolio, but the ones with the sleeves. They're kind of pricey. You get a 24 by 36 one for about $170.
 
 [00:10:28] Adam: But that'll keep your stuff really nice.
 
-[00:10:29] Norm: And then you get like nice plastic sleeves that you can buy five packs or ten packs of.
+[00:10:29] Norm: And then you get like nice plastic sleeves that you can buy five packs or 10 packs of.
 
 [00:10:33] Adam: That's really good,
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:11:02] Will: It’s like choosing children. Yeah, I mean, we all have a favorite child.
 
-[00:11:16] Adam: I mean, Pulp Fiction list. Pulp Fiction sits at the top of you know within the top ten 20th century films as far as I'm concerned.
+[00:11:16] Adam: I mean, Pulp Fiction list. Pulp Fiction sits at the top of you know within the top 10 20th century films as far as I'm concerned.
 
 [00:11:25] Will: Absolutely, but but for me, Kill Bill, it's one of those. If I'm flipping through the channels and I see Kill Bills on, that's three hours gone.
 
@@ -416,13 +416,13 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:13:37] Adam: It's called Boyhood. He started making it in 2003,
 
-[00:13:46] Will: I think so, ten years ago.
+[00:13:46] Will: I think so, 10 years ago.
 
 [00:13:47] Adam: No, no, no,
 
-[00:13:47] Norm: twelve years ago,
+[00:13:47] Norm: 12 years ago,
 
-[00:13:47] Adam: 2001, because he spent twelve years making it.
+[00:13:47] Adam: 2001, because he spent 12 years making it.
 
 [00:13:47] Will: Okay,
 
@@ -434,7 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:14:16] Will: a family story,
 
-[00:14:16] Adam: a family story every year for twelve years, and so you get to watch this kid grow up.
+[00:14:16] Adam: a family story every year for 12 years, and so you get to watch this kid grow up.
 
 [00:14:30] Norm: And the amazing thing is,
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:14:35] Adam: This is a spoiler cast. We're going to talk about the pieces of it. Yeah,
 
-[00:14:38] Norm: people never really. I mean, they didn't promote it at all. IFC paid for it. They paid. It cost them 200,000 dollars a year. Ethan Hawke had kind of. He was probably the highest profile. You saw his career go up and down throughout the making of this movie.
+[00:14:38] Norm: people never really. I mean, they didn't promote it at all. IFC paid for it. They paid. It cost them $200,000 a year. Ethan Hawke had kind of. He was probably the highest profile. You saw his career go up and down throughout the making of this movie.
 
 [00:14:52] Will: When he started this, he was coming off of Gattaca, probably right.
 
@@ -494,13 +494,13 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:15:59] Norm: Oh, that would be.
 
-[00:15:59] Adam: But when you think about the actual. How you? Sorry, how do I put this? The remarkable aspect of shooting a film over twelve years is, in and of itself, so surprising that how do you grid a plot into that without actually lessening it? Right? If you put some sort of mystery on this, then it just feels like a gimmick. Well, and and Linklater rides this beautiful line of making an almost plotless movie that is really it feels in the end like you've just grown up with the family.
+[00:15:59] Adam: But when you think about the actual. How you? Sorry, how do I put this? The remarkable aspect of shooting a film over 12 years is, in and of itself, so surprising that how do you grid a plot into that without actually lessening it? Right? If you put some sort of mystery on this, then it just feels like a gimmick. Well, and and Linklater rides this beautiful line of making an almost plotless movie that is really it feels in the end like you've just grown up with the family.
 
 [00:16:47] Will: Like the the the movies that are family dramas that I like the most almost always that's that that's that you walk away feeling like you're a part of the family and you just left the family reunion or whatever
 
 [00:16:47] Adam: exactly
 
-[00:16:47] Will: the dramatic set pieces. So the fact that this takes place over twelve years is super interesting to me.
+[00:16:47] Will: the dramatic set pieces. So the fact that this takes place over 12 years is super interesting to me.
 
 [00:17:05] Adam: It is, and it's in the end. Have you ever read A Hundred Years of Solitude?
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:18:26] Will: There is a lives
 
-[00:18:27] Adam: of fourteen up, twenty eight up, now at fifty six up.
+[00:18:27] Adam: of 14 up, 28 up, now at 56 up.
 
 [00:18:27] Norm: So it's not unprecedented. What's unprecedented is the fiction of it, and in terms of the writing challenge, they had their loose outline of what they wanted to do, but all the actors contributed, so it was an evolving story. They had to roll with life as life happened, but I'm sure Linklater had an arc in mind.
 
@@ -534,13 +534,13 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:18:55] Will: What What's the basic story? Like, is it? It's a family that starts out happy with a six year old kid to get divorced somewhere along the way.
 
-[00:18:55] Adam: No, no, no. Actually, you start out with a divorced family. Patricia is a single mom. She has two kids. They have to move early on. They struggle financially throughout the twelve years. Her estranged ex husband is played by Ethan Hawke, who is, fearless. I I I have always had this difficult relationship with Ethan Hawke because I just there's sometimes I love him, sometimes I hate him. Frankly, I now I'm a full Ethan Hawke convert. He's fearless.
+[00:18:55] Adam: No, no, no. Actually, you start out with a divorced family. Patricia is a single mom. She has two kids. They have to move early on. They struggle financially throughout the 12 years. Her estranged ex husband is played by Ethan Hawke, who is, fearless. I I I have always had this difficult relationship with Ethan Hawke because I just there's sometimes I love him, sometimes I hate him. Frankly, I now I'm a full Ethan Hawke convert. He's fearless.
 
 [00:19:30] Will: The last the sunset movie, sunset sunrise. That those movies are wonderful.
 
 [00:19:34] Adam: Yeah, full on his absolute best work.
 
-[00:19:36] Norm: All same director and the same ambitious filmmaking coming every ten years.
+[00:19:36] Norm: All same director and the same ambitious filmmaking coming every 10 years.
 
 [00:19:40] Adam: Absolutely, and those films were written with Ethan Hawke and Julie Delpy. They wrote them all together. And and actually, interestingly enough, although those before sunrise, before sunset, and before midnight films, all feel very verite. In fact, all that text was written by them and then held to. Really, Linklater said it's important to me to hold to the text when I'm shooting, not to get all improvisy because I have a way I want the scene to go. So he is a really masterful filmmaker at guiding scenes and plots, and the way this film meanders feels so natural. It's three plus hours long and it goes like that.
 
@@ -748,7 +748,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:28:59] Will: Yeah. It has a an unbelievable Rotten Tomatoes score. So
 
-[00:29:04] Adam: I'm I'm I'm pretty I'm not convinced that I think it's entirely possible he may come back in a couple years and shoot for another ten years.
+[00:29:04] Adam: I'm I'm I'm pretty I'm not convinced that I think it's entirely possible he may come back in a couple years and shoot for another 10 years.
 
 [00:29:12] Norm: The one I will have. I we've been gushing about the movie. Um, it's not without some faults. Uh, I think arms folded.
 
@@ -764,9 +764,9 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:29:23] Norm: Um, the boy, he gets very the last third. He gets very mired in. Being existential as young men are—
 
-[00:29:23] Will: that’s the right thing to happen when you're seventeen.
+[00:29:23] Will: that’s the right thing to happen when you're 17.
 
-[00:29:23] Norm: It is. It is. I mean, the first breakup. It is. His dialogue becomes very, you know, like twelfth grade. You know, philosophy.
+[00:29:23] Norm: It is. It is. I mean, the first breakup. It is. His dialogue becomes very, you know, like 12th grade. You know, philosophy.
 
 [00:29:51] Will: Was the boy involved with writing stuff too, or was
 
@@ -774,11 +774,11 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:29:51] Adam: well? He would ask him about stuff that he was going through, also, and we've built that stuff in so that the kid had some real markers to work from.
 
-[00:29:51] Will: Because I was going to say it's hard. When I was in my mid twenties, I could look back and remember what it was like to be seventeen years old through the lens of ten years of time.
+[00:29:51] Will: Because I was going to say it's hard. When I was in my mid 20s, I could look back and remember what it was like to be 17 years old through the lens of 10 years of time.
 
 [00:29:51] Adam: Yeah.
 
-[00:29:51] Will: When I wouldn't now, I don't think I could do that. I don't think I could write a seventeen-year-old that that is that reads true to seventeen-year-olds.
+[00:29:51] Will: When I wouldn't now, I don't think I could do that. I don't think I could write a 17-year-old that that is that reads true to 17-year-olds.
 
 [00:30:20] Adam: So wait. So what did you think didn't quite work?
 
@@ -804,7 +804,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:31:04] Adam: yeah, could you imagine?
 
-[00:31:04] Will: eight years into a twelve year thing, and be like, oh, you're you're fucking Oliver now, cousin of the Bradys.
+[00:31:04] Will: eight years into a 12 year thing, and be like, oh, you're you're fucking Oliver now, cousin of the Bradys.
 
 [00:31:17] Norm: The other thing, and I started by saying that his daughter is a revelation. Is watching it, I wanted the same movie from the female perspective because I think that would have been things
 

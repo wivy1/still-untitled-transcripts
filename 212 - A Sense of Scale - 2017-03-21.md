@@ -146,13 +146,13 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:09:29] Will: the yeah
 
-[00:09:29] Norm: the book, but yeah, it's it's a multi billion dollar venture that took years, and its culmination, CERN itself as organization is over fifty years old, and it started with linear colliders, the smaller circular colliders, and and the Large Hadron Collider, which opened in 2007, I believe, is a multi year, multi billion dollar effort, which you can't fathom today, an international effort for to do a to what boils down to science experiments.
+[00:09:29] Norm: the book, but yeah, it's it's a multi billion dollar venture that took years, and its culmination, CERN itself as organization is over 50 years old, and it started with linear colliders, the smaller circular colliders, and and the Large Hadron Collider, which opened in 2007, I believe, is a multi year, multi billion dollar effort, which you can't fathom today, an international effort for to do a to what boils down to science experiments.
 
 [00:09:54] Will: Well, it's particle physics too, which is you know
 
 [00:09:54] Norm: intangible.
 
-[00:09:54] Will: Well, it is. It is. They like a lot of the things that we use every like these. Every lot of stuff in our phones happen because of things that we learned doing particle physics forty years ago. But the but the results from those those experiments take a really long time to become apparent and and to to develop applications of. So the fact that we've Europe in large part has spent billions of dollars building this this incredible experiment or series of experiments right is is incredible. So what what last time you were there you went and looked at the um the
+[00:09:54] Will: Well, it is. It is. They like a lot of the things that we use every like these. Every lot of stuff in our phones happen because of things that we learned doing particle physics 40 years ago. But the but the results from those those experiments take a really long time to become apparent and and to to develop applications of. So the fact that we've Europe in large part has spent billions of dollars building this this incredible experiment or series of experiments right is is incredible. So what what last time you were there you went and looked at the um the
 
 [00:10:29] Norm: Atlas
 
@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:10:30] Norm: right yes so our our primary contact the physicists who part of the outreach program invited us they are Steven Goldfarb he also he works for the Atlas experiment so the way it's organizationally works is there's the LHC which is the the ring and then along the ring there are four detectors or experiments where the particles collide and then they built these giant room size underground cavern machines that detect them and study them and we're talking about petabytes of data you know per per hour that's being sent away to be analyzed. And it's all
 
-[00:11:03] Will: petabyte is a thousand terabytes.
+[00:11:03] Will: petabyte is 1,000 terabytes.
 
 [00:11:03] Norm: Yeah.
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:11:48] Adam: Oh wow.
 
-[00:11:48] Norm: So Kishore, who works for the Bay Area, he runs the Bay Area Science Festival, works for UCSF. He his field is basically science communication. And so, Steven Goldfarb, the physicist, we we set up a workshop where we had thirty, I think, thirty five people attend, physicists and communicators at CERN, and Kishore gave a presentation to talk about science communication, how physicists can be better communicators, because there are a lot of people—
+[00:11:48] Norm: So Kishore, who works for the Bay Area, he runs the Bay Area Science Festival, works for UCSF. He his field is basically science communication. And so, Steven Goldfarb, the physicist, we we set up a workshop where we had 30, I think, 35 people attend, physicists and communicators at CERN, and Kishore gave a presentation to talk about science communication, how physicists can be better communicators, because there are a lot of people—
 
 [00:12:16] Adam: The A in STEAM,
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:16:57] Will: What?
 
-[00:16:57] Norm: They have a whole facility. It is thousands and thousands of square feet with, I believe, fifteen CNCs, up to seven or nine axis CNCs.
+[00:16:57] Norm: They have a whole facility. It is thousands and thousands of square feet with, I believe, 15 CNCs, up to seven or nine axis CNCs.
 
 [00:16:57] Adam: Wow,
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:20:03] Will: So, how, but hold on, doesn't it speed limit? Or can you can you turn that off if you get crazy?
 
-[00:20:08] Adam: No, the the top speed of this is actually almost twenty miles per hour,
+[00:20:08] Adam: No, the the top speed of this is actually almost 20 miles per hour,
 
 [00:20:08] Will: Oh, Jesus.
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:20:35] Norm: When you when you travel, like you're in a new town, you have something like the Onewheel. When you look at Google Maps, you look at the pedestrian walking time and divide that by three, like for for time estimation, because there is no.
 
-[00:20:49] Adam: Actually, no. It's fairly close to a bicycle in terms of time. You know, with an average speed of twelve miles. Per hour, it's not far off of what a bike journey would be, and I do. I have been getting out in most cities. It's been lovely since we left the Northeast, where it's actually warm down here. In well, it was in Florida for the last week. Um, uh, and speaking of Florida, when I was in Melbourne, Florida, my friend Dave Lavery from NASA came and picked up Thing Two and I, and we got a kind of mind-bending tour. Well, first we went to the Kennedy Space Center, which is I don't know if you've been since since the the shuttles there.
+[00:20:49] Adam: Actually, no. It's fairly close to a bicycle in terms of time. You know, with an average speed of 12 miles. Per hour, it's not far off of what a bike journey would be, and I do. I have been getting out in most cities. It's been lovely since we left the Northeast, where it's actually warm down here. In well, it was in Florida for the last week. Um, uh, and speaking of Florida, when I was in Melbourne, Florida, my friend Dave Lavery from NASA came and picked up Thing Two and I, and we got a kind of mind-bending tour. Well, first we went to the Kennedy Space Center, which is I don't know if you've been since since the the shuttles there.
 
 [00:21:28] Will: No,
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:27:14] Will: there was a Delta and there was a SpaceX last week both Delta
 
-[00:27:17] Adam: it was a Delta and it was it was unfortunately like thirty minutes late than later than it should have been which meant that we when it was supposed to go was fifteen minutes before Brain Candy went on stage and so fifteen minutes before my entire crew was on the roof of our theater because we would have been able to see it from Melbourne Florida
+[00:27:17] Adam: it was a Delta and it was it was unfortunately like 30 minutes late than later than it should have been which meant that we when it was supposed to go was 15 minutes before Brain Candy went on stage and so 15 minutes before my entire crew was on the roof of our theater because we would have been able to see it from Melbourne Florida
 
 [00:27:38] Norm: yeah yeah is that a public tour or did you guys get special access
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:30:55] Norm: Very cool. As Adam alluded to earlier, we have a new series where Adam's visiting different makerspaces around the country. This week, we have a video of the Children's Museum from Pittsburgh. This all brought to you in part by the Fab Foundation. So that's a great video series. You should check that out. Yeah. And Tested community, we have our newest project with Sean and Jeremy, where they're trying to recreate the perfect thermal detonator from Return of the Jedi. And Adam contributed to part of that as well. So you got to check that out.
 
-[00:31:24] Will: Oh, and I forgot to say this last week, but the first episode of the Foo Show is out now on Steam. You can go download it and buy it. It's five bucks if you want to get the whole season. It's twenty two fifty, I think, right now. And we talked to I talked to Brendan Chung from Blendo Games about his game Quadrilateral Cowboy, which is a cyberspace hacking game, like a Gibsonian kind of cyberspace hacking game. He built it mostly by himself. Brought in one person at the end. We talk a lot about how the game's made, and there's an extended bit about like interactivity and toilets in video games and the history of that. So, I highly encourage you to check it out on Steam. You can just search for the Foo Show.
+[00:31:24] Will: Oh, and I forgot to say this last week, but the first episode of the Foo Show is out now on Steam. You can go download it and buy it. It's $5 if you want to get the whole season. It's $22.50, I think, right now. And we talked to I talked to Brendan Chung from Blendo Games about his game Quadrilateral Cowboy, which is a cyberspace hacking game, like a Gibsonian kind of cyberspace hacking game. He built it mostly by himself. Brought in one person at the end. We talk a lot about how the game's made, and there's an extended bit about like interactivity and toilets in video games and the history of that. So, I highly encourage you to check it out on Steam. You can just search for the Foo Show.
 
 [00:32:01] Adam: Awesome, awesome.
 

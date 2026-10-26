@@ -128,11 +128,11 @@ Episode URL: https://www.youtube.com/watch?v=7iLD6b69O28
 
 [00:06:35] Will: Um, you know, you, you, in another episode, you talked about having access to the charge account at the hardware store. So when you wanted to make something, you just went down. You, if you needed $15 worth of stuff, you bought $15 worth of stuff and loaded on the bike and took it home.
 
-[00:06:45] Adam: And it went even farther than that. By the time I was, I guess, 14, 15, I think. I was in art class in high school, and my art teacher, Mr. Benton, who I think might still be there, had a project. You have to build something completely out of corrugated cardboard. Now I'd worked with cardboard before, and I came home and I told my dad, "I get to build stuff out of cardboard." He's like, "Great, get in the car." And I got in the car, and he drove me all the way to his art supply store in Westchester County, and he bought me ten sheets of 24 by 36 standard brown corrugated clean sheets, and I have to tell you the, the thrill that I got from-
+[00:06:45] Adam: And it went even farther than that. By the time I was, I guess, 14, 15, I think. I was in art class in high school, and my art teacher, Mr. Benton, who I think might still be there, had a project. You have to build something completely out of corrugated cardboard. Now I'd worked with cardboard before, and I came home and I told my dad, "I get to build stuff out of cardboard." He's like, "Great, get in the car." And I got in the car, and he drove me all the way to his art supply store in Westchester County, and he bought me 10 sheets of 24 by 36 standard brown corrugated clean sheets, and I have to tell you the, the thrill that I got from-
 
 [00:07:24] Will: Oh yeah.
 
-[00:07:24] Adam: These being mine, and that I could do whatever I wanted with them. I could not believe this, and I, I still remember the feeling. I, I built ten of everything for that assignment. I think I built, uh, I built the MTV logo. I built a full-size guitar. I built a turntable. I built a toaster. I built a something I could wear. I mean, all of this out of corrugated cardboard. Um, and yeah, so my parents were very, very clear that my interests had, uh, were, were a priority to them.
+[00:07:24] Adam: These being mine, and that I could do whatever I wanted with them. I could not believe this, and I, I still remember the feeling. I, I built 10 of everything for that assignment. I think I built, uh, I built the MTV logo. I built a full-size guitar. I built a turntable. I built a toaster. I built a something I could wear. I mean, all of this out of corrugated cardboard. Um, and yeah, so my parents were very, very clear that my interests had, uh, were, were a priority to them.
 
 [00:07:55] Will: Well, and when you're, when you're talking about kids, especially kids that, I mean, there's a- I remember how kind of, I don't want to say attention deficit because that's probably wrong, but I, like, I was a very flighty kid. So I would be into something, and if I didn't, if I didn't either pick it up, or I, I would try it out. If I liked it, then I would stick with it, and if I didn't, then I would let it go two weeks later.
 
@@ -234,7 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=7iLD6b69O28
 
 [00:14:41] Will: Like the bark was too dangerous, which seems a little weird to me as a kid who grew up playing on gravel and asphalt. I know. I mean, do you think that that whole, the, the whole, we've got to protect the kids at all costs, even from themselves, is this a counter to that, or are these two things completely unrelated, or-
 
-[00:14:57] Adam: Well, kids are going to hurt themselves no matter what. It's a good question. I think that I don't necessarily think that padded playgrounds or, uh, and that ilk are going to somehow overinsulate kids from, from exploring, because it's a natural childlike thing to explore. I think the thing that is really inhibiting is the idea that whatever they're exploring- how do I put this? There has to be the capacity for failure. That's the problem with our litigious society, is, you know, someone says, "You built a sidewalk and two levels were different. That failure made me trip, and thus you owe me a hundred thousand dollars." So someone's like-
+[00:14:57] Adam: Well, kids are going to hurt themselves no matter what. It's a good question. I think that I don't necessarily think that padded playgrounds or, uh, and that ilk are going to somehow overinsulate kids from, from exploring, because it's a natural childlike thing to explore. I think the thing that is really inhibiting is the idea that whatever they're exploring- how do I put this? There has to be the capacity for failure. That's the problem with our litigious society, is, you know, someone says, "You built a sidewalk and two levels were different. That failure made me trip, and thus you owe me $100,000." So someone's like-
 
 [00:15:41] Unknown speaker: Yeah.
 
@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=7iLD6b69O28
 
 [00:16:18] Adam: Again, because the example of your kid not getting supervision. And if you are, no one's shown you how to use a knife, but you're using one in the corner, you're going to get into a lot of tr- you're going to have a bad time.
 
-[00:16:29] Will: Yeah. Exactly. Exactly. Um, so okay, so parents, if your kid has exhibited maker tendencies, and you want to know where to start, like, what, what are, what are some resources for? Because I know we have a lot of, we have a lot of guys who are our age in the audience who are listening, and they have five-, ten-year-old kids.
+[00:16:29] Will: Yeah. Exactly. Exactly. Um, so okay, so parents, if your kid has exhibited maker tendencies, and you want to know where to start, like, what, what are, what are some resources for? Because I know we have a lot of, we have a lot of guys who are our age in the audience who are listening, and they have five-, 10-year-old kids.
 
 [00:16:45] Adam: Make magazine's phenomenal. Make, you know, again, you know what? I go back to, we did this a while back with the podcast of just choose a project to get started making.
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=7iLD6b69O28
 
 [00:18:08] Will: Yeah.
 
-[00:18:09] Adam: Uh, and the entry level for almost all of them is, is, is surpassingly small. You can buy a welder for 150 bucks on Craigslist. It's not going to weld very much, but at least you'll get somewhere with it.
+[00:18:09] Adam: Uh, and the entry level for almost all of them is, is, is surpassingly small. You can buy a welder for $150 on Craigslist. It's not going to weld very much, but at least you'll get somewhere with it.
 
 [00:18:21] Will: Well, or if you want to learn how to use it, you can go to the adult education, the adult extension classes, or TechShop.
 

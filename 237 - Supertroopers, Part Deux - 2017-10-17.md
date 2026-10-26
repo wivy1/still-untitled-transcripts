@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:01:39] Adam: The Next Generation and all the other ancillary properties that grew out of that in the '90s were just a huge, huge cultural phenomenon.
 
-[00:01:45] Norm: cover of Time Magazine multiple times. They broadcast on network television the thirtieth anniversary of. Star Trek as a special on TV, like on CBS or something, in 1998. But it was such a big deal that Hilton hotels in Las Vegas had developed a attraction. So if you went to the Hilton, you're from Las Vegas, Ryan.
+[00:01:45] Norm: cover of Time Magazine multiple times. They broadcast on network television the 30th anniversary of. Star Trek as a special on TV, like on CBS or something, in 1998. But it was such a big deal that Hilton hotels in Las Vegas had developed a attraction. So if you went to the Hilton, you're from Las Vegas, Ryan.
 
 [00:02:11] Ryan: Yeah, it was quite popular,
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:12:27] Norm: Well, you are running out of time because, and this is the part I am super conflicted about because I want to see it again in Dolby theaters, but because the film is doing so poorly, it may not be in theaters. They might be pulling it soon, and I want to wait till I get the book and have a chance to dive in the book, read the entire, and then enjoy it in theaters again.
 
-[00:12:46] Adam: Well, so I also have another hope about the film, which is I recognize its U.S. opening was softer than they anticipated, thirty-one million instead of forty-seven. I am very sad about that, and mostly the reason that I am sad about that. We might have talked about this last week. Is this? It means that less. It means that movie studios are going to be rightfully more circumspect about blowing 150 million bucks on a movie like this. I understand the reason that they would be. I just feel like it's better for culture overall if there are big risky bets made, like Alcon made on this film, because the result, even though it might not be a box office smash, is a magnificent addition to the canon of science fiction film and film in general. And it's such an important movie, as far as I'm concerned, that I think it will be nominated for several Oscars. And I hope that the Oscar campaign revivifies and perhaps gives a second theatrical life to this film.
+[00:12:46] Adam: Well, so I also have another hope about the film, which is I recognize its U.S. opening was softer than they anticipated, 31 million instead of 47. I am very sad about that, and mostly the reason that I am sad about that. We might have talked about this last week. Is this? It means that less. It means that movie studios are going to be rightfully more circumspect about blowing $150 million on a movie like this. I understand the reason that they would be. I just feel like it's better for culture overall if there are big risky bets made, like Alcon made on this film, because the result, even though it might not be a box office smash, is a magnificent addition to the canon of science fiction film and film in general. And it's such an important movie, as far as I'm concerned, that I think it will be nominated for several Oscars. And I hope that the Oscar campaign revivifies and perhaps gives a second theatrical life to this film.
 
 [00:13:40] Norm: And while we talk about shows like Black Mirror, and I know there's a resurgence in these anthology science fiction shows. Spielberg just signed up to do Amazing Stories for Apple, which could be an anthology show, and also there's the Philip K. Dick Electric Dreams series that Bryan Cranston's doing. Those are great, and those are going to expand the the horizon for a lot of these stories. But they're not the cinematic experience,
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:22:24] Ryan: Did not know,
 
-[00:22:24] Adam: and they get it right, like most of the time on the first or second try, and that when you think about a ninety-five-piece orchestra is like,
+[00:22:24] Adam: and they get it right, like most of the time on the first or second try, and that when you think about a 95-piece orchestra is like,
 
 [00:22:33] Norm: well, that's
 

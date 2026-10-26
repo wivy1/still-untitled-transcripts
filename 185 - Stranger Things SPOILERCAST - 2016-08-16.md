@@ -90,13 +90,13 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:02:30] Norm: The emails don't come in. The drugs are drugs are just kicking in.
 
-[00:02:35] Rebecca: Richard Wiseman can take crazy power naps that he can like count himself down and in ten seconds be asleep and then nap for exactly ten minutes and then wake up. It's creepy.
+[00:02:35] Rebecca: Richard Wiseman can take crazy power naps that he can like count himself down and in 10 seconds be asleep and then nap for exactly 10 minutes and then wake up. It's creepy.
 
 [00:02:48] Adam: I'm ready to sing an ABBA cover song right away.
 
 [00:02:50] Rebecca: Right. Well, he always is.
 
-[00:02:52] Adam: That's that's you know I love the ten minute nap and in fact I love. The coffee nap. Have you ever tried the coffee nap?
+[00:02:52] Adam: That's that's you know I love the 10 minute nap and in fact I love. The coffee nap. Have you ever tried the coffee nap?
 
 [00:02:58] Rebecca: No.
 
@@ -192,11 +192,11 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:05:45] Rebecca: Uh, what, what's yours? What's your rate?
 
-[00:05:53] Adam: I'm not actually sure. I'm not in contact with some of the people that I married. Uh, it’s, you know, it's probably, it's probably. Probably sixty forty, um, didn’t last.
+[00:05:53] Adam: I'm not actually sure. I'm not in contact with some of the people that I married. Uh, it’s, you know, it's probably, it's probably. Probably 60-40, um, didn’t last.
 
 [00:06:02] Rebecca: Oh, okay. So you're under the average then.
 
-[00:06:05] Adam: But I'd have to go through the whole list. I really have married like fifteen or twenty couples.
+[00:06:05] Adam: But I'd have to go through the whole list. I really have married like 15 or 20 couples.
 
 [00:06:10] Rebecca: Because if you if you're if you want to pitch your services to future couples, right, you need to show.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:06:21] Norm: It's who you're marrying, not who's marrying you.
 
-[00:06:23] Adam: Right. Exactly. Um, I just saw some of my oldest friends, Stephen and Dagmar, a couple of weeks ago, Um, and I've known Stephen's for twenty five years, and I was their officiant at their wedding down in Palo Alto, and we were down at that same house. It was a lovely sort of like coming home party. I saw a lot of people.
+[00:06:23] Adam: Right. Exactly. Um, I just saw some of my oldest friends, Stephen and Dagmar, a couple of weeks ago, Um, and I've known Stephen's for 25 years, and I was their officiant at their wedding down in Palo Alto, and we were down at that same house. It was a lovely sort of like coming home party. I saw a lot of people.
 
 [00:06:41] Rebecca: Yeah, that's sweet.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:09:17] Adam: She's an aquanaut.
 
-[00:09:18] Rebecca: Yes, and she's she's this amazing explorer, and she has a lot of really awesome things to say about the ocean and the interconnectedness of life and how the like, uh, ninety something like 97% of all of the world's life is in the ocean, and this is the only planet we know of with life. So maybe 97% of all life in the universe. Is in the ocean. That's why it's so important to protect them and to honor our oceans.
+[00:09:18] Rebecca: Yes, and she's she's this amazing explorer, and she has a lot of really awesome things to say about the ocean and the interconnectedness of life and how the like, uh, 90 something like 97% of all of the world's life is in the ocean, and this is the only planet we know of with life. So maybe 97% of all life in the universe. Is in the ocean. That's why it's so important to protect them and to honor our oceans.
 
 [00:09:44] Adam: That's cool.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:09:58] Norm: That's right.
 
-[00:09:59] Adam: That's not my. Uh, the sonnet one sixteen, Shakespeare, " Let me not to the marriage of true minds admit impediments," which has one of my favorite verses ever, which is, "Love is not time's fool, though rosy cheeks and lips within his bending sickle. Roses, love is not time's fool, though rosy lips and cheeks within his bending sickle's compass come."
+[00:09:59] Adam: That's not my. Uh, the sonnet 116, Shakespeare, " Let me not to the marriage of true minds admit impediments," which has one of my favorite verses ever, which is, "Love is not time's fool, though rosy cheeks and lips within his bending sickle. Roses, love is not time's fool, though rosy lips and cheeks within his bending sickle's compass come."
 
 [00:10:25] Rebecca: Ooh, wow, that's that's pretty sexual. It's and it's probably about a young boy.
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:11:23] Norm: That's impressive.
 
-[00:11:23] Adam: I believe that's sixty nine. He's describing.
+[00:11:23] Adam: I believe that's 69. He's describing.
 
 [00:11:25] Norm: Wow. Well, speaking of young boys.
 
@@ -340,7 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:12:50] Rebecca: All right.
 
-[00:12:50] Norm: You got twelve minutes of podcast ready.
+[00:12:50] Norm: You got 12 minutes of podcast ready.
 
 [00:12:57] Rebecca: Yeah.
 
@@ -412,7 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:15:18] Rebecca: Yeah.
 
-[00:15:18] Adam: And I was, and we watched it for another ten minutes, and I was like, " It's because it looks to me like plot-wise they decided we got to get everyone on the same side by the end of this episode, so whatever it takes."
+[00:15:18] Adam: And I was, and we watched it for another 10 minutes, and I was like, " It's because it looks to me like plot-wise they decided we got to get everyone on the same side by the end of this episode, so whatever it takes."
 
 [00:15:28] Norm: Exactly. Which is supposed to be a real moment of gratification when everyone stops downing each other, but then it is. Difficult to get everyone that it's early. Yeah, halfway through.
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:16:44] Rebecca: The friendship. between the kids.
 
-[00:16:45] Adam: Oh, the the friendships between the kids was really lovely, and specifically, I thought the opening Dungeons and Dragons scenes—one of the most efficient bits of storytelling I have ever seen—was like, " Oh, your goal as a screenwriter is in two and a half minutes show me everything that's good about being twelve and playing D and D. Go!" Yeah, and they really did,
+[00:16:45] Adam: Oh, the the friendships between the kids was really lovely, and specifically, I thought the opening Dungeons and Dragons scenes—one of the most efficient bits of storytelling I have ever seen—was like, " Oh, your goal as a screenwriter is in two and a half minutes show me everything that's good about being 12 and playing D and D. Go!" Yeah, and they really did,
 
 [00:17:03] Norm: and then still use those that those elements to then tell the story. It's the overture. It is. Yeah,
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:20:49] Adam: just whoa, why not? Well, we gotta go.
 
-[00:20:51] Rebecca: A little too true to life, because I think that, uh, eleven-year-olds do yell too much.
+[00:20:51] Rebecca: A little too true to life, because I think that, uh, 11-year-olds do yell too much.
 
 [00:20:57] Adam: Uh, they, it's very plausible that yeah, you are totally right.
 
@@ -694,7 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:28:10] Norm: That's what it felt like.
 
-[00:28:11] Rebecca: But yes, that's what it felt like when your best friend is in the bedroom with her crush, and you're like out in the living room sipping your forty.
+[00:28:11] Rebecca: But yes, that's what it felt like when your best friend is in the bedroom with her crush, and you're like out in the living room sipping your 40.
 
 [00:28:20] Norm: or just being excluded,
 
@@ -902,7 +902,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:34:17] Rebecca: Yes, amazing.
 
-[00:34:18] Adam: She has. I can imagine, as showrunners, you sit down with a show like this, you plot it out, you feel great about how the plot's going to go, and then you realize that a tremendous amount of the success of this show relies upon some tremendously subtle, difficult, complex acting from a girl who's twelve or thirteen years old,
+[00:34:18] Adam: She has. I can imagine, as showrunners, you sit down with a show like this, you plot it out, you feel great about how the plot's going to go, and then you realize that a tremendous amount of the success of this show relies upon some tremendously subtle, difficult, complex acting from a girl who's 12 or 13 years old,
 
 [00:34:37] Norm: Yeah.
 
@@ -1030,7 +1030,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:39:46] Adam: Which is a great rarity.
 
-[00:39:46] Norm: Same font as the Choose Your Own Adventure books, and the Duffer Brothers asked the the opening titles designers to. They gave them twelve Stephen King books, and they make it evoke the Stephen King books.
+[00:39:46] Norm: Same font as the Choose Your Own Adventure books, and the Duffer Brothers asked the the opening titles designers to. They gave them 12 Stephen King books, and they make it evoke the Stephen King books.
 
 [00:40:00] Rebecca: Yeah,
 

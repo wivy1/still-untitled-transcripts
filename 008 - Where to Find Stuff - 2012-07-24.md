@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:03:00] Will: Yeah.
 
-[00:03:00] Adam: I'm making this thing, and I need a chrome ring. That's about ten inches in diameter. Do you have something like that? And he goes, " Well, what are you making?"
+[00:03:00] Adam: I'm making this thing, and I need a chrome ring. That's about 10 inches in diameter. Do you have something like that? And he goes, " Well, what are you making?"
 
 [00:03:10] Will: And then it’s just a—
 
@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:03:27] Adam: If you don't have it, that is one. That's the only fact I need to know. But why are you going to try and inhibit my ability to find it anywhere else?
 
-[00:03:34] Will: Well, and you get that a lot because because you give them that you you say what you're looking for, and then they kind of go, hmm. Yeah, there's like a there's like a hmm, there’s an up and to the right look, and there's sometimes a chin stroke, and it's like, and it's either yeah, go check out aisle ten because that's his buddy's aisle, and he's not going to have to bother with you at that point.
+[00:03:34] Will: Well, and you get that a lot because because you give them that you you say what you're looking for, and then they kind of go, hmm. Yeah, there's like a there's like a hmm, there’s an up and to the right look, and there's sometimes a chin stroke, and it's like, and it's either yeah, go check out aisle 10 because that's his buddy's aisle, and he's not going to have to bother with you at that point.
 
 [00:03:51] Adam: Yeah.
 
@@ -96,11 +96,11 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:04:29] Will: Hold on. Explain what a pick and pull yard is.
 
-[00:04:30] Adam: There’s a bunch of them out here in the Bay Area, but it's basically a junkyard full of cars where they don't have parts for sale. You go in and yank the part you need from a car that's out there, and you bring it, and they're like, " Eh, ten bucks." I mean, and everything is what you know what they decide to charge for it, and it's all as is.
+[00:04:30] Adam: There’s a bunch of them out here in the Bay Area, but it's basically a junkyard full of cars where they don't have parts for sale. You go in and yank the part you need from a car that's out there, and you bring it, and they're like, " Eh, $10." I mean, and everything is what you know what they decide to charge for it, and it's all as is.
 
 [00:04:48] Will: Yeah.
 
-[00:04:48] Adam: There's no warranty on anything, but for fixing your car for twenty bucks, which I did for years, there's no better thing to do.
+[00:04:48] Adam: There's no warranty on anything, but for fixing your car for $20, which I did for years, there's no better thing to do.
 
 [00:04:55] Will: Yeah.
 
@@ -120,15 +120,15 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:06:20] Will: Oh, okay. That’s—I’ve never I've never seen that before. I'll have to go check it out.
 
-[00:06:23] Adam: This is a great place. We should be linking to them right after this podcast. American Science and Surplus, their mothership is in Chicago. I have visited it many times, even long but as as long ago as eighteen years ago, and they get exactly what you'd imagine. They get surplus from military, engineering, and scientific industries, and they sell it for pennies on the dollar. And so sometimes there’s things in their catalog. Every time they have a catalog, something is in it. It's like we don't know what this is, but it's this big, this long, and it's got a button and a plug. You you decide what you want to do with it. It's three dollars.
+[00:06:23] Adam: This is a great place. We should be linking to them right after this podcast. American Science and Surplus, their mothership is in Chicago. I have visited it many times, even long but as as long ago as 18 years ago, and they get exactly what you'd imagine. They get surplus from military, engineering, and scientific industries, and they sell it for pennies on the dollar. And so sometimes there’s things in their catalog. Every time they have a catalog, something is in it. It's like we don't know what this is, but it's this big, this long, and it's got a button and a plug. You you decide what you want to do with it. It's $3.
 
 [00:06:59] Will: I love this. I love that stuff because then somebody and and then then there’s a puzzle there too, right? Because you get to figure out what it was for. And that's fantastic.
 
-[00:07:05] Adam: So they'll sell they sell all kinds of great switches for. I mean, you know, there are certain kinds of switches like micro switches which are really quite expensive, about twelve bucks if you bought them from DigiKey, whereas from American Science and Surplus they may be only two or three dollars, and that makes a big difference.
+[00:07:05] Adam: So they'll sell they sell all kinds of great switches for. I mean, you know, there are certain kinds of switches like micro switches which are really quite expensive, about $12 if you bought them from DigiKey, whereas from American Science and Surplus they may be only $2 or $3, and that makes a big difference.
 
 [00:07:19] Will: Oh yeah.
 
-[00:07:19] Adam: When you're building props for theater on a budget where your whole budget for a play is like 130 dollars.
+[00:07:19] Adam: When you're building props for theater on a budget where your whole budget for a play is like $130.
 
 [00:07:25] Will: Well, of course, and and I mean, if you're going to take it apart and use bits and pieces of it anyway, there's no reason to buy something new,
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:07:48] Adam: And sit there and put resistors in there, put switches, put AC adapters, put power supplies, put power supply couplers, all of that stuff, heat sinks, all of that stuff can will come in handy if what you're interested in is putting electronics together.
 
-[00:08:02] Will: Well, and and I mean, it's not like you have to manually desolder everything. If you have a hot plate and a good pair of tweezers. You can literally just put the board on the plate, heat it up to whatever temperature the solder is going to melt at, and then just start plucking stuff off with the tweezers. And it'll take fifteen or twenty minutes.
+[00:08:02] Will: Well, and and I mean, it's not like you have to manually desolder everything. If you have a hot plate and a good pair of tweezers. You can literally just put the board on the plate, heat it up to whatever temperature the solder is going to melt at, and then just start plucking stuff off with the tweezers. And it'll take 15 or 20 minutes.
 
 [00:08:15] Adam: I’ve never tried that, but I love that idea.
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:09:02] Will: It’s like a lightsaber.
 
-[00:09:03] Adam: I found a YouTube. Yes, your father didn't want me to give you this. I found a video on YouTube of a guy who designed. A magnificent vacuum former, the total cost of which is under like fifty dollars.
+[00:09:03] Adam: I found a YouTube. Yes, your father didn't want me to give you this. I found a video on YouTube of a guy who designed. A magnificent vacuum former, the total cost of which is under like $50.
 
 [00:09:17] Will: Wow!
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:10:31] Will: Okay.
 
-[00:10:32] Adam: Now, vacuum former can be built with you know about thirty dollars worth of wood and a shop vac. Heating element is always a difficult thing to solve. Some people actually make frames that they put in their oven.
+[00:10:32] Adam: Now, vacuum former can be built with you know about $30 worth of wood and a shop vac. Heating element is always a difficult thing to solve. Some people actually make frames that they put in their oven.
 
 [00:10:43] Will: Okay.
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:13:02] Will: Oh yeah.
 
-[00:13:03] Adam: Um, and fifty dollars. He has a several thousand dollar piece of equipment, and it works every bit as well.
+[00:13:03] Adam: Um, and $50. He has a several thousand dollar piece of equipment, and it works every bit as well.
 
 [00:13:09] Will: That's perfect. That's amazing.
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:17:16] Will: Right.
 
-[00:17:16] Adam: If you're not sure if you need a pneumatic powered riveter, buy one at Harbor Freight. They're like twenty bucks. If it turns out to be key to you, go to Grainger and spend 150. Because I tell you, I own both, and the one at Grainger is phenomenal. But you, if you're not going to use it, there's no need to invest in it. And the stuff you can get at flea markets is is so much less expensive. I mean, it's pennies on the dollar comparatively that it really is worth to try it out.
+[00:17:16] Adam: If you're not sure if you need a pneumatic powered riveter, buy one at Harbor Freight. They're like $20. If it turns out to be key to you, go to Grainger and spend 150. Because I tell you, I own both, and the one at Grainger is phenomenal. But you, if you're not going to use it, there's no need to invest in it. And the stuff you can get at flea markets is is so much less expensive. I mean, it's pennies on the dollar comparatively that it really is worth to try it out.
 
 [00:17:41] Will: Well, and the other thing is that sorry, Norm.
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:20:03] Adam: Absolutely.
 
-[00:20:04] Will: And you find such a weird variety of stuff here from from like art that you would hang on the wall that you'll pay three dollars for. All the way down to like metalworking tools. And random weird stuff.
+[00:20:04] Will: And you find such a weird variety of stuff here from from like art that you would hang on the wall that you'll pay $3 for. All the way down to like metalworking tools. And random weird stuff.
 
 [00:20:12] Adam: Absolutely, absolutely. I've picked up a whole portions of my shop back when I was starting out at at garage sales. Some, you know, somebody's dad passed away, and I got their compressor and table saw and chop saw.
 

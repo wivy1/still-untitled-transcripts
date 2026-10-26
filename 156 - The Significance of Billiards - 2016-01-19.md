@@ -98,17 +98,17 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:02:53] Will: That was that was the emoticon shrug. In case you missed it,
 
-[00:02:56] Adam: and then he appoints a science minister. And I don't know if you've been paying attention to what Stephen Harper has been doing in Canada for the past ten years, but he's been doing things like eliminating the census. And stopping Canadian scientists from being able to publish their work without prior permission.
+[00:02:56] Adam: and then he appoints a science minister. And I don't know if you've been paying attention to what Stephen Harper has been doing in Canada for the past 10 years, but he's been doing things like eliminating the census. And stopping Canadian scientists from being able to publish their work without prior permission.
 
-[00:03:12] Will: Well, it's it's it's the same things that we have, you know, like having somebody who, you know, believes that the Earth was created four thousand years ago.
+[00:03:12] Will: Well, it's it's it's the same things that we have, you know, like having somebody who, you know, believes that the Earth was created 4,000 years ago.
 
-[00:03:20] Adam: Six thousand years ago.
+[00:03:20] Adam: 6,000 years ago.
 
 [00:03:21] Will: I’m Sorry,
 
 [00:03:22] Adam: Please get your facts right.
 
-[00:03:23] Will: Six thousand years ago. I rounded down to be the House Science Science Chairman. That's always a good thing, right?
+[00:03:23] Will: 6,000 years ago. I rounded down to be the House Science Science Chairman. That's always a good thing, right?
 
 [00:03:29] Adam: Yes.
 
@@ -120,11 +120,11 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:03:40] Will: Okay.
 
-[00:03:40] Adam: So we get one day off per week. So we will be doing this thirty two city tour in like thirty five days, thirty six days.
+[00:03:40] Adam: So we get one day off per week. So we will be doing this 32 city tour in like 35 days, 36 days.
 
 [00:03:47] Will: What slackers!
 
-[00:03:48] Adam: It is so on Thanksgiving, we'll usually be performing, but within a couple of days of Thanksgiving, we'll have a day off, and we always rent a little banquet room somewhere for the whole crew, which our road crew I think is eleven people plus our two truck drivers is another two. So it's like thirteen, fourteen people, including Jamie and I, sitting down to a nice Thanksgiving dinner. And we’ve had it in several different places around the country over the years, but it's always really nice because this crew, road crews, man, they are they are gypsies. They, you know, one of my one of my old road crew guys, Bob, like sees his apartment for about a month and a half a year.
+[00:03:48] Adam: It is so on Thanksgiving, we'll usually be performing, but within a couple of days of Thanksgiving, we'll have a day off, and we always rent a little banquet room somewhere for the whole crew, which our road crew I think is 11 people plus our two truck drivers is another two. So it's like 13, 14 people, including Jamie and I, sitting down to a nice Thanksgiving dinner. And we’ve had it in several different places around the country over the years, but it's always really nice because this crew, road crews, man, they are they are gypsies. They, you know, one of my one of my old road crew guys, Bob, like sees his apartment for about a month and a half a year.
 
 [00:04:34] Norm: Wow.
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:07:33] Will: The room, and the amount. The appropriate amount of because the problem everybody has they buy a pool table and they're like oh man this is a lot bigger than I thought it was
 
-[00:07:38] Adam: for the pool table. That room needs to be like six feet all the way around minimum. Plus, you have, plus you want to be able to have people sit in chairs without interrupting the space. So a genuine pool room can be like twenty by 25 feet.
+[00:07:38] Adam: for the pool table. That room needs to be like six feet all the way around minimum. Plus, you have, plus you want to be able to have people sit in chairs without interrupting the space. So a genuine pool room can be like 20 by 25 feet.
 
 [00:07:52] Will: It gets it gets really big really quickly.
 
@@ -264,11 +264,11 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:10:35] Will: That must be nice.
 
-[00:10:36] Adam: And the five houses all have great similarities, but are very unique and different. In our house, the house my parents bought for fifty grand in 1972.
+[00:10:36] Adam: And the five houses all have great similarities, but are very unique and different. In our house, the house my parents bought for $50,000 in 1972.
 
 [00:10:46] Will: That's. I mean, in fairness, with inflation, that's probably three hundred.
 
-[00:10:50] Adam: Yeah, it's a lot. It's a lot. Actually, it's a lot of dough. But it was a three-story, fifteen-room,
+[00:10:50] Adam: Yeah, it's a lot. It's a lot. Actually, it's a lot of dough. But it was a three-story, 15-room,
 
 [00:10:54] Will: Holy cow.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:11:41] Will: Might have been a Radiolab, but I think it was.
 
-[00:11:42] Adam: I love telling that story. But so it had all original 1910 Brunswick-Balke-Collender equipment. I've still got the Kelly pool board, which is an incredibly rare piece. We sold the table a few a few years ago. I think my mom got a good amount of money for it at auction, but I grew up playing on that table, playing poorly. And then, when I was, I think, about sixteen, my dad's randy friend—he really has no other way to describe this crazy Irishman named Bob Clatworthy—I think he was Irish, might have been British anyway. Bob Clatworthy,
+[00:11:42] Adam: I love telling that story. But so it had all original 1910 Brunswick-Balke-Collender equipment. I've still got the Kelly pool board, which is an incredibly rare piece. We sold the table a few a few years ago. I think my mom got a good amount of money for it at auction, but I grew up playing on that table, playing poorly. And then, when I was, I think, about 16, my dad's randy friend—he really has no other way to describe this crazy Irishman named Bob Clatworthy—I think he was Irish, might have been British anyway. Bob Clatworthy,
 
 [00:12:18] Will: wonderful artist. The story's better if he's Irish.
 
@@ -310,15 +310,15 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:12:35] Will: And you actually started practicing shots, not just hitting the balls around.
 
-[00:12:37] Adam: I started running through practice drills, and in fact, until I so I then played. I think I was seventeen when that happened, so that would have been 1984. I played. I started playing and then played probably between one and two hours a day through 1990 when I moved out here to San Francisco. And by the by, the end, I was a I was in really, really good shape. I was going, I was going to New York. I was living in New York, so I was going between Society Billiards and Chelsea Billiards every single day. I had friends at both. I would sit and hang out with the hustlers and watch them play one pocket and one arm pool and crazy nine ball variants
+[00:12:37] Adam: I started running through practice drills, and in fact, until I so I then played. I think I was 17 when that happened, so that would have been 1984. I played. I started playing and then played probably between one and two hours a day through 1990 when I moved out here to San Francisco. And by the by, the end, I was a I was in really, really good shape. I was going, I was going to New York. I was living in New York, so I was going between Society Billiards and Chelsea Billiards every single day. I had friends at both. I would sit and hang out with the hustlers and watch them play one pocket and one arm pool and crazy nine ball variants
 
 [00:13:16] Unknown speaker: and [unclear: fifteen ball / trick shots],
 
-[00:13:18] Will: yeah, fifteen ball,
+[00:13:18] Will: yeah, 15 ball,
 
-[00:13:20] Adam: fifteen ball,
+[00:13:20] Adam: 15 ball,
 
-[00:13:21] Will: fifteen ball is when you’re, you’re, you have two shots and they have to add up to fifteen.
+[00:13:21] Will: 15 ball is when you’re, you’re, you have two shots and they have to add up to 15.
 
 [00:13:25] Adam: Oh my god, I've never played that.
 
@@ -392,7 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:17:34] Norm: Yeah, I think that's what it is.
 
-[00:17:35] Adam: You know, that it is that that handshake. You're right. That it's deeply satisfying that they can see a long tail of knowledge. Back then, in my early twenties, as most people do, I moved back into my parents' house one in 1988 for about a year. And my dad had a good friend, Robert Kipniss, a wonderful artist, wonderful visual artist, whose daughter Ruby I had gone to high school with. And what I didn't know about Bob Kipniss is, in addition to being a wonderful artist, he was a pool hustler in his early twenties in New York City. And this was in the late '50s and early '60s. He said he stopped pool hustling when he watched a guy get knifed in the gut and die at the table next to him at Julian's Billiards, which is the oldest pool hall still in New York, if it's still there.
+[00:17:35] Adam: You know, that it is that that handshake. You're right. That it's deeply satisfying that they can see a long tail of knowledge. Back then, in my early 20s, as most people do, I moved back into my parents' house one in 1988 for about a year. And my dad had a good friend, Robert Kipniss, a wonderful artist, wonderful visual artist, whose daughter Ruby I had gone to high school with. And what I didn't know about Bob Kipniss is, in addition to being a wonderful artist, he was a pool hustler in his early 20s in New York City. And this was in the late '50s and early '60s. He said he stopped pool hustling when he watched a guy get knifed in the gut and die at the table next to him at Julian's Billiards, which is the oldest pool hall still in New York, if it's still there.
 
 [00:18:25] Will: Yeah.
 
@@ -410,9 +410,9 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:20:30] Adam: I I you know I love eight ball. I love eight ball, and I love straight pool. I like the old style nine ball is a nine ball.
 
-[00:20:40] Will: I never played straight pool. Straight is that where you go one to fifteen?
+[00:20:40] Will: I never played straight pool. Straight is that where you go 1 to 15?
 
-[00:20:43] Adam: No, straight pool is literally you break the rack and sink as many balls as you can. The trick to straight pool is when you only have a couple balls left on the table. When you have one ball left on the table, you re rack the other fourteen without the heads without the head ball.
+[00:20:43] Adam: No, straight pool is literally you break the rack and sink as many balls as you can. The trick to straight pool is when you only have a couple balls left on the table. When you have one ball left on the table, you re rack the other 14 without the heads without the head ball.
 
 [00:21:00] Will: So you do it twice?
 
@@ -440,7 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:21:55] Norm: So It’s a fun game. You can just play by yourself.
 
-[00:21:57] Adam: Yeah, I love Screw Your Neighbor, which is a three-way game in which each person takes one through five, six through ten, or eleven through fifteen, and the goal is to have one of your balls left on the table. There are some great safety plays in Screw Your Neighbor, and actually, Thing One and I and my friend Steven came here last week and played ten games of Screw Your Neighbor, and my friend Steven won every single one. He was unstoppable.
+[00:21:57] Adam: Yeah, I love Screw Your Neighbor, which is a three-way game in which each person takes 1 through 5, 6 through 10, or 11 through 15, and the goal is to have one of your balls left on the table. There are some great safety plays in Screw Your Neighbor, and actually, Thing One and I and my friend Steven came here last week and played 10 games of Screw Your Neighbor, and my friend Steven won every single one. He was unstoppable.
 
 [00:22:22] Norm: Not really a game, is it?
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:25:15] Unknown speaker: That’s incredible. Yeah. That’s incredible.
 
-[00:25:24] Adam: Because there are this a hustler said this to me early on in my playing. He said, " You are just." He says, " You're just as good a shooter as I am," and I was like, " No way! You beat me all the time." And he's like, " Yeah, shooting is 10% of the game. Making the shots is 10% of the game. Strategizing how you're going to make those shots is the other ninety." And it took me. Two more years of playing every day to actually understand what he meant, but he is totally right. The actual sinking of shots is nothing compared to the strategizing of shots.
+[00:25:24] Adam: Because there are this a hustler said this to me early on in my playing. He said, " You are just." He says, " You're just as good a shooter as I am," and I was like, " No way! You beat me all the time." And he's like, " Yeah, shooting is 10% of the game. Making the shots is 10% of the game. Strategizing how you're going to make those shots is the other 90." And it took me. Two more years of playing every day to actually understand what he meant, but he is totally right. The actual sinking of shots is nothing compared to the strategizing of shots.
 
 [00:25:56] Will: Right, right. A shot that leaves you in bad position for your next shot, and your opponent in great position, you might as well have not made the shot.
 

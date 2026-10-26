@@ -22,7 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:01:09] Will: I would do. I would breathe, but I wouldn't. I wouldn't carry through. I would keep. I would push beyond my breath's ability to carry. And you can do that by cheating and clenching up your throat muscles.
 
-[00:01:21] Adam: Did you see that lovely video that made the rounds a couple weeks ago of the accent specialist doing breakdowns of thirty-five Hollywood accents?
+[00:01:21] Adam: Did you see that lovely video that made the rounds a couple weeks ago of the accent specialist doing breakdowns of 35 Hollywood accents?
 
 [00:01:29] Will: I did see that.
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:02:45] Adam: Sorry, let's
 
-[00:02:47] Norm: watch that video. Thirty-five different Hollywood accents. Yeah,
+[00:02:47] Norm: watch that video. 35 different Hollywood accents. Yeah,
 
 [00:02:50] Adam: he's um he's not very happy with Brad Pitt's accents in many different films.
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:03:59] Norm: Obama's anger counter. Yes, one of the best bits,
 
-[00:04:02] Adam: hundred
+[00:04:02] Adam: 100
 
 [00:04:03] Norm: sketches ever.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:09:30] Norm: The workspaces, the maker spaces inside the White House.
 
-[00:09:33] Adam: We walked in the spiral staircase like they show in House of Cards. We walked in that little staircase, and the kit again, everything is so much tinier. And the pastry chef, she was telling me, they made twenty six thousand cookies this year,
+[00:09:33] Adam: We walked in the spiral staircase like they show in House of Cards. We walked in that little staircase, and the kit again, everything is so much tinier. And the pastry chef, she was telling me, they made 26,000 cookies this year,
 
 [00:09:46] Norm: this holiday.
 
@@ -222,21 +222,21 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:10:29] Will: How many people are at the party?
 
-[00:10:31] Adam: Seven hundred and fifty people.
+[00:10:31] Adam: 750 people.
 
 [00:10:33] Will: So, is that all they did?
 
 [00:10:34] Adam: I think that's all that they did. I mean,
 
-[00:10:36] Norm: I was ten seconds each, right? Yeah, you walk in, shake hands, take a photo.
+[00:10:36] Norm: I was 10 seconds each, right? Yeah, you walk in, shake hands, take a photo.
 
 [00:10:39] Adam: Got a very, very
 
 [00:10:39] Will: wow.
 
-[00:10:39] Adam: Look, I've taken pictures with maybe two hundred and fifty, three hundred people at a time, at the most, max. They've probably doing this for every party. I and I can't even tell you how incredibly gracious they were, even in those ten seconds. Like, I know what it is to to. I know roughly what it is to like try and. I want to give everyone who's taking a picture with me a genuine experience. Want to make eye contact, and I want to. I want to be there with them, even if it's brief. And they were there doing that. I mean, they were so gracious and so beautiful, and.
+[00:10:39] Adam: Look, I've taken pictures with maybe 250, 300 people at a time, at the most, max. They've probably doing this for every party. I and I can't even tell you how incredibly gracious they were, even in those 10 seconds. Like, I know what it is to to. I know roughly what it is to like try and. I want to give everyone who's taking a picture with me a genuine experience. Want to make eye contact, and I want to. I want to be there with them, even if it's brief. And they were there doing that. I mean, they were so gracious and so beautiful, and.
 
-[00:11:14] Norm: If it's ten seconds each, it's two and a half hours, nonstop,
+[00:11:14] Norm: If it's 10 seconds each, it's two and a half hours, nonstop,
 
 [00:11:16] Will: and like the side that which is insane. Good math,
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:13:13] Will: I can see that. He seems like a kind of hands-on guy.
 
-[00:13:16] Adam: Totally, totally, totally. It was so so lovely, and the party was great. And I especially appreciate the the president and first lady taking the time to take pictures and greet everybody. That was amazing. But also, the party was seven hundred and fifty people in a building that is very crowded.
+[00:13:16] Adam: Totally, totally, totally. It was so so lovely, and the party was great. And I especially appreciate the the president and first lady taking the time to take pictures and greet everybody. That was amazing. But also, the party was 750 people in a building that is very crowded.
 
 [00:13:34] Will: So, where was it in the actual building? Was it in the White House proper?
 
@@ -530,9 +530,9 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:25:58] Adam: it's
 
-[00:25:59] Will: you know what they've been doing that they've been doing it for twenty years,
+[00:25:59] Will: you know what they've been doing that they've been doing it for 20 years,
 
-[00:26:00] Adam: nineteen years, yeah,
+[00:26:00] Adam: 19 years, yeah,
 
 [00:26:01] Norm: wow, yeah,
 
@@ -550,17 +550,17 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:27:19] Adam: You went to the biggest one there is. That is my—that's my favorite because the buses pull in right behind the stage. Yeah, we were
 
-[00:27:26] Will: indoors. We drove away. We rolled in, and I texted you, " Is like, hey, where where should we meet?" You was like, " You were like, just come up to the loading dock. You'll see." And there were four, three eighteen wheelers and two buses parked there. It was amazing.
+[00:27:26] Will: indoors. We drove away. We rolled in, and I texted you, " Is like, hey, where where should we meet?" You was like, " You were like, just come up to the loading dock. You'll see." And there were four, three 18 wheelers and two buses parked there. It was amazing.
 
-[00:27:36] Adam: Two eighteen wheelers.
+[00:27:36] Adam: Two 18 wheelers.
 
-[00:27:37] Will: Oh, sorry, two eighteen wheelers.
+[00:27:37] Will: Oh, sorry, two 18 wheelers.
 
 [00:27:38] Adam: We're a two truck show.
 
-[00:27:39] Will: Two eighteen wheelers and a bus, I guess.
+[00:27:39] Will: Two 18 wheelers and a bus, I guess.
 
-[00:27:41] Adam: Two eighteen wheelers and two buses.
+[00:27:41] Adam: Two 18 wheelers and two buses.
 
 [00:27:41] Will: Yes.
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:31:33] Norm: [unclear: No idea / No, that's not it, yeah].
 
-[00:31:37] Adam: Years a million years ago, a friend of mine and I ate this giant Chinese meal, and then for some stupid reason, because we were like eighteen, like an hour later, we were like, " I can do more sit ups than you," and we did a sit up contest. After which, we both threw up.
+[00:31:37] Adam: Years a million years ago, a friend of mine and I ate this giant Chinese meal, and then for some stupid reason, because we were like 18, like an hour later, we were like, " I can do more sit ups than you," and we did a sit up contest. After which, we both threw up.
 
 [00:31:52] Will: Well, have a happy holiday, guys. Are we doing another show next week, or is this it before Christmas?
 
@@ -750,11 +750,11 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:32:06] Adam: There we go.
 
-[00:32:06] Norm: Between Christmas and New Year's. Um. I'll end with one story. At lunch today, we were chatting with a friend, and you know, holiday parties are. We did our holiday party for our team, but a lot of holiday party going on. A lot of gift giving. We don't do a gift exchange really at tested. I think really tough to do, but overheard recent holiday party where they did a white elephant for thirty people. White elephant exchange gifts.
+[00:32:06] Norm: Between Christmas and New Year's. Um. I'll end with one story. At lunch today, we were chatting with a friend, and you know, holiday parties are. We did our holiday party for our team, but a lot of holiday party going on. A lot of gift giving. We don't do a gift exchange really at tested. I think really tough to do, but overheard recent holiday party where they did a white elephant for 30 people. White elephant exchange gifts.
 
 [00:32:30] Will: Those are bad gifts. Is that what the white elephant?
 
-[00:32:32] Norm: No, no. Sometimes you can set like you know a dollar limit, like you know at least twenty dollars, at least 25 dollars, but it's a mystery gift, and you trade up for grabs in the white elephant party. Two tickets to Hamilton in SF.
+[00:32:32] Norm: No, no. Sometimes you can set like you know a dollar limit, like you know at least $20, at least $25, but it's a mystery gift, and you trade up for grabs in the white elephant party. Two tickets to Hamilton in SF.
 
 [00:32:45] Will: What
 

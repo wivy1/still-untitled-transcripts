@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:02:20] Will: Like there was a couple of days, maybe two weeks ago, where we just started having alarms that we didn't set off going off at two two o'clock in the morning, 2:20 in the morning, 2:45 in the morning. Then I unplugged it, so I don't know how much longer it would have gone. And then last night I was laying in bed getting ready to go to sleep, and it was just like the time is 12:22. I was like, " Well, I didn't ask you what the time was. Why are you talking to me?" So I'm I went from I've done the other I yeah I rebooted it. It seems to it seems to help temporarily. I don't know what's going on with it. It's weird.
 
-[00:02:48] Adam: Here's the thing: I had a lovely dinner with the CTO of a large Fortune five hundred company, and he has like five of these in his house. And it's controlling over a hundred smart devices in his life, and as far as he was concerned, like it was all a net awesome. Oh, right. Like, and I so that made me like, yeah, okay, let's give this a shot.
+[00:02:48] Adam: Here's the thing: I had a lovely dinner with the CTO of a large Fortune 500 company, and he has like five of these in his house. And it's controlling over 100 smart devices in his life, and as far as he was concerned, like it was all a net awesome. Oh, right. Like, and I so that made me like, yeah, okay, let's give this a shot.
 
 [00:03:07] Will: If you've done the smart home, like my all the lights in my house are controllable. Like the whole thing is smart, right? It is. It is a delight to rather than have to pick up your phone and tap into the app and hit the button that says, " Okay, turn off all the lights." You just say, " Alexa, good night," and she says, " Okay, we'll see you tomorrow."
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:03:37] Norm: In General, none of them are fast enough.
 
-[00:03:38] Adam: Okay, so I we were delighted last night. We were like, " Hey, Alexa, play the latest episode of Pod Save America." Boop! It's up. Like so, ten seconds later,
+[00:03:38] Adam: Okay, so I we were delighted last night. We were like, " Hey, Alexa, play the latest episode of Pod Save America." Boop! It's up. Like so, 10 seconds later,
 
 [00:03:48] Will: hooking into Spotify, all that stuff is great. I don't think it works with Apple Music, which was why I switched back to Spotify.
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:04:53] Will: it's It's a
 
-[00:04:55] Adam: happy birthday stretch Armstrong. Now only sixteen ninety nine.
+[00:04:55] Adam: happy birthday stretch Armstrong. Now only 16.99.
 
 [00:04:59] Norm: Two day shipping.
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:08:46] Norm: Yeah.
 
-[00:08:46] Will: It's good. I heard that in D.C. that the kids didn't let anybody older than twenty-five speak, which I love.
+[00:08:46] Will: It's good. I heard that in D.C. that the kids didn't let anybody older than 25 speak, which I love.
 
 [00:08:52] Adam: That's- What?
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:09:01] Will: like and unsubscribe.
 
-[00:09:02] Adam: What it's gonna be. Um, Emma Gonzalez is standing up there for six minutes and twenty seconds in total silence
+[00:09:02] Adam: What it's gonna be. Um, Emma Gonzalez is standing up there for six minutes and 20 seconds in total silence
 
 [00:09:09] Will: Yeah.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:11:41] Will: But the thing I realized going to PAX years ago is that for a lot of people, they go to PAX and and Comic Con and all these places because it's a place for them to be around like minded people, and it's there it's their shop to do that for the year, right? Like we get to sit around and talk about movies and comic books and whatever we want to talk about video games all the time. But if you're in some place that you don't have a friend group, a circle that's into the same exact things that you are, you might not have a place to go talk about anime or a place to talk about whatever game you're really into right now, or to talk about. I mean, I can't believe that people don't have superhero movies, but yeah.
 
-[00:12:13] Adam: I remember the very first con I ever went to was a Star Trek convention here at the the big tall hotel, the one with the fifty story atrium downtown.
+[00:12:13] Adam: I remember the very first con I ever went to was a Star Trek convention here at the the big tall hotel, the one with the 50 story atrium downtown.
 
 [00:12:22] Will: The Hyatt, probably.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:12:56] Will: And Marvel has released 20 billion dollar movies about superheroes.
 
-[00:13:00] Norm: Eighteen movies over ten years exactly. So, what is what is the next evolution of a comic book convention? Is it moving toward like a Pax or a Dragon Con where it's less about booths and it's more about small panels that people can go in and meeting spaces?
+[00:13:00] Norm: 18 movies over 10 years exactly. So, what is what is the next evolution of a comic book convention? Is it moving toward like a Pax or a Dragon Con where it's less about booths and it's more about small panels that people can go in and meeting spaces?
 
 [00:13:15] Will: Well, if you talk to the marketing experts, they say that millennials are interested in collecting experiences and not physical objects.
 
@@ -490,13 +490,13 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:17:37] Norm: Mm hmm.
 
-[00:17:37] Adam: Only the first. Fifteen minutes,
+[00:17:37] Adam: Only the first. 15 minutes,
 
 [00:17:39] Norm: which is all you need to watch, really.
 
 [00:17:40] Will: You got you got the gist, probably.
 
-[00:17:41] Norm: That was probably the best moment. The first fifteen minutes have like that great opening.
+[00:17:41] Norm: That was probably the best moment. The first 15 minutes have like that great opening.
 
 [00:17:45] Will: That cold open is really strong, and then the whole rest of the movie fails to deliver on that.
 

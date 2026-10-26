@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:02:28] Will: Star Trek, Inside Out, a million lovely movies.
 
-[00:02:32] Adam: Coco, War for Planet of the Apes, turned fifty, and his birthday party was a concert at the Royal Albert Hall.
+[00:02:32] Adam: Coco, War for Planet of the Apes, turned 50, and his birthday party was a concert at the Royal Albert Hall.
 
 [00:02:41] Will: Are you kidding me?
 
@@ -124,7 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:02:57] Will: You did not mention that you were emceeing it.
 
-[00:03:00] Adam: [unclear: It is / It isn’t / I doesn’t]. I was emceeing it with in front of a ninety-piece orchestra, forty-person chorus.
+[00:03:00] Adam: [unclear: It is / It isn’t / I doesn’t]. I was emceeing it with in front of a 90-piece orchestra, 40-person chorus.
 
 [00:03:05] Will: Did you get to do the baton?
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:05:02] Norm: yeah, or size or stature.
 
-[00:05:03] Adam: So it's. I think it seats about four thousand, but because of the way structure of this performance, you know, they block off some sections that can't see properly. So I think we had thirty six hundred in the in the hall.
+[00:05:03] Adam: So it's. I think it seats about 4,000, but because of the way structure of this performance, you know, they block off some sections that can't see properly. So I think we had 3,600 in the in the hall.
 
 [00:05:03] Norm: All right.
 
@@ -198,11 +198,11 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:06:29] Will: Did you see the muscle suit?
 
-[00:06:30] Adam: Yes. Nice. So it was. This is my favorite. This this most dumbly simple costume I've ever put together. It's like a ten dollar Amazon spandex Mr. Incredible onesie.
+[00:06:30] Adam: Yes. Nice. So it was. This is my favorite. This this most dumbly simple costume I've ever put together. It's like a $10 Amazon spandex Mr. Incredible onesie.
 
 [00:06:41] Will: Okay.
 
-[00:06:41] Adam: On top of a thousand dollar upper muscle upper body muscle suit.
+[00:06:41] Adam: On top of a $1,000 upper muscle upper body muscle suit.
 
 [00:06:41] Norm: Yes.
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:06:56] Will: Oh, man,
 
-[00:06:56] Adam: at ten and twelve years old with the like the the teen dreams of working with Spielberg, and then he works with Spielberg. They played Super Eight.
+[00:06:56] Adam: at 10 and 12 years old with the like the the teen dreams of working with Spielberg, and then he works with Spielberg. They played Super Eight.
 
 [00:07:57] Will: Did he score Super Eight?
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:12:15] Will: oh, awesome,
 
-[00:12:15] Norm: like a forty minute video
+[00:12:15] Norm: like a 40 minute video
 
 [00:12:16] Norm: that’ll be up on Tested in a few weeks.
 
@@ -442,7 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:14:29] Will: Oh, wow.
 
-[00:14:29] Adam: A hundred dollar Chevy Nova was my first car in 1990.
+[00:14:29] Adam: A $100 Chevy Nova was my first car in 1990.
 
 [00:14:33] Norm: Oh, man.
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:19:26] Norm: and legendary. How many takes?
 
-[00:19:28] Adam: Ninety seven takes.
+[00:19:28] Adam: 97 takes.
 
 [00:19:28] Will: Yeah,
 
@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:20:56] Adam: Look, everybody has a story like that. I have a rejection letter from the. Exploratorium from a job I applied for there in 1996,
 
-[00:20:56] Will: [unclear: sorry, ninety seven / Sorry, Adam].
+[00:20:56] Will: [unclear: sorry, '97 / Sorry, Adam].
 
 [00:21:07] Norm: Science museum.
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:21:14] Will: Yeah.
 
-[00:21:14] Norm: It's a taking. Imagine the investigative journalism that is that is applied to a thing like Serial, but it's about a high school and who spray painted twenty seven dicks onto twenty seven faculty cars and one fateful afternoon.
+[00:21:14] Norm: It's a taking. Imagine the investigative journalism that is that is applied to a thing like Serial, but it's about a high school and who spray painted 27 dicks onto 27 faculty cars and one fateful afternoon.
 
 [00:22:00] Adam: Oh my God!
 
@@ -636,7 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:24:45] Norm: Yeah, yeah.
 
-[00:24:45] Will: It's kind of like live. You don't know Jack. Do you play with ten or twenty thousand other people simultaneously at the same time?
+[00:24:45] Will: It's kind of like live. You don't know Jack. Do you play with 10,000 or 20,000 other people simultaneously at the same time?
 
 [00:25:14] Adam: So [unclear: you’re always getting the answer second / are you always getting the answer second?]
 
@@ -650,17 +650,17 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:25:15] Will: And and then if the person who answers the last, all the people who answer the last question get like a little bit of cash, but it's really more about this like shared social thing.
 
-[00:25:37] Norm: They whittle down twenty thousand to a handful
+[00:25:37] Norm: They whittle down 20,000 to a handful
 
-[00:25:39] Will: thousand to like ten or fifteen.
+[00:25:39] Will: 1,000 to like 10 or 15.
 
 [00:25:39] Norm: That is cool.
 
-[00:25:39] Will: Over fifteen or sixteen questions
+[00:25:39] Will: Over 15 or 16 questions
 
 [00:25:43] Norm: We should play that one day. Just have the phone out here and it's play. It
 
-[00:25:46] Adam: get like twenty of us.
+[00:25:46] Adam: get like 20 of us.
 
 [00:25:47] Will: Yeah, get all the brains. We need to get we need to get the brains.
 

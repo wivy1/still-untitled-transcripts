@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:03:23] Will: I mean, I guess we should. Prelinger is a, it's, it's this guy who collected a, tons of footage. It's all sorts of stuff. It's like educational film strips. There's a lot of ads. There's '40s stag films.
 
-[00:03:34] Adam: To be honest, actually, uh, uh, the RiffTrax guys, um, they also buy their own on eBay, and they, they buy hundreds to find maybe ten or fifteen good ones. They, it's, it's a very low percentage. It's—
+[00:03:34] Adam: To be honest, actually, uh, uh, the RiffTrax guys, um, they also buy their own on eBay, and they, they buy hundreds to find maybe 10 or 15 good ones. They, it's, it's a very low percentage. It's—
 
 [00:03:46] Will: It's, there's a lot of really bad film, but I mean, there's stuff like, um, you know, the, the story of the atomic bomb.
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:06:34] Norm: Subscription diapers.
 
-[00:06:35] Will: So yeah, the diaper thing is, is I've made a lot of late-night trips to Target, and like I found the twenty-four-hour Walgreens now, so I'm good on that.
+[00:06:35] Will: So yeah, the diaper thing is, is I've made a lot of late-night trips to Target, and like I found the 24-hour Walgreens now, so I'm good on that.
 
 [00:06:44] Unknown speaker: Oh my God.
 
@@ -286,9 +286,9 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:09:31] Adam: And the, the swirly pattern is really difficult. You can only kind of truthfully do one egg at a time that way, so it's laborious. Um, but I prefer the, the Gordon Ramsay scramble.
 
-[00:09:43] Will: Yeah, the, the thirty-minute slow scramble.
+[00:09:43] Will: Yeah, the, the 30-minute slow scramble.
 
-[00:09:45] Adam: It's about ten minutes. I do it in a frying pan. I've got it down to as good as I feel like. Darnly, darn, darnly, darnly—
+[00:09:45] Adam: It's about 10 minutes. I do it in a frying pan. I've got it down to as good as I feel like. Darnly, darn, darnly, darnly—
 
 [00:09:54] Will: Darnly. We're making up words today.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:10:49] Will: Gruyère is great.
 
-[00:10:50] Adam: Uh, Gruyère, absolutely. Um, and then I put avocado in. Now I used to slice my avocado and put it in in chunks. I've actually discovered that if you put it in in scalloped spoon scoops, where it's like really thin at the edges, um, the avocado becomes a much better texture inside the omelet, and it marries with the eggs much better. Then a little cayenne, a little salt, a little pepper. I fold it over. I then put a little swash of Búfalo chipotle sauce, which is available at any of the Mexican places here in the Mission for 99 cents a bottle. And I swear it is, it is like sriracha sauce for us. It's a lifeblood sauce that we'll put on almost everything.
+[00:10:50] Adam: Uh, Gruyère, absolutely. Um, and then I put avocado in. Now I used to slice my avocado and put it in in chunks. I've actually discovered that if you put it in in scalloped spoon scoops, where it's like really thin at the edges, um, the avocado becomes a much better texture inside the omelet, and it marries with the eggs much better. Then a little cayenne, a little salt, a little pepper. I fold it over. I then put a little swash of Búfalo chipotle sauce, which is available at any of the Mexican places here in the Mission for $0.99 a bottle. And I swear it is, it is like sriracha sauce for us. It's a lifeblood sauce that we'll put on almost everything.
 
 [00:11:30] Will: I like the sound of this.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:12:19] Adam: Which is honestly one of the—
 
-[00:12:20] Will: That sounds like about a three-thousand-calorie sandwich.
+[00:12:20] Will: That sounds like about a 3,000-calorie sandwich.
 
 [00:12:22] Adam: It is. I don't care. You know, it's just unbelievable. I think I'm gonna go there for dinner tonight.
 
@@ -384,7 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:13:55] Will: Unless you want some gold star mushrooms over there.
 
-[00:13:57] Adam: Yeah, the first time we cooked it was my friend Carl came over with some mushrooms that had been picked in Marin that day, like a shopping bag full, and we made dinner for like ten people.
+[00:13:57] Adam: Yeah, the first time we cooked it was my friend Carl came over with some mushrooms that had been picked in Marin that day, like a shopping bag full, and we made dinner for like 10 people.
 
 [00:14:06] Will: Well, I mean, whether you put them under pizza, on the omelet or a scramble or whatever, it's always good.
 
@@ -406,11 +406,11 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:14:29] Adam: My mushroom's name was Colin, and he was glad to give his life for my benefit.
 
-[00:14:34] Will: Um, we were going to talk about design influences fifteen or sixteen minutes ago. So, real quick now—
+[00:14:34] Will: Um, we were going to talk about design influences 15 or 16 minutes ago. So, real quick now—
 
 [00:14:39] Adam: No, no, we'll take that. Do we have a time limit?
 
-[00:14:41] Will: No, we can stretch it out. Yeah, hell, it's the internet. There's no time limit. At twenty-three minutes, there's an ad, goddamn it! Um, and we can say all sorts of, we can say whatever we want.
+[00:14:41] Will: No, we can stretch it out. Yeah, hell, it's the internet. There's no time limit. At 23 minutes, there's an ad, goddamn it! Um, and we can say all sorts of, we can say whatever we want.
 
 [00:14:50] Unknown speaker: Uh, yeah, yeah.
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=Sw4mTSKeir0
 
 [00:19:26] Will: And if you look at some of the stuff from the late '50s, early '60s, I think a lot of those designs have aged much better than any of the stuff that came after and that replaced those designs.
 
-[00:19:34] Adam: Well, and it's also because we, you know, we've spent the last twenty years. I mean, remember when desktop publishing first became really big, which is like—
+[00:19:34] Adam: Well, and it's also because we, you know, we've spent the last 20 years. I mean, remember when desktop publishing first became really big, which is like—
 
 [00:19:44] Will: QuarkXPress.
 

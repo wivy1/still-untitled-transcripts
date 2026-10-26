@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:03:38] Norm: So, if you are in like these two places, two major places, right? It was Italy and Spain.
 
-[00:03:43] Adam: Well, so this is the thing: is we spent four days in Barcelona, two days in Granada, then we drove from Granada to Seville, which is about a two and a half hour drive. We stopped at a wonderful little city called Antequera, which has like a five thousand year old burial ground on the outskirts of town, and then we so we spent twelve. Let's see. Ten days in in Spain, and then three days in Rome.
+[00:03:43] Adam: Well, so this is the thing: is we spent four days in Barcelona, two days in Granada, then we drove from Granada to Seville, which is about a two and a half hour drive. We stopped at a wonderful little city called Antequera, which has like a 5,000 year old burial ground on the outskirts of town, and then we so we spent 12. Let's see. 10 days in in Spain, and then three days in Rome.
 
 [00:04:11] Norm: What is your vacation strategy when you are like blocking? Like, how is four days? Is is it a very impacted four days? Is it peaks and valleys?
 
@@ -130,7 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:07:29] Unknown speaker: Wow!
 
-[00:07:29] Adam: And then, literally, you walk in, you look around, and then five thousand people show up.
+[00:07:29] Adam: And then, literally, you walk in, you look around, and then 5,000 people show up.
 
 [00:07:35] Will: Yeah,
 
@@ -150,15 +150,15 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:09:00] Will: Yeah,
 
-[00:09:00] Adam: in the art. So on the big wall that that Michelangelo painted in his sixties, on the back wall, there's a figure over top. That literally looks like it's carved and sitting out from the wall. And as you look up and you see the nine panels of the three different God creating the Earth, Adam and Eve, and then Noah and the flood—the three panels for each. As you stand at each crossover, if you are directly underneath it, the perspective works for you right there and only there. Wow. And the other stuff looks slightly farther away. But then, as you get underneath each one, the perspective has this effect of kind of making all the colors pop because the shadows are all in the right place.
+[00:09:00] Adam: in the art. So on the big wall that that Michelangelo painted in his 60s, on the back wall, there's a figure over top. That literally looks like it's carved and sitting out from the wall. And as you look up and you see the nine panels of the three different God creating the Earth, Adam and Eve, and then Noah and the flood—the three panels for each. As you stand at each crossover, if you are directly underneath it, the perspective works for you right there and only there. Wow. And the other stuff looks slightly farther away. But then, as you get underneath each one, the perspective has this effect of kind of making all the colors pop because the shadows are all in the right place.
 
 [00:09:46] Unknown speaker: Wow.
 
 [00:09:47] Adam: So the optical illusion works as you move through the Sistine Chapel. It augments your experience of the panels.
 
-[00:09:57] Will: How the hell did he do that while he was laying on his back forty feet off the ground on a scaffold? And he was
+[00:09:57] Will: How the hell did he do that while he was laying on his back 40 feet off the ground on a scaffold? And he was
 
-[00:10:01] Adam: like thirty-three years old.
+[00:10:01] Adam: like 33 years old.
 
 [00:10:03] Will: Yeah.
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:10:06] Norm: It's one of those things that you can't ever experience unless you're there because in a textbook or on the computer screen you lose all of that.
 
-[00:10:14] Adam: And listen, there were also there's we got to see a whole bunch of tours that people do where you go with a tour group. There's like twenty of you, and the tour guide has like a flag,
+[00:10:14] Adam: And listen, there were also there's we got to see a whole bunch of tours that people do where you go with a tour group. There's like 20 of you, and the tour guide has like a flag,
 
 [00:10:24] Norm: Yes.
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:10:33] Will: Yeah.
 
-[00:10:33] Adam: So it's a very very quiet way to go through these spaces. And we went to the same, the Basilica, and this room holds like sixteen thousand people, and it wasn't crazy over noisy.
+[00:10:33] Adam: So it's a very very quiet way to go through these spaces. And we went to the same, the Basilica, and this room holds like 16,000 people, and it wasn't crazy over noisy.
 
 [00:10:48] Will: Oh, that's lovely.
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:11:15] Unknown speaker: Thanks, technology.
 
-[00:11:15] Adam: The I I can't gush enough. I had never been to Spain. I can't gush enough about how much I loved Spain and the people of Spain. I just I want to go back. We're already talking about going back next year. We just had the the loveliest time, and the food in in Barcelona specifically was fantastic. I mean, in all over Barcelona, when you go into various places, whether they sell pastries or groceries, they're constantly selling these little bullet sandwiches with the the copa and the other kinds of like the sliced meat, and they're like a dollar fifty for one of these sandwiches. We just made sure we had a fresh one every night because, because when jet lag woke us up at two in the morning, we wanted to chew on something.
+[00:11:15] Adam: The I I can't gush enough. I had never been to Spain. I can't gush enough about how much I loved Spain and the people of Spain. I just I want to go back. We're already talking about going back next year. We just had the the loveliest time, and the food in in Barcelona specifically was fantastic. I mean, in all over Barcelona, when you go into various places, whether they sell pastries or groceries, they're constantly selling these little bullet sandwiches with the the copa and the other kinds of like the sliced meat, and they're like $1.50 for one of these sandwiches. We just made sure we had a fresh one every night because, because when jet lag woke us up at two in the morning, we wanted to chew on something.
 
 [00:12:03] Will: Yeah.
 
@@ -310,7 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:16:18] Will: Sounds great.
 
-[00:16:18] Adam: Twelve hundred year old avenues and
+[00:16:18] Adam: 1,200 year old avenues and
 
 [00:16:21] Will: wide enough for a donkey.
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:17:50] Will: Yeah,
 
-[00:17:50] Adam: and the Italians are all like they dress crazy, wonderful, like sun dresses with combat boots, and like everyone looks great. Everyone's beautiful. It was awesome. And we're on this plane, and we're just about to take off, and then the pilot comes out and he says in Italian and then in English, um, " We're having problem with Marseille airspace, and we're going to be delayed for ninety minutes." And the second they hear that, the entire plane full of Italians stands up and starts talking to each other really fast, like a movie about your about your central casting of what Italian people would be like. And nobody's stressed out; they're just all like, they're just all talking to each other. It was like instant cocktail party. It was so much fun. We're just watching this, like gobsmacked by such a different cultural reaction to a flight delay. They weren't happy about it, but they were like, " Oh, okay, as long
+[00:17:50] Adam: and the Italians are all like they dress crazy, wonderful, like sun dresses with combat boots, and like everyone looks great. Everyone's beautiful. It was awesome. And we're on this plane, and we're just about to take off, and then the pilot comes out and he says in Italian and then in English, um, " We're having problem with Marseille airspace, and we're going to be delayed for 90 minutes." And the second they hear that, the entire plane full of Italians stands up and starts talking to each other really fast, like a movie about your about your central casting of what Italian people would be like. And nobody's stressed out; they're just all like, they're just all talking to each other. It was like instant cocktail party. It was so much fun. We're just watching this, like gobsmacked by such a different cultural reaction to a flight delay. They weren't happy about it, but they were like, " Oh, okay, as long
 
 [00:18:45] Unknown (Adam or Will): [unclear: as / make] the best of it." Yeah,
 
@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:19:38] Norm: Godzilla included.
 
-[00:19:39] Adam: I, I, I will say, um, it's so hard to make a thing. Um, the movie I think was flawed in its plot, specifically because there is literally no resting time in that movie. It starts at ninety, goes to one hundred, and stays at one hundred for like two solid hours,
+[00:19:39] Adam: I, I, I will say, um, it's so hard to make a thing. Um, the movie I think was flawed in its plot, specifically because there is literally no resting time in that movie. It starts at 90, goes to 100, and stays at 100 for like two solid hours,
 
 [00:20:00] Norm: which I feel like is a response to because it's a sequel to the Gareth Edwards Godzilla, which
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:28:46] Adam: Completely, there's nothing unfair about that reaction. It's just you can't shit on other people's fandom. That this there's no there's I'm just that's verboten to me. That's like
 
-[00:29:00] Will: it's well, it's the fourteen year old.
+[00:29:00] Will: it's well, it's the 14 year old.
 
 [00:29:01] Adam: You can tell me you don't like it, but don't tell me that it's not worth liking.
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:30:45] Will: Yeah, whatever. Maybe maybe
 
-[00:30:48] Will: maybe they maybe they choose to put the the maybe they're like we have room for two million people in the bunkers that will survive the radiation from this.
+[00:30:48] Will: maybe they maybe they choose to put the the maybe they're like we have room for 2 million people in the bunkers that will survive the radiation from this.
 
 [00:30:54] Adam: Fascinating.
 

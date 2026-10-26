@@ -46,7 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:00:37] Norm: and when I left you last, you were still Kiwi. Right?
 
-[00:00:41] Adam: Yeah, yeah, yeah. So we spent what twelve days in New Zealand and then ten days in Australia.
+[00:00:41] Adam: Yeah, yeah, yeah. So we spent what 12 days in New Zealand and then 10 days in Australia.
 
 [00:00:46] Will: As soon as I quit Tested, you guys started doing all the fun stuff. Just for the record,
 
@@ -124,9 +124,9 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:04:31] Adam: Three and a half hours.
 
-[00:04:31] Norm: if you school, yeah, they're like just over three because there's actually twenty minutes at the extra credits sequence. The Lord of the Rings fan club gets put in there, so they're only about a little over three three and a half.
+[00:04:31] Norm: if you school, yeah, they're like just over three because there's actually 20 minutes at the extra credits sequence. The Lord of the Rings fan club gets put in there, so they're only about a little over three three and a half.
 
-[00:04:49] Will: And and so one of the things that Gina and I were talking about the other day because we were we were looking for a movie to watch and it was maybe 9:30. We're like, I don't want to watch anything that's more than two hours because you know we want to get in bed by midnight. And like Thor Ragnarok is two hours and thirty minutes, right?
+[00:04:49] Will: And and so one of the things that Gina and I were talking about the other day because we were we were looking for a movie to watch and it was maybe 9:30. We're like, I don't want to watch anything that's more than two hours because you know we want to get in bed by midnight. And like Thor Ragnarok is two hours and 30 minutes, right?
 
 [00:04:49] Adam: Yeah.
 
@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:05:06] Adam: Yeah, a lot of
 
-[00:05:06] Will: all of these big. Even the big action movies that traditionally would be like an hour and forty-five minutes are now pushing two hours and thirty minutes. So, like three hours for a movie doesn't seem that long anymore compared to what it was.
+[00:05:06] Will: all of these big. Even the big action movies that traditionally would be like an hour and 45 minutes are now pushing two hours and 30 minutes. So, like three hours for a movie doesn't seem that long anymore compared to what it was.
 
 [00:05:17] Adam: It's true. The water level is rising on that front.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:06:18] Norm: No. I mean, they can because some of these surveillance planes would have flown very high. But what we were doing was relatively low,
 
-[00:06:26] Will: like a hundred miles an hour.
+[00:06:26] Will: like 100 miles an hour.
 
 [00:06:27] Norm: No, not even.
 
@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:07:55] Norm: how how familiar he is and how passionate he can be about footage, and so you hear stories about you know making of Lord of the Rings and making of the Hobbit, where they would go and. Watch their dailies. This was the tiniest glimpse of that. So with him and an iPad,
 
-[00:08:08] Adam: he had an iPad full of like seventy hours of this converted footage that he's working on for this doco, and he's showing it to us. And it's all all these folders. It's like dead soldiers or you know
+[00:08:08] Adam: he had an iPad full of like 70 hours of this converted footage that he's working on for this doco, and he's showing it to us. And it's all all these folders. It's like dead soldiers or you know
 
 [00:08:18] Norm: tanks and airplanes and
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:12:42] Norm: So we left you. You went to Australia for how many days?
 
-[00:12:45] Adam: Like ten or eleven days.
+[00:12:45] Adam: Like 10 or 11 days.
 
 [00:12:47] Norm: How was that?
 
@@ -350,11 +350,11 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:14:54] Adam: That is three. It takes three people to puppet and one of those.
 
-[00:14:58] Will: A full-size T-Rex is like twenty feet tall, 25 feet tall,
+[00:14:58] Will: A full-size T-Rex is like 20 feet tall, 25 feet tall,
 
-[00:15:01] Adam: [unclear: eighteen / twenty, eighteen],
+[00:15:01] Adam: [unclear: 18 / 20, 18],
 
-[00:15:02] Will: sixteen, eighteen feet. And are they like are they like stick puppets where they're walking?
+[00:15:02] Will: 16, 18 feet. And are they like are they like stick puppets where they're walking?
 
 [00:15:06] Adam: No, no, no. This is full hydraulically or electrically actuated dinosaurs that can look around, blink, snap, make sounds.
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:18:08] Norm: We have some of those photos. I'm going to put them in the video. So you guys can check those out.
 
-[00:18:12] Adam: Cool. The fans were, you know, there's a very regular thing we hear from the fans, and I might have said this last. I came in the last time I came back from the tour. If a if someone in their late 20s comes up. I they they they they grew up on my show. If someone in their early twenties shows up, what they say is, " I got them through high school math, and Michael Stevens got them through college physics." And there was that repeated refrain: " Like Michael's demographic is about ten years younger than mine, which totally makes sense." And that that that fan split of doing the meet and greets each night and meeting these different Australian fans who Vsauce and MythBusters had meant something to. It's never-endingly inspiring. People kept bringing us stuff that they'd made and bringing us pictures of stuff that they'd built. That that was great, and the crowds in Australia were, if anything, better than the last time I toured with Jamie. They were really enthusiastic, loving, great crowd.
+[00:18:12] Adam: Cool. The fans were, you know, there's a very regular thing we hear from the fans, and I might have said this last. I came in the last time I came back from the tour. If a if someone in their late 20s comes up. I they they they they grew up on my show. If someone in their early 20s shows up, what they say is, " I got them through high school math, and Michael Stevens got them through college physics." And there was that repeated refrain: " Like Michael's demographic is about 10 years younger than mine, which totally makes sense." And that that that fan split of doing the meet and greets each night and meeting these different Australian fans who Vsauce and MythBusters had meant something to. It's never-endingly inspiring. People kept bringing us stuff that they'd made and bringing us pictures of stuff that they'd built. That that was great, and the crowds in Australia were, if anything, better than the last time I toured with Jamie. They were really enthusiastic, loving, great crowd.
 
 [00:19:08] Will: This is the first time you went to Australia with Michael, right?
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:20:55] Norm: Chicago.
 
-[00:20:55] Will: It's in Chicago. Gone. It's uh, it's always in like January, which is the best time of year. Like in the entrance to the to the camp, they have a big sign that says, " Uh, you you must be a complete badass to come visit Chicago in January." It was really nice. It was like forty degrees. Um, I hung out with our friends at Cards Against Humanity for a little bit.
+[00:20:55] Will: It's in Chicago. Gone. It's uh, it's always in like January, which is the best time of year. Like in the entrance to the to the camp, they have a big sign that says, " Uh, you you must be a complete badass to come visit Chicago in January." It was really nice. It was like 40 degrees. Um, I hung out with our friends at Cards Against Humanity for a little bit.
 
 [00:20:55] Unknown speaker: Nice.
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:25:33] Adam: Fascinating.
 
-[00:25:33] Will: Yeah, it was it was super good. Ord camp. If you have a chance to go to a Foo Camp, a Foo Foo Camp like thing, highly recommend it. If you think it sounds cool, start one yourself. Like Ord camp had 400 people, 450 people. They're basically as big as they can get for the space they have now. I think, and it started as 35 people or 50 people ten years ago. Now, so
+[00:25:33] Will: Yeah, it was it was super good. Ord camp. If you have a chance to go to a Foo Camp, a Foo Foo Camp like thing, highly recommend it. If you think it sounds cool, start one yourself. Like Ord camp had 400 people, 450 people. They're basically as big as they can get for the space they have now. I think, and it started as 35 people or 50 people 10 years ago. Now, so
 
 [00:25:54] Adam: I'm so I so want to go. I've never I've never been able to make the time work. We were in New Zealand.
 
@@ -590,7 +590,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:27:32] Norm: All right, Go ahead. No, no, no.
 
-[00:27:32] Adam: Quick change has a very funny one of my favorite continuity errors in any movie ever. He's supposed to be at a payphone in Brooklyn, and up behind him you can see clearly on the light pole behind him one of the Forty Nine Miles Scenic Drive San Francisco Seagull signs.
+[00:27:32] Adam: Quick change has a very funny one of my favorite continuity errors in any movie ever. He's supposed to be at a payphone in Brooklyn, and up behind him you can see clearly on the light pole behind him one of the 49 Miles Scenic Drive San Francisco Seagull signs.
 
 [00:27:53] Norm: Nice.
 

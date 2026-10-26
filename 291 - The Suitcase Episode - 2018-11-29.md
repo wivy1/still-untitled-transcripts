@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:00:55] Will: [unclear: Nice / Oh, that’s nice].
 
-[00:00:55] Norm: And then I realized we had turkey and no sides, so I did the thing that probably shouldn't have been done, but it really made me appreciate the people who don't get enough appreciation, which are the employees of Boston Market on Thanksgiving Day. Because let me tell you, Boston Market on Thanksgiving Day is not a happy place to be for both the people behind the counter and for the fifty to seventy people there was waiting in line.
+[00:00:55] Norm: And then I realized we had turkey and no sides, so I did the thing that probably shouldn't have been done, but it really made me appreciate the people who don't get enough appreciation, which are the employees of Boston Market on Thanksgiving Day. Because let me tell you, Boston Market on Thanksgiving Day is not a happy place to be for both the people behind the counter and for the 50 to 70 people there was waiting in line.
 
 [00:01:36] Adam: There were like a million tweets and Reddit posts leading up to Thanksgiving, which all said, " If you go shopping on Thanksgiving, please don't try and commiserate with the people who are serving you."
 
@@ -96,7 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:03:51] Will: and there's metal detectors. Like they they scan your stuff. You have to check your phone. I think it looked like there was like lock boxes for personal possessions. And then once you get in, it's just all of the stuff that's for sale at Amazon and all the places that. FedEx does fulfillment,
 
-[00:04:05] Norm: but like Verizon, Nike, you know they don't have the infrastructure, or they're not going to pay for what Amazon has built up and wholly owned. So they pay logistics companies. They're now billion-dollar companies that own nondescript warehouses in places like Tennessee, and that's why when you get FedEx from your phones, they come from they come from Kentucky and
+[00:04:05] Norm: but like Verizon, Nike, you know they don't have the infrastructure, or they're not going to pay for what Amazon has built up and wholly owned. So they pay logistics companies. They're now $1 billion companies that own nondescript warehouses in places like Tennessee, and that's why when you get FedEx from your phones, they come from they come from Kentucky and
 
 [00:04:24] Will: Sparks, Nevada.
 
@@ -274,7 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:10:33] Adam: Oh,
 
-[00:10:33] Will: whoa! Well done. All time top ten.
+[00:10:33] Will: whoa! Well done. All time top 10.
 
 [00:10:37] Norm: Come on, it really is easy.
 
@@ -376,13 +376,13 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:13:48] Will: Wow.
 
-[00:13:48] Adam: Um, and so at each stage, things people were clapping. Um, and I have footage of the actual final like forty meters, twenty meters, three meters, touchdown, and just deathly silent until touchdown. I mean, just nobody moving at all.
+[00:13:48] Adam: Um, and so at each stage, things people were clapping. Um, and I have footage of the actual final like 40 meters, 20 meters, three meters, touchdown, and just deathly silent until touchdown. I mean, just nobody moving at all.
 
 [00:13:48] Will: Sure.
 
 [00:13:48] Adam: Because I went with Alan Eustace.
 
-[00:14:11] Norm: Oh, awesome! Yeah. Uh, who did the the jump, the world record breaking? Um, so we watched this via streaming, and I think NASA does a fantastic job with their mixing of produce or their video production of Communicating what's going on in this event because a lot of the awareness for this and they had over half a million people watching is in those like few days right like most of people don't know didn't know what insight was or maybe they followed it a couple months ago but like now they're getting reinvigorated and they did a fantastic job with the commentary with building up the anticipation and I was really curious what it was like did they have that commentary in the same room you were in
+[00:14:11] Norm: Oh, awesome! Yeah. Uh, who did the the jump, the world record breaking? Um, so we watched this via streaming, and I think NASA does a fantastic job with their mixing of produce or their video production of Communicating what's going on in this event because a lot of the awareness for this and they had over 0.5 million people watching is in those like few days right like most of people don't know didn't know what insight was or maybe they followed it a couple months ago but like now they're getting reinvigorated and they did a fantastic job with the commentary with building up the anticipation and I was really curious what it was like did they have that commentary in the same room you were in
 
 [00:14:11] Adam: yes
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:16:03] Will: it has to be a little like I mean there's a I have to imagine there's a lot of tension that is then followed up by a like a minor celebration which is then followed up by okay time to get to work kind of
 
-[00:16:15] Adam: I think you're exactly right you're exactly right and then I mean as a a gentleman engineer I guess I woke up that morning stressed stressed on behalf of all the engineers because as one of them said. Ten thousand separate things have to go right for this to work, and only one of them has to go wrong.
+[00:16:15] Adam: I think you're exactly right you're exactly right and then I mean as a a gentleman engineer I guess I woke up that morning stressed stressed on behalf of all the engineers because as one of them said. 10,000 separate things have to go right for this to work, and only one of them has to go wrong.
 
 [00:16:36] Norm: So, what was their level of confidence in the room? I mean, everyone has private feelings about it. NASA publicly never—you know—they always hedge a little bit and relay the risk. But in talking to the people there, did you get a sense that people were like anticipating failure or just bracing themselves?
 
@@ -652,7 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:27:41] Adam: Get out of the room. Get it out of the hotel room without anyone noticing.
 
-[00:27:43] Will: And it's the '80s, so it's not like they have a fucking enormous fifty-gallon Samsonite to roll on. They have like a normal ass suitcase, yeah.
+[00:27:43] Will: And it's the '80s, so it's not like they have a fucking enormous 50-gallon Samsonite to roll on. They have like a normal ass suitcase, yeah.
 
 [00:27:53] Adam: And they start to take this body and they start to break the. They start to break the limbs at the elbows and the shoulders in order to make this body smaller.
 
@@ -860,7 +860,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:37:46] Will: Oh,
 
-[00:37:46] Adam: and it was late. I think my son was probably. I think my boys were probably. I don't know, twenty months.
+[00:37:46] Adam: and it was late. I think my son was probably. I think my boys were probably. I don't know, 20 months.
 
 [00:38:03] Will: Your kids were born right around the millennium, like '98,
 

@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:03:54] Will: Oh, the characters were great, yeah, but it never kind of went anywhere because it seemed like it seemed like lost. Where they kind of got started and they were like, " Right, right. Well, what the hell are we going to do with this? We got to just keep it rolling." Yeah,
 
-[00:04:03] Norm: back then it was also twenty six, twenty four to twenty six episodes
+[00:04:03] Norm: back then it was also 26, 24 to 26 episodes
 
 [00:04:06] Will: Yeah.
 
@@ -410,7 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:15:16] Adam: right?
 
-[00:15:16] Norm: He has a team, right? There's a whole bunch. Maybe a whole limited selection of of ten ultra uber agents.
+[00:15:16] Norm: He has a team, right? There's a whole bunch. Maybe a whole limited selection of of 10 ultra uber agents.
 
 [00:15:24] Adam: Yeah,
 

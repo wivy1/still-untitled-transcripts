@@ -12,7 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:00:15] Adam: Skyfall.
 
-[00:00:16] Will: And, and the interesting thing about James Bond movies, we're all different ages. Like we, between—ranging from Norm to Adam, we kind of span about twelve, fifteen years, something like that.
+[00:00:16] Will: And, and the interesting thing about James Bond movies, we're all different ages. Like we, between—ranging from Norm to Adam, we kind of span about 12, 15 years, something like that.
 
 [00:00:24] Adam: Yeah.
 
@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:00:40] Will: Dr. No is the first one.
 
-[00:00:41] Norm: And in my house, we are rewatching most of them. There are about twenty James Bond—twenty James Bond movies. We're watching all of the, all the Connerys.
+[00:00:41] Norm: And in my house, we are rewatching most of them. There are about 20 James Bond—20 James Bond movies. We're watching all of the, all the Connerys.
 
 [00:00:51] Will: Yeah.
 
@@ -130,9 +130,9 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:03:03] Adam: Yeah.
 
-[00:03:03] Norm: He—it was offensive. There's a scene in Thunderball, and the, the movies are great because they're all two hours long. I think the newest, uh, Skyfall is supposed to be two hours and twenty-five, two hour—two and a half hours—
+[00:03:03] Norm: He—it was offensive. There's a scene in Thunderball, and the, the movies are great because they're all two hours long. I think the newest, uh, Skyfall is supposed to be two hours and 25, two hour—two and a half hours—
 
-[00:03:14] Norm: The longest one by far. Previously, I think it was, uh, Her Majesty's Secret Service was two hours and twenty minutes. They're all really long. They all have like first act, which has nothing to do with the movie.
+[00:03:14] Norm: The longest one by far. Previously, I think it was, uh, Her Majesty's Secret Service was two hours and 20 minutes. They're all really long. They all have like first act, which has nothing to do with the movie.
 
 [00:03:22] Unknown speaker: Yeah.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:04:56] Will: I've never seen this.
 
-[00:04:57] Adam: Where he plays a special forces guy who, you know, does the Times crossword puzzle. At some point, somebody says to him, "I'll bet you do the Times crossword puzzle in ten minutes," and he goes, "I've never taken ten minutes." Yeah, you know, it's—Roger Moore got really long in the tooth, and then there was the whole—see, the problem was after Roger Moore, Timothy Dalton, terrific actor—
+[00:04:57] Adam: Where he plays a special forces guy who, you know, does the Times crossword puzzle. At some point, somebody says to him, "I'll bet you do the Times crossword puzzle in 10 minutes," and he goes, "I've never taken 10 minutes." Yeah, you know, it's—Roger Moore got really long in the tooth, and then there was the whole—see, the problem was after Roger Moore, Timothy Dalton, terrific actor—
 
 [00:05:21] Norm: Only got two.
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:07:07] Will: It was a Cold War movie. I think that, I think that it took a while to figure out what Bond was going to be at the end of the Russians as a, as a threat.
 
-[00:07:13] Adam: Yeah. I just think I, I, I think Daniel Craig is so head and shoulders more. Oh yeah, because he's of his time, and I don't know what I'll think in five or ten years.
+[00:07:13] Adam: Yeah. I just think I, I, I think Daniel Craig is so head and shoulders more. Oh yeah, because he's of his time, and I don't know what I'll think in 5 or 10 years.
 
 [00:07:23] Will: It's unnecessarily violent, and—
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:11:05] Will: If all you have is a hammer, everything looks like a nail, Adam. All you have is a laser watch.
 
-[00:11:10] Adam: That watch would need to be like a twenty-foot cube van.
+[00:11:10] Adam: That watch would need to be like a 20-foot cube van.
 
 [00:11:13] Norm: Okay, they're cheats, especially in the newer ones. You know, invisible car, the car flips over. Yeah, that's going to happen. Very terrible.
 
@@ -448,7 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:11:40] Adam: All of that stuff was like, yeah—
 
-[00:11:43] Will: The, the gyrocopter. I mean, the problem is a lot of the stuff that would have been magic thirty years ago is something that you can go to the store and buy today.
+[00:11:43] Will: The, the gyrocopter. I mean, the problem is a lot of the stuff that would have been magic 30 years ago is something that you can go to the store and buy today.
 
 [00:11:50] Adam: Yeah, it's all, it's all—Bond gadgets are destined to show up in Hammacher Schlemmer.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:12:42] Adam: Just as a way to help us steer cars. We were actually talking about it just this morning, and it's so difficult to transmit video over a radio signal over a smartphone, over a significant distance under any kind of duress, like an—with a car engine running nearby, and then to steer without being able to see what direction you're going in.
 
-[00:13:00] Will: Well, and, and you're, you're used to having a 160-degree field of vision, and you're cut down to about thirty-five on a—even on a wide angle—
+[00:13:00] Will: Well, and, and you're, you're used to having a 160-degree field of vision, and you're cut down to about 35 on a—even on a wide angle—
 
 [00:13:06] Adam: Yeah.
 

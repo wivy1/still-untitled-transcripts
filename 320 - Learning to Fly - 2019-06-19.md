@@ -70,11 +70,11 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:01:17] Adam: The response has been great. It's been really exciting to finally show this off.
 
-[00:01:24] Will: Friday at ten on Discovery.
+[00:01:24] Will: Friday at 10 on Discovery.
 
-[00:01:25] Adam: Friday at ten on Discovery, and
+[00:01:25] Adam: Friday at 10 on Discovery, and
 
-[00:01:25] Unknown (Will or Adam): Because we buried it at the end of the episode last week. And Friday at ten on Discovery.
+[00:01:25] Unknown (Will or Adam): Because we buried it at the end of the episode last week. And Friday at 10 on Discovery.
 
 [00:01:27] Adam: check your local listings for other airings on Discovery and Science Channel on Wednesdays after BattleBots.
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:06:33] Will: That was amazing.
 
-[00:06:33] Adam: It really. I also really enjoyed how much Scott Sorensen's cinematography. He's the A camera for Savage Builds, and he's been with me for like fourteen years. Scott's camera work so well cut with the real cinematic footage. Well, we we were using mostly primes, non zoom lenses for Savage Builds. Because we wanted that heavy, that that shallow depth of field, that cinematic look,
+[00:06:33] Adam: It really. I also really enjoyed how much Scott Sorensen's cinematography. He's the A camera for Savage Builds, and he's been with me for like 14 years. Scott's camera work so well cut with the real cinematic footage. Well, we we were using mostly primes, non zoom lenses for Savage Builds. Because we wanted that heavy, that that shallow depth of field, that cinematic look,
 
 [00:06:59] Norm: Especially with the explosion behind you, slow walking.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:08:33] Adam: On the second day, it was like 80, and finally Sunday when I left, it was getting balls hot again. But we had we had the weather, and it was glorious. Chattanooga, which I have been to before on one of my tours, is such a beautiful little city.
 
-[00:08:49] Will: There's a there's something magical happening in those small city. We talked about this before the show, but as a person who came from a small city in the South, there's something really neat happening where. Those downtown urban areas in like these two hundred, hundred and fifty, two hundred and fifty, three hundred thousand person cities are kind of indistinguishable from your Austins and your Portlands and your San Franciscos.
+[00:08:49] Will: There's a there's something magical happening in those small city. We talked about this before the show, but as a person who came from a small city in the South, there's something really neat happening where. Those downtown urban areas in like these 200,000, 150,000, 250,000, 300,000 person cities are kind of indistinguishable from your Austins and your Portlands and your San Franciscos.
 
 [00:09:09] Adam: Well, and with a Chattanooga lobbied to bring NomCon there, they were very they're super wired, 10 gigabit internet for everybody.
 
@@ -250,9 +250,9 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:09:42] Will: Oh, right. So, like, like, like, like,
 
-[00:09:44] Adam: thirty thousand, like thirty thousand, twenty-five, thirty, forty-five,
+[00:09:44] Adam: 30,000, like 30,000, 25,000, 30,000, 45,000,
 
-[00:09:48] Will: forty, probably.
+[00:09:48] Will: 40,000, probably.
 
 [00:09:49] Norm: I'm also the mayor.
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:13:46] Will: No, no, this is the San Mateo one. Okay, it's moved on now. There's another one in Alameda, and it moves around a little bit. It's Marin next, I think, then Alameda, and then Petaluma. So I hadn't been to a county fair since I was a kid, but we figured, you know, with the six-year-old, it's the right time to go. Um, and it was it was you know part the normal carny carny experience of turning you upside down and shaking as much money out of you as they can. Right,
 
-[00:14:09] Adam: fifteen dollars for cotton candy.
+[00:14:09] Adam: $15 for cotton candy.
 
 [00:14:10] Will: Yeah, it was more. It was more like the rides are really expensive now.
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:16:39] Adam: my glasses got all fogged up.
 
-[00:16:41] Will: Look, one time when we were doing prototypes, I was setting up in a in a hotel room to demo to some very wealthy people who were potential investors. And as I was testing out the space, punched a wall, prototype controller exploded everywhere. It was literally a a thousand dollar hotel room that I had for just the afternoon to do this demo.
+[00:16:41] Will: Look, one time when we were doing prototypes, I was setting up in a in a hotel room to demo to some very wealthy people who were potential investors. And as I was testing out the space, punched a wall, prototype controller exploded everywhere. It was literally a a $1,000 hotel room that I had for just the afternoon to do this demo.
 
 [00:16:41] Adam: Oh my god!
 
@@ -856,7 +856,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:31:26] Norm: I'm getting hungry just thinking about it.
 
-[00:31:27] Adam: Now, I loved this sequence so much, I bought that electric plancha. It's like a 500 dollar kitchen implement, but there is no. I'm getting chills. I described. There's no better way to make a grilled cheese sandwich. Really, you're welcome to come over any time, and we can make them together. But there's the sequence where Roy Choi is showing Favreau. He's like, okay, so you do this with the [unclear: bandages / potatoes / babies], you get this on, you get this, and then Roy lifts up the corner of a sandwich. I'm going to curse here, podcast listeners. I know it's a rarity, but it it's important in this. Roy Choi lifts up the corner of the sandwich and says to Favreau, " You see that color of brown? Your whole fucking life is in that color of brown, and it is. I I I once got to spend a week with cellist David Darling learning about how to play music from a philosophical rather than instrument perspective. I think that's the best way to describe what we went through. But at one point, David Darling said, " A musician plays a note with the quality of a human life. Like it has a beginning, a middle, and an end. It has a full living arc, and so does a song, and so does a symphony. And like, I feel like that's what Roy Choi was saying to Favreau about that. And I love, like, I've always loved that movie and those behind the scenes specifically for that.
+[00:31:27] Adam: Now, I loved this sequence so much, I bought that electric plancha. It's like a $500 kitchen implement, but there is no. I'm getting chills. I described. There's no better way to make a grilled cheese sandwich. Really, you're welcome to come over any time, and we can make them together. But there's the sequence where Roy Choi is showing Favreau. He's like, okay, so you do this with the [unclear: bandages / potatoes / babies], you get this on, you get this, and then Roy lifts up the corner of a sandwich. I'm going to curse here, podcast listeners. I know it's a rarity, but it it's important in this. Roy Choi lifts up the corner of the sandwich and says to Favreau, " You see that color of brown? Your whole fucking life is in that color of brown, and it is. I I I once got to spend a week with cellist David Darling learning about how to play music from a philosophical rather than instrument perspective. I think that's the best way to describe what we went through. But at one point, David Darling said, " A musician plays a note with the quality of a human life. Like it has a beginning, a middle, and an end. It has a full living arc, and so does a song, and so does a symphony. And like, I feel like that's what Roy Choi was saying to Favreau about that. And I love, like, I've always loved that movie and those behind the scenes specifically for that.
 
 [00:32:40] Norm: And that behind the scenes is what this Netflix series it's is.
 
@@ -870,7 +870,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:32:40] Adam: Yeah,
 
-[00:32:40] Norm: it feels like that. But with Jon Favreau and Roy Choi, they do a whole episode where they celebrate Jonathan Gold, the food critic who passed away in L.A. Dave Chang pops up out of nowhere. It's like, what are you guys making? Oh, you guys making kimchi fried rice? Let me make some kimchi fried rice. But they revisit a lot of the foods they made for Chef. You know, they go to Franklin Barbecue in Austin. They make the grilled cheese sandwich. They make beignets. They make a cubano, and it's it's real fun. But the best part of the show is Jon Favreau is so adorably earnest because it's been years since they they made the film, and he goes, Roy, Roy, Roy, remember you taught me? I have this email. You texted. I have this email. You told me the recipe, and now I've made it like ten times and taste it. And did I do it right? And so he's so earnest about his love and his passion for cooking, and eager and an open ear. And there's no egos. Anywhere,
+[00:32:40] Norm: it feels like that. But with Jon Favreau and Roy Choi, they do a whole episode where they celebrate Jonathan Gold, the food critic who passed away in L.A. Dave Chang pops up out of nowhere. It's like, what are you guys making? Oh, you guys making kimchi fried rice? Let me make some kimchi fried rice. But they revisit a lot of the foods they made for Chef. You know, they go to Franklin Barbecue in Austin. They make the grilled cheese sandwich. They make beignets. They make a cubano, and it's it's real fun. But the best part of the show is Jon Favreau is so adorably earnest because it's been years since they they made the film, and he goes, Roy, Roy, Roy, remember you taught me? I have this email. You texted. I have this email. You told me the recipe, and now I've made it like 10 times and taste it. And did I do it right? And so he's so earnest about his love and his passion for cooking, and eager and an open ear. And there's no egos. Anywhere,
 
 [00:33:47] Norm: and that's
 
@@ -926,7 +926,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:35:36] Adam: of the last episode,
 
-[00:35:37] Will: the last two episodes of that are maybe the best two episodes of TV I've ever seen, like back to back. It was, it was just exceptional. The, the, the surprise, the, the things that the way the characters developed in those last two episodes was entirely earned based on the previous ten episodes, and was an absolute delight to watch. And I, I don't, I have some thoughts about who she's talking to, and I don't think it's us.
+[00:35:37] Will: the last two episodes of that are maybe the best two episodes of TV I've ever seen, like back to back. It was, it was just exceptional. The, the, the surprise, the, the things that the way the characters developed in those last two episodes was entirely earned based on the previous 10 episodes, and was an absolute delight to watch. And I, I don't, I have some thoughts about who she's talking to, and I don't think it's us.
 
 [00:36:06] Adam: You don't think it's us?
 
@@ -980,7 +980,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:37:43] Adam: sharing the cigarette,
 
-[00:37:44] Will: sharing the cigarette and in the attic. That were just heartbreaking, and I'm I'm tearing up a little bit and getting chills at the same time. But it was it was it it felt like the kind of relationship a person can have with another person only after thirty years, forty years of shared history, and you don't get that on TV a lot.
+[00:37:44] Will: sharing the cigarette and in the attic. That were just heartbreaking, and I'm I'm tearing up a little bit and getting chills at the same time. But it was it was it it felt like the kind of relationship a person can have with another person only after 30 years, 40 years of shared history, and you don't get that on TV a lot.
 
 [00:38:01] Adam: I will tell you that as a parent, that show has has deeply affected me. Having two adult children now,
 
@@ -1162,7 +1162,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:44:19] Adam: She's all done. And I mean, the the second season is maybe one of the best six episodes of television I've seen in ages.
 
-[00:44:26] Will: Like God bless England, because if this was made when they make when they remake this for the United States, it's going to be twelve seasons.
+[00:44:26] Will: Like God bless England, because if this was made when they make when they remake this for the United States, it's going to be 12 seasons.
 
 [00:44:26] Adam: Wow,
 
@@ -1178,7 +1178,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:44:41] Will: hot priest, Mark Ruffalo. So yes, please.
 
-[00:44:43] Adam: My friend Leah and Jessica host a wonderful show, which you should listen to Sundays at eleven o'clock. Sundays at Ten o'clock on BFF FM. They have a show called TV on the Radio, and a couple weeks ago, my wife Julia was on the show to talk to Leah about it. And Julia said the priest is as if. Wait, let me get this right. It's as if Mark Ruffalo. Oh my God, I am actually going to screw this up. I
+[00:44:43] Adam: My friend Leah and Jessica host a wonderful show, which you should listen to Sundays at 11 o'clock. Sundays at 10 o'clock on BFF FM. They have a show called TV on the Radio, and a couple weeks ago, my wife Julia was on the show to talk to Leah about it. And Julia said the priest is as if. Wait, let me get this right. It's as if Mark Ruffalo. Oh my God, I am actually going to screw this up. I
 
 [00:45:12] Norm: It’s okay you said it last week.
 
@@ -1202,7 +1202,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:45:24] Will: Your book's on newsstands now. You can get it at Adam Savage Book, Adam Savage dot Book.
 
-[00:45:29] Adam: AdamSavageBook dot com. My new show, Savage Builds, is on Discovery Channel Friday nights at ten, and on Science Channel Wednesday nights at ten. Both times after BattleBots, which you should also be watching because it's awesome.
+[00:45:29] Adam: AdamSavageBook dot com. My new show, Savage Builds, is on Discovery Channel Friday nights at 10, and on Science Channel Wednesday nights at 10. Both times after BattleBots, which you should also be watching because it's awesome.
 
 [00:45:43] Will: Those robots really beat the hell out of each other.
 

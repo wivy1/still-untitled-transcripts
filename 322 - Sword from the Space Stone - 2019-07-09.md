@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:00:12] Unknown speaker (Adam or Will): [unclear: Yeah,]
 
-[00:00:12] Adam: and it feels like July Fourth weekend lasted like twelve days.
+[00:00:12] Adam: and it feels like July Fourth weekend lasted like 12 days.
 
 [00:00:17] Will: Do you—
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:01:56] Will: Adam. Good
 
-[00:01:56] Adam: job. So I finished my talk, and people were clapping, and then I had another thirty minutes of Q and A to do, and that's when the one of the organizers that had hired me. Came up to the foot of the stage and said, " Here's a napkin. You've cut yourself. I didn't even realize I'd lacerated.
+[00:01:56] Adam: job. So I finished my talk, and people were clapping, and then I had another 30 minutes of Q and A to do, and that's when the one of the organizers that had hired me. Came up to the foot of the stage and said, " Here's a napkin. You've cut yourself. I didn't even realize I'd lacerated.
 
 [00:02:11] Norm: So, you’re bleeding.
 
@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:03:25] Adam: Interesting.
 
-[00:03:25] Will: Well, I mean, if there's anything that playing the Insomniac Spider Man game last year taught me, it's that there are literally a hundred Spider Man costumes.
+[00:03:25] Will: Well, I mean, if there's anything that playing the Insomniac Spider Man game last year taught me, it's that there are literally 100 Spider Man costumes.
 
 [00:03:32] Norm: over
 
@@ -158,7 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:04:06] Adam: no, no, no,
 
-[00:04:06] Will: like ten years ago, probably.
+[00:04:06] Will: like 10 years ago, probably.
 
 [00:04:08] Adam: And I was thinking about the crew, right? Because they have rain on stage. I've worked on stages where we made it rain, and it is a, it is never not a nightmare to make water rain on stage.
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:05:28] Adam: Oh, especially the mission. And one of the graces of the past couple of years is that both Maggie and Huxley have gone largely deaf.
 
-[00:05:37] Will: Yeah, Chloe, Chloe is totally inured to fireworks at this point. At age thirteen,
+[00:05:37] Will: Yeah, Chloe, Chloe is totally inured to fireworks at this point. At age 13,
 
 [00:05:42] Adam: it's radically improved their experience of the evening. So we actually they were with a friend over Fourth of July here in San Francisco while we were up in Portland.
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:06:04] Norm: Okay. Yeah, I know in Pacifica where you are. Well.
 
-[00:06:05] Will: Pacifica, it's then like if Atlas, if there's an Atlas Obscura entry for Pacifica, it will be the world's largest amateur fireworks display because they have signs, they have signs up on the road for two or three weeks before Fourth of July. They're like, hey, look, man, illegal fireworks will get you a thousand dollars. Nobody cares. It's completely toothless law. There are people shooting. Like we went to we went to some neighbors' block party. Well, we went to we went to a really wholesome all American picnic during the day where like the Parks and Rec Department. Hey, shout out to the Pacifica Parks and Rec Department because they do good work. They had like sack races and tug of war and all that kind of stuff.
+[00:06:05] Will: Pacifica, it's then like if Atlas, if there's an Atlas Obscura entry for Pacifica, it will be the world's largest amateur fireworks display because they have signs, they have signs up on the road for two or three weeks before Fourth of July. They're like, hey, look, man, illegal fireworks will get you $1,000. Nobody cares. It's completely toothless law. There are people shooting. Like we went to we went to some neighbors' block party. Well, we went to we went to a really wholesome all American picnic during the day where like the Parks and Rec Department. Hey, shout out to the Pacifica Parks and Rec Department because they do good work. They had like sack races and tug of war and all that kind of stuff.
 
 [00:06:40] Adam: Egg toss.
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:06:46] Adam: What's a bat race?
 
-[00:06:46] Will: It's where you put your head on the baseball bat and spin around so you get dizzy in a novel way, and then you try to run in a straight line. Whoever gets you have to spin like ten times and then run and then pick something up and then run back and spin ten times.
+[00:06:46] Will: It's where you put your head on the baseball bat and spin around so you get dizzy in a novel way, and then you try to run in a straight line. Whoever gets you have to spin like 10 times and then run and then pick something up and then run back and spin 10 times.
 
 [00:06:58] Adam: Why not just wear a helmet?
 
@@ -454,13 +454,13 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:14:17] Will: Because she's she loves platformers, Mario, and stuff like that, and it's fun to watch her make a level and figure out why it works or doesn't. But the thing that happens is all of your bad friends who are adults and like to are either sadists or masochists. Upload the levels that they create that are exercises. Yeah. I don't know if you ever saw one of those old videos of like the ROM hacked Super Mario Brothers, where like the guy had to make the exact perfect jump and make the one pixel to the other pixel and then jump off of the squid.
 
-[00:14:42] Adam: The one that I saw that I watched in its entirety, and it's like forty minutes long, is the guy going through an impossible level and actually learning it because there's all these invisible coins and obstacles.
+[00:14:42] Adam: The one that I saw that I watched in its entirety, and it's like 40 minutes long, is the guy going through an impossible level and actually learning it because there's all these invisible coins and obstacles.
 
 [00:14:53] Will: Yeah.
 
 [00:14:53] Adam: But he's doing it in this terrible Italian accent. Okay, Mario, we're gonna do the level. Oh, what the hell! And he gets madder and madder. It is. Really, side splitting, really funny.
 
-[00:15:04] Will: Well, so it is. It is literally like five games in one because there's like some people that just try to make levels that could be Nintendo levels that are masterpieces. They're brilliant, right? And then there's the sadists that make the one that wants to make you suffer, and they want to. They want ninety nine thousand people to play it and have six completions.
+[00:15:04] Will: Well, so it is. It is literally like five games in one because there's like some people that just try to make levels that could be Nintendo levels that are masterpieces. They're brilliant, right? And then there's the sadists that make the one that wants to make you suffer, and they want to. They want 99,000 people to play it and have six completions.
 
 [00:15:18] Norm: There's no, there's no requirement to let force you, the maker of the level, to have to beat it once yourself.
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:15:29] Adam: That's a brilliant convention.
 
-[00:15:31] Will: It is. It is a spectacular exercise in deconstructing something that that most of us are intimately familiar with because you know I I don't I spent hundreds of hours playing Mario games you know through my entire life thousands at this point it's it's fascinating to get tools that let you build something that you're so familiar with and had very little conception of building twenty years ago thirty you know I I remember I used to draw Mario levels on graph paper when I was a kid.
+[00:15:31] Will: It is. It is a spectacular exercise in deconstructing something that that most of us are intimately familiar with because you know I I don't I spent hundreds of hours playing Mario games you know through my entire life thousands at this point it's it's fascinating to get tools that let you build something that you're so familiar with and had very little conception of building 20 years ago 30 you know I I remember I used to draw Mario levels on graph paper when I was a kid.
 
 [00:15:56] Adam: Wow, okay.
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:17:03] Norm: I mean, this is also it's Excalibur, so two interesting things. One, the design of it, right? Mm-hmm. Mm-hmm. So you went through this. Book to pick out a 10th century designed.
 
-[00:17:12] Adam: Well, so the the the classic book is Oakeshott's Book of Swords, and I don't know how you pronounce it, whether it's Oak-a-shot or Oakshot. But Oakeshott, I knew I know about this book because I was told about it by Peter Lyon, swordmaster at Weta, and basically Oakeshott developed the typology of swords, types ten through sixteen, I believe, with all these subsets, Mm-hmm. Um, and it’s everything from the Roman gladius to you know the last swords that were being made in the like 16th century, 17th.
+[00:17:12] Adam: Well, so the the the classic book is Oakeshott's Book of Swords, and I don't know how you pronounce it, whether it's Oak-a-shot or Oakshot. But Oakeshott, I knew I know about this book because I was told about it by Peter Lyon, swordmaster at Weta, and basically Oakeshott developed the typology of swords, types 10 through 16, I believe, with all these subsets, Mm-hmm. Um, and it’s everything from the Roman gladius to you know the last swords that were being made in the like 16th century, 17th.
 
 [00:17:43] Will: Cutlasses and
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:18:04] Will: Yeah.
 
-[00:18:04] Adam: something about a hundred years old,
+[00:18:04] Adam: something about 100 years old,
 
 [00:18:06] Will: right?
 
@@ -544,7 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:18:53] Norm: Oh, and that's what gives it this pattern here.
 
-[00:18:55] Adam: Yes, so the dark parts are the nickel transitions, and the the lighter parts are the regular steel. And we used meteorite that was basically nickel and iron, which is a very common meteorite material. And it took freaking forever to cut through it like forty-five minutes, on the bandsaw.
+[00:18:55] Adam: Yes, so the dark parts are the nickel transitions, and the the lighter parts are the regular steel. And we used meteorite that was basically nickel and iron, which is a very common meteorite material. And it took freaking forever to cut through it like 45 minutes, on the bandsaw.
 
 [00:19:15] Unidentified speaker: I saw that. It's an hour.
 
@@ -674,7 +674,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:24:11] Norm: anniversary. We're like a week and a half.
 
-[00:24:13] Adam: Fiftieth anniversary of Apollo. Have you been following the uh the Apollo 50th Twitter feed?
+[00:24:13] Adam: 50th anniversary of Apollo. Have you been following the uh the Apollo 50th Twitter feed?
 
 [00:24:17] Will: It is my favorite,
 
@@ -692,19 +692,19 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:25:00] Will: So for people who don't know, though, because I'm sure there's a lot of people here who have no idea what we're talking about, you're going to DC.
 
-[00:25:05] Adam: I'm going to DC to to be participating in a couple of different live stage events. The fiftieth anniversary of Apollo. There's one on the Mall on the nineteenth.
+[00:25:05] Adam: I'm going to DC to to be participating in a couple of different live stage events. The 50th anniversary of Apollo. There's one on the Mall on the 19th.
 
 [00:25:16] Will: Of Apollo 11, specifically.
 
-[00:25:17] Adam: excuse me, Apollo 11. Yeah, and then there's one on the twentieth at the Kennedy Center. There's also a dinner. There's also Jen Schachter and I are going to be assembling Project Egress. Forty four makerspaces contributed parts to this Microsoft product division. Jimmy DiResta, Kate Nevelin, and Bill Doran, all sorts of friends of ours from all across the world, have been building parts for the last month for Project Egress, which is a multiple makerspace calico, exquisite corpse assemblage of the escape hatch from the Apollo command capsule.
+[00:25:17] Adam: excuse me, Apollo 11. Yeah, and then there's one on the 20th at the Kennedy Center. There's also a dinner. There's also Jen Schachter and I are going to be assembling Project Egress. 44 makerspaces contributed parts to this Microsoft product division. Jimmy DiResta, Kate Nevelin, and Bill Doran, all sorts of friends of ours from all across the world, have been building parts for the last month for Project Egress, which is a multiple makerspace calico, exquisite corpse assemblage of the escape hatch from the Apollo command capsule.
 
 [00:25:17] Unknown speaker (Adam or Will): Uh,
 
 [00:25:55] Will: And all different part, all individual parts,
 
-[00:25:58] Adam: all individual parts, forty four separate parts, hinges, linkages, gearboxes, everything, each made by different makerspace. And while they had to get the size exactly right because we have hole patterns to match, they could make it out of any material and they could paint in any way that they wanted.
+[00:25:58] Adam: all individual parts, 44 separate parts, hinges, linkages, gearboxes, everything, each made by different makerspace. And while they had to get the size exactly right because we have hole patterns to match, they could make it out of any material and they could paint in any way that they wanted.
 
-[00:26:12] Will: First off, it's amazing because I know a lot of people are doing 3D printing stuff. I think Jimmy. He posted stuff on Instagram stories about his process for his, and he 3D printed and then recreated the 3D print in materials that he's more that he likes better. And like it, yeah, it's it's it's it's astounding that we've come so far in such a in the last ten years. Because if you tried to do this and people were doing 3D printed stuff ten years ago,
+[00:26:12] Will: First off, it's amazing because I know a lot of people are doing 3D printing stuff. I think Jimmy. He posted stuff on Instagram stories about his process for his, and he 3D printed and then recreated the 3D print in materials that he's more that he likes better. And like it, yeah, it's it's it's it's astounding that we've come so far in such a in the last 10 years. Because if you tried to do this and people were doing 3D printed stuff 10 years ago,
 
 [00:26:38] Adam: oh, it
 
@@ -788,7 +788,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:31:04] Norm: Before wrap up, last two bits of shout outs. You brought to our attention that one of the last model shops in San Francisco,
 
-[00:31:11] Adam: the Hobby Company on Sixteenth and Geary, is closing after 44 years. I was there yesterday buying some paint for a project today, and the owner. Was telling me about this. They're doing an earthquake retrofit on the building. They are unsure whether they will be able to move back into the space. They're currently thinking about looking at a new retail space, but it's obviously difficult in one of the most expensive cities in the world.
+[00:31:11] Adam: the Hobby Company on 16th and Geary, is closing after 44 years. I was there yesterday buying some paint for a project today, and the owner. Was telling me about this. They're doing an earthquake retrofit on the building. They are unsure whether they will be able to move back into the space. They're currently thinking about looking at a new retail space, but it's obviously difficult in one of the most expensive cities in the world.
 
 [00:31:37] Norm: Yeah,
 
@@ -808,7 +808,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:32:05] Norm: Yeah, model making in terms of supporting you know small scale model makers.
 
-[00:32:09] Adam: Well, and she was saying she has to buy from dozens and dozens of different vendors just to keep stocked in models. So I wanted to go over there this week and purchase a bunch of stock of their models. I would like to help them out, and also look, it's a shout out to San Francisco people. If you somehow control a fifteen hundred square foot retail space that you'd like to rent to the the last model stop in San Francisco, I know this is a long shot, but I'd really love to see it happen. We lost Franciscan Hobbies a few years ago; that was a tragedy. We still have that wonderful weird train store in Berkeley on University at Cal, which is terrific.
+[00:32:09] Adam: Well, and she was saying she has to buy from dozens and dozens of different vendors just to keep stocked in models. So I wanted to go over there this week and purchase a bunch of stock of their models. I would like to help them out, and also look, it's a shout out to San Francisco people. If you somehow control a 1,500 square foot retail space that you'd like to rent to the the last model stop in San Francisco, I know this is a long shot, but I'd really love to see it happen. We lost Franciscan Hobbies a few years ago; that was a tragedy. We still have that wonderful weird train store in Berkeley on University at Cal, which is terrific.
 
 [00:32:45] Will: Is the electronics shop and train store in San Rafael still too?
 
@@ -818,7 +818,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:32:49] Adam: and but this is this is the sad thing about about retail. It's really it's getting harder and harder and harder for traditional retail to be able to cover its expenses, especially when everything's available online by tomorrow. And they're they're finding that's a real difficult needle to thread.
 
-[00:33:08] Will: But at the same time, like one of the first things that norm one of the first challenges Norm and I had when we started tested almost ten years ago now was we were building the first MakerBot, the cupcake.
+[00:33:08] Will: But at the same time, like one of the first things that norm one of the first challenges Norm and I had when we started tested almost 10 years ago now was we were building the first MakerBot, the cupcake.
 
 [00:33:18] Adam: Yeah,
 
@@ -830,7 +830,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:33:30] Adam: No.
 
-[00:33:30] Will: Like there were no hobby shops that had that here. And it was something that would have been super common, maybe ten years before even.
+[00:33:30] Will: Like there were no hobby shops that had that here. And it was something that would have been super common, maybe 10 years before even.
 
 [00:33:39] Adam: Totally, totally. We don't have Radio Shack anymore. What I'd love to see, I don't know if this is possible, but could there end up being a retail supply store for makerspace needs specifically that would sell things like vinyl sheet and filament and other support material? And the problem is, there's so many hundreds of 3D printers. How do you support? Who do you choose? How do you choose?
 

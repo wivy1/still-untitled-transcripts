@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:01:14] Will: Oh yeah, the four, the four, the most four most important nouns.
 
-[00:01:18] Adam: Of course, it was about two hundred attendees, two hundred of the just some of the best people in the world in each of those fields, and it was really wonderful. You know, I guess if you looked at it from outside, it looks a little like TED, right? Because there's talks. You several people make presentations on a couple of the mornings, but the the comparison ends there because this is a much more highly curated in every aspect kind of event where dinners each night you're at a table for six people and you're like. Your place has been.
+[00:01:18] Adam: Of course, it was about 200 attendees, 200 of the just some of the best people in the world in each of those fields, and it was really wonderful. You know, I guess if you looked at it from outside, it looks a little like TED, right? Because there's talks. You several people make presentations on a couple of the mornings, but the the comparison ends there because this is a much more highly curated in every aspect kind of event where dinners each night you're at a table for six people and you're like. Your place has been.
 
 [00:01:55] Will: You have assigned seating.
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:02:11] Adam: And they do it really, really well. So I had some of the best conversations I've had in months this week.
 
-[00:02:18] Will: Do you think they're using machine learning for that? Like they feed you into the algorithm. They're like, okay, Adam knows these sixty people.
+[00:02:18] Will: Do you think they're using machine learning for that? Like they feed you into the algorithm. They're like, okay, Adam knows these 60 people.
 
 [00:02:23] Adam: We did. God, we got so much machine learning stuff. Marc Raibert, Boston Dynamics was there showing how Spot Mini navigates through a room.
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:06:58] Norm: Very precise, submillimeter. Yes, but no variability.
 
-[00:07:02] Adam: No, and to give you an idea, like I think a highly skilled person can pick up six hundred objects an hour, and the best robot in the world is like two hundred.
+[00:07:02] Adam: No, and to give you an idea, like I think a highly skilled person can pick up 600 objects an hour, and the best robot in the world is like 200.
 
 [00:07:12] Will: Can but robots? But turns out, you know what, Adam? You don't have to pay the robots. So let me tell you,
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:21:02] Adam: And that was a the repeated refrain of this film was what a magical. Human Henson was how well he engendered love, ingenuity, improvisation, and deep a deep commitment to great storytelling with his crew, and really let them build these characters and find them. I mean, everyone was clearly so, still so inspired by the by the collaboration with Henson.
 
-[00:21:28] Will: And and the other thing, like I, I really encourage everybody who thinks, oh, you need a lot of money to go do something or go build something, to watch that first season of the Muppet Show. You can get the DVD for like seven dollars on Amazon, and the production, like the show, is there, right? The show is as you as you remember it from your childhood, but the production value on that first season could have been done in most midwestern basements. With
+[00:21:28] Will: And and the other thing, like I, I really encourage everybody who thinks, oh, you need a lot of money to go do something or go build something, to watch that first season of the Muppet Show. You can get the DVD for like $7 on Amazon, and the production, like the show, is there, right? The show is as you as you remember it from your childhood, but the production value on that first season could have been done in most midwestern basements. With
 
 [00:21:53] Adam: except, I will tell you, it was still a super expensive show even in that first season.
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:23:50] Will: No.
 
-[00:23:50] Adam: Oh, I'll show them to you after the podcast. I took these dimmable and color temperature adjustable flat panels that are thirty bucks on Amazon now, and I mounted one to the end of the same Loc-Line.
+[00:23:50] Adam: Oh, I'll show them to you after the podcast. I took these dimmable and color temperature adjustable flat panels that are $30 on Amazon now, and I mounted one to the end of the same Loc-Line.
 
 [00:24:02] Will: Oh, you didn't? You showed me these last time. Yeah, yeah, yeah.
 
@@ -582,7 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:25:24] Adam: I guarantee you, in every dumpster full of stuff out of an apartment that you've ever driven past, there is one of these arms.
 
-[00:25:30] Will: I mean, yeah, I was going to say you can get these lamps at at like before we bought the real ones for the we I had made one out of a a lamp like a lamp head that I got at Target or someplace for like fifteen dollars
+[00:25:30] Will: I mean, yeah, I was going to say you can get these lamps at at like before we bought the real ones for the we I had made one out of a a lamp like a lamp head that I got at Target or someplace for like $15
 
 [00:25:43] Adam: exactly.
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:26:28] Adam: Fantastic! Congratulations.
 
-[00:26:30] Will: The nano machines. This is the nano machines episode. We talked to Shawn Douglas, who's a scientist. He's at the Department of Molecular Bio Pharmacology or something at UCSF. He's a biochemist and he builds nano machines out of DNA. We start out in a recreation of his lab and we kind of powers of ten down through his lab equipment until we are standing in between the lipid layers of an E. Coli cell, and it works without VR. So if you don't have a VR headset, you can try it out at home.
+[00:26:30] Will: The nano machines. This is the nano machines episode. We talked to Shawn Douglas, who's a scientist. He's at the Department of Molecular Bio Pharmacology or something at UCSF. He's a biochemist and he builds nano machines out of DNA. We start out in a recreation of his lab and we kind of powers of 10 down through his lab equipment until we are standing in between the lipid layers of an E. Coli cell, and it works without VR. So if you don't have a VR headset, you can try it out at home.
 
 [00:26:55] Adam: Oh, that's really cool.
 
@@ -640,9 +640,9 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:27:28] Norm: yes, and then it zooms out first, and then goes in.
 
-[00:27:38] Adam: Right, and each time it moves, each time its frame moves, it's by a power of ten.
+[00:27:38] Adam: Right, and each time it moves, each time its frame moves, it's by a power of 10.
 
-[00:27:42] Norm: But it's like ten seconds for every power of ten. It's narrated perfectly.
+[00:27:42] Norm: But it's like 10 seconds for every power of 10. It's narrated perfectly.
 
 [00:27:46] Adam: It's and it's so beautiful.
 

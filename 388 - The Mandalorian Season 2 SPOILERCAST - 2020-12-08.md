@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:21:25] Adam: They seem to be keeping Baby Yoda or Grogu really close to the vest.
 
-[00:21:30] Norm: Oh, Grogu. Okay, chapter eleven. This one, Bryce Dallas Howard directed. The one direct again. They're going direct continuations, even though they're fun to watch by themselves. The stories that Razor Crest is still damaged. As this episode starts, they land on a seafaring planet, and he meets other Mandalorians. So this is direct tie-ins to the Clone Wars, the Clone Wars series. And you also had the character of Bo-Katan,
+[00:21:30] Norm: Oh, Grogu. Okay, chapter 11. This one, Bryce Dallas Howard directed. The one direct again. They're going direct continuations, even though they're fun to watch by themselves. The stories that Razor Crest is still damaged. As this episode starts, they land on a seafaring planet, and he meets other Mandalorians. So this is direct tie-ins to the Clone Wars, the Clone Wars series. And you also had the character of Bo-Katan,
 
 [00:22:03] Adam: and you had a bunch of shipbuilding mon calamari.
 
@@ -270,9 +270,9 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:24:52] Adam: That's that's that's an awesome audition.
 
-[00:24:57] Joey: Did you guys catch that Apollo? Uh, uh, thirteen,
+[00:24:57] Joey: Did you guys catch that Apollo? Uh, uh, 13,
 
-[00:25:01] Norm: thirteen.
+[00:25:01] Norm: 13.
 
 [00:25:01] Joey: Apollo 13. Uh, Bryce Dallas Howard, Ron Howard homage.
 
@@ -430,7 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:39:06] Adam: right because the child does not figure into the last.
 
-[00:39:10] Norm: Exactly, there's there thirty years or wherever they are. Right, twenty five years from from where wherever the show is. We don't have.
+[00:39:10] Norm: Exactly, there's there 30 years or wherever they are. Right, 25 years from from where wherever the show is. We don't have.
 
 [00:39:20] Adam: Or, the child ends up on Dagobah, and we know.
 
@@ -438,7 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:39:27] Adam: Years from now, we'll see everybody back on Dagobah.
 
-[00:39:32] Norm: Yeah, yeah. I mean, there's what I love is that you know, even though after Revenge of the Sith and all the Jedi being killed, there are Jedi littered around the the galaxy, right? Obi Wan wasn't the only hermit. You had Ahsoka Tano, right? You had right, and and after Return of the Jedi, when you have Luke trying to build the the New Order, right, and his failure to do so, like this is the the fun. Mythology of like you know of of what it means for this thing that connects all these Jedi, for them to be alone and to to figure it out, and this is just another piece of that. Like and also, Mando doesn't live for five hundred years old, right? Grogu is gonna even if things go well, Grogu is gonna grow up and grow old, right? I don't know. It's it's maybe the parent thinking about that.
+[00:39:32] Norm: Yeah, yeah. I mean, there's what I love is that you know, even though after Revenge of the Sith and all the Jedi being killed, there are Jedi littered around the the galaxy, right? Obi Wan wasn't the only hermit. You had Ahsoka Tano, right? You had right, and and after Return of the Jedi, when you have Luke trying to build the the New Order, right, and his failure to do so, like this is the the fun. Mythology of like you know of of what it means for this thing that connects all these Jedi, for them to be alone and to to figure it out, and this is just another piece of that. Like and also, Mando doesn't live for 500 years old, right? Grogu is gonna even if things go well, Grogu is gonna grow up and grow old, right? I don't know. It's it's maybe the parent thinking about that.
 
 [00:40:17] Joey: No, yeah, I feel it.
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:48:49] Adam: Oh, is he really? I haven't watched that yet.
 
-[00:48:51] Norm: If you want your eyeballs tickled for two hours and thirty minutes, just put on Aquaman.
+[00:48:51] Norm: If you want your eyeballs tickled for two hours and 30 minutes, just put on Aquaman.
 
 [00:48:56] Adam: Okay. I, for some reason, my wife does think does does like what's his name who plays Aquaman,
 
@@ -540,9 +540,9 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:49:17] Adam: I'm nervous. I'm nervous. I the moment in the first season that really nailed me was when IG, not IG-88, but the
 
-[00:49:25] Norm: IG eleven,
+[00:49:25] Norm: IG-11,
 
-[00:49:26] Adam: IG eleven takes off Mando's helmet and you see Pedro Pascal. I was shocked at how moving that moment was to me, and I suspect they're leading us towards some moment of catharsis like that again of some type. Then I'm nervous about it.
+[00:49:26] Adam: IG-11 takes off Mando's helmet and you see Pedro Pascal. I was shocked at how moving that moment was to me, and I suspect they're leading us towards some moment of catharsis like that again of some type. Then I'm nervous about it.
 
 [00:49:45] Norm: The the myth, the evolving myth of the Mandalorians that we're being privy to with Bo-Katan, I think, gives them permission to to do that and have the helmet be more optional.
 
@@ -556,7 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:50:21] Joey: Or he's going to show up to the rest of the Mandalorians from his own clan, take his helmet off, and be treated like uh, uh, the the the maskers versus the anti-maskers in your family.
 
-[00:50:32] Adam: Um, I I'm really looking forward to and jonesing for a second season of the gallery, uh, of a deep dive into every aspect of this because there's the master like you were saying early on, and the master shots in this in this second season are way more ambitious than they were in the in the first season. And there's just some beautiful, beautiful filmmaking in this wonderful thirty-minute series.
+[00:50:32] Adam: Um, I I'm really looking forward to and jonesing for a second season of the gallery, uh, of a deep dive into every aspect of this because there's the master like you were saying early on, and the master shots in this in this second season are way more ambitious than they were in the in the first season. And there's just some beautiful, beautiful filmmaking in this wonderful 30-minute series.
 
 [00:50:57] Norm: Yeah, yeah, amazing. Uh, all right, thank you, Joey, for getting back online with us. Sorry about that power outage.
 

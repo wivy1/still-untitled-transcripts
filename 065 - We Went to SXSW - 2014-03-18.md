@@ -204,7 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:06:01] Adam: I ordered myself both Commander and and Science.
 
-[00:06:07] Norm: That's great. They're ten bucks. They're of course well worth buying.
+[00:06:07] Norm: That's great. They're $10. They're of course well worth buying.
 
 [00:06:10] Adam: There we go. Hey, ladies, where are you going?
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:11:29] Norm: And they spent decades building up a reputation and a sense of, and it's a lot of parallels to like San Francisco and the housing crisis we have going on, and people saying, you know, people, everyone's moving into San Francisco, but no one's giving back, and they're just taking advantage of the, you know, the culture that's been here for a while.
 
-[00:11:45] Will: Yeah, that's another conversation that started ten years, fifteen years ago.
+[00:11:45] Will: Yeah, that's another conversation that started 10 years, 15 years ago.
 
 [00:11:48] Adam: It is. It is. It's the same conversation was happening when I lived on 22nd and Mission during the dot com boom in '96, '97, '98. And it is a mix of all of those things because San Francisco's housing policy is also really terrible and backwards.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:12:21] Adam: Right.
 
-[00:12:21] Will: They just set a fixed start date of 1980 or eighty two or something. Right.
+[00:12:21] Will: They just set a fixed start date of 1980 or '82 or something. Right.
 
 [00:12:21] Adam: Yeah.
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:17:01] Will: Hold on, do you can you do auctioneer patter? A ball right now, and what do you get for it?
 
-[00:17:03] Adam: No, no, no, no. I do more like I had. I was running around fomenting bidding battles by adding sweeteners to the pot. Like if you, if you, whoever wins now, I will record the outgoing message on your machine. Whoever wins now, you get fifteen minutes of phone consultation with me about any project you're working on.
+[00:17:03] Adam: No, no, no, no. I do more like I had. I was running around fomenting bidding battles by adding sweeteners to the pot. Like if you, if you, whoever wins now, I will record the outgoing message on your machine. Whoever wins now, you get 15 minutes of phone consultation with me about any project you're working on.
 
 [00:17:03] Will: Wow, that's great.
 
@@ -552,11 +552,11 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:17:37] Norm: Photos to share from this this podcast.
 
-[00:17:39] Adam: The strangest thing about the sequin coat was, you know, you search sequin coat. There's plenty out there, and really, it's hard to find them any more than about forty dollars. They cost about forty dollars. So I—
+[00:17:39] Adam: The strangest thing about the sequin coat was, you know, you search sequin coat. There's plenty out there, and really, it's hard to find them any more than about $40. They cost about $40. So I—
 
 [00:17:50] Will: Is this like these stripper stores and stuff like that.
 
-[00:17:52] Adam: It was an Amazon thing, so I was like, " Great, forty bucks, I'll buy it."
+[00:17:52] Adam: It was an Amazon thing, so I was like, " Great, $40, I'll buy it."
 
 [00:17:52] Will: Done,
 

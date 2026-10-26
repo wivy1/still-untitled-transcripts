@@ -74,11 +74,11 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:03:53] Adam: We want to do a—
 
-[00:03:50] Norm: Thirty-one hours.
+[00:03:50] Norm: 31 hours.
 
-[00:03:55] Adam: Thirty-one hours?
+[00:03:55] Adam: 31 hours?
 
-[00:03:56] Norm: Thirty-one hours.
+[00:03:56] Norm: 31 hours.
 
 [00:03:57] Adam: Yeah.
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:09:45] Will: Or at least his work.
 
-[00:09:46] Adam: They're amazing over there, and I got a full tour of their shop a couple of years ago, and I guess he's an acquaintance. And he built a shop. He realized that some of his employees wanted to do side jobs, and they wanted to basically pull all manufacturing and all construction and all prototyping in house, which was brilliant. So he built this shop that is amazing. It's like twenty five hundred square feet, and every tool is on the walls.
+[00:09:46] Adam: They're amazing over there, and I got a full tour of their shop a couple of years ago, and I guess he's an acquaintance. And he built a shop. He realized that some of his employees wanted to do side jobs, and they wanted to basically pull all manufacturing and all construction and all prototyping in house, which was brilliant. So he built this shop that is amazing. It's like 2,500 square feet, and every tool is on the walls.
 
 [00:10:11] Will: Oh, like in a prison.
 
@@ -282,13 +282,13 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:15:42] Adam: Exactly.
 
-[00:15:43] Will: Lots of what, fifty or a hundred or something? Twenty-five.
+[00:15:43] Will: Lots of what, 50 or 100 or something? 25.
 
-[00:15:45] Adam: No, usually twenty. Usually, I don't like to blow too much dough on any one thing, so I'll go and do, let's say twenty-four. I recently bought a set of twenty-four three-inch red casters, non-marking, medium-hard durometer. Twenty-four of them, and they were like seventy seventy-five bucks.
+[00:15:45] Adam: No, usually 20. Usually, I don't like to blow too much dough on any one thing, so I'll go and do, let's say 24. I recently bought a set of 24 3-inch red casters, non-marking, medium-hard durometer. 24 of them, and they were like $70 $75.
 
 [00:16:03] Will: That's amazing.
 
-[00:16:04] Adam: That's three bucks a piece for what are 150 pound per casters. These are great. They came off another piece of equipment. They've allowed me to put at least five, four, four or five things on wheels so far, and I've still got four or eight left.
+[00:16:04] Adam: That's $3 a piece for what are 150 pound per casters. These are great. They came off another piece of equipment. They've allowed me to put at least five, four, four or five things on wheels so far, and I've still got four or eight left.
 
 [00:16:17] Will: Okay, so along with the,
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:16:20] Will: It's all good. Nobody's checking. It's the internet. They don't care about the minute details of a conversation. So along with that, you also have a big rack that has all of your Allen wrenches, your screwdrivers, your your small screwdrivers, not the big screwdrivers. Like bits and and calipers and stuff like that.
 
-[00:16:39] Adam: What this started out was I wanted in in any in any advanced shop, you don't just have drill indices. You actually have what are called Drill, drill, drill bit drawers. I think they're called Huot dispensers. Is the main main maker of them. You can buy them on Amazon. They're not cheap. These drawers are about a hundred bucks a piece. These sets of drawers.
+[00:16:39] Adam: What this started out was I wanted in in any in any advanced shop, you don't just have drill indices. You actually have what are called Drill, drill, drill bit drawers. I think they're called Huot dispensers. Is the main main maker of them. You can buy them on Amazon. They're not cheap. These drawers are about $100 a piece. These sets of drawers.
 
 [00:17:00] Will: It's like a tall. It's it's like a three and a half or four foot tall.
 
@@ -316,11 +316,11 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:18:12] Will: Okay.
 
-[00:18:12] Adam: That way, I don't have to go hunting for any of these things or look at a chart to go find the right tap drills for the ten.
+[00:18:12] Adam: That way, I don't have to go hunting for any of these things or look at a chart to go find the right tap drills for the 10.
 
 [00:18:20] Will: Because you usually need them at the same time, the way you work.
 
-[00:18:21] Adam: Yeah, you always need them at the same time. In fact, when I am doing a job where I've got to like drill and tap like twenty five 10-24 holes, I'll use three drills. That is a benefit I have having many many drills in this shop. But you know, so I got one drill for the tap drill, one drill for the tap, and then a third drill for the through hole, so I can move really quickly.
+[00:18:21] Adam: Yeah, you always need them at the same time. In fact, when I am doing a job where I've got to like drill and tap like 25 10-24 holes, I'll use three drills. That is a benefit I have having many many drills in this shop. But you know, so I got one drill for the tap drill, one drill for the tap, and then a third drill for the through hole, so I can move really quickly.
 
 [00:18:42] Will: Um, one of the things.
 
@@ -336,11 +336,11 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:19:01] Will: But the the airline the the carts for foods in airlines that are the narrow width that fit down the aisle you can get them on eBay. Prior to this episode, they were not terribly expensive
 
-[00:19:11] Adam: They’re about 250 bucks a piece,
+[00:19:11] Adam: They’re about $250 a piece,
 
 [00:19:12] Will: right? But they have a ton of little drawers in them, and you've built a couple of those that are specialized for specific things. For example, we've used the soldering.
 
-[00:19:20] Adam: Yes, I have one for electronics. I took all my electronics and was able to put them in one of those. Now, these airplane food containers. Here's the thing: they're on great casters. They lock as they need to on the airplane. They're awesome, and 250 bucks is a total deal. But here's what you need to know: the drawers suck
+[00:19:20] Adam: Yes, I have one for electronics. I took all my electronics and was able to put them in one of those. Now, these airplane food containers. Here's the thing: they're on great casters. They lock as they need to on the airplane. They're awesome, and $250 is a total deal. But here's what you need to know: the drawers suck
 
 [00:19:37] Will: because they're just aluminum, so they don't have slides.
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:21:26] Will: Yeah.
 
-[00:21:27] Adam: Um. So UHMW is one of the things, and I'm sure I've mentioned this on the podcast before. Most normal shops like mine, I can't support giant chunks of stock. I need to buy little discrete chunks of stock, and eBay is perfect for that. There are lots of people buying giant chunks of stock, cutting it up into smaller, and you pay a little more for that, but You know, I don't need a twenty-foot length of three-inch UHMW rod. I just need a twelve-inch length, and then I'm good for about five years.
+[00:21:27] Adam: Um. So UHMW is one of the things, and I'm sure I've mentioned this on the podcast before. Most normal shops like mine, I can't support giant chunks of stock. I need to buy little discrete chunks of stock, and eBay is perfect for that. There are lots of people buying giant chunks of stock, cutting it up into smaller, and you pay a little more for that, but You know, I don't need a 20-foot length of three-inch UHMW rod. I just need a 12-inch length, and then I'm good for about five years.
 
 [00:21:56] Will: Well, in a shop your size, it's much more convenient to have a bunch of four by four sheets of plywood than one four by eight sheet of plywood.
 
@@ -524,17 +524,17 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:30:15] Will: Lazy Susans up there.
 
-[00:30:16] Adam: That's really, really that—that is absolutely the expendables tall shelf. And those are also airplane food containers. They're just the shorter ones that are about fourteen inches high by twelve inches wide by about sixteen inches deep. I found those in a dumpster.
+[00:30:16] Adam: That's really, really that—that is absolutely the expendables tall shelf. And those are also airplane food containers. They're just the shorter ones that are about 14 inches high by 12 inches wide by about 16 inches deep. I found those in a dumpster.
 
-[00:30:33] Adam: Twenty-five years ago.
+[00:30:33] Adam: 25 years ago.
 
 [00:30:34] Will: Is this in your dumpster diving days?
 
-[00:30:36] Adam: Twenty-five years ago, yeah, I was dumpster diving with Barry the Animal Schwartz.
+[00:30:36] Adam: 25 years ago, yeah, I was dumpster diving with Barry the Animal Schwartz.
 
 [00:30:40] Will: I don't think that we’ve talked about dumpster diving on the podcast a long, long time ago. I don't think that dumpster diving in Silicon Valley is quite the same as it used to be. Why not?
 
-[00:30:47] Adam: It was so good twenty, twenty-five years ago, man. I can't even tell you. We would find so much incredible crap. It was great. I have. I'll tell you, we'd be dumpster diving in Silicon Valley industrial parks at like two and three in the morning. And we'd run into the guys from Survival Research Laboratories. We were doing the same circuit.
+[00:30:47] Adam: It was so good 20, 25 years ago, man. I can't even tell you. We would find so much incredible crap. It was great. I have. I'll tell you, we'd be dumpster diving in Silicon Valley industrial parks at like two and three in the morning. And we'd run into the guys from Survival Research Laboratories. We were doing the same circuit.
 
 [00:31:07] Adam: Another time, we got pulled over by the cops, and the cops were, you know, checking us out, stuff because it's two in the morning in Sunny Sunnyvale.
 

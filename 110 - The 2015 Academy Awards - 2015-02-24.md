@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:09:19] Adam: John Travolta cradling Idina Menzel’s face.
 
-[00:09:21] Will: So I was in the other room working, and I was on Twitter, and I was just seeing uncomfortable John Travolta touching like that. That was that was a good ten minutes.
+[00:09:21] Will: So I was in the other room working, and I was on Twitter, and I was just seeing uncomfortable John Travolta touching like that. That was that was a good 10 minutes.
 
 [00:09:30] Adam: That was really really far out. Like,
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:11:04] Will: Where do they invite members? Is it just people from the film community?
 
-[00:11:06] Norm: Okay, the people who are invited. They were. It's about two hundred members every year, and the list of people who are invited. It's out there. You can You know who's in the academy. The average age is still about sixty,
+[00:11:06] Norm: Okay, the people who are invited. They were. It's about 200 members every year, and the list of people who are invited. It's out there. You can You know who's in the academy. The average age is still about 60,
 
 [00:11:16] Will: sixty-seven.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:16:28] Adam: That's the conceit
 
-[00:16:29] Will: that added such an incredible amount of tension to me that by the time you got to the first laugh when Ed Norton takes his pants off, it was it was it got a way bigger laugh than it deserved, and I was surprised. Like I was just surprised that that movie that the the sixty seven year old Academy responded as well as it did to that movie.
+[00:16:29] Will: that added such an incredible amount of tension to me that by the time you got to the first laugh when Ed Norton takes his pants off, it was it was it got a way bigger laugh than it deserved, and I was surprised. Like I was just surprised that that movie that the the 67 year old Academy responded as well as it did to that movie.
 
 [00:16:46] Adam: Oh, I mean, it is it it again. Iñárritu.
 
@@ -512,7 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:17:30] Adam: that's my complaint with Iñárritu for each of his three films that I've seen.
 
-[00:17:34] Will: I, I was talking to Andy Ihnatko from the Chicago Sun Times on Twitter about this after I watched it, and the thing I realized is that I would have been fine if Birdman just stopped any point in the last twenty or thirty minutes.
+[00:17:34] Will: I, I was talking to Andy Ihnatko from the Chicago Sun Times on Twitter about this after I watched it, and the thing I realized is that I would have been fine if Birdman just stopped any point in the last 20 or 30 minutes.
 
 [00:17:34] Adam: Yeah, totally.
 
@@ -554,7 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:19:22] Adam: he's incredibly smart. And incredibly loving. I mean, that's why he loves his characters and he wants the best things to happen for them.
 
-[00:19:29] Norm: And he directed a film over twelve years.
+[00:19:29] Norm: And he directed a film over 12 years.
 
 [00:19:31] Adam: Yeah, man,
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:19:32] Adam: achievement. Can you imagine?
 
-[00:19:33] Will: So, I, I think, I think that that, I think that that might have hurt him because I mean, if you're a seventy year old white guy who's voting for Oscars, it just looks like a stunt.
+[00:19:33] Will: So, I, I think, I think that that, I think that that might have hurt him because I mean, if you're a 70 year old white guy who's voting for Oscars, it just looks like a stunt.
 
 [00:19:43] Adam: Actually, no, it was he was with the bookies. He was neck and neck with Birdman all the way to the end. If Birdman hadn't existed, it would have been a shoo-in.
 
@@ -658,7 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:23:37] Adam: Well,
 
-[00:23:38] Norm: you don't need to spend 100,000,000 dollars.
+[00:23:38] Norm: you don't need to spend $100 million.
 
 [00:23:39] Adam: I think that that I think that that that delineation is going to get softer and softer. Where you will have these companies that can spend the two hundred million on the tentpole, but for the rest of the filmmaking world, it's it's a fundraising thing. You know, and it's going to it's like poli. It's and fortunately, it's like politics. You've just got to go around and find people who want to fund your movie without with while hoping that they don't mess it up too much with whatever input they want for their money.
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:24:18] Adam: John Waters, right?
 
-[00:24:19] Will: Said in an interview a few months ago, like, look. I can get a movie made for 2,000,000 dollars, or I can get a movie made for 10,000,000 dollars. In between, basically impossible to get funding for right now.
+[00:24:19] Will: Said in an interview a few months ago, like, look. I can get a movie made for $2 million, or I can get a movie made for $10 million. In between, basically impossible to get funding for right now.
 
 [00:24:19] Adam: No,
 

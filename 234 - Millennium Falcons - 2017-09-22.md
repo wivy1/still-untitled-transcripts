@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:02:23] Norm: Oh my god!
 
-[00:02:23] Unknown speaker (Norm or Adam): Twenty-five years ago.
+[00:02:23] Unknown speaker (Norm or Adam): 25 years ago.
 
 [00:02:24] Norm: Unrecognizable. Completely unrecognizable. Things you guys can't see behind the camera. We're recording a little later this week. Apologies for that, but a bunch of stuff.
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:09:15] Norm: right. You know, I think George Lucas had to learn the hard way when he came back and did the original trilogy or the the the prequels. You know that maybe to let it go, and he did let it go eventually. Uh, but yeah, the audience audience member did bring up the question. I thought very very gracefully too in in asking about lessons learned. What lessons would you take from seven to nine?
 
-[00:09:38] Adam: So so so don't get me wrong. There's Part of me that actually, I absolutely would love to know the inner machinations. I just read about the fact that Luke, that Lucasfilm and Disney had to pay Paramount a large sum to get JJ out of his 10,000,000 dollar year contract with Paramount
+[00:09:38] Adam: So so so don't get me wrong. There's Part of me that actually, I absolutely would love to know the inner machinations. I just read about the fact that Luke, that Lucasfilm and Disney had to pay Paramount a large sum to get JJ out of his $10 million year contract with Paramount
 
 [00:09:38] Norm: Right.
 
@@ -170,9 +170,9 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:10:29] Adam: we got some insulting tweets about that.
 
-[00:10:30] Norm: I don't know why was that the case. So we we we were hooked up with a fan of the site, Tommy Williamson, who runs website BrickNerd dot com, and. The Lego community—they're—they're ravenous. They're like—they're obsessed. They're in the best way possible. And this guy Tommy came up to our office, to our shop, and we—he had one of the, I think, the dozen only Millennium Falcon UCS. This is the Lego set with seventy-five hundred pieces, 800 dollars. People can buy it in the states at the end of the month. He got a review unit, and we helped him build it, and it was like a two-day,
+[00:10:30] Norm: I don't know why was that the case. So we we we were hooked up with a fan of the site, Tommy Williamson, who runs website BrickNerd dot com, and. The Lego community—they're—they're ravenous. They're like—they're obsessed. They're in the best way possible. And this guy Tommy came up to our office, to our shop, and we—he had one of the, I think, the dozen only Millennium Falcon UCS. This is the Lego set with 7,500 pieces, $800. People can buy it in the states at the end of the month. He got a review unit, and we helped him build it, and it was like a two-day,
 
-[00:11:08] Unknown speaker (Adam or Norm): twelve solid hours, twelve solid hours.
+[00:11:08] Unknown speaker (Adam or Norm): 12 solid hours, 12 solid hours.
 
 [00:11:10] Adam: half a dozen people at any given time.
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:11:53] Norm: I think so.
 
-[00:11:58] Adam: and I think that you saying that might have been what had engendered some of the nasty tweets about the fact that it took us a total of twelve hours
+[00:11:58] Adam: and I think that you saying that might have been what had engendered some of the nasty tweets about the fact that it took us a total of 12 hours
 
 [00:12:04] Norm: to do, and that it was too long.
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:12:28] Norm: I'm more than happy to watch, and other people who have since bought the set because I think you can buy it overseas now. I enjoy watching their videos too of them building. There's some really really great ones out there. People are like just meticulous in how they they made like they've done stop motion videos really. Beautiful, like it's relaxing to watch people assemble Lego.
 
-[00:12:50] Adam: Um, and and and finishing that beautiful, it was about 33 inches long. It's a large, yeah, it's a large model. Got me to pull down my DeAgostini Falcon. I've been a subscriber to the net to the DeAgostini Millennium Falcon. It's a hundred separate, uh, steps, a separate issues. You get four per month for two years, and it's fifty bucks a month. So I, I guess I paid just under a grand for this thing, which is honestly for a thirty-two inch model kit of the Millennium Falcon, which is the size of the studio scale one for Empire Strikes Back. It's pretty damn good deal.
+[00:12:50] Adam: Um, and and and finishing that beautiful, it was about 33 inches long. It's a large, yeah, it's a large model. Got me to pull down my DeAgostini Falcon. I've been a subscriber to the net to the DeAgostini Millennium Falcon. It's 100 separate, uh, steps, a separate issues. You get four per month for two years, and it's $50 a month. So I, I guess I paid just under $1,000 for this thing, which is honestly for a 32 inch model kit of the Millennium Falcon, which is the size of the studio scale one for Empire Strikes Back. It's pretty damn good deal.
 
 [00:13:27] Jeremy Williams: I didn't know it was the same size.
 
@@ -228,11 +228,11 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:13:32] Norm: Well, they had the five foot model for
 
-[00:13:33] Adam: the five foot model was for Star Wars, and that is full stop one of the most beautiful models ever built for for effects. But for Empire, where they needed much more acrobatics out of the Falcon, they built a thirty-two inch, which they could motion control more easily. That's I mean I I that's been a holy grail forever and it's sitting on my bench right now waiting to get full fully repainted
+[00:13:33] Adam: the five foot model was for Star Wars, and that is full stop one of the most beautiful models ever built for for effects. But for Empire, where they needed much more acrobatics out of the Falcon, they built a 32 inch, which they could motion control more easily. That's I mean I I that's been a holy grail forever and it's sitting on my bench right now waiting to get full fully repainted
 
 [00:13:54] Norm: and and that's not to say because viewers have to know that Will and I started our own DeAgostini almost a year and a half now we're gonna continue working on that we have the boxes but Adam I mean these are this is one of your like projects that you just when you when you find yourself in the shop you're just working on
 
-[00:14:08] Adam: yeah I actually built a a large foam core drawer that sits up in my loft that houses it in whatever state it was in and so I would pull it down every probably five or six months four or five months and knock out twenty twenty issues of instructions it's a beautiful kit it's got a a metal superstructure on the inside so it's hollow I was able to actually machine a better mount for it so I could, uh, put it upright for painting I'm not sure how I'm going to display it but that mount will help me immensely
+[00:14:08] Adam: yeah I actually built a a large foam core drawer that sits up in my loft that houses it in whatever state it was in and so I would pull it down every probably five or six months four or five months and knock out 20 20 issues of instructions it's a beautiful kit it's got a a metal superstructure on the inside so it's hollow I was able to actually machine a better mount for it so I could, uh, put it upright for painting I'm not sure how I'm going to display it but that mount will help me immensely
 
 [00:14:39] Norm: your customizations are are awesome and yeah we'll we'll document this I know like we're on a we're on a A streak of talking about projects we haven't shown on camera yet, but it's it's trust me, it's amazing. You found some
 
@@ -254,7 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:15:38] Jeremy Williams: And the right the right size,
 
-[00:15:39] Norm: they know the scale. Right? Yeah. They're selling this for scale. It's the same with like the Bandai kits, you know, 140. One four one one forty fourth or one seventy two. Like people are selling photo etch things because you get a lot of transparency and translucency and and depth from from these custom parts.
+[00:15:39] Norm: they know the scale. Right? Yeah. They're selling this for scale. It's the same with like the Bandai kits, you know, 140. One four 1:144 or 1:72. Like people are selling photo etch things because you get a lot of transparency and translucency and and depth from from these custom parts.
 
 [00:15:55] Adam: And you can go as deep as you want. There are kits for the all the interiors, all the floors, all the lighting, which actually isn't in the interior sets of the. That's the other part of the DeAgostini Falcon is you can pull panels off and see the interior with the Dejarik table, the, uh, the, the, the gun pods on top and bottom, the hallway to the cockpit. It's all there. That's really amazing.
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:16:37] Jeremy Williams: My favorite part is the cockpit because we made a much smaller version with the Bandai.
 
-[00:16:42] Norm: Yeah, the one one forty four
+[00:16:42] Norm: Yeah, the 1:144
 
 [00:16:43] Jeremy Williams: one. Yeah, exactly, and that just has a bunch of fiber optic lights that are drilled into the back of the cockpit. And it's nice, and I have, I love that. But now I see yours, and it's all the instruments are there, full decals that are all backlit.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:17:01] Norm: Oh yeah, no, no. We we inventory our boxes since we moved into our, our new office last year. But I believe we have all the boxes, and I've been trying to. You watching you build it over the past couple months. You've learned lessons to make our build efficient, more efficient.
 
-[00:17:16] Adam: I can I can totally make your build much more efficient. Here would be my first recommendation, and I came to this late. Is the first half of the issues like the first fifty or so? There's a hundred issues total. Um, are a lot of the frame and superstructure, and only after you get a bunch of that done do you start putting on that the finer detailing. And it's hilarious because I'm noticing, DeAgostini, injection molded parts that are replicas of model kit parts that I'm familiar with that go on the outside of the Falcon. Like, oh, this is a Tamiya Flakvierling, uh, universal greeblie. Oh, here's a spool from a Panzer tank, and here's some tank treads
+[00:17:16] Adam: I can I can totally make your build much more efficient. Here would be my first recommendation, and I came to this late. Is the first half of the issues like the first 50 or so? There's 100 issues total. Um, are a lot of the frame and superstructure, and only after you get a bunch of that done do you start putting on that the finer detailing. And it's hilarious because I'm noticing, DeAgostini, injection molded parts that are replicas of model kit parts that I'm familiar with that go on the outside of the Falcon. Like, oh, this is a Tamiya Flakvierling, uh, universal greeblie. Oh, here's a spool from a Panzer tank, and here's some tank treads
 
 [00:17:53] Norm: that they had to remodel.
 
@@ -292,7 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:18:36] Norm: [unclear: Plus / And feeding the pieces], yeah,
 
-[00:18:37] Adam: you can line up your full stack of 100 issues. You can set out a little foam core drawer of all the hundred kits so that everyone is ready and you can just get started at any time.
+[00:18:37] Adam: you can line up your full stack of 100 issues. You can set out a little foam core drawer of all the 100 kits so that everyone is ready and you can just get started at any time.
 
 [00:18:48] Norm: That is satisfying too. Yeah, the sorting and
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:18:48] Norm: the the organization. Because I know they they ship it one month at a time, but having it all there, having it all laid before you.
 
-[00:18:57] Adam: Now that they've shipped all hundred issues, every now and then on the RPF, someone will be selling the full ride.
+[00:18:57] Adam: Now that they've shipped all 100 issues, every now and then on the RPF, someone will be selling the full ride.
 
 [00:19:03] Norm: Yeah.
 
@@ -312,7 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:19:12] Norm: One, then you get a big, big package with all the all the issues again. Do you get a break on that?
 
-[00:19:16] Adam: Is it like 650 dollars instead of a thousand?
+[00:19:16] Adam: Is it like $650 instead of $1,000?
 
 [00:19:18] Norm: I don't think so. Yeah, you have to check. But like, they their website has pretty good models. I I did some research because I'm also on a Enterprise Star Trek Enterprise model kick, and I have some Bandai ones and Jim and you and I built some Bandai ones. But DeAgostini had one that they prototype and they had to ad for video ad for, and then it failed, like because it they did not enough not enough orders. They went through like eight issues, and this is an Enterprise D with a cutaway, so you can see all the decks and all the levels.
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:20:16] Unknown speaker (Adam, Norm or Jeremy): You like bring your own paint?
 
-[00:20:16] Adam: Let's just be clear. Like I don't mean it's total shit. I don't mean to crap on DeAgostini. They've done an amazing model. They've given me like a childhood dream, and it's a fine paint job. It's just nowhere near the level of beaten up and dirty and grungy that the real Falcon is. There's rust all over the real one, but when you zoom in and you're looking at it like this, the paint job is a little bit crunchy. And I'm going back and forth with myself whether I'm going to let it be that crunchy or whether I'm going to go for a finer grain of detail while hitting all the color points. Right, like. If you look at the real Falcon close up, the studio scale thirty-two, you'll see rust spots that are like you can actually see the brush marks of like you know someone doing this, and water stains from adding a little detail to some of the high points and things like that. There are some details along the side that I can clearly see someone with an airbrush just going like this with a darker gray. I'm not sure that I'll be able to do that crunchy level of detail.
+[00:20:16] Adam: Let's just be clear. Like I don't mean it's total shit. I don't mean to crap on DeAgostini. They've done an amazing model. They've given me like a childhood dream, and it's a fine paint job. It's just nowhere near the level of beaten up and dirty and grungy that the real Falcon is. There's rust all over the real one, but when you zoom in and you're looking at it like this, the paint job is a little bit crunchy. And I'm going back and forth with myself whether I'm going to let it be that crunchy or whether I'm going to go for a finer grain of detail while hitting all the color points. Right, like. If you look at the real Falcon close up, the studio scale 32, you'll see rust spots that are like you can actually see the brush marks of like you know someone doing this, and water stains from adding a little detail to some of the high points and things like that. There are some details along the side that I can clearly see someone with an airbrush just going like this with a darker gray. I'm not sure that I'll be able to do that crunchy level of detail.
 
 [00:21:22] Norm: Intentionally.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:22:47] Norm: Yes, we can say that the videos. We can't say what's in the videos. Some of the stuff to come on after the movie release, but. We did. I wasn't there, but you and Joey got to visit. And
 
-[00:22:57] Adam: well, so here is the thing: is I, they said, " What do you want to cover?" I said, "Well, I want to cover the artisans. I want to talk to the craftspeople making this film. I want to talk to the scenic painters and the stunt people. And it's best if you can really immerse me in this." And they said, " Well, what do you mean?" And I said, " Well, I heard you guys have like the biggest water tank in Budapest." Yes, they built a million gallon water tank for key sequences of this movie. And by the way, I still have no idea what the plot of Blade Runner is. Like none of that was revealed to me even on set. But they had this million gallon water tank, and I was like, " So you can dump large amounts of water." So put me in a wetsuit and let's dump some water on me. And they're like, " Okay." So they did. Then, unbeknownst to me, they said, " Tomorrow, you are going to put on makeup, and we're going to put you in a scene behind Dave Bautista." And I am in. I am in this shot where Dave Bautista is selling nematode worms to this guy named the Sultan, and I’m I’m behind him, also trying to sell stuff to the Sultan, and a. A bunch of extras. There's this very sweet moment after about 45 minutes. I'm standing behind the man mountain that is Dave Bautista, and he turns to me and he goes, um, " You look familiar. Are you a writer or something?" Which I don't know what that code means, right? Like you're clearly not handsome enough to be an actor, but maybe you're a writer. You have a face for writing. Um, and I said, " No, I, Dave, I used to host MythBusters." And he smiled. He did this deep, sort of sweet, like ah, smile, and then he reached out this bunch of bananas that he calls a hand and shook my hand and said, " My wife is a huge geek, and we love your show. We watched it. We watched it a ton, and I'm a huge fan. And I got to say, I spent two days with Bautista, and a nicer human I have rarely come across. Like a big, gentle, amazing guy who is also a phenomenal actor. Like really, really listens and works hard, and is like he's fantastic. I, it was a delight to get to know him on that set."
+[00:22:57] Adam: well, so here is the thing: is I, they said, " What do you want to cover?" I said, "Well, I want to cover the artisans. I want to talk to the craftspeople making this film. I want to talk to the scenic painters and the stunt people. And it's best if you can really immerse me in this." And they said, " Well, what do you mean?" And I said, " Well, I heard you guys have like the biggest water tank in Budapest." Yes, they built a 1 million gallon water tank for key sequences of this movie. And by the way, I still have no idea what the plot of Blade Runner is. Like none of that was revealed to me even on set. But they had this 1 million gallon water tank, and I was like, " So you can dump large amounts of water." So put me in a wetsuit and let's dump some water on me. And they're like, " Okay." So they did. Then, unbeknownst to me, they said, " Tomorrow, you are going to put on makeup, and we're going to put you in a scene behind Dave Bautista." And I am in. I am in this shot where Dave Bautista is selling nematode worms to this guy named the Sultan, and I’m I’m behind him, also trying to sell stuff to the Sultan, and a. A bunch of extras. There's this very sweet moment after about 45 minutes. I'm standing behind the man mountain that is Dave Bautista, and he turns to me and he goes, um, " You look familiar. Are you a writer or something?" Which I don't know what that code means, right? Like you're clearly not handsome enough to be an actor, but maybe you're a writer. You have a face for writing. Um, and I said, " No, I, Dave, I used to host MythBusters." And he smiled. He did this deep, sort of sweet, like ah, smile, and then he reached out this bunch of bananas that he calls a hand and shook my hand and said, " My wife is a huge geek, and we love your show. We watched it. We watched it a ton, and I'm a huge fan. And I got to say, I spent two days with Bautista, and a nicer human I have rarely come across. Like a big, gentle, amazing guy who is also a phenomenal actor. Like really, really listens and works hard, and is like he's fantastic. I, it was a delight to get to know him on that set."
 
 [00:24:55] Norm: That's awesome, and you can watch. That's a short that I think Luke Scott directed.
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:31:00] Adam: It's really good. I, I enjoyed the absolute shit out of it, and I highly, highly recommend it.
 
-[00:31:05] Jeremy Williams: I went the other direction. My ten-year-old had a sleepover
+[00:31:05] Jeremy Williams: I went the other direction. My 10-year-old had a sleepover
 
 [00:31:05] Adam: Yeah.
 

@@ -340,13 +340,13 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:08:05] Adam: Right? I mean, it's pretty much. I can think. I think twice we've missed key high speed shots.
 
-[00:08:10] Will: It's amazing in ten years, two hundred episodes.
+[00:08:10] Will: It's amazing in 10 years, 200 episodes.
 
 [00:08:12] Adam: Yeah, it's pretty pretty amazing. Um, and Duncan, uh, his father is actually a a cameraman. Uh, I can't remember his father's name, but his father is a IMAX cameraman and has been for many many years.
 
 [00:08:26] Norm: Wow, yeah, that's heavy duty,
 
-[00:08:27] Adam: heavy heavy duty. So Duncan's legacy and Duncan's particular bailiwick is quad rotors, and then now he's actually purchased a five foot diameter octo rotor that has, I think, all told, it’s seventeen pounds when it's loaded with the camera, but it can handle a a 5D Mark three. Yeah, I think you could even put an FS700 on it if you if you dared.
+[00:08:27] Adam: heavy heavy duty. So Duncan's legacy and Duncan's particular bailiwick is quad rotors, and then now he's actually purchased a five foot diameter octo rotor that has, I think, all told, it’s 17 pounds when it's loaded with the camera, but it can handle a a 5D Mark three. Yeah, I think you could even put an FS700 on it if you if you dared.
 
 [00:08:53] Norm: So he
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:08:56] Will: Oh, first person.
 
-[00:08:56] Adam: Yeah, he uses video and transmitter, and it's totally good enough for a thousand feet.
+[00:08:56] Adam: Yeah, he uses video and transmitter, and it's totally good enough for 1,000 feet.
 
 [00:09:02] Will: Did he buy something off the shelf, or did he did he put it together himself?
 
@@ -374,11 +374,11 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:09:44] Norm: That’s definitely.
 
-[00:09:45] Adam: Well, because you know that speaking of the gimbal mounts, this is something that people might not be realizing is going through some massive technological overhauls right now to the most. Awesome effect, which is picture a camera on a platform with three axes, each axis controlled by a stepper motor that knows when that camera is upright and keeps it upright no matter what. So it's effectively a Steadicam, and you can buy a rig for a GoPro that's like 200 dollars,
+[00:09:45] Adam: Well, because you know that speaking of the gimbal mounts, this is something that people might not be realizing is going through some massive technological overhauls right now to the most. Awesome effect, which is picture a camera on a platform with three axes, each axis controlled by a stepper motor that knows when that camera is upright and keeps it upright no matter what. So it's effectively a Steadicam, and you can buy a rig for a GoPro that's like $200,
 
-[00:10:11] Norm: 200 bucks for a two-axis gimbal,
+[00:10:11] Norm: $200 for a two-axis gimbal,
 
-[00:10:12] Adam: for a two-axis gimbal, and it's like 300 bucks for a three-axis gimbal. But they they make these all the way up to professional rigs. There is a thing called a Movi M O V I. Yeah, V I.
+[00:10:12] Adam: for a two-axis gimbal, and it's like $300 for a three-axis gimbal. But they they make these all the way up to professional rigs. There is a thing called a Movi M O V I. Yeah, V I.
 
 [00:10:22] Will: We saw it at NAB
 
@@ -388,11 +388,11 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:10:24] Unknown speaker: They have.
 
-[00:10:24] Adam: Well, so that was a 15,000 dollars unit. Now there is a 5,000 dollars unit.
+[00:10:24] Adam: Well, so that was a $15,000 unit. Now there is a $5,000 unit.
 
 [00:10:24] Norm: Yep.
 
-[00:10:24] Adam: And really, within a year, it's going to be 1,200 bucks.
+[00:10:24] Adam: And really, within a year, it's going to be $1,200.
 
 [00:10:33] Will: And then some doodle posted thing on Instructables.
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:10:59] Adam: yeah.
 
-[00:10:59] Norm: And so it's going to be steady even if you're walking down a very slight slight incline. It'll be on that one plane. So when we were testing this Phantom, which is the consumer line, it's a 1,300 dollar quadrotor, and it has a 1080p camera that's equivalent of a GoPro 2. We were wondering, you know, what you use and what when you evaluate production cameras for MythBusters, what's important and for the camera person to consider.
+[00:10:59] Norm: And so it's going to be steady even if you're walking down a very slight slight incline. It'll be on that one plane. So when we were testing this Phantom, which is the consumer line, it's a $1,300 quadrotor, and it has a 1080p camera that's equivalent of a GoPro 2. We were wondering, you know, what you use and what when you evaluate production cameras for MythBusters, what's important and for the camera person to consider.
 
 [00:11:30] Adam: Well, so on MythBusters, because MythBusters is broadcast in HD, we have a contractual requirement to have a certain amount of footage be in broadcast quality HD.
 
@@ -432,15 +432,15 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:12:42] Norm: the pocket Cinema Cam,
 
-[00:12:43] Adam: the pocket Cinema Cam. We have three or four of them in some really bulletproof housings that are just covered everywhere with. Quarter twenty and three eight sixteen tapped holes. They're fantastic cameras from broadcast quality standpoint. They're not great in low light, and their audio is terrible. But they're beautiful. Plus they they take our they take all of our different lenses. Yes, right. So we have a lens package that all works with those guys.
+[00:12:43] Adam: the pocket Cinema Cam. We have three or four of them in some really bulletproof housings that are just covered everywhere with. 1/4-20 and 3/8-16 tapped holes. They're fantastic cameras from broadcast quality standpoint. They're not great in low light, and their audio is terrible. But they're beautiful. Plus they they take our they take all of our different lenses. Yes, right. So we have a lens package that all works with those guys.
 
-[00:13:09] Norm: Yeah, they're a micro four thirds camera mount. Blackmagic had a Cinema Cam from two years ago, and this is the pocket version, thousand dollars, and you can shoot in ProRes or RAW, basically.
+[00:13:09] Norm: Yeah, they're a micro four thirds camera mount. Blackmagic had a Cinema Cam from two years ago, and this is the pocket version, $1,000, and you can shoot in ProRes or RAW, basically.
 
 [00:13:18] Will: So it's basically three times the price of of the high end GoPro three, but in a real camera with again bad audio.
 
 [00:13:21] Unknown speaker: Yeah. Mm-hmm.
 
-[00:13:24] Adam: Well, the fact is, is that one of the things we're doing this season that you'll start to see next year is we're filming we're we're filming some. I want to say this in the broadest way possible, so as not to giving anything away, but there are certain things we're doing in a more cinematic style, and the Blackmagics with the real what do you call it prime glass on it. You know, a nice eighty-five one-two gives us that real cinematic look, and that's just that's where the Blackmagic exceeds almost any other camera we could use, except for you know DSLRs, which frankly we have used a few times on the show, but it's a real pain in the ass from a from a editing chain standpoint.
+[00:13:24] Adam: Well, the fact is, is that one of the things we're doing this season that you'll start to see next year is we're filming we're we're filming some. I want to say this in the broadest way possible, so as not to giving anything away, but there are certain things we're doing in a more cinematic style, and the Blackmagics with the real what do you call it prime glass on it. You know, a nice 85 1.2 gives us that real cinematic look, and that's just that's where the Blackmagic exceeds almost any other camera we could use, except for you know DSLRs, which frankly we have used a few times on the show, but it's a real pain in the ass from a from a editing chain standpoint.
 
 [00:13:24] Norm: Yes,
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:15:22] Will: Okay.
 
-[00:15:24] Norm: Because you've been doing this for ten years and have seen camera equipment that your guys have shot with for a decade.
+[00:15:24] Norm: Because you've been doing this for 10 years and have seen camera equipment that your guys have shot with for a decade.
 
 [00:15:24] Adam: Yeah.
 
@@ -508,11 +508,11 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:15:35] Norm: What was that progression?
 
-[00:15:35] Adam: We started with well, we've always used as our A cameras the Sony shoulder cameras. Right now it's the seven hundred.
+[00:15:35] Adam: We started with well, we've always used as our A cameras the Sony shoulder cameras. Right now it's the 700.
 
 [00:15:45] Norm: Okay.
 
-[00:15:46] Adam: And you know, there's just ways in which they're they're very expensive cameras. I mean, the lenses alone are between like start at like 15 grand. But you know, when people say, " Oh yeah, you could shoot a movie with this thing," the fact is is that if left to their own devices, even though these cameras are heavy and expensive, cameramen prefer them because they because the cameraman can zoom and iris and focus all as fast as this is the camera is built for that. It is built to be able to do all those things at once as fast as humanly possible.
+[00:15:46] Adam: And you know, there's just ways in which they're they're very expensive cameras. I mean, the lenses alone are between like start at like $15,000. But you know, when people say, " Oh yeah, you could shoot a movie with this thing," the fact is is that if left to their own devices, even though these cameras are heavy and expensive, cameramen prefer them because they because the cameraman can zoom and iris and focus all as fast as this is the camera is built for that. It is built to be able to do all those things at once as fast as humanly possible.
 
 [00:16:23] Will: For when we go, sometimes we'll get demos for cameras from different vendors, and they'll say, " Look, we look at we have the smoothest auto zoom you've ever seen." I was like, " They're never going to use it. This is something that no one is ever going to use."
 
@@ -568,9 +568,9 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:18:03] Will: Yeah, you can.
 
-[00:18:04] Adam: You go buy them on eBay. They're like they start at 400 bucks, and when they were new,
+[00:18:04] Adam: You go buy them on eBay. They're like they start at $400, and when they were new,
 
-[00:18:08] Adam: they were like sixteen, eighteen hundred bucks. They were super expensive.
+[00:18:08] Adam: they were like $1,600, $1,800. They were super expensive.
 
 [00:18:12] Will: That that stuff has been like yeah. Anyway,
 
@@ -578,9 +578,9 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:18:24] Will: Did you have a high speed then or no?
 
-[00:18:25] Adam: We did have high speed. It was an early, early, early high speed. Took forty five minutes, or literally between twenty and forty five minutes, to save a high speed shot
+[00:18:25] Adam: We did have high speed. It was an early, early, early high speed. Took 45 minutes, or literally between 20 and 45 minutes, to save a high speed shot
 
-[00:18:32] Will: for about like five hundred frames a second or something.
+[00:18:32] Will: for about like 500 frames a second or something.
 
 [00:18:34] Adam: Yeah, it was brutal. Waiting on high speed was like the joke. Waiting on high speed that was the constant refrain.
 
@@ -604,9 +604,9 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:19:31] Adam: But the GoPro was a mind. The GoPro was mind blowing when it first came out.
 
-[00:19:47] Norm: Yeah. What were the—what were the technologies in those ten years where, like, the camera guy ran? We got this thing now. We got to try it before the GoPro. Did you guys experiment with anything else?
+[00:19:47] Norm: Yeah. What were the—what were the technologies in those 10 years where, like, the camera guy ran? We got this thing now. We got to try it before the GoPro. Did you guys experiment with anything else?
 
-[00:19:56] Adam: There wasn't many. I mean, we we we got a better high speed camera at one point, but then somewhere, and I really can't remember the timeline. The Phantom was a big expense. We bought it new, and it was well over a hundred thousand bucks.
+[00:19:56] Adam: There wasn't many. I mean, we we we got a better high speed camera at one point, but then somewhere, and I really can't remember the timeline. The Phantom was a big expense. We bought it new, and it was well over $100,000.
 
 [00:20:07] Norm: This is the Phantom high speed camera.
 
@@ -646,9 +646,9 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:21:17] Will: What?
 
-[00:21:19] Adam: Okay, so which even which even using the highest end hard drive they have bolted to the top took something like twenty five minutes to download that shot.
+[00:21:19] Adam: Okay, so which even which even using the highest end hard drive they have bolted to the top took something like 25 minutes to download that shot.
 
-[00:21:27] Will: seventy three thousand frames a second is going to be two two thousandths the speed or something like that twenty thousandths the speed.
+[00:21:27] Will: 73,000 frames a second is going to be two two thousandths the speed or something like that 20 thousandths the speed.
 
 [00:21:27] Adam: Ah, yes.
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:21:56] Will: Oh wow.
 
-[00:21:56] Adam: So, so yeah, and this is something that's interesting to note about the pro level high speed cameras is they'll say we can shoot up to 100,000 frames per second. Yeah. But the critical data that you want to know is what's the highest frame rate you can shoot full frame broadcast quality, and on the Phantom we own, I think it's like seven thousand.
+[00:21:56] Adam: So, so yeah, and this is something that's interesting to note about the pro level high speed cameras is they'll say we can shoot up to 100,000 frames per second. Yeah. But the critical data that you want to know is what's the highest frame rate you can shoot full frame broadcast quality, and on the Phantom we own, I think it's like 7,000.
 
 [00:22:17] Will: Yeah. That's that's really good.
 
@@ -676,11 +676,11 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:22:19] Will: Yeah. I mean, we we tested that edgertronic, and to get 720p out of that, it was like
 
-[00:22:24] Norm: seven hundred,
+[00:22:24] Norm: 700,
 
-[00:22:24] Will: seven hundred.
+[00:22:24] Will: 700.
 
-[00:22:25] Adam: And so, what what the camera does when you want to go higher frame rate than seven thousand is it chops the frame to save some pixels. So the point of which, yes, you can shoot one hundred thousand, one hundred thousand frames per second, but at that point, you are shooting this little tiny square in the middle of your...
+[00:22:25] Adam: And so, what what the camera does when you want to go higher frame rate than 7,000 is it chops the frame to save some pixels. So the point of which, yes, you can shoot 100,000, 100,000 frames per second, but at that point, you are shooting this little tiny square in the middle of your...
 
 [00:22:40] Will: It’s a postage stamp.
 
@@ -694,13 +694,13 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:22:44] Norm: it's academic purposes.
 
-[00:22:46] Adam: So the GoPros were that Phantom was a big uptick. The GoPros were, and I think we bought one. And then as soon as we used it, the editors saw it. We bought two more, and then that next season we made a deal with GoPro and got like sixteen. And then the Hero Two came out, and Hero Three. I think the Hero Two was the year we got like sixteen GoPros, and then the Hero Threes. Again, we use a mix of Hero Twos and Threes. We've broken and destroyed many.
+[00:22:46] Adam: So the GoPros were that Phantom was a big uptick. The GoPros were, and I think we bought one. And then as soon as we used it, the editors saw it. We bought two more, and then that next season we made a deal with GoPro and got like 16. And then the Hero Two came out, and Hero Three. I think the Hero Two was the year we got like 16 GoPros, and then the Hero Threes. Again, we use a mix of Hero Twos and Threes. We've broken and destroyed many.
 
 [00:23:11] Will: I mean, the neat thing about them,
 
 [00:23:12] Adam: They survive so much,
 
-[00:23:14] Will: and they're 300 bucks. So
+[00:23:14] Will: and they're $300. So
 
 [00:23:14] Adam: right,
 
@@ -758,7 +758,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:25:37] Adam: more than that, when it loses.
 
-[00:25:39] Norm: Reception. If it loses the trans, you can turn off the transmitter when it's a thousand feet away, and then eight hundred, seven hundred meters away, and it will come back. Well, so it will hover twenty meters.
+[00:25:39] Norm: Reception. If it loses the trans, you can turn off the transmitter when it's 1,000 feet away, and then 800, 700 meters away, and it will come back. Well, so it will hover 20 meters.
 
 [00:25:49] Adam: It comes back to where where it knows you are.
 
@@ -766,7 +766,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:25:51] Adam: that's freaking cool.
 
-[00:25:53] Will: The the amazing thing about that though is that you know when we posted that video and we posted the article, people immediately came out and said, " Well, you know, the hobbyists, the guys who have been doing this for five years now and have been building their own, like Duncan and I, yeah, we're like, look, this is nothing. This is two years old. You can go out and you can put on a pair of goggles. You can fly sixty kilometers away. You can come back and and get first person video the whole way.
+[00:25:53] Will: The the amazing thing about that though is that you know when we posted that video and we posted the article, people immediately came out and said, " Well, you know, the hobbyists, the guys who have been doing this for five years now and have been building their own, like Duncan and I, yeah, we're like, look, this is nothing. This is two years old. You can go out and you can put on a pair of goggles. You can fly 60 kilometers away. You can come back and and get first person video the whole way.
 
 [00:25:53] Norm: Right.
 

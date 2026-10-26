@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:01:13] Adam: It also can be expensive.
 
-[00:01:14] Adam: You go to S. H. Frank here, and you want to buy stuff by the hide or the half hide, and it's that's like a hundred bucks. It's real money.
+[00:01:14] Adam: You go to S. H. Frank here, and you want to buy stuff by the hide or the half hide, and it's that's like $100. It's real money.
 
 [00:01:20] Will: So it's where you can get human leather.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:03:46] Will: especially in the summer,
 
-[00:03:47] Adam: you can find Craigslist now is a fantastic resource. You can just list off like ten of them you're going to go to, and again, people will often list that they've got materials, uh, and you can get a lot of great stuff there.
+[00:03:47] Adam: you can find Craigslist now is a fantastic resource. You can just list off like 10 of them you're going to go to, and again, people will often list that they've got materials, uh, and you can get a lot of great stuff there.
 
 [00:04:00] Will: I like construction dumpsters too.
 
@@ -134,11 +134,11 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:04:48] Norm: they probably buy it at in bulk, yeah, at a cheaper rate than you could buy individually.
 
-[00:04:52] Adam: And usually a manufacturer is buying things in sheet form or large amounts of it, and they don't need the scraps that are the cutoffs. So I also got, when I was in my early 20s here in San Francisco in the early '90s, I got tons of stuff by going to like a sheet metal fabrication place and asking for scraps, and they would just sell them to me for like, you know what, a dollar a pound or something like that.
+[00:04:52] Adam: And usually a manufacturer is buying things in sheet form or large amounts of it, and they don't need the scraps that are the cutoffs. So I also got, when I was in my early 20s here in San Francisco in the early '90s, I got tons of stuff by going to like a sheet metal fabrication place and asking for scraps, and they would just sell them to me for like, you know what, $1 a pound or something like that.
 
 [00:05:13] Unknown speaker: Yeah.
 
-[00:05:13] Will: They'd give you a big giant box of stuff for fifteen bucks.
+[00:05:13] Will: They'd give you a big giant box of stuff for $15.
 
 [00:05:15] Adam: Here's a bunch of aluminum cutoffs. And for me, I only needed a little sheet of aluminum. For them, that's recycling garbage.
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:06:39] Will: Oh, that's fantastic.
 
-[00:06:40] Adam: Now I haven't gone there in years because, you know, I can afford and I can afford real materials, and I don't need to take materials from people who are trying to buy them cheaply. That's the main reason. But SCRAP supplied me with art supplies for, you know, fifteen years. I love that place. I'm not actually even sure where they are right now. They might be on Napoleon or down in the, around the Bayshore district, Bayshore corridor down there.
+[00:06:40] Adam: Now I haven't gone there in years because, you know, I can afford and I can afford real materials, and I don't need to take materials from people who are trying to buy them cheaply. That's the main reason. But SCRAP supplied me with art supplies for, you know, 15 years. I love that place. I'm not actually even sure where they are right now. They might be on Napoleon or down in the, around the Bayshore district, Bayshore corridor down there.
 
 [00:07:09] Will: But how would you find out about? I mean, it's, I don't know what you'd look for in the phone book.
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:07:19] Norm: Colleges, would they have materials?
 
-[00:07:21] Adam: They, yeah, they they could. Theater departments often throw out lots of stuff that, you know, again, and when you're a beginning maker, all you need are scraps. All you really need are, you can you can scavenge and just a little piece of canvas so that you, you know, I remember being like, ah, Christ, I need for two yards of white canvas, and that's fourteen bucks, and I don't have that right now.
+[00:07:21] Adam: They, yeah, they they could. Theater departments often throw out lots of stuff that, you know, again, and when you're a beginning maker, all you need are scraps. All you really need are, you can you can scavenge and just a little piece of canvas so that you, you know, I remember being like, ah, Christ, I need for two yards of white canvas, and that's $14, and I don't have that right now.
 
 [00:07:40] Unknown speaker: Yeah.
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:08:45] Unknown speaker: Yeah.
 
-[00:08:53] Adam: Those came at five bucks apiece from a pick-and-pull yard, you know, pulled them out of a Volvo. You find, uh, you get your wiring, you get relays, you get switches,
+[00:08:53] Adam: Those came at $5 apiece from a pick-and-pull yard, you know, pulled them out of a Volvo. You find, uh, you get your wiring, you get relays, you get switches,
 
 [00:09:03] Will: solenoids, all sorts of stuff, yeah.
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:09:09] Norm: You just gotta go.
 
-[00:09:10] Adam: So this is a yard where you will go to a huge lot out in the middle of nowhere. There'll be cars stacked, sometimes three high, of every make and model, and you go through and pull out what you want. And when you're done, you go to the counter with this box full of stuff, and some guy looks at it, goes, "Thirty bucks."
+[00:09:10] Adam: So this is a yard where you will go to a huge lot out in the middle of nowhere. There'll be cars stacked, sometimes three high, of every make and model, and you go through and pull out what you want. And when you're done, you go to the counter with this box full of stuff, and some guy looks at it, goes, "$30."
 
 [00:09:28] Will: Yeah.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:09:33] Will: alternators,
 
-[00:09:34] Adam: gear shifts and stuff. And for a lot of the little crap that you need, they'll just be like, "Give me five bucks for all that."
+[00:09:34] Adam: gear shifts and stuff. And for a lot of the little crap that you need, they'll just be like, "Give me $5 for all that."
 
 [00:09:40] Will: Yeah. And well, and you can take like the back of, if you want a bunch of leather, take the back of a seat off.
 
@@ -272,9 +272,9 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:10:13] Will: stale French fries, if you dig deep enough in the in the seats,
 
-[00:10:15] Adam: stale French fries. But it's a great, great resource for really inexpensive robotic stuff, especially given that, you know, save your budget and spend it on a twenty dollar Arduino, and then when you want to power stuff with it, man, you know, that's the that's the place to go.
+[00:10:15] Adam: stale French fries. But it's a great, great resource for really inexpensive robotic stuff, especially given that, you know, save your budget and spend it on a $20 Arduino, and then when you want to power stuff with it, man, you know, that's the that's the place to go.
 
-[00:10:30] Will: Get a solenoid and a motor for twenty bucks.
+[00:10:30] Will: Get a solenoid and a motor for $20.
 
 [00:10:32] Adam: Yeah.
 
@@ -288,7 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:11:05] Will: Yeah.
 
-[00:11:05] Adam: Um, uh, this lamp I bought there. I don't know what a computer refurbisher was doing with this lamp, but they sold it to me for like 75 bucks.
+[00:11:05] Adam: Um, uh, this lamp I bought there. I don't know what a computer refurbisher was doing with this lamp, but they sold it to me for like $75.
 
 [00:11:14] Will: Well, and so yeah, like look for places that buy scrap, broken appliances, stuff like that. Call those people because the guy who buy, who buys the broken dishwasher from the people at Lowe's that come and haul your old dishwasher away when they put the new one in,
 
@@ -358,7 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:14:59] Will: Okay.
 
-[00:15:00] Adam: And when you call up a place and you say, "Hi, cabinet manufacturer company. How are you? My name is Bill. I'm nineteen years old. I'm interested in making things for a living. I would like to come in and talk to you for twenty or thirty minutes about how you do your business, how you hire, what the what the industry is like, and just to get a picture of it." And I did a lot of this when I was freelancing. I did it at a couple of different, a few different companies. When I was looking to branch out because there wasn't any work in special effects, uh, and you can end up with both a relationship with someone who might be able to help you with materials, but also the side benefit is you end up understanding. Excuse me.
+[00:15:00] Adam: And when you call up a place and you say, "Hi, cabinet manufacturer company. How are you? My name is Bill. I'm 19 years old. I'm interested in making things for a living. I would like to come in and talk to you for 20 or 30 minutes about how you do your business, how you hire, what the what the industry is like, and just to get a picture of it." And I did a lot of this when I was freelancing. I did it at a couple of different, a few different companies. When I was looking to branch out because there wasn't any work in special effects, uh, and you can end up with both a relationship with someone who might be able to help you with materials, but also the side benefit is you end up understanding. Excuse me.
 
 [00:15:41] Will: Wow, that was a good one.
 
@@ -398,21 +398,21 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:16:48] Adam: Uh, that's where, and actually, when it comes to buying, uh, cyanoacrylate glue, I used to buy it in big bottles, and it took me years before I realized these bottles are are going bad. They're like drying out. So I now buy the smallest bottles possible, and that means I'm never wasting glue because I throw, I'm done with the bottle, throw it out, pick up another bottle. Um, and that's also the least expensive way. In buy it for, you know, a couple bucks for a a CA glue.
 
-[00:17:15] Will: Yeah, or or you buy a hundred pack of the little tiny things.
+[00:17:15] Will: Yeah, or or you buy a 100 pack of the little tiny things.
 
 [00:17:17] Adam: Exactly. Um, the other way that people, uh, save on consumables, and this is something that the internet has allowed that wasn't around when I was a kid, is, uh, is bulk purchasing.
 
 [00:17:28] Will: Mm-hmm.
 
-[00:17:29] Adam: Um, on the RPF, for instance, there are frequently, uh, bulk purchases that happen because, let's say, the fabric that you want to make your, uh, uh, flight suit from Battlestar Galactica out of can only be bought a hundred yards at a time at a cost of, you know, forty dollars a yard.
+[00:17:29] Adam: Um, on the RPF, for instance, there are frequently, uh, bulk purchases that happen because, let's say, the fabric that you want to make your, uh, uh, flight suit from Battlestar Galactica out of can only be bought 100 yards at a time at a cost of, you know, $40 a yard.
 
 [00:17:48] Will: Mm-hmm. That's an expensive flight suit.
 
-[00:17:49] Adam: You know, four and a half grand to get that stuff. Who's got that kind of dough?
+[00:17:49] Adam: You know, $4,500 to get that stuff. Who's got that kind of dough?
 
 [00:17:52] Will: And you need three yards.
 
-[00:17:54] Adam: Right, you need four yards to make your costume. So, uh, RPF is a forum where people's like, like, okay, I'm going to order a bunch of this Dark Knight mesh material. Who's in? I need twenty-five people in order to do a minimum order, and everyone gets it for a lot less.
+[00:17:54] Adam: Right, you need four yards to make your costume. So, uh, RPF is a forum where people's like, like, okay, I'm going to order a bunch of this Dark Knight mesh material. Who's in? I need 25 people in order to do a minimum order, and everyone gets it for a lot less.
 
 [00:18:07] Norm: And that guy takes care of shipping everyone.
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:18:24] Adam: Yeah.
 
-[00:18:24] Will: Um, if you buy that stuff in the ones and twos, it's going to cost you a couple bucks each sometimes. If you buy a hundred of them, then it costs you practically nothing.
+[00:18:24] Will: Um, if you buy that stuff in the ones and twos, it's going to cost you a couple bucks each sometimes. If you buy 100 of them, then it costs you practically nothing.
 
 [00:18:32] Adam: Absolutely.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:20:43] Adam: You'll find, you know, if you're a maker, you're on. Sometimes you're looking for a specific switch, like a double-pole, double-throw, three-position toggle switch. But sometimes you're just looking for, I need a chrome ring about eight inches in diameter, and I can't tell you how many times when I was young I'd go into a store and they go, "We don't have those." Like really? You know this this quickly that you don't have a chrome ring?
 
-[00:21:03] Will: There's thirty thousand things in here.
+[00:21:03] Will: There's 30,000 things in here.
 
 [00:21:05] Adam: Right. Yeah. And people they will throw you off, but you go and you browse and you will learn so much about how things get put together, about what exists out there to do that.
 
@@ -572,7 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:25:13] Will: Oh yeah, that's a fantastic catalog.
 
-[00:25:13] Adam: American Science and Surplus. Their mothership store is in Chicago. I have visited that store at least four separate times in my life. I love that place. I love their catalog. I've been buying from them for twenty-five years.
+[00:25:13] Adam: American Science and Surplus. Their mothership store is in Chicago. I have visited that store at least four separate times in my life. I love that place. I love their catalog. I've been buying from them for 25 years.
 
 [00:25:25] Will: Um, scientific supply catalogs are also great. So if you want, if you need like weird shaped glassware and like, like some sort of crazy expensive like distilling column,
 

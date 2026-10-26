@@ -26,11 +26,11 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:01:52] Will: as happens. And then we were gone.
 
-[00:02:05] Adam: There was a period of time where I was home for two eighteen-hour periods over a period of a month, and it was that was just not enough.
+[00:02:05] Adam: There was a period of time where I was home for two 18-hour periods over a period of a month, and it was that was just not enough.
 
 [00:02:15] Will: Like, My wife gets grumpy if I'm gone like two Saturdays in a row, so I can't imagine what what you know.
 
-[00:02:21] Adam: Well, when I was gone on the tour, I think that we spent a solid sixteen days apart, and that might be actually the longest my wife and I have ever spent apart. And we don't, we don't, we don't, we don't jibe well with that. We don't, we don't, we like. We need to be around each other.
+[00:02:21] Adam: Well, when I was gone on the tour, I think that we spent a solid 16 days apart, and that might be actually the longest my wife and I have ever spent apart. And we don't, we don't, we don't, we don't jibe well with that. We don't, we don't, we like. We need to be around each other.
 
 [00:02:37] Norm: I just take the girlfriend with me everywhere.
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:03:10] Will: Where is Gold? Hold on, Gold Country is like central,
 
-[00:03:12] Adam: about sixty miles east of Sacramento.
+[00:03:12] Adam: about 60 miles east of Sacramento.
 
 [00:03:15] Will: Okay, so in the mountains, but not not like down by Yosemite, further north.
 
@@ -80,15 +80,15 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:03:51] Norm: It's technology, entertainment, design. This is purely the entertainment part of it.
 
-[00:03:55] Adam: Well, and it was started by the same guy, Richard Saul Wurman, who started TED thirty years ago. Now, E.G. has been going for nine years. I've appeared at most of them. I either appeared or visited most of them because at this point now, I know almost everybody there, and it's it's it's one of the places I go to see old friends that I don't get a chance to spend a lot of time with. Yeah.
+[00:03:55] Adam: Well, and it was started by the same guy, Richard Saul Wurman, who started TED 30 years ago. Now, E.G. has been going for nine years. I've appeared at most of them. I either appeared or visited most of them because at this point now, I know almost everybody there, and it's it's it's one of the places I go to see old friends that I don't get a chance to spend a lot of time with. Yeah.
 
 [00:04:16] Norm: How many people show up?
 
-[00:04:18] Adam: It's five hundred people.
+[00:04:18] Adam: It's 500 people.
 
 [00:04:19] Norm: Oh, it's nice, nice and it's nice and intimate,
 
-[00:04:21] Adam: very intimate. And some really radical and beautiful stuff gets exhibited. People come and do wonderful demonstrations and talks, very similar to TED. I got to see a ten-year-old piano prodigy do some of the most remarkable jazz piano I've ever seen, let alone from a ten-year-old kid. Wow. And I took a piece that's in our stage production, a piece where I talk about learning how to juggle, and I rewrote it. I deepened it. I gave it a little more resonance than it needs in our touring show. I sort of reworked it and took a look at it and looked at ways to make it more honest and deepen it. And I performed it there as a small interstitial. Some people do fifteen or eighteen minute talks. This was a five minute little punch,
+[00:04:21] Adam: very intimate. And some really radical and beautiful stuff gets exhibited. People come and do wonderful demonstrations and talks, very similar to TED. I got to see a 10-year-old piano prodigy do some of the most remarkable jazz piano I've ever seen, let alone from a 10-year-old kid. Wow. And I took a piece that's in our stage production, a piece where I talk about learning how to juggle, and I rewrote it. I deepened it. I gave it a little more resonance than it needs in our touring show. I sort of reworked it and took a look at it and looked at ways to make it more honest and deepen it. And I performed it there as a small interstitial. Some people do 15 or 18 minute talks. This was a five minute little punch,
 
 [00:05:13] Will: like a amuse-bouche.
 
@@ -192,7 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:09:11] Adam: It was stunning. I had I had the most wonderful time. I saw some great old friends. My, you know. Eric Mead and Michael Weber and Danny Hillis, Bran Ferren, wonderful, wonderful people who I only get to see once a year at these things.
 
-[00:10:09] Norm: It's also like Ted; those videos and past talks that both you and Jamie have done are on their Vimeo page. Yes, if you go to, e.g., the EG conference website, you can actually watch the videos. Some of them, like you said, Adam, fifteen minutes long. There's a great one. The character actor, the guy from Groundhog Day,
+[00:10:09] Norm: It's also like Ted; those videos and past talks that both you and Jamie have done are on their Vimeo page. Yes, if you go to, e.g., the EG conference website, you can actually watch the videos. Some of them, like you said, Adam, 15 minutes long. There's a great one. The character actor, the guy from Groundhog Day,
 
 [00:10:26] Adam: Stephen Tobolowsky.
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:11:18] Adam: This was the first year I have not made it to Maker Faire.
 
-[00:11:21] Will: It's their tenth Maker Faire.
+[00:11:21] Will: It's their 10th Maker Faire.
 
 [00:11:23] Adam: It's the first year I have not made it, and I, you know, the following, the reason I didn't make it was because I had the EG conference on Saturday. I had one day with my family on Sunday, and then I was flying off to the Bahamas, as I said in the last podcast, for a film shoot that I can't tell you about just yet.
 
@@ -240,7 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:12:31] Adam: Yeah.
 
-[00:12:31] Will: This year they had a whole mess of all new big exhibitions. They had the MegaBots guys, which are those they they want to make a robot fighting league of like sixteen twenty foot high mech warrior style robots.
+[00:12:31] Will: This year they had a whole mess of all new big exhibitions. They had the MegaBots guys, which are those they they want to make a robot fighting league of like 16-20 foot high mech warrior style robots.
 
 [00:13:09] Adam: May I?
 
@@ -264,7 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:13:45] Norm: No, they weren’t.
 
-[00:13:46] Will: But they did bring one hundred thirty thousand pairs of safety glasses, which I approve of. And and literally, literally, they were they had them in garbage bags, and they were like, take as many as you want. We brought enough for everybody.
+[00:13:46] Will: But they did bring 130,000 pairs of safety glasses, which I approve of. And and literally, literally, they were they had them in garbage bags, and they were like, take as many as you want. We brought enough for everybody.
 
 [00:13:57] Norm: So everyone to make a fair, you know.
 
@@ -448,13 +448,13 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:19:40] Will: well, and it's a small company.
 
-[00:19:40] Adam: Like we've got six hundred people an hour going through the south gate.
+[00:19:40] Adam: Like we've got 600 people an hour going through the south gate.
 
 [00:19:40] Will: Yeah.
 
 [00:19:40] Adam: It's amazing. They they really run an incredibly tight ship.
 
-[00:19:46] Will: And it's a small team. I mean, yeah. Make make it's basically they it's all hands at Maker Media when they when they do this. The people from the magazine, from the website, from the labs, all the stuff they're all there helping. They are doing a really good job with video now. So they like we go and pick. I think we shot ten videos there this year. They had.
+[00:19:46] Will: And it's a small team. I mean, yeah. Make make it's basically they it's all hands at Maker Media when they when they do this. The people from the magazine, from the website, from the labs, all the stuff they're all there helping. They are doing a really good job with video now. So they like we go and pick. I think we shot 10 videos there this year. They had.
 
 [00:20:06] Adam: Sorry about that. Sound is my compressor in the background.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:21:09] Adam: Yeah. Well, no, because he's got new motors, but we've never revealed the inside of him. And I built this guy from scratch over five years.
 
-[00:21:15] Will: Yes, I think my favorite thing was probably the Megabot. Like, as a as a in my early twenties, sitting in Tennessee playing Mech Warrior two, I never thought in my life I get to climb up into a twenty foot tall killer robot
+[00:21:15] Will: Yes, I think my favorite thing was probably the Megabot. Like, as a as a in my early 20s, sitting in Tennessee playing Mech Warrior two, I never thought in my life I get to climb up into a 20 foot tall killer robot
 
 [00:21:30] Norm: and use the same joystick
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:22:37] Adam: I don't actually get to tour Maker Faire,
 
-[00:22:38] Will: but it's we should put you in a stormtrooper costume so you can walk around one year. Um, they they have they have amazing. Like the quality in that room has gone up so much in the last ten years, both because stuff's cheaper, like batteries, radios, motors, all that stuff is much less expensive. The internet has made a lot of stuff from China more readily available, and
+[00:22:38] Will: but it's we should put you in a stormtrooper costume so you can walk around one year. Um, they they have they have amazing. Like the quality in that room has gone up so much in the last 10 years, both because stuff's cheaper, like batteries, radios, motors, all that stuff is much less expensive. The internet has made a lot of stuff from China more readily available, and
 
 [00:23:01] Adam: there are people putting up the front money to have stuff produced cheaply and in large numbers so that people can use.
 
@@ -592,7 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:23:54] Norm: that’d be cool.
 
-[00:23:56] Adam: Somebody's built a 3D printed it'll crack a Master combo lock in like seventy seconds.
+[00:23:56] Adam: Somebody's built a 3D printed it'll crack a Master combo lock in like 70 seconds.
 
 [00:24:01] Norm: Oh my goodness!
 
@@ -628,7 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:24:42] Adam: Yeah.
 
-[00:24:42] Will: I think that they've done a good job in the last few years, at least, of actively at make of actively seeking out people who are who we haven't seen at this one before. Because it's hard to do something like this for ten years with this massive number of exhibitors and keep keep all of those exhibits fresh from year to year. And they do a really good job of that.
+[00:24:42] Will: I think that they've done a good job in the last few years, at least, of actively at make of actively seeking out people who are who we haven't seen at this one before. Because it's hard to do something like this for 10 years with this massive number of exhibitors and keep keep all of those exhibits fresh from year to year. And they do a really good job of that.
 
 [00:25:40] Adam: That's, I'm so sorry I didn't make it next year. I will make it. I promise. I'll see you there next year.
 
@@ -654,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:26:47] Will: as one does.
 
-[00:26:48] Adam: Bed. I'm. Eating a chocolate chip cookie, surfing the web, big gun on the bedside table, and my wife looks over and she goes, " I'd like you just to take a moment and realize that you, right now, are ten-year-old you's freaking hero, and that it'd be nice to go back in time and tell him that shit gets pretty sweet.
+[00:26:48] Adam: Bed. I'm. Eating a chocolate chip cookie, surfing the web, big gun on the bedside table, and my wife looks over and she goes, " I'd like you just to take a moment and realize that you, right now, are 10-year-old you's freaking hero, and that it'd be nice to go back in time and tell him that shit gets pretty sweet.
 
 [00:27:07] Will: It's gonna work out. Oh man,
 
@@ -696,7 +696,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:27:58] Will: So you drew. You have these toolboxes.
 
-[00:28:01] Adam: I have these toolboxes that I used professionally when I worked at Industrial Light and Magic. They were, they were the end result of seven years of working as a model maker, year round, and honing and refining the tools that I needed to be able to work as fast and efficiently as humanly possible, so that I could be completely autonomous when I sat down at a table and I could have access to these tools as quickly as possible. These toolboxes are the zenith of my engineering of how to be the fastest possible model maker. I drew an elaborate drawing of both of my toolboxes, A and B, and included a list of every single tool and part and piece that was in all of them. I think at one point I tallied it up, and it was in the it was over 10,000 dollars worth of tools in terms of The retail cost of each one new,
+[00:28:01] Adam: I have these toolboxes that I used professionally when I worked at Industrial Light and Magic. They were, they were the end result of seven years of working as a model maker, year round, and honing and refining the tools that I needed to be able to work as fast and efficiently as humanly possible, so that I could be completely autonomous when I sat down at a table and I could have access to these tools as quickly as possible. These toolboxes are the zenith of my engineering of how to be the fastest possible model maker. I drew an elaborate drawing of both of my toolboxes, A and B, and included a list of every single tool and part and piece that was in all of them. I think at one point I tallied it up, and it was in the it was over $10,000 worth of tools in terms of The retail cost of each one new,
 
 [00:28:54] Will: and and those those toolboxes are so heavy. You put them on screw jacks.
 
@@ -712,7 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:29:37] Norm: That Adam drew of his toolboxes with the list of all the tools. It's not only a great piece of art, but also it's like it's useful.
 
-[00:29:44] Will: Yeah, and the only way you can get it is if you're a premium member, or you can sign up to as a premium member now. If you're already a member, you'll we'll send out an email with every all the info you need to get it. If you are not, you can go to tested dot com slash membership and find out there. It's forty dollars a year to sign up. Along with the poster, you get a couple of monthly video series. Norm and I almost every month do a build build week where we build something. I think the last one we did was a mechanical ergonomic mechanical keyboards.
+[00:29:44] Will: Yeah, and the only way you can get it is if you're a premium member, or you can sign up to as a premium member now. If you're already a member, you'll we'll send out an email with every all the info you need to get it. If you are not, you can go to tested dot com slash membership and find out there. It's $40 a year to sign up. Along with the poster, you get a couple of monthly video series. Norm and I almost every month do a build build week where we build something. I think the last one we did was a mechanical ergonomic mechanical keyboards.
 
 [00:29:44] Adam: That's very cool.
 
@@ -724,7 +724,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:30:36] Adam: We'll be doing that again soon.
 
-[00:30:37] Will: Yeah, we have a couple of those ready to go, and then a bunch ton of other good stuff. So if you like the site, we appreciate your support. I think I said in one of the letters we sent out, like one person buying a premium membership generates about the same amount of revenue for the site as forty thousand people watching one video on YouTube. So So
+[00:30:37] Will: Yeah, we have a couple of those ready to go, and then a bunch ton of other good stuff. So if you like the site, we appreciate your support. I think I said in one of the letters we sent out, like one person buying a premium membership generates about the same amount of revenue for the site as 40,000 people watching one video on YouTube. So So
 
 [00:30:37] Adam: sign up.
 

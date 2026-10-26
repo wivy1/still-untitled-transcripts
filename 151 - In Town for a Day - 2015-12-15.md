@@ -16,7 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:01:34] Norm: A Brief intermission into the present.
 
-[00:01:35] Adam: Yes, I we did a performance last night in Stockton. Tomorrow, I am in Spokane, and this is the day off. So, I actually, how did I do this? We did Cupertino two nights ago, and I took a car service home from Cupertino because it's forty five minutes away. And then yesterday morning, I spent here in San Francisco, and then I made thing thing two just got his driver's license.
+[00:01:35] Adam: Yes, I we did a performance last night in Stockton. Tomorrow, I am in Spokane, and this is the day off. So, I actually, how did I do this? We did Cupertino two nights ago, and I took a car service home from Cupertino because it's 45 minutes away. And then yesterday morning, I spent here in San Francisco, and then I made thing thing two just got his driver's license.
 
 [00:02:00] Norm: Oh, chauffeur mode.
 
@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:02:09] Will: Okay.
 
-[00:02:09] Adam: And the clever, the clever little guy was like, " I think we should take the scenic route." And he took me, you know, through the back roads of the Central Valley to get there. It only took like an extra twenty minutes, and it was gorgeous.
+[00:02:09] Adam: And the clever, the clever little guy was like, " I think we should take the scenic route." And he took me, you know, through the back roads of the Central Valley to get there. It only took like an extra 20 minutes, and it was gorgeous.
 
 [00:02:21] Will: Where, where, Stockton's like middle central?
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:10:58] Adam: I also needed a break after every episode. I needed to take a break; like it was that intense.
 
-[00:11:03] Will: So I have twelve days basically to watch all Jessica Jones, and then you're back in town. We'll
+[00:11:03] Will: So I have 12 days basically to watch all Jessica Jones, and then you're back in town. We'll
 
 [00:11:08] Adam: yeah, we can do a spoiler cast. Okay. What else did I participate in? Uh,
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:12:32] Norm: Yeah,
 
-[00:12:32] Will: the conceit is that they have a thruster system that lets them accelerate, speeding up half of the trip and slowing down the other half of the trip. Right. I think in the TV show, that's for two reasons. One is so they don't have to do a bunch of expensive zero G stuff. Uh, two is that it means that it takes three months to get from you know Earth to Jupiter instead of you know eighteen months or two years.
+[00:12:32] Will: the conceit is that they have a thruster system that lets them accelerate, speeding up half of the trip and slowing down the other half of the trip. Right. I think in the TV show, that's for two reasons. One is so they don't have to do a bunch of expensive zero G stuff. Uh, two is that it means that it takes three months to get from you know Earth to Jupiter instead of you know 18 months or two years.
 
 [00:12:54] Norm: Right, right, right. And then from a storytelling perspective, perspective you can extrapolate that. So what does it mean if you have a spaceship? Where you are accelerating and decelerating for almost equally half the time, well, then you get artificial gravity that way,
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:17:53] Adam: yeah. And I mean, I don't mean space space. I mean, like within the physical space of the film, they they manage that very very well in this show, knowing where you are in in in the in the world that you're in.
 
-[00:18:05] Norm: Yeah, the thing that resonated with me the most, um, there is a little bit of a monologue in the fourth episode where you really get a sense that, and then you imagine okay in Star Trek even though humanity has lived on spaceships and stuff like that it still feels like one humanity. Here, where they're telling a story just two hundred years in the future, doesn't seem so far away. Just the fact that there are people, hundreds or thousands of people living, and generations of people living in different places, you meet like that's enough time to form an entirely different culture and mindset where they don't feel like they are Earthlings.
+[00:18:05] Norm: Yeah, the thing that resonated with me the most, um, there is a little bit of a monologue in the fourth episode where you really get a sense that, and then you imagine okay in Star Trek even though humanity has lived on spaceships and stuff like that it still feels like one humanity. Here, where they're telling a story just 200 years in the future, doesn't seem so far away. Just the fact that there are people, hundreds or thousands of people living, and generations of people living in different places, you meet like that's enough time to form an entirely different culture and mindset where they don't feel like they are Earthlings.
 
 [00:18:36] Adam: Right.
 
@@ -460,7 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:23:06] Will: Oh, we got more
 
-[00:23:06] Norm: for twenty minutes.
+[00:23:06] Norm: for 20 minutes.
 
 [00:23:07] Will: But wait, there is more.
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:23:46] Adam: There's many, many, many. Yeah,
 
-[00:23:48] Norm: yeah. So Apple dip. It has their own. It's a hundred dollars, and it has been. It looks weird.
+[00:23:48] Norm: yeah. So Apple dip. It has their own. It's $100, and it has been. It looks weird.
 
 [00:23:54] Will: Wow, that is.
 
@@ -508,7 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:24:15] Adam: And cases look. The competition is good because those cases are cheap enough that it's not really necessarily a huge killer.
 
-[00:24:21] Will: I don’t know, man, a hundred bucks is a lot for a case.
+[00:24:21] Will: I don’t know, man, $100 is a lot for a case.
 
 [00:24:23] Adam: Well, Apple's is double most other people with comparable cases. But let me just let's give Apple the benefit of the doubt because they don't do anything by half measures. And internally, I'm quite sure they have fantastic. If I was sitting across from the Apple engineer who ran this program, I'm quite sure he could convince me that this was a great idea.
 
@@ -532,9 +532,9 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:25:31] Norm: So this is. It's not like they're not aware of the marketplace. You don't do something different for the sake of doing it different.
 
-[00:25:37] Adam: Also, a fully charged a fully charged battery will not bring your phone from zero to a hundred. It'll bring it to like a shade under 80%.
+[00:25:37] Adam: Also, a fully charged a fully charged battery will not bring your phone from 0 to 100. It'll bring it to like a shade under 80%.
 
-[00:25:45] Will: So okay, here's my my recommendation: is to go get one of those little like lipstick case size things that cost thirteen dollars. Yeah,
+[00:25:45] Will: So okay, here's my my recommendation: is to go get one of those little like lipstick case size things that cost $13. Yeah,
 
 [00:25:53] Unknown speaker: [unclear speaker sequence: Adam “that will”; Will “give you 50%”; Adam “battery” / Adam “And it’s basically a little lithium ion battery”].
 
@@ -566,9 +566,9 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:26:34] Norm: Well, the, well, I'll take before we talk about functionality. I'll talk about how botched the launch it was, just in terms of delivering it production. Then they released the iPad Pro, which the best feature I think is its compatibility with this new accessory, the pencil, and the pencil.
 
-[00:26:51] Will: A hundred bucks.
+[00:26:51] Will: $100.
 
-[00:26:52] Norm: A hundred bucks, but wasn't even available for a month after the the.
+[00:26:52] Norm: $100, but wasn't even available for a month after the the.
 
 [00:26:55] Adam: And now it's backordered for weeks.
 
@@ -680,7 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:30:32] Adam: Oh, is it really just notes?
 
-[00:30:34] Will: It's a 99 dollar.
+[00:30:34] Will: It's a $99.
 
 [00:30:34] Norm: I Think you could draw? I mean, you can draw on the other ones, and you get some of the functionality.
 
@@ -830,7 +830,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:34:08] Adam: right? Right? Right?
 
-[00:34:08] Will: I watched the first Star Wars for the first time in probably ten years the other day. I'd forgotten how intense, like that opening scene on the blockade runner. Yeah. Like how much how much world building happens with almost no dialogue, right? In that first like fifteen minutes of that movie, yeah. I, I was like, oh right, George Lucas made good movies.
+[00:34:08] Will: I watched the first Star Wars for the first time in probably 10 years the other day. I'd forgotten how intense, like that opening scene on the blockade runner. Yeah. Like how much how much world building happens with almost no dialogue, right? In that first like 15 minutes of that movie, yeah. I, I was like, oh right, George Lucas made good movies.
 
 [00:34:32] Norm: Which version did you watch?
 
@@ -882,21 +882,21 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:35:44] Will: Yeah. Friday at four, I still have Japan Town seats. Oh. Yeah. Upstairs.
 
-[00:35:50] Adam: I don't think that's one of my days off. Okay. Is that the seventeenth?
+[00:35:50] Adam: I don't think that's one of my days off. Okay. Is that the 17th?
 
-[00:35:53] Will: Seven. Eighteenth.
+[00:35:53] Will: Seven. 18th.
 
 [00:35:54] Adam: Oh no, I'm I'm in.
 
-[00:35:56] Norm: Your your day off is the seventeenth.
+[00:35:56] Norm: Your your day off is the 17th.
 
-[00:35:58] Adam: I have a. I think I have a day off on the seventeenth. I think I'm coming back here on the seventeenth, right? Because I think the sixteenth is Oregon, is Portland. The seventeenth, I'm back here.
+[00:35:58] Adam: I have a. I think I have a day off on the 17th. I think I'm coming back here on the 17th, right? Because I think the 16th is Oregon, is Portland. The 17th, I'm back here.
 
-[00:36:07] Norm: Seventeenth is when it comes out, Adam.
+[00:36:07] Norm: 17th is when it comes out, Adam.
 
 [00:36:09] Adam: Right. I know, but I unless someone wants to give me a ticket,
 
-[00:36:11] Will: if we don't get a babysitter, I have a ticket for the seventeenth.
+[00:36:11] Will: if we don't get a babysitter, I have a ticket for the 17th.
 
 [00:36:16] Adam: Okay. maybe I’ll go see it as well.
 

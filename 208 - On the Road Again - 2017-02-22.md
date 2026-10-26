@@ -46,7 +46,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:03:07] Will: Yeah.
 
-[00:03:07] Adam: So the the Bose is um ten hours of time,
+[00:03:07] Adam: So the the Bose is um 10 hours of time,
 
 [00:03:12] Will: so you can go almost to Hong Kong and back. That's yeah, yeah, that's good. There you go.
 
@@ -74,7 +74,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:04:45] Will: well, I mean, like when we when we did the live show in October, we kind of rolled right back into it. Like it's when you work with somebody for a long time. I see that like it makes sense, right?
 
-[00:04:54] Adam: Yeah, no, you get you get used to their patterns, and that's so that's actually a nice segue into the fact that I'm doing this tour without Jamie. He doesn't want to tour anymore, and so my partner on stage and collaborator in content for Brain Candy is Michael Stevens from Vsauce, and tested viewers know this. And our director is a good friend of mine, Michael Weber, who's an amazing magician, magic designer, and director. And so I left Reno for the from the from the snowmobile gig on Thursday. Got to Fayetteville on Friday, and we spent really like twelve hours, fourteen hours on Friday, Saturday, Sunday, and Monday, just finishing the builds and. Doing some builds and choreographing and refining and writing and getting our way into this show, and we had our first performance last night.
+[00:04:54] Adam: Yeah, no, you get you get used to their patterns, and that's so that's actually a nice segue into the fact that I'm doing this tour without Jamie. He doesn't want to tour anymore, and so my partner on stage and collaborator in content for Brain Candy is Michael Stevens from Vsauce, and tested viewers know this. And our director is a good friend of mine, Michael Weber, who's an amazing magician, magic designer, and director. And so I left Reno for the from the from the snowmobile gig on Thursday. Got to Fayetteville on Friday, and we spent really like 12 hours, 14 hours on Friday, Saturday, Sunday, and Monday, just finishing the builds and. Doing some builds and choreographing and refining and writing and getting our way into this show, and we had our first performance last night.
 
 [00:05:56] Norm: Oh man! I would never have thought that a show comes together like that.
 
@@ -82,7 +82,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:06:40] Norm: Some of the photos you shared were not in the venue you performed last night. Like it looked almost like a hotel, rented hotel ballroom or something. Can you describe it?
 
-[00:06:51] Adam: Yeah, that was so. When you want to rehearse your show, sometimes renting out a big theater that would house your show is is prohibitively expensive, and that was the case here. It was going to cost us a crap ton of money. But in Fayetteville, we were in this lovely complex that had a convention center and a theater and all sorts of other stuff. And the the the conference center gave us a great deal on just this big old room for two days, where we could use power tools and we could set up everything from this truck. This show travels with two eighteen wheelers full of equipment. We were able to unload all of it, unpack it all, and really start talking about it and getting it all going.
+[00:06:51] Adam: Yeah, that was so. When you want to rehearse your show, sometimes renting out a big theater that would house your show is is prohibitively expensive, and that was the case here. It was going to cost us a crap ton of money. But in Fayetteville, we were in this lovely complex that had a convention center and a theater and all sorts of other stuff. And the the the conference center gave us a great deal on just this big old room for two days, where we could use power tools and we could set up everything from this truck. This show travels with two 18 wheelers full of equipment. We were able to unload all of it, unpack it all, and really start talking about it and getting it all going.
 
 [00:07:34] Norm: And do all the blocking and and before this, you hadn't done any rehearsals with with with Michael, right? It was
 
@@ -106,7 +106,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:09:51] Norm: talking about another show, like like that that whole like that's something you didn't get to do last time. Yeah, because both of you were just deep wells of knowledge.
 
-[00:10:01] Adam: Yeah, it's it's it's, and the show is really really really fun. I mean, last night was the was the first execution of it, and it did not feel like a first execution of a show. I know that it's going to change over the next couple of weeks as we start to refine our way into it and get more comfortable with the material, and I just can't wait. We left Fayetteville last night on our buses. It's only a three hour drive to Richmond, Virginia, so we pulled in about four in the morning. I briefly woke up as the bus parked and went back to sleep, and I've got the next forty eight days out here on the road.
+[00:10:01] Adam: Yeah, it's it's it's, and the show is really really really fun. I mean, last night was the was the first execution of it, and it did not feel like a first execution of a show. I know that it's going to change over the next couple of weeks as we start to refine our way into it and get more comfortable with the material, and I just can't wait. We left Fayetteville last night on our buses. It's only a three hour drive to Richmond, Virginia, so we pulled in about four in the morning. I briefly woke up as the bus parked and went back to sleep, and I've got the next 48 days out here on the road.
 
 [00:10:40] Will: Wow,
 
@@ -122,7 +122,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:10:49] Unknown speaker: Cool.
 
-[00:10:49] Adam: Also, hey, wait, check this out. Thing one and Thing two turned eighteen yesterday.
+[00:10:49] Adam: Also, hey, wait, check this out. Thing one and Thing two turned 18 yesterday.
 
 [00:11:01] Will: Oh, holy cow!
 
@@ -138,13 +138,13 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:11:12] Adam: Yeah.
 
-[00:11:15] Will: So I guess when we started working with you, they were fourteen. Is that right?
+[00:11:15] Will: So I guess when we started working with you, they were 14. Is that right?
 
 [00:11:19] Adam: Was it?
 
 [00:11:20] Will: Must have been 2012.
 
-[00:11:20] Adam: 2012, they were thirteen.
+[00:11:20] Adam: 2012, they were 13.
 
 [00:11:23] Will: It's amazing how much of a like even in just the four years that Norm and I've been around, how much they went from kind of you know boys and and now they're they're really young men.
 
@@ -164,7 +164,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:13:09] Will: a bronze diaper
 
-[00:13:09] Adam: Yeah, but while we were talking about that, I do real I did realize that there are some lasts that I that I remember, and one of them was shortly before we started working together on Tested, in late 2010, when Thing One was just just around ten and a half, eleven years old. He came upstairs to our bedroom in the middle of the night, having had a nightmare, and he asked if he could stay in our bed.
+[00:13:09] Adam: Yeah, but while we were talking about that, I do real I did realize that there are some lasts that I that I remember, and one of them was shortly before we started working together on Tested, in late 2010, when Thing One was just just around 10.5, 11 years old. He came upstairs to our bedroom in the middle of the night, having had a nightmare, and he asked if he could stay in our bed.
 
 [00:13:41] Will: Oh man.
 
@@ -184,7 +184,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:14:56] Adam: Go ahead.
 
-[00:14:57] Norm: No, while while you are out there in the world, do you have a bucket list for this or this tour? These forty eight cities of things have you ever had? Have you had chance to think about it?
+[00:14:57] Norm: No, while while you are out there in the world, do you have a bucket list for this or this tour? These 48 cities of things have you ever had? Have you had chance to think about it?
 
 [00:15:08] Adam: Oh yeah, absolutely, absolutely. So I don't want to give away too much because I am going to cover each of these on social and with some photo essays and stuff. But there are some aircraft boneyards that are in some of the cities that I will be touring through, and I I plan to make it to a couple of those. There are a couple of so I always also check Atlas Obscura, the website Atlas Obscura, for cool things to do in various cities. And I've been making a list. I've been keeping an ongoing list. I also I've got some stuff. We're going to do some tested coverage while I'm out on the road. I'll be at South by Southwest. I'm going to do some storytelling for for getting kids interested in making. We're going to visit some cities to see what they're doing in that regard. So it's I've actually got a very full dance card on this tour. Some tours don't do a lot. Other tours, it's just thrift shopping. This one is a mix of everything.
 
@@ -198,7 +198,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:17:37] Will: Yeah, so so I mean I'm thinking like I think the first time you went on tour you you kind of did some paper craft and like you rode a bicycle or like you you you kind of treated it almost like a vacation where you were on a cruise that just happened to be on land and you had to work right
 
-[00:17:50] Adam: yeah exactly and this time yeah I have I've had a lot more mental space Michael Weber Michael Stevens and I started collaborating on this God eight or ten months ago and we've been meeting fairly regularly either in Los Angeles where they live or San Francisco to to refine but there has been a lot more space to deal with the tour which means that once I'm out on tour it's not like I just want to veg on the bus all day long
+[00:17:50] Adam: yeah exactly and this time yeah I have I've had a lot more mental space Michael Weber Michael Stevens and I started collaborating on this God 8 or 10 months ago and we've been meeting fairly regularly either in Los Angeles where they live or San Francisco to to refine but there has been a lot more space to deal with the tour which means that once I'm out on tour it's not like I just want to veg on the bus all day long
 
 [00:18:22] Will: yeah
 
@@ -228,7 +228,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:22:45] Unknown speaker: Wow.
 
-[00:22:45] Adam: Ultimately, it is a bizarre, totally insane movie in which, like Anna Kendrick is the heroine, and she looks like she's ten next to Ben Affleck, and they don't ever quite make them romantic, but they don't not. So there's times when it's weirdly both paternal and strangely romantic.
+[00:22:45] Adam: Ultimately, it is a bizarre, totally insane movie in which, like Anna Kendrick is the heroine, and she looks like she's 10 next to Ben Affleck, and they don't ever quite make them romantic, but they don't not. So there's times when it's weirdly both paternal and strangely romantic.
 
 [00:23:07] Norm: Oh, that's weird.
 
@@ -266,7 +266,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:24:40] Norm: Starsky. Yeah, he's. I think he's fantastic. I think he plays the character really well, but that's a mess of a movie,
 
-[00:24:48] Adam: dude. That movie is a surrealist masterpiece. I mean, the last forty minutes are indecipherable. There are shots where I feel like you are just cutting in stuff from other movies, and I feel like like nothing makes any sense. And I felt so sorry for the actors in having to deliver some of the stuff they were doing. It was crazy, and every shot looked like it was from a trailer. It felt like a trailer that I watched for an hour.
+[00:24:48] Adam: dude. That movie is a surrealist masterpiece. I mean, the last 40 minutes are indecipherable. There are shots where I feel like you are just cutting in stuff from other movies, and I feel like like nothing makes any sense. And I felt so sorry for the actors in having to deliver some of the stuff they were doing. It was crazy, and every shot looked like it was from a trailer. It felt like a trailer that I watched for an hour.
 
 [00:25:18] Will: So, I watched. Speaking of movies that you shouldn't watch, I watched Now You See Me two the other day.
 
@@ -368,7 +368,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:30:54] Norm: I think remember when Annie Leibovitz did those ad campaigns, and she put celebrities in the roles of Disney characters, like Scarlett Johansson was Cinderella, and then they're these beautiful photographs. I feel like it's that type of exercise brought to filmmaking, and it's for a new generation. And I mean, yeah, you can say it's it's a money making grab, and it is, but it's. I think there are still interesting films.
 
-[00:31:25] Will: I assumed it was to extend copyright or something too, but but then they do Sleeping Beauty, which is only twenty years old.
+[00:31:25] Will: I assumed it was to extend copyright or something too, but but then they do Sleeping Beauty, which is only 20 years old.
 
 [00:31:30] Adam: But I so I feel like when I when I see that it might be beautiful, and I'm very interested to watch the trailers now for Belle et la Bête, but. I feel like the shot-for-shot remakes make me sad because there's only so much you're going to be able to do with it. So there's only so far it can be taken creatively. Now, I could be wrong about that. I could be totally wrong about that, but I feel like it's a it's a restriction that seems to me calculated to not drift too far. And granted, when you drift too far, things can get bad, but they can also get really, really interestingly, fascinatingly great.
 
@@ -522,4 +522,4 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:39:56] Will: See you all next week.
 
-[00:39:58] Norm: Thanks for listening to Still Untitled. We wouldn't be able to do what we do without your support and the support of our great advertisers. But in order to continue doing that, we need your help. So please go to podsurvey.com/untitled and take a quick anonymous survey that will help us get to know you a little better. That way, we can show advertisers just how great you, our listeners, are. Plus, once you complete the survey, you can enter to win a 100 dollar Amazon gift card. Again, that's podsurvey.com/untitled. P o d s u r v e y dot com slash u n t i t l e d. Thanks for your help.
+[00:39:58] Norm: Thanks for listening to Still Untitled. We wouldn't be able to do what we do without your support and the support of our great advertisers. But in order to continue doing that, we need your help. So please go to podsurvey.com/untitled and take a quick anonymous survey that will help us get to know you a little better. That way, we can show advertisers just how great you, our listeners, are. Plus, once you complete the survey, you can enter to win a $100 Amazon gift card. Again, that's podsurvey.com/untitled. P o d s u r v e y dot com slash u n t i t l e d. Thanks for your help.

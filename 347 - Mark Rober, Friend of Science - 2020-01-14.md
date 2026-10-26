@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:07:23] Norm: Start the Larry David style like things that annoy you,
 
-[00:07:25] Mark Rober: things that annoy you, or like this one I'm really excited about, like uh, you know, not returning your grocery cart to like the little chamber where you're. So I should say we're gonna reward people who do the right thing. So if you do return your car, a drone comes down or something gives you a hundred bucks.
+[00:07:25] Mark Rober: things that annoy you, or like this one I'm really excited about, like uh, you know, not returning your grocery cart to like the little chamber where you're. So I should say we're gonna reward people who do the right thing. So if you do return your car, a drone comes down or something gives you $100.
 
 [00:07:40] Adam: Oh, nice!
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:18:00] Mark Rober: Sure, sure.
 
-[00:18:01] Adam: And then looking at that rough cut and figuring out ways it can be fixed because, like, I think the very first you know early on in Savage Builds, we just took the first day of building and roughed it out to kind of show discovery the way we were thinking about it and. It was a great test case because nothing happened in this assembly because it was like you know four hours cut down to twenty minutes,
+[00:18:01] Adam: And then looking at that rough cut and figuring out ways it can be fixed because, like, I think the very first you know early on in Savage Builds, we just took the first day of building and roughed it out to kind of show discovery the way we were thinking about it and. It was a great test case because nothing happened in this assembly because it was like you know four hours cut down to 20 minutes,
 
 [00:18:24] Mark Rober: right?
 
@@ -494,7 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:22:19] Mark Rober: because it's in the lawyer's incentive. It's misaligned incentives. They they're just going to say like no to everything.
 
-[00:22:24] Adam: You know, someone said this to me at the beginning of my divorce, fifteen, eighteen years ago. They said, " Look, the problem about bringing lawyers into it, they have to be brought in, but lawyers operate within an adversarial system.
+[00:22:24] Adam: You know, someone said this to me at the beginning of my divorce, 15, 18 years ago. They said, " Look, the problem about bringing lawyers into it, they have to be brought in, but lawyers operate within an adversarial system.
 
 [00:22:37] Mark Rober: Yeah,
 
@@ -576,11 +576,11 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:26:12] Mark Rober: Very difficult
 
-[00:26:12] Adam: to have something that can drive weighing 150 pounds and then drive weighing. A hundred pounds less than that,
+[00:26:12] Adam: to have something that can drive weighing 150 pounds and then drive weighing. 100 pounds less than that,
 
 [00:26:18] Mark Rober: less than that, and the precision you need, and like loading it, like how do you load it? That's a huge problem in and of itself.
 
-[00:26:24] Adam: You know, Numberphile, Matt Parker was here, and he'll be back again in January. But he was talking about flipping a coin ten thousand times, which he did to his family's great consternation one week. But we were talking about building a machine that could flip a coin a hundred thousand times, and I spent several days diagramming it out, only to conclude this is a gigantic problem. This is really hard to solve. Something that could flip a coin and then read its value and then recirculate and flip that coin again. Just that, is a—
+[00:26:24] Adam: You know, Numberphile, Matt Parker was here, and he'll be back again in January. But he was talking about flipping a coin 10,000 times, which he did to his family's great consternation one week. But we were talking about building a machine that could flip a coin 100,000 times, and I spent several days diagramming it out, only to conclude this is a gigantic problem. This is really hard to solve. Something that could flip a coin and then read its value and then recirculate and flip that coin again. Just that, is a—
 
 [00:26:53] Mark Rober: yeah, yeah, that's interesting. You'd almost want to do it. Like, is it cheating to have it like colored so like optically you could see? Hey, that's red or blue.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:27:02] Mark Rober: Yeah, because then because otherwise it's harder to read the difference.
 
-[00:27:05] Adam: But then where do you go get it? And how do you right? Like every second you lose in the flip is like another week it'll take to do a hundred thousand flips.
+[00:27:05] Adam: But then where do you go get it? And how do you right? Like every second you lose in the flip is like another week it'll take to do 100,000 flips.
 
 [00:27:12] Mark Rober: Okay, okay, okay. I'm understanding now more of this.
 
@@ -608,7 +608,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:27:53] Norm: That's much more annoying.
 
-[00:27:54] Adam: 14 times out of 10,000. So the machine I built, I would build, would have to be able to accommodate that. We try it with a nickel and see if a nickel lands on its edge out of 100. It's going to be less than 14 out of a hundred, ten thousand.
+[00:27:54] Adam: 14 times out of 10,000. So the machine I built, I would build, would have to be able to accommodate that. We try it with a nickel and see if a nickel lands on its edge out of 100. It's going to be less than 14 out of 100, 10,000.
 
 [00:28:07] Mark Rober: Yeah,
 
@@ -816,11 +816,11 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:37:40] Mark Rober: Are you serious?
 
-[00:37:41] Adam: was three months on, two weeks off. Three months on, two weeks off for fourteen years.
+[00:37:41] Adam: was three months on, two weeks off. Three months on, two weeks off for 14 years.
 
 [00:37:46] Mark Rober: Wow. And like, what's a seat of the you don't how much is how many months is a season like six months? Who knows? They pass
 
-[00:37:53] Adam: you know Discovery doesn't air seasons like twenty episodes of blah blah blah. They want as many as they can get. Obviously, more is better. But like we just shot basically that was the most we could shoot.
+[00:37:53] Adam: you know Discovery doesn't air seasons like 20 episodes of blah blah blah. They want as many as they can get. Obviously, more is better. But like we just shot basically that was the most we could shoot.
 
 [00:38:05] Mark Rober: Right.
 
@@ -828,7 +828,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:38:09] Mark Rober: Right.
 
-[00:38:10] Adam: And we built a show around that. We made as many episodes as we could per year on that scale, shooting about forty two weeks a year.
+[00:38:10] Adam: And we built a show around that. We made as many episodes as we could per year on that scale, shooting about 42 weeks a year.
 
 [00:38:15] Mark Rober: That's crazy. That seems crazy. That's crazy.
 
@@ -848,11 +848,11 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:38:32] Mark Rober: Because you filmed it up here in the Bay Area.
 
-[00:38:34] Adam: We filmed it. The commute was ten minutes for both of us.
+[00:38:34] Adam: We filmed it. The commute was 10 minutes for both of us.
 
 [00:38:36] Mark Rober: Oh, that's great.
 
-[00:38:38] Adam: And so that's what made it sane keeping because it wasn't six-day weeks, it wasn't fifteen-hour days.
+[00:38:38] Adam: And so that's what made it sane keeping because it wasn't six-day weeks, it wasn't 15-hour days.
 
 [00:38:43] Mark Rober: Right.
 
@@ -872,7 +872,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:39:46] Mark Rober: I think there's, there's a few potentially in high positions of power. I'm, you know, I don't know.
 
-[00:39:51] Adam: You're reminding me of the guy I met at TED who has like a five thousand square foot shop just to himself because he cashed out of like a dot com thing and made millions and has five thousand square feet of tools that he doesn't know how to use and almost never uses. Yeah, it made me enraged to hear that, but go ahead. Sorry.
+[00:39:51] Adam: You're reminding me of the guy I met at TED who has like a 5,000 square foot shop just to himself because he cashed out of like a dot com thing and made millions and has 5,000 square feet of tools that he doesn't know how to use and almost never uses. Yeah, it made me enraged to hear that, but go ahead. Sorry.
 
 [00:40:07] Mark Rober: But yeah, so anyways that's a long way of saying like I think what you've done is really cool. You'll never really know the true impact, but like it could go on for generations and like hundreds of years.
 

@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:12:14] Will: Yeah, Childish Gambino.
 
-[00:12:16] Adam: Do you know that Child Childish Gambino said that he was eighteen before he realized that his name was Dong Lover?
+[00:12:16] Adam: Do you know that Child Childish Gambino said that he was 18 before he realized that his name was Dong Lover?
 
 [00:12:23] Will: So, my wife didn't realize she she didn't she didn't make the connection.
 
@@ -280,7 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:12:37] Norm: Yeah, maybe less so because the characterization.
 
-[00:12:39] Will: spoilers. This is spoilers now territory. If you haven't seen it, go see the movie. It's in theaters. It's worth your fifteen bucks. Go.
+[00:12:39] Will: spoilers. This is spoilers now territory. If you haven't seen it, go see the movie. It's in theaters. It's worth your $15. Go.
 
 [00:12:46] Norm: We should really enjoy it. Let's let's talk about characterization.
 
@@ -324,7 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:15:22] Adam: Yeah,
 
-[00:15:23] Norm: and little things like you know to tip the hat to book readers, things like why he had potatoes. You know, don't open until Thanksgiving. Right, just being written on on the package. He needed to say, " Oh, now this is why we had live spuds." I will say for the Mars thing, and going back to the in-situ cameras, Joey pointed this out when I was chatting with him last night. When they filmed on Earth and interior, they actually it looked like they lowered the shutter. So you have your typical forty-eight shutter, 24 fps, a little filmic look. But anytime you moved outdoors into the Martian landscape, you they ramped up the shutter so look more like fast motion,
+[00:15:23] Norm: and little things like you know to tip the hat to book readers, things like why he had potatoes. You know, don't open until Thanksgiving. Right, just being written on on the package. He needed to say, " Oh, now this is why we had live spuds." I will say for the Mars thing, and going back to the in-situ cameras, Joey pointed this out when I was chatting with him last night. When they filmed on Earth and interior, they actually it looked like they lowered the shutter. So you have your typical 48 shutter, 24 fps, a little filmic look. But anytime you moved outdoors into the Martian landscape, you they ramped up the shutter so look more like fast motion,
 
 [00:16:03] Adam: interesting,
 
@@ -534,7 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:24:39] Norm: When when Beck is doing a receiving the um the the resupply mission.
 
-[00:24:48] Adam: When one of the things that Ridley Scott is so amazing at is what is what's called framing, which is telling you the important elements of the story in every shot: what characters are in danger, what characters are thinking, where they are within the narrative, but also where you are in space. And there there are few directors as good as Ridley Scott at doing that. So. Outside the windows, there's always something. It's not just interesting shit going on outside the windows for interesting sake. It's I know where I am in Mars, in the spaceship on Earth, shot to shot. I'm never abandoned. Unlike like Michael Bay, where it's like we shot with sixty cameras and we're using all of them in every shot.
+[00:24:48] Adam: When one of the things that Ridley Scott is so amazing at is what is what's called framing, which is telling you the important elements of the story in every shot: what characters are in danger, what characters are thinking, where they are within the narrative, but also where you are in space. And there there are few directors as good as Ridley Scott at doing that. So. Outside the windows, there's always something. It's not just interesting shit going on outside the windows for interesting sake. It's I know where I am in Mars, in the spaceship on Earth, shot to shot. I'm never abandoned. Unlike like Michael Bay, where it's like we shot with 60 cameras and we're using all of them in every shot.
 
 [00:25:34] Norm: Spatial awareness.
 
@@ -556,7 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:25:58] Adam: right? Right, right.
 
-[00:25:58] Norm: Which isn't to say it's a bad movie; it's a great movie. So, if you listen to like the spoiler cast we did of the book and talking about how our hopes and dreams and fears for the adaptation of the movie, one of the hopes I had was that on their approach to Earth, they would for the crew of the Hermes show what it was they were giving up—the extra five hundred days—and they tried to do that with the the telecommunications, the voice chats with family back on Earth. But we never got that. We're approaching the Earth shot. This is our home, and what home is,
+[00:25:58] Norm: Which isn't to say it's a bad movie; it's a great movie. So, if you listen to like the spoiler cast we did of the book and talking about how our hopes and dreams and fears for the adaptation of the movie, one of the hopes I had was that on their approach to Earth, they would for the crew of the Hermes show what it was they were giving up—the extra 500 days—and they tried to do that with the the telecommunications, the voice chats with family back on Earth. But we never got that. We're approaching the Earth shot. This is our home, and what home is,
 
 [00:25:58] Adam: right?
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:30:51] Will: Yeah, the whole Iron Man bit from Iron Man on was was the only place the movie lost me.
 
-[00:30:55] Norm: And, and I felt like because you had a whole movie of build up, and you get I, I get from a plot point that okay, after five hundred days of intense survival, this is the last thing, and there's still problems. You got to solve things on the spot. It was also a great moment because you had the twelve minute delay to Earth to use that to cut in the Truman Show.
+[00:30:55] Norm: And, and I felt like because you had a whole movie of build up, and you get I, I get from a plot point that okay, after 500 days of intense survival, this is the last thing, and there's still problems. You got to solve things on the spot. It was also a great moment because you had the 12 minute delay to Earth to use that to cut in the Truman Show.
 
 [00:31:15] Adam: Yep.
 
@@ -668,7 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:32:41] Will: You are going to talk about the fuck montage,
 
-[00:32:42] Adam: yeah? So, the thing is, is that in a PG thirteen movie, you are only allowed, apparently, by the MPAA, to say fuck once,
+[00:32:42] Adam: yeah? So, the thing is, is that in a PG-13 movie, you are only allowed, apparently, by the MPAA, to say fuck once,
 
 [00:32:50] Will: allegedly.
 
@@ -920,7 +920,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:42:27] Norm: right? So
 
-[00:42:28] Will: you're talking about an eleven year old.
+[00:42:28] Will: you're talking about an 11 year old.
 
 [00:42:31] Adam: No, I know, I realize that. But there's a there's an old Mel Brooks joke. Is Mel Brooks and Carl Reiner used to have a party joke that they would do called the 2000 year old man, where Carl Reiner would interview Mel Brooks. It became a couple of comedy albums that I grew up on. And at one point, Mel, but Carl Reiner says, " Did you always believe in God?" He goes, " No, no, no, no. What did you believe in before God? Well, we used to believe in Phil. What really? Yeah. Well, who was Phil? Phil was a very big man. Very big man. He would, he would beat you up, right? He says that one day, one day, Phil was out walking, and the clouds formed and lightning bolt came down and struck Phil, and we all looked up and we said. There's something bigger than Phil.
 

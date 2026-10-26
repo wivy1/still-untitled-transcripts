@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:01:23] Will: It's an important distinction.
 
-[00:01:25] Adam: Yes, in Even Cowgirls Get the Blues, it's Sissy's thumbs and it's hitchhiking as a mode of transcendence. Uh, in Still Life with a Woodpecker, it's bombs and cigarettes. And in Jitterbug Perfume, uh, it's about a couple, Alobar and Kudra, who meet somewhere around the 8th century, fall in love, and live together for over a thousand years.
+[00:01:25] Adam: Yes, in Even Cowgirls Get the Blues, it's Sissy's thumbs and it's hitchhiking as a mode of transcendence. Uh, in Still Life with a Woodpecker, it's bombs and cigarettes. And in Jitterbug Perfume, uh, it's about a couple, Alobar and Kudra, who meet somewhere around the 8th century, fall in love, and live together for over 1,000 years.
 
 [00:01:44] Will: Wow, that seems like a long time.
 
@@ -68,7 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:02:03] Will: If you have a lot of sex and, and you don't have other communication, I can imagine that, like, the amount of conflict you'd have in your relationship would probably tune down a little bit.
 
-[00:02:11] Norm: Thousand years is a long time.
+[00:02:11] Norm: 1,000 years is a long time.
 
 [00:02:12] Adam: That is a long time.
 
@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:02:24] Will: It's not a Dan Brown movie.
 
-[00:02:25] Adam: No, it's way earlier. So those books, I haven't read them since I was like twenty, but—
+[00:02:25] Adam: No, it's way earlier. So those books, I haven't read them since I was like 20, but—
 
 [00:02:31] Will: So they wouldn't have had a cardboard box when he, when Jesus died.
 
@@ -308,11 +308,11 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:08:38] Norm: Okay. That shock.
 
-[00:08:39] Adam: I will say, and I don't know if this is one of the complaints. I haven't read any of the reviews of it. That, a lot, I, I did read one review in the New York Times today, and they said the, the last twenty-five minutes are exhausting, uh, and the action is so over the top. And I agree that it's exhausting, but I think it works. However—
+[00:08:39] Adam: I will say, and I don't know if this is one of the complaints. I haven't read any of the reviews of it. That, a lot, I, I did read one review in the New York Times today, and they said the, the last 25 minutes are exhausting, uh, and the action is so over the top. And I agree that it's exhausting, but I think it works. However—
 
 [00:08:57] Norm: That's what you're paying for.
 
-[00:08:59] Adam: But yeah, right, exactly. I once went to a Peter. I went to Peter Gabriel's last tour at the Oakland Coliseum, and someone was like the next day. They're like, "Yeah, it was a little theatrical," and I'm like, "I don't know what you spent 150 dollars on."
+[00:08:59] Adam: But yeah, right, exactly. I once went to a Peter. I went to Peter Gabriel's last tour at the Oakland Coliseum, and someone was like the next day. They're like, "Yeah, it was a little theatrical," and I'm like, "I don't know what you spent $150 on."
 
 [00:09:09] Will: You wanted the, the floating pink balloon, the—
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:15:27] Unknown speaker: It would be the worst.
 
-[00:15:28] Will: Yeah, and also the stakes in that movie were different. It wasn't that, that movie was about the end of the, like literally the end of the world, not in an abstract it's going to take thirty years kind of way, but a—
+[00:15:28] Will: Yeah, and also the stakes in that movie were different. It wasn't that, that movie was about the end of the, like literally the end of the world, not in an abstract it's going to take 30 years kind of way, but a—
 
 [00:15:37] Unknown speaker: But you mix like ...
 
@@ -612,7 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:17:45] Adam: Terrific.
 
-[00:17:46] Norm: Henry Cavill, uh, he was originally cast as Superman ten years ago.
+[00:17:46] Norm: Henry Cavill, uh, he was originally cast as Superman 10 years ago.
 
 [00:17:51] Will: And then he went to play Jesus instead.
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:18:03] Will: Okay, the Tudors.
 
-[00:18:03] Norm: Yeah, I think waiting ten years so that he was in his mid thirties and not his early twenties to do this movie really helped.
+[00:18:03] Norm: Yeah, I think waiting 10 years so that he was in his mid 30s and not his early 20s to do this movie really helped.
 
 [00:18:11] Adam: He was almost overly built up, though. I mean, his just his puffiness of his muscles is every time you see him without his shirt on, you're like,
 
@@ -820,7 +820,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:23:49] Will: This is like the, I come down with the munchkin and strap her on the chest, and just we just walk around on Saturday morning because there is awesome yard sales.
 
-[00:23:55] Adam: Totally, and this the whole this whole thing was like fifteen bucks for this whole thing. So, Best of Bread, totally great. Grew up on this.
+[00:23:55] Adam: Totally, and this the whole this whole thing was like $15 for this whole thing. So, Best of Bread, totally great. Grew up on this.
 
 [00:24:02] Will: Yes,
 
@@ -902,13 +902,13 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:25:58] Will: There was a period of time that that he was in that wrong period of time when people weren't sure what music videos are they short films.
 
-[00:26:03] Adam: This was this was this was the worst one. This this video was so bad. Halfway through, my wife was like, " Is are you in any more of this thing? Because I can't stand it." Like she wasn't willing to invest the next ninety seconds in finding out. She wanted a spoiler.
+[00:26:03] Adam: This was this was this was the worst one. This this video was so bad. Halfway through, my wife was like, " Is are you in any more of this thing? Because I can't stand it." Like she wasn't willing to invest the next 90 seconds in finding out. She wanted a spoiler.
 
 [00:26:17] Will: I love you, honey, but
 
 [00:26:18] Adam: yeah. Uh, Rock of the Westies, Elton John, and Chicago.
 
-[00:26:23] Will: That's fifteen bucks worth of vinyl.
+[00:26:23] Will: That's $15 worth of vinyl.
 
 [00:26:24] Adam: Dude, this is.
 
@@ -1146,7 +1146,7 @@ Episode URL: https://www.youtube.com/watch?v=rACFh5lyKqM
 
 [00:32:07] Will: Yeah, July
 
-[00:32:09] Norm: twelfth. Yeah,
+[00:32:09] Norm: 12th. Yeah,
 
 [00:32:10] Adam: July 12.
 

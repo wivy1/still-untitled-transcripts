@@ -66,7 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:06:03] Norm: And there are hundreds of people alongside on the base doing the work. Like for them, it's day to day, even though it's in a remote place. Just like. You know the astronauts on ISS, on station. It's also just their job as well.
 
-[00:06:16] Ariel: Yeah. So so life actually at McMurdo Station. So McMurdo Station is the United States base. It's the largest base on all of Antarctica. And in the summer, which is when I went, it can host up to a thousand people, like a whole lot of people. Yeah.
+[00:06:16] Ariel: Yeah. So so life actually at McMurdo Station. So McMurdo Station is the United States base. It's the largest base on all of Antarctica. And in the summer, which is when I went, it can host up to 1,000 people, like a whole lot of people. Yeah.
 
 [00:06:31] Will: But I mean, that's still that's still a tiny town by like North American standards.
 
@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:06:38] Norm: [unclear: two dozen two people / dozen two people / two people], and that's when I think of like remote base.
 
-[00:06:41] Ariel: And I was in locations where I was only with like eight people. So when I was in the the dry valleys, which is a helicopter ride away from McMurdo, these are locations that very few people who go to Antarctica can go. And yeah, the the campsites that I was at, and I was camping like in the valleys of mountains, like only had eight people. So for ten days, I was sleeping in five degree Fahrenheit weather in a normal camping tent, which was intense. And yeah, and the camps were like eight people or so.
+[00:06:41] Ariel: And I was in locations where I was only with like eight people. So when I was in the the dry valleys, which is a helicopter ride away from McMurdo, these are locations that very few people who go to Antarctica can go. And yeah, the the campsites that I was at, and I was camping like in the valleys of mountains, like only had eight people. So for 10 days, I was sleeping in five degree Fahrenheit weather in a normal camping tent, which was intense. And yeah, and the camps were like eight people or so.
 
 [00:07:10] Will: Wait, you didn't have like special like Arctic or Antarctic tents that are like double insulated or anything like that?
 
@@ -94,7 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:08:24] Ariel: You just use rocks around the area to sort of weigh down the tent, and then yeah, you drive stakes into the ground and you know normal camping stuff. Which is funny because like I'm not much of a camper at all. I'm more of a glamper, but yeah.
 
-[00:08:36] Norm: So, so Will's analogy for McMurdo Base it wasn't a thousand people; they were up to a thousand,
+[00:08:36] Norm: So, so Will's analogy for McMurdo Base it wasn't 1,000 people; they were up to 1,000,
 
 [00:08:36] Ariel: up to
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:10:33] Will: Yeah.
 
-[00:10:33] Ariel: Like I mean, I don't know. It just felt like you get to be in this cool place where everyone is interesting and fascinating, and you're there twenty four seven, and yeah, you get to learn about all this amazing stuff. Um, and and this is from the scientists and you know the janitors alike, because there are a bunch of people there doing science, but there are a lot of people there just with interesting stories that are working on the wastewater plant or working in the new and not the nuclear power plant, the the power plant. And you know people who are doing really interesting stuff, and and I loved hearing stories about how people found their way to Antarctica, and you know it was a broad range.
+[00:10:33] Ariel: Like I mean, I don't know. It just felt like you get to be in this cool place where everyone is interesting and fascinating, and you're there 24/7, and yeah, you get to learn about all this amazing stuff. Um, and and this is from the scientists and you know the janitors alike, because there are a bunch of people there doing science, but there are a lot of people there just with interesting stories that are working on the wastewater plant or working in the new and not the nuclear power plant, the the power plant. And you know people who are doing really interesting stuff, and and I loved hearing stories about how people found their way to Antarctica, and you know it was a broad range.
 
 [00:11:22] Norm: It was a summer, so you weren't you weren't you had the ability to go outside and explore. And in the winter time, are people basically stuck in the base and the interconnected hallways, and it feels more like isolation?
 
@@ -174,49 +174,49 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:19:02] Will: Like a backpacking
 
-[00:19:02] Ariel: Trip. So I had an excess baggage allowance because I was bringing down microscopes, so I had a hundred hundred dollars, hundred pounds extra of baggage that I was able to bring down, but I had to pay some excess baggage fees and and things like that, and so yeah, to to make the trip down to Antarctica because you had asked about that before, you take a plane to New Zealand.
+[00:19:02] Ariel: Trip. So I had an excess baggage allowance because I was bringing down microscopes, so I had a hundred hundred dollars, 100 pounds extra of baggage that I was able to bring down, but I had to pay some excess baggage fees and and things like that, and so yeah, to to make the trip down to Antarctica because you had asked about that before, you take a plane to New Zealand.
 
 [00:19:24] Will: Just a normal commercial,
 
-[00:19:25] Ariel: normal commercial plane, you know. So from San Francisco to Auckland, it's like a thirteen-hour flight, and then you do a small hop from Auckland to Christchurch, and Christchurch is where everyone out of the United States and the New Zealand Antarctic program deploy out of for McMurdo and the South Pole, and so then you are there, and then you take a military plane from Christchurch into Antarctica, and you land on a snow-packed runway. So on the way there, I took a C seventeen military huge jumbo,
+[00:19:25] Ariel: normal commercial plane, you know. So from San Francisco to Auckland, it's like a 13-hour flight, and then you do a small hop from Auckland to Christchurch, and Christchurch is where everyone out of the United States and the New Zealand Antarctic program deploy out of for McMurdo and the South Pole, and so then you are there, and then you take a military plane from Christchurch into Antarctica, and you land on a snow-packed runway. So on the way there, I took a C 17 military huge jumbo,
 
 [00:19:55] Norm: but on the inside is it even is it decked out to look like commercial airline? No, so you are sitting on the sides of the walls.
 
-[00:20:01] Ariel: Yeah, so I sit on the sides on the walls, and they had like huge like huge pallets of cargo, and so there was only maybe forty people on my flight or something on the C seventeen massive plane, but it was filled with cargo and filled with
+[00:20:01] Ariel: Yeah, so I sit on the sides on the walls, and they had like huge like huge pallets of cargo, and so there was only maybe 40 people on my flight or something on the C 17 massive plane, but it was filled with cargo and filled with
 
 [00:20:14] Norm: And it opens up in the back, and
 
 [00:20:15] Will: you put on your halo mask, and the Tom Cruise jumps out and you follow after.
 
-[00:20:18] Ariel: Yeah, so that was actually pretty comfortable considering on the way. Back from Antarctica, so coming back, the the runways as the summer goes on, the runways start melting, and then different planes are not allowed to fly in anymore. And so I had to take a smaller plane on the way back, which was a C one thirty, which is a four propeller plane.
+[00:20:18] Ariel: Yeah, so that was actually pretty comfortable considering on the way. Back from Antarctica, so coming back, the the runways as the summer goes on, the runways start melting, and then different planes are not allowed to fly in anymore. And so I had to take a smaller plane on the way back, which was a C 130, which is a four propeller plane.
 
 [00:20:18] Norm: Vietnam era.
 
-[00:20:18] Ariel: Yeah, definitely, and that one is not made for passengers whatsoever. They've got like cargo netting, and you sort of sit in that. And the difference between the C seventeen going down from Christchurch to McMurdo versus the C one thirty going back. So on the way there, it was a five hour flight. On the way back, because it's this propeller plane, eight hour flight, eight and a half hour flight.
+[00:20:18] Ariel: Yeah, definitely, and that one is not made for passengers whatsoever. They've got like cargo netting, and you sort of sit in that. And the difference between the C 17 going down from Christchurch to McMurdo versus the C 130 going back. So on the way there, it was a five hour flight. On the way back, because it's this propeller plane, eight hour flight, eight and a half hour flight.
 
 [00:21:01] Norm: What are you doing?
 
 [00:21:01] Ariel: You're just kind of miserable
 
-[00:21:03] Ariel: because like there's no room for anyone to sit. So you've got this netting, and you have to pretty much sit like right, right next to everyone, even though there's like only like twenty, twenty five people on the plane. It's just not meant for passengers. And then the first two hours, you're you know, because it's not pressurized, you're really, really cold because you're leaving Antarctica. And then, like two hours in, I sort of like half woke up, and it was just really freaking hot because you're entering summertime in New Zealand, and so it's like so everyone just started like stripping all of their like exterior wear off, and like it was just really hot all of a sudden.
+[00:21:03] Ariel: because like there's no room for anyone to sit. So you've got this netting, and you have to pretty much sit like right, right next to everyone, even though there's like only like 20, 25 people on the plane. It's just not meant for passengers. And then the first two hours, you're you know, because it's not pressurized, you're really, really cold because you're leaving Antarctica. And then, like two hours in, I sort of like half woke up, and it was just really freaking hot because you're entering summertime in New Zealand, and so it's like so everyone just started like stripping all of their like exterior wear off, and like it was just really hot all of a sudden.
 
 [00:23:00] Ariel: Yeah.
 
 [00:23:00] Will: So when you're we're bouncing all over the place here, but I like everything you say makes me think of like eight different questions. What when you're in the base? So you're camping. You said you're kind of cold all the time. It's just it's just there's no campfires because nothing to burn. Yeah. You have a stove to make boiling water, and that's what what. Can make you warm, right? Okay, right, because I guess you're not supposed to scoop.
 
-[00:23:21] Ariel: Well, so you you do get your water from they call it glacier berries, which are like sort of little outcrops of ice. So you get your ice from you know the natural area around. But yeah, you have to have very limited water. So I was in the dry valleys for ten days, and there's no showers. Like, yeah.
+[00:23:21] Ariel: Well, so you you do get your water from they call it glacier berries, which are like sort of little outcrops of ice. So you get your ice from you know the natural area around. But yeah, you have to have very limited water. So I was in the dry valleys for 10 days, and there's no showers. Like, yeah.
 
 [00:23:39] Will: At least it's not hot. So
 
-[00:23:41] Ariel: yeah, it's not hot, but you're doing feel like you're sweating. You're sweating a lot, so it's really yeah. Ten days without, like you're hiking up glaciers, you're doing like intense work, and yeah, you're not showering for that entire time, and it was
+[00:23:41] Ariel: yeah, it's not hot, but you're doing feel like you're sweating. You're sweating a lot, so it's really yeah. 10 days without, like you're hiking up glaciers, you're doing like intense work, and yeah, you're not showering for that entire time, and it was
 
 [00:23:54] Norm: on the base bar. Whether the bar advertised glacier ice cube ice in the bar?
 
 [00:23:59] Ariel: Yeah, I well, I mean, people did make a lot of comments about how you know bars would love to have like glacier ice,
 
-[00:24:06] Will: yeah, thousand year old water, yeah, yeah, untouched by human human chemicals. Um, what uh, what like in the base is it is it cold? Like, is the base like are you walking around in heavy sweaters and boots and all that inside?
+[00:24:06] Will: yeah, 1,000 year old water, yeah, yeah, untouched by human human chemicals. Um, what uh, what like in the base is it is it cold? Like, is the base like are you walking around in heavy sweaters and boots and all that inside?
 
-[00:24:17] Ariel: So around McMurdo, as I said, like McMurdo's. Pretty comfortable. So I got there, you know, at the start of summer, and it was definitely there were days where it was just like really cold, and the wind always affects how cold it is, 100%. So, but towards the end, so over a five weeks span, it went from, you know, the ground being utterly frozen and really cold, just miserable days, to at the end of the five weeks, like there was water on the ground and sun is out, and like everything's melting, and so you definitely got the sense of oh yeah, this is summer in Antarctica, and and when it is that warm, some people, not me, but some people consider it t-shirt weather, just because when there's no wind, even when it, so it's like if there's no wind and it's like twenty degrees Fahrenheit and there's sun, like it's actually not that bad. So wind affects everything, and and but you know most of the time, you know, you don't have to wear a big red parka just to dart between buildings and everything. You can just wear. Jeans or whatever.
+[00:24:17] Ariel: So around McMurdo, as I said, like McMurdo's. Pretty comfortable. So I got there, you know, at the start of summer, and it was definitely there were days where it was just like really cold, and the wind always affects how cold it is, 100%. So, but towards the end, so over a five weeks span, it went from, you know, the ground being utterly frozen and really cold, just miserable days, to at the end of the five weeks, like there was water on the ground and sun is out, and like everything's melting, and so you definitely got the sense of oh yeah, this is summer in Antarctica, and and when it is that warm, some people, not me, but some people consider it t-shirt weather, just because when there's no wind, even when it, so it's like if there's no wind and it's like 20 degrees Fahrenheit and there's sun, like it's actually not that bad. So wind affects everything, and and but you know most of the time, you know, you don't have to wear a big red parka just to dart between buildings and everything. You can just wear. Jeans or whatever.
 
 [00:25:17] Will: It's pretty dry, right? So you're not. It's
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:27:55] Norm: Is there fauna? Is it soft? Is it like rock?
 
-[00:27:58] Ariel: So there's there's no there's no you know trees or anything you know there's no plants that are you know not microbial and it is soft, which was the weirdest thing because I was going there. It's the dry valleys. You're in Antarctica. You expect everything to be frozen solid, but everything is soft. So you get out. Of the helicopter in the dry valleys, and your first step, it's like squishy, like squishy, like the way sand would be squishy, and it weirded me out because it gives you the feeling that like everything's like wet, but it's not. What what I think is actually happening is the fact that the permafrost doesn't start until like twenty centimeters below or something, and all the rocks and and sand and stuff that sits on top never has any moisture, so it never clumps together. So it's just all loose constantly, and so you step on things and your foot like just squishes into the ground everywhere you step. It was really a weird sensation. Well,
+[00:27:58] Ariel: So there's there's no there's no you know trees or anything you know there's no plants that are you know not microbial and it is soft, which was the weirdest thing because I was going there. It's the dry valleys. You're in Antarctica. You expect everything to be frozen solid, but everything is soft. So you get out. Of the helicopter in the dry valleys, and your first step, it's like squishy, like squishy, like the way sand would be squishy, and it weirded me out because it gives you the feeling that like everything's like wet, but it's not. What what I think is actually happening is the fact that the permafrost doesn't start until like 20 centimeters below or something, and all the rocks and and sand and stuff that sits on top never has any moisture, so it never clumps together. So it's just all loose constantly, and so you step on things and your foot like just squishes into the ground everywhere you step. It was really a weird sensation. Well,
 
 [00:28:56] Will: because I mean, there's no bio, there's no like biomass to make the soil matrix, so it's just fines and pebbles and stuff.
 
@@ -272,9 +272,9 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:30:44] Ariel: Yeah, like it's yeah,
 
-[00:30:45] Norm: like twenty feet deep or something.
+[00:30:45] Norm: like 20 feet deep or something.
 
-[00:30:46] Ariel: Yeah, twenty plus feet deep, baby, and you crawl down this like little ladder into this pipe. It looks like from Mario, like you're going down one of the Mario pipes, and then you get down there, and there's a 360 windows surrounding you, and you get to actually be underneath the sea ice, looking at all the sea creatures and the sea floor and everything. So you get to have the same experience more or less as a diver in this little contained thing that you don't have to actually be a diver for, and it was fantastic because prior to Going in it, I was like, " Why would anyone ever be a diver in Antarctica? Like that sounds miserable and like oh, like who would dive in, you know, negative two degrees Celsius like water? Like and then I went into this tube and saw like a glimpse of what they get to see, and I was like, I get it now. Like this is incredible.
+[00:30:46] Ariel: Yeah, 20 plus feet deep, baby, and you crawl down this like little ladder into this pipe. It looks like from Mario, like you're going down one of the Mario pipes, and then you get down there, and there's a 360 windows surrounding you, and you get to actually be underneath the sea ice, looking at all the sea creatures and the sea floor and everything. So you get to have the same experience more or less as a diver in this little contained thing that you don't have to actually be a diver for, and it was fantastic because prior to Going in it, I was like, " Why would anyone ever be a diver in Antarctica? Like that sounds miserable and like oh, like who would dive in, you know, negative two degrees Celsius like water? Like and then I went into this tube and saw like a glimpse of what they get to see, and I was like, I get it now. Like this is incredible.
 
 [00:31:42] Will: Can you go get that get that cert and start reapplying.
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:32:28] Ariel: So this is why I was trying to look it up because I think I forgot. Like I want to say, like some of the ice was like around like 250 centimeters thick. So really,
 
-[00:32:38] Will: ten feet.
+[00:32:38] Will: 10 feet.
 
 [00:32:39] Ariel: Yeah, like pretty thick, and then in other places maybe it was closer to like 400. I need to look it up, but it's it's so thick that you'd never in a million years have to worry about falling through.
 

@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:03:56] Adam: Yeah.
 
-[00:03:56] Will: and that seemed like a good amount of distance to me. Nineteen year old me, eighteen year old me. Yeah, and then it was, it was like that was good. That's a big day.
+[00:03:56] Will: and that seemed like a good amount of distance to me. 19 year old me, 18 year old me. Yeah, and then it was, it was like that was good. That's a big day.
 
 [00:04:08] Adam: I want to tell you, I did not deal with it gracefully.
 
@@ -130,11 +130,11 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:04:48] Adam: Yeah,
 
-[00:04:48] Will: yeah, I mean, it's it's a moment that they've been working toward. Like I, I am in a weird place because I am forty-two years old. I can remember the day that I left to go to go to school.
+[00:04:48] Will: yeah, I mean, it's it's a moment that they've been working toward. Like I, I am in a weird place because I am 42 years old. I can remember the day that I left to go to go to school.
 
 [00:04:58] Adam: You and me both.
 
-[00:04:59] Will: As if it was like, well, what does it Stephen King says? We we picture ourselves in our heads forever as we were when we were nineteen years old.
+[00:04:59] Will: As if it was like, well, what does it Stephen King says? We we picture ourselves in our heads forever as we were when we were 19 years old.
 
 [00:04:59] Adam: Yes, yeah, yeah.
 
@@ -166,7 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:05:41] Will: Oh yeah, yeah, yeah.
 
-[00:05:41] Will: That's our friend Drew. Shout out to Drew and Cloth Map. He makes awesome travel documentaries about video game stuff. But he bought a pickup truck, and it was this like a swarm of people. When he said, " Hey, guys, I got a new car. I got a pickup truck," like fifteen people we'd never seen before came out. We're like, " Hey, what are you doing next weekend?"
+[00:05:41] Will: That's our friend Drew. Shout out to Drew and Cloth Map. He makes awesome travel documentaries about video game stuff. But he bought a pickup truck, and it was this like a swarm of people. When he said, " Hey, guys, I got a new car. I got a pickup truck," like 15 people we'd never seen before came out. We're like, " Hey, what are you doing next weekend?"
 
 [00:06:06] Adam: I we just were talking about how what a what a what a what a violent question. What are you doing tomorrow? Is.
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:06:35] Will: I am just like I am watching my friends send their five year olds off to kindergarten. I am like, oh my god, this is it. It's over. But that one, it really is over. When you
 
-[00:06:42] Adam: send a kid off to kindergarten, you are just gonna, you know, have to sit through a bunch of really, really terrible concerts for the next twelve years.
+[00:06:42] Adam: send a kid off to kindergarten, you are just gonna, you know, have to sit through a bunch of really, really terrible concerts for the next 12 years.
 
 [00:06:48] Will: I am fine with that. I have a phone. By then, the earbuds will be small enough you'll be able to see them. You are
 
@@ -212,7 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:07:19] Norm: Nice, nice.
 
-[00:07:19] Adam: So yeah, so that happened yesterday, and yeah, it's an intense thing. You know, they're they're they're young adults now. They're eighteen. They're
+[00:07:19] Adam: So yeah, so that happened yesterday, and yeah, it's an intense thing. You know, they're they're they're young adults now. They're 18. They're
 
 [00:07:28] Norm: you have a free room.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:07:36] Adam: already.
 
-[00:07:36] Will: But it's it's one of those things that when you're eighteen, you're in the least probably self aware. At least I was the least self aware I would be for my entire life when I was seventeen or eighteen years old.
+[00:07:36] Will: But it's it's one of those things that when you're 18, you're in the least probably self aware. At least I was the least self aware I would be for my entire life when I was 17 or 18 years old.
 
 [00:07:47] Norm: God, It was helpful to hear that
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:08:30] Adam: you know a huge it's the biggest thing that's ever happened to them after being born at that point.
 
-[00:08:34] Adam: It is, and it's so exciting. It's so exciting. It I am I I'm so proud of them. I could burst. It is. It's funny that makes me feel older than turning fifty, three weeks ago or a month a month ago.
+[00:08:34] Adam: It is, and it's so exciting. It's so exciting. It I am I I'm so proud of them. I could burst. It is. It's funny that makes me feel older than turning 50, three weeks ago or a month a month ago.
 
 [00:08:49] Will: Yeah, I can't even imagine.
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:14:01] Adam: We went to an anime con,
 
-[00:14:03] Norm: Crunchyroll Expo. They're one of our partners, and they invited us. We had a booth there. It was just in Santa Clara, first year convention, like you know, ten, twelve thousand people, which it wasn't massive, so it felt really packed. And I hadn't been to many anime conventions.
+[00:14:03] Norm: Crunchyroll Expo. They're one of our partners, and they invited us. We had a booth there. It was just in Santa Clara, first year convention, like you know, 10,000, 12,000 people, which it wasn't massive, so it felt really packed. And I hadn't been to many anime conventions.
 
 [00:14:18] Adam: I have not been to a single anime convention before,
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:17:20] Norm: We did. Yes.
 
-[00:17:21] Adam: And you know, I I had just because it had been too long, I had watched * Spirited Away* by myself about three months ago, and there's just no. That is seriously one of my top five. I joke that there is thirty films in my top five films, but this one is in the actual top five, and it's never left. It is a masterpiece.
+[00:17:21] Adam: And you know, I I had just because it had been too long, I had watched * Spirited Away* by myself about three months ago, and there's just no. That is seriously one of my top five. I joke that there is 30 films in my top five films, but this one is in the actual top five, and it's never left. It is a masterpiece.
 
 [00:17:42] Will: I I um, yeah. I we're we're getting to the point that we're gonna start. Like we're talking about introducing it to to my daughter.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:19:44] Adam: Well, that's. I mean, I'm glad. I'm glad there is a range that it's all not just saccharine treacly bullshit.
 
-[00:19:51] Will: It's funny. I was talking to a friend the other day about what a delight it is to live in the era of the four quadrant kids movie, so that you don't have to go and stab your eyes out watching The Fox and the Hound for the fiftieth fucking time. It's
+[00:19:51] Will: It's funny. I was talking to a friend the other day about what a delight it is to live in the era of the four quadrant kids movie, so that you don't have to go and stab your eyes out watching The Fox and the Hound for the 50th fucking time. It's
 
 [00:20:02] Norm: also less edgy. Less risky in some ways.
 
@@ -806,7 +806,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:29:20] Will: Wow, and they have like a like a Dremel on the end that just like
 
-[00:29:23] Adam: a ten-inch round-ended half-inch milling bit.
+[00:29:23] Adam: a 10-inch round-ended half-inch milling bit.
 
 [00:29:23] Will: Jesus.
 

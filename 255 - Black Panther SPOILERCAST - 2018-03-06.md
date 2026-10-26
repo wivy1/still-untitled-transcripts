@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:03:03] Adam: Except that this year, apparently, there was a bunch of writing about how the Best Picture category was really, really hard to predict this year.
 
-[00:03:11] Will: Well, first, it's been hard to predict since they started having up to ten.
+[00:03:11] Will: Well, first, it's been hard to predict since they started having up to 10.
 
 [00:03:15] Adam: entries. Right. Yeah, that's true. That's true.
 
@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:03:42] Adam: I know this is an Academy voter too.
 
-[00:03:50] Will: How many? It's like what three or four thousand Academy voters or something.
+[00:03:50] Will: How many? It's like what 3,000 or 4,000 Academy voters or something.
 
 [00:03:53] Adam: I don't know.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:03:54] Norm: as an institution, it is just—I don't think any more valid than you know the SAG Awards or Independent Spirit Awards. It's just the one that's the most well-known.
 
-[00:04:04] Will: Well, it's they've been doing it for ninety years, and and the Academy Motion Picture Arts and Sciences is like, I mean they're they're movies.
+[00:04:04] Will: Well, it's they've been doing it for 90 years, and and the Academy Motion Picture Arts and Sciences is like, I mean they're they're movies.
 
 [00:04:13] Norm: Ah, now I know you didn't see this because you didn't watch it, but Adam, did you see the commercial for the museum? That was the the riff on the shining.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:07:11] Adam: Right.
 
-[00:07:11] Will: what the categories was. Just a small line along the bottom, or something like that. And this year, it was like some big ass, like forty point Futura best picture on the outside of the envelope,
+[00:07:11] Will: what the categories was. Just a small line along the bottom, or something like that. And this year, it was like some big ass, like 40 point Futura best picture on the outside of the envelope,
 
 [00:07:21] Adam: big enough for old people.
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:07:27] Norm: the Oscars? Sorry,
 
-[00:07:28] Adam: I'll. You know what? I don't know, but I suspect you know same in the same way that the Creative Arts Emmys, the Schmies that I have gone to, is cut down to like seventy five minutes and aired on during the daytime on some.
+[00:07:28] Adam: I'll. You know what? I don't know, but I suspect you know same in the same way that the Creative Arts Emmys, the Schmies that I have gone to, is cut down to like 75 minutes and aired on during the daytime on some.
 
 [00:07:45] Norm: Yeah, for the Oscars, it's barely acknowledged. You have like one shot of Patrick Stewart and and some of the some of the recipients.
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:07:54] Adam: She did win for Fargo. Good, good. She deserved that too.
 
-[00:07:57] Will: I mean, so one of the things that Gina and I were talking about because she gives me the rundown afterwards after we tuck the kiddo into bed and I watch the last few minutes. Is that last year there were so many incredible performances by women like over the age of fifty?
+[00:07:57] Will: I mean, so one of the things that Gina and I were talking about because she gives me the rundown afterwards after we tuck the kiddo into bed and I watch the last few minutes. Is that last year there were so many incredible performances by women like over the age of 50?
 
 [00:08:09] Adam: Yeah,
 
@@ -258,7 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:08:52] Adam: Yeah, I still had not seen the majority of them, but I've seen enough of the movies this year. How awesome was it to watch Roger Deakins win? And how hilariously has he like been zapped out of an Austin Powers movie?
 
-[00:09:04] Will: Fourteen nominations,
+[00:09:04] Will: 14 nominations,
 
 [00:09:06] Norm: and then he went up and thanked. Everyone he's worked with,
 
@@ -302,7 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:11:03] Will: I think it's my favorite Pixar.
 
-[00:11:05] Adam: Hard to see through the last twenty minutes through the tears.
+[00:11:05] Adam: Hard to see through the last 20 minutes through the tears.
 
 [00:11:08] Adam: But when he sings to his grandmother.
 
@@ -376,7 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:14:08] Will: for this PG. Is it PG?
 
-[00:14:11] Adam: PG thirteen
+[00:14:11] Adam: PG 13
 
 [00:14:11] Will: . Yeah, like like it's it's a fabulous album, and and I'm shocked that they got Disney to sign off with putting this fairly explicit album out with a PG-13 movie that's clearly aimed at teenagers. But whatever, all good.
 
@@ -400,7 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:16:06] Norm: Yeah,
 
-[00:16:06] Will: twelve years after it came out or whatever. But you know, it was really clear when you saw the ships and all the all of the world that was set up around telling that relatively simple story.
+[00:16:06] Will: 12 years after it came out or whatever. But you know, it was really clear when you saw the ships and all the all of the world that was set up around telling that relatively simple story.
 
 [00:16:18] Norm: Yeah.
 
@@ -654,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:27:02] Norm: and rebuilding it.
 
-[00:27:04] Adam: And so yeah, we'll we'll we'll show my results when when we're all done. This is not one we're covering on camera because I'm it's probably going to take me dozens of hours of work over many days to do this. So it's just sitting on my bench with some files near it, and every time I have an extra thirty minutes, I kind of work on it for a bit.
+[00:27:04] Adam: And so yeah, we'll we'll we'll show my results when when we're all done. This is not one we're covering on camera because I'm it's probably going to take me dozens of hours of work over many days to do this. So it's just sitting on my bench with some files near it, and every time I have an extra 30 minutes, I kind of work on it for a bit.
 
 [00:27:20] Will: Do you find that kind of work to be a little meditative?
 

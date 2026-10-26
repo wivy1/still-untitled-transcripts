@@ -74,11 +74,11 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:01:47] Will: Perfect. Yeah.
 
-[00:01:47] Adam: We woke up in LA at the Marmont. We had a lovely breakfast. We drove to Vegas again, Christmas Day. No one on the road. Played some poker in Vegas on Christmas, which was awesome. And then we ended up through some various machinations in Sedona, Arizona, on New Year's Day, and we were heading. We're going to head back to play the one two dollar no limit hold'em tables at Caesars when we woke up and we're like, we want to be home. And it was New Year's Day, and we made it from Sedona, Arizona, to San Francisco in twelve hours flat.
+[00:01:47] Adam: We woke up in LA at the Marmont. We had a lovely breakfast. We drove to Vegas again, Christmas Day. No one on the road. Played some poker in Vegas on Christmas, which was awesome. And then we ended up through some various machinations in Sedona, Arizona, on New Year's Day, and we were heading. We're going to head back to play the $1/$2 no limit hold'em tables at Caesars when we woke up and we're like, we want to be home. And it was New Year's Day, and we made it from Sedona, Arizona, to San Francisco in 12 hours flat.
 
 [00:02:16] Will: Oh my god!
 
-[00:02:16] Adam: We didn't see another car for the most for most of the. I got the Prius up to one hundred and fourteen on Route 40 headed west towards LA.
+[00:02:16] Adam: We didn't see another car for the most for most of the. I got the Prius up to 114 on Route 40 headed west towards LA.
 
 [00:02:25] Norm: [There's a serious pod — unclear]
 
@@ -88,7 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:02:39] Will: You're just charging at that point, officer.
 
-[00:02:40] Adam: It was just after it was just after Woz had gotten pulled over for doing a hundred and two on 280. So I took a picture of my dashboard with one hundred and fourteen on it, and I the finger, and I sent it to Woz.
+[00:02:40] Adam: It was just after it was just after Woz had gotten pulled over for doing 102 on 280. So I took a picture of my dashboard with 114 on it, and I the finger, and I sent it to Woz.
 
 [00:02:54] Will: Still Untitled is not an advice podcast, and the things that Adam are saying should not be tested by anyone.
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:04:28] Adam: And actually, to be clear, San Francisco during how during Thanksgiving this year was about as empty as I have ever seen San Francisco.
 
-[00:04:35] Will: Think about the holidays that you went home to see your parents on when you were like twenty six. And San Francisco will empty out.
+[00:04:35] Will: Think about the holidays that you went home to see your parents on when you were like 26. And San Francisco will empty out.
 
 [00:04:40] Adam: No, it like it was even more barren and empty than Burning Man. It was really surprising this year, but it was quite unique.
 
@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:10:42] Will: Wow.
 
-[00:10:42] Adam: It was like a five, four and a half million dollar movie.
+[00:10:42] Adam: It was like a five, $4.5 million movie.
 
 [00:10:47] Will: Yeah. That's amazing!
 
@@ -526,7 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:18:15] Will: Give it another 20 years.
 
-[00:18:15] Adam: twelve, thirteen years ago,
+[00:18:15] Adam: 12, 13 years ago,
 
 [00:18:17] Will: yeah.
 
@@ -574,7 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:19:42] Will: Wow, sounds very festive.
 
-[00:19:43] Norm: Yes, there is there is a fake you know there is a stage that's the Victoria and Albert Music Hall, and they do eighteen plus show two times a night, you know, French postcard style.
+[00:19:43] Norm: Yes, there is there is a fake you know there is a stage that's the Victoria and Albert Music Hall, and they do 18 plus show two times a night, you know, French postcard style.
 
 [00:19:52] Will: Wow,
 
@@ -780,7 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:26:27] Norm: And you have to realize at that point in life she hates Doctor Manhattan, right? Doctor Manhattan is the is the genesis of the the the
 
-[00:26:35] Will: Fifty First State,
+[00:26:35] Will: 51st State,
 
 [00:26:36] Norm: exactly, which led to her parents dying. Till and her relationship is in the orphanage, painting Doctor Manhattan dolls,
 
@@ -842,7 +842,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:29:16] Adam: Oh my gosh.
 
-[00:29:16] Will: this mesa thirty degrees to the right." They can just pick it up and move it in, and it's unreal. So it just does it.
+[00:29:16] Will: this mesa 30 degrees to the right." They can just pick it up and move it in, and it's unreal. So it just does it.
 
 [00:29:21] Adam: Oh my god,
 

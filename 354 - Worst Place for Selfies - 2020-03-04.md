@@ -32,7 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:01:14] Adam: Totally,
 
-[00:01:14] Will: I save them up for road trips because I can listen to like ten in a row, no problem.
+[00:01:14] Will: I save them up for road trips because I can listen to like 10 in a row, no problem.
 
 [00:01:17] Adam: 99% invisible is just it's one of my safe spaces during this time, right?
 
@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:02:26] Will: Oh,
 
-[00:02:26] Adam: right. This is like this is a kind of an ur ninety nine pi subject.
+[00:02:26] Adam: right. This is like this is a kind of an ur 99 pi subject.
 
 [00:02:31] Will: Like, designing Cities for shade.
 
@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:03:16] Adam: The circles, The brick circle cisterns.
 
-[00:03:19] Will: I love that one. Yeah. Because it's like I've seen these brick circles on the ground in San Francisco for the twenty years I've lived there.
+[00:03:19] Will: I love that one. Yeah. Because it's like I've seen these brick circles on the ground in San Francisco for the 20 years I've lived there.
 
 [00:03:24] Norm: Quatrefoils.
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:17:22] Adam: Well, and the other thing that's happening at cons I see more is more companies servicing the cosplay community at a higher end. There's always been some really inexpensive vinyl costumes out of China, and those are getting better. The Xcoser are certainly improving incrementally, but Ultra Saber had a huge booth at C2E2, and they were it was a complete madhouse the whole weekend. And every like half the people who came up in line were holding an Ultra Saber or some custom model. I think that's really great. Everyone gets to have a beautiful lightsaber that feels great in their hand for just like for a reasonable price. That's that's fabulous. There's an economy of scale happening to cosplay that feels exciting.
 
-[00:18:03] Will: It's like what happened with audio and video stuff ten years ago.
+[00:18:03] Will: It's like what happened with audio and video stuff 10 years ago.
 
 [00:18:07] Adam: Here's hoping.
 
@@ -600,17 +600,17 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:24:17] Adam: Sure.
 
-[00:24:18] Adam: Yeah. And so 95, 98, 2% of those age 13 will die, and then 100 percent below. Thirteen will survive.
+[00:24:18] Adam: Yeah. And so 95, 98, 2% of those age 13 will die, and then 100 percent below. 13 will survive.
 
 [00:24:27] Will: Yeah,
 
 [00:24:27] Norm: everyone else will die. It's Logan's Run, but extremely. Everyone's gem is blinking.
 
-[00:24:33] Will: Well, they're not going to the twelve-year-olds aren't going to die when they turn thirteen. It's just right; they'll they'll grow old like normal people presumably.
+[00:24:33] Will: Well, they're not going to the 12-year-olds aren't going to die when they turn 13. It's just right; they'll they'll grow old like normal people presumably.
 
 [00:24:39] Norm: So everyone's trying to save the civilization.
 
-[00:24:42] Adam: The question is, how do you download civilization to a bunch of twelve and thirteen-year-olds
+[00:24:42] Adam: The question is, how do you download civilization to a bunch of 12 and 13-year-olds
 
 [00:24:46] Will: sixth graders?
 
@@ -632,7 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:25:09] Will: It's when they're both the most selfish and least equipped to make good long-term decisions.
 
-[00:25:14] Adam: I was telling my wife, and she's like, " What's the book about?" And I was like, " Well, it's a supernova, and it kills everyone over the age of thirteen, and then civilization has to download to the youth." And she goes. That's a really convenient setup.
+[00:25:14] Adam: I was telling my wife, and she's like, " What's the book about?" And I was like, " Well, it's a supernova, and it kills everyone over the age of 13, and then civilization has to download to the youth." And she goes. That's a really convenient setup.
 
 [00:25:26] Will: Reading this right now is very akin to like me reading * Handmaid's Tale* in 2016, right around the election.
 
@@ -974,7 +974,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:34:31] Adam: for words now.
 
-[00:34:32] Will: Ten out of ten. I guess that'll do it for us this week.
+[00:34:32] Will: 10 out of 10. I guess that'll do it for us this week.
 
 [00:34:37] Norm: We're getting back into the groove of things.
 
@@ -998,7 +998,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:34:53] Norm: Yeah, we're gonna get to filming.
 
-[00:34:55] Will: Okay. Hey, this week on TechPod at techpod.content.town, we we recorded this several weeks ago, but we did. I had to refresh my disaster kit, which was approaching ten years old. So we talked about disaster kits and what's in them and the stuff that you add to make them more livable. It was a very interesting conversation, and you should check it out at techpod.content.town.
+[00:34:55] Will: Okay. Hey, this week on TechPod at techpod.content.town, we we recorded this several weeks ago, but we did. I had to refresh my disaster kit, which was approaching 10 years old. So we talked about disaster kits and what's in them and the stuff that you add to make them more livable. It was a very interesting conversation, and you should check it out at techpod.content.town.
 
 [00:35:16] Norm: Very cool.
 

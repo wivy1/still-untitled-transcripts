@@ -24,23 +24,23 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:01:49] Unknown speaker: I don't remember.
 
-[00:01:49] Adam: She ended up clerking for a judge. I talked to her around the time of our twentieth high school reunion, I think. I I haven't. My thirtieth high school reunion is coming up next year.
+[00:01:49] Adam: She ended up clerking for a judge. I talked to her around the time of our 20th high school reunion, I think. I I haven't. My 30th high school reunion is coming up next year.
 
-[00:02:00] Will: Really? My twentieth was last year.
+[00:02:00] Will: Really? My 20th was last year.
 
 [00:02:00] Adam: Did you go?
 
 [00:02:00] Will: The first one I went to.
 
-[00:02:02] Adam: Oh, I went to my tenth, and that was. Awesome.
+[00:02:02] Adam: Oh, I went to my 10th, and that was. Awesome.
 
-[00:02:05] Will: The tenth. See, we we didn't. I didn't. I didn't know that the tenth happened until after it was done because I just moved to California and I was like, ah, I'm not going back.
+[00:02:05] Will: The 10th. See, we we didn't. I didn't. I didn't know that the 10th happened until after it was done because I just moved to California and I was like, ah, I'm not going back.
 
-[00:02:12] Adam: I, I will tell you about my tenth high school reunion. I hope that some of the people I went to high school would listen to this eventually, because I went to school with the same kids. Small town, Tarrytown, New York, five thousand, six thousand people population. So I went to the same school. Went to school with the same kids from age five to age eighteen.
+[00:02:12] Adam: I, I will tell you about my 10th high school reunion. I hope that some of the people I went to high school would listen to this eventually, because I went to school with the same kids. Small town, Tarrytown, New York, 5,000, 6,000 people population. So I went to the same school. Went to school with the same kids from age 5 to age 18.
 
-[00:02:28] Will: What was it like? Probably a two hundred person graduating class or something like that. Hundred fifty. Yeah,
+[00:02:28] Will: What was it like? Probably a 200 person graduating class or something like that. 150. Yeah,
 
-[00:02:32] Adam: hundred and fifty. So at some point, I had a crush on every single girl in that hundred fifty class.
+[00:02:32] Adam: 150. So at some point, I had a crush on every single girl in that 150 class.
 
 [00:02:38] Frank Ippolito: Statistically, you'd have to.
 
@@ -62,23 +62,23 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:03:22] Will: it's it's a it's a different future, right? If you decided to stay at home and open up a gas station, that's that's the one of the potential futures.
 
-[00:03:28] Norm: So, are you going to your thirtieth?
+[00:03:28] Norm: So, are you going to your 30th?
 
-[00:03:30] Adam: I want to go to my thirtieth high school reunion. I totally do. I'd love to see it. I'd love to see a bunch of those guys.
+[00:03:30] Adam: I want to go to my 30th high school reunion. I totally do. I'd love to see it. I'd love to see a bunch of those guys.
 
-[00:03:35] Will: So the the tenth was about who you are. The twentieth is about kids,
+[00:03:35] Will: So the the 10th was about who you are. The 20th is about kids,
 
 [00:03:40] Adam: I guess,
 
-[00:03:41] Will: and the thirtieth is about who survived.
+[00:03:41] Will: and the 30th is about who survived.
 
-[00:03:43] Frank Ippolito: No, no, that's a fiftieth. That's the fiftieth.
+[00:03:43] Frank Ippolito: No, no, that's a 50th. That's the 50th.
 
 [00:03:45] Norm: So that’s, you know.
 
 [00:03:45] Will: No. Let me tell you,
 
-[00:03:47] Adam: I I will say there was one shocker at my tenth high high school reunion. I've always had a penchant for girls with big noses. I've always loved big noses. I don't know why. Okay, particularly
+[00:03:47] Adam: I I will say there was one shocker at my 10th high high school reunion. I've always had a penchant for girls with big noses. I've always loved big noses. I don't know why. Okay, particularly
 
 [00:03:57] Will: big fan of Dirty Dancing, I assume.
 
@@ -86,7 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:04:03] Will: It was an amazing nose.
 
-[00:04:05] Adam: And I went to high school with a girl who had the most beautiful large nose. And when I saw her at the ten year high school reunion, she had gotten rid of it.
+[00:04:05] Adam: And I went to high school with a girl who had the most beautiful large nose. And when I saw her at the 10 year high school reunion, she had gotten rid of it.
 
 [00:04:05] Will: Hmm.
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:04:23] Adam: Absolutely.
 
-[00:04:28] Norm: Everyone. But you're right. The the tenth high school reunion is the people have kids. At least in this generation, because most people have kids late. It's like, wow, you have a kid. Maybe two people have kids. That's weird.
+[00:04:28] Norm: Everyone. But you're right. The the 10th high school reunion is the people have kids. At least in this generation, because most people have kids late. It's like, wow, you have a kid. Maybe two people have kids. That's weird.
 
 [00:04:28] Will: Yeah.
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:08:12] Will: You are back from tour.
 
-[00:08:13] Adam: Just got back from the tour. We did twenty-six shows in twenty-two cities in twenty-five days,
+[00:08:13] Adam: Just got back from the tour. We did 26 shows in 22 cities in 25 days,
 
 [00:08:18] Will: and we talked about this a little bit on an episode of " This Is Only a Test" a couple of weeks ago. From the basement of the Nokia Theater in Los Angeles, where they were doing a sound check above us,
 
@@ -282,7 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:08:37] Will: and it's just dressing rooms as far as the eye can
 
-[00:08:39] Adam: see. Yeah, of course, they it's an it seats almost six thousand people in that house, and when you consider that everyone who comes through with a big stadium type show comes through that theater in LA if they're not playing one of the ballparks, the dressing rooms can accommodate all manner of lots of different groups of famous people. So you can imagine American Idol back there; it's got to be pretty cool.
+[00:08:39] Adam: see. Yeah, of course, they it's an it seats almost 6,000 people in that house, and when you consider that everyone who comes through with a big stadium type show comes through that theater in LA if they're not playing one of the ballparks, the dressing rooms can accommodate all manner of lots of different groups of famous people. So you can imagine American Idol back there; it's got to be pretty cool.
 
 [00:09:01] Norm: right. You had a typical, very stark dressing room with a private bathroom, with a row of window or mirrors
 
@@ -314,9 +314,9 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:09:32] Adam: One of my favorite people.
 
-[00:09:33] Will: So okay, so it seems like also the kind of that theater that you could do like some sort of enormous benefit concert with like three hundred people appearing and all that kind of stuff too. And
+[00:09:33] Will: So okay, so it seems like also the kind of that theater that you could do like some sort of enormous benefit concert with like 300 people appearing and all that kind of stuff too. And
 
-[00:09:42] Adam: look, normally we were selling between two and three thousand tickets out on the tour, and to be honest, our sales at the Nokia weren't close to filling the joint. But the I forget this every time I perform there. That is, it's a terrific hall because even when it's not full, it feels full. Like, and that that's that's good theater design, and that's also good seating arrangement by the house itself. We stood there on stage, and it sounded and looked like we were playing to a full house.
+[00:09:42] Adam: look, normally we were selling between 2,000 and 3,000 tickets out on the tour, and to be honest, our sales at the Nokia weren't close to filling the joint. But the I forget this every time I perform there. That is, it's a terrific hall because even when it's not full, it feels full. Like, and that that's that's good theater design, and that's also good seating arrangement by the house itself. We stood there on stage, and it sounded and looked like we were playing to a full house.
 
 [00:10:11] Will: Well, we were sitting fairly back in the audience. It looked like a full house because they had spaced everybody out really, really nicely. They
 
@@ -450,7 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:17:23] Adam: Crowdsource the reveal of dinosaur skeletons.
 
-[00:17:27] Frank Ippolito: Oh, that would be so boring after about twenty minutes.
+[00:17:27] Frank Ippolito: Oh, that would be so boring after about 20 minutes.
 
 [00:17:30] Adam: Yeah. Oh, yeah,
 
@@ -516,7 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:19:15] Norm: of Sciences.
 
-[00:19:16] Adam: The Steinhart Aquarium and the Academy of Sciences has, I think, the second largest collection of fish specimens on the planet after the London Museum of Natural History. They've got over a million specimens coming out of San Francisco Bay, hand annotated from the 19th century.
+[00:19:16] Adam: The Steinhart Aquarium and the Academy of Sciences has, I think, the second largest collection of fish specimens on the planet after the London Museum of Natural History. They've got over 1 million specimens coming out of San Francisco Bay, hand annotated from the 19th century.
 
 [00:19:16] Frank Ippolito: Really?
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:21:41] Adam: So that it it moves and feels like an animal. It’s an actual thing. And then hot glue the feathers on because hot glue and feathers love each other like few things in the world. Yeah, that was that was one of my favorite days on the tour. The next day I didn't leave the bus all day because I was just spent.
 
-[00:21:55] Will: Any other any other high points? I mean, you're twenty six.
+[00:21:55] Will: Any other any other high points? I mean, you're 26.
 
 [00:21:58] Frank Ippolito: Wait, did you? Was that the first time seeing the the Kubrick stuff?
 
@@ -666,7 +666,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:24:53] Will: And you when you guys travel, it's the two buses, one for you, one for Jamie, and the crew splits between them.
 
-[00:24:59] Adam: Yeah, and then the buses are sectioned into three parts. There's a suite in the back. That's where Jamie or I sleep, and in the middle there's space for six bunks. And we had eleven crew on this, so we were almost totally full up. And in the front of each bus is a lounge, couches, couple of televisions running cable, and we have internet and cable dish. On the buses, so it was like we don't.
+[00:24:59] Adam: Yeah, and then the buses are sectioned into three parts. There's a suite in the back. That's where Jamie or I sleep, and in the middle there's space for six bunks. And we had 11 crew on this, so we were almost totally full up. And in the front of each bus is a lounge, couches, couple of televisions running cable, and we have internet and cable dish. On the buses, so it was like we don't.
 
 [00:25:19] Will: Oh, we shot tour. We shot a tour of your bus last year, not this year.
 
@@ -756,7 +756,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:29:27] Will: I have to imagine that it's really hard to be a dick to an eight-year-old.
 
-[00:29:31] Adam: There's none of that. There's none of that. This is, I've—what I've heard is that the network was really hard to sell on this show, which I totally understand because they're selling the men eighteen to forty-nine or whatever it is, thirty-four to fifty-nine or whatever, and kids don't necessarily plot into that demographic. This show is just my favorite show, my favorite reality show on TV right now.
+[00:29:31] Adam: There's none of that. There's none of that. This is, I've—what I've heard is that the network was really hard to sell on this show, which I totally understand because they're selling the men 18 to 49 or whatever it is, 34 to 59 or whatever, and kids don't necessarily plot into that demographic. This show is just my favorite show, my favorite reality show on TV right now.
 
 [00:29:54] Frank Ippolito: While I agree with your assessment of the show,
 
@@ -804,7 +804,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:32:35] Unknown speaker: You're smarter than me.
 
-[00:32:36] Adam: It doesn't matter what story they're going to cut with. They're they tend to, they tend to. Producers will tend to go for the easiest story they can see, yeah, because they've got a lot of stories to tell. Those, how many cameras? Sixteen, twenty cameras running constantly. They're editing thousands of hours of footage down to fifty minutes per week. Their job is tough. Oh yeah, so they're looking for the low hanging fruit. The trick is, if you're one of the contestants, you don't have to give them exactly what they're asking for. You can, but you'll be in better position if you give them something else that works.
+[00:32:36] Adam: It doesn't matter what story they're going to cut with. They're they tend to, they tend to. Producers will tend to go for the easiest story they can see, yeah, because they've got a lot of stories to tell. Those, how many cameras? 16, 20 cameras running constantly. They're editing thousands of hours of footage down to 50 minutes per week. Their job is tough. Oh yeah, so they're looking for the low hanging fruit. The trick is, if you're one of the contestants, you don't have to give them exactly what they're asking for. You can, but you'll be in better position if you give them something else that works.
 
 [00:33:06] Will: The thing that makes me crazy about competition reality.
 
@@ -866,7 +866,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:34:51] Adam: There were lots of Still Untitled listeners out there. I love hearing that. Thank you, guys, all of you listeners who approached me at meet and greets and out in public said you listen to Still Untitled. I appreciate it every single time. It's just awesome to hear.
 
-[00:35:04] Will: So there we go. We'll do another fifty episodes next year, I guess. Why not?
+[00:35:04] Will: So there we go. We'll do another 50 episodes next year, I guess. Why not?
 
 [00:35:07] Frank Ippolito: Absolutely. And I'll be continuing on Creature Geek.
 

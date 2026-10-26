@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:10:25] Janet Varney: Did you?
 
-[00:10:25] Adam: I mean, net loss of. Um, well, look, fist bump to be sure. If, but I, I, you know, look, I, I, I read your comments. I know that like there's a lot of people who indulge my liberal, bleeding heart tendencies, and I, I get you. I feel you. Um, I, I, I want people to know, like, I don't think that you're stupid if you voted for someone I disagree with. I think we all want, you know, a stable life for our kids and our families, and I, I really get that. All that being said, holy cow! What a beautiful room to be in. Eighteen thousand people, who most of whom had been working with Obama for, if not eight, then twelve or thirteen years.
+[00:10:25] Adam: I mean, net loss of. Um, well, look, fist bump to be sure. If, but I, I, you know, look, I, I, I read your comments. I know that like there's a lot of people who indulge my liberal, bleeding heart tendencies, and I, I get you. I feel you. Um, I, I, I want people to know, like, I don't think that you're stupid if you voted for someone I disagree with. I think we all want, you know, a stable life for our kids and our families, and I, I really get that. All that being said, holy cow! What a beautiful room to be in. 18,000 people, who most of whom had been working with Obama for, if not eight, then 12 or 13 years.
 
 [00:10:25] Janet Varney: Yeah,
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:12:54] Janet Varney: It's hard not to just want to talk about that all the time.
 
-[00:12:57] Adam: We we we use a line from Thirty Rock in my house. We go, no rat talk tonight, sweetie.
+[00:12:57] Adam: We we we use a line from 30 Rock in my house. We go, no rat talk tonight, sweetie.
 
 [00:13:02] Janet Varney: Yeah.
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:25:21] Janet Varney: Yeah.
 
-[00:25:21] Adam: February, Brain Candy. Um, I left the house two nights ago at 11 p.m. for a red eye to Chicago, to arrive at 5 a.m. Drive to Wisconsin. Wisconsin to this testing facility, shoot for all all day long, and then at five o'clock yesterday, got back in a car, went to Milwaukee, flew back through Texas, home twenty five hours, portalled door to door.
+[00:25:21] Adam: February, Brain Candy. Um, I left the house two nights ago at 11 p.m. for a red eye to Chicago, to arrive at 5 a.m. Drive to Wisconsin. Wisconsin to this testing facility, shoot for all all day long, and then at five o'clock yesterday, got back in a car, went to Milwaukee, flew back through Texas, home 25 hours, portalled door to door.
 
 [00:25:21] Will: Wow!
 
@@ -462,7 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:29:34] Janet Varney: I feel 35% of the time.
 
-[00:29:37] Adam: Yeah, and I'm just like, so I I go through some magical thinking. And I just keep on putting the card in. Oh yeah. I'm going to do this thirty times before I give up.
+[00:29:37] Adam: Yeah, and I'm just like, so I I go through some magical thinking. And I just keep on putting the card in. Oh yeah. I'm going to do this 30 times before I give up.
 
 [00:29:44] Janet Varney: At least as long as it would take me to go back downstairs and come back up.
 
@@ -474,7 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:30:05] Janet Varney: Just muttering to myself.
 
-[00:30:06] Adam: So dare I do it? I do like twenty times, and then the door opens.
+[00:30:06] Adam: So dare I do it? I do like 20 times, and then the door opens.
 
 [00:30:06] Will: Oh no.
 

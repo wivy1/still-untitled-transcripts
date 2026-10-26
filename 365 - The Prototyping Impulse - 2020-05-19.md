@@ -56,7 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:03:14] Will: that that and that works reasonably well with a child actively playing with them. So,
 
-[00:03:20] Adam: also thing thing two is is in San Francisco and has been for the last few few for the last two months. But he's been sequestering away from us, in a different house, and he just finished school. He just finished virtual school, and the school year finished. And I don't and whether he's going to go back is an open question. But I hired him today to start moving some stuff from here to storage, which is fascinating, right? Because it's like. I can't get within ten feet of him, but I can point to like thousand pounds of sand that I needed to get out of here, and he humped it all over there to storage, which is great.
+[00:03:20] Adam: also thing thing two is is in San Francisco and has been for the last few few for the last two months. But he's been sequestering away from us, in a different house, and he just finished school. He just finished virtual school, and the school year finished. And I don't and whether he's going to go back is an open question. But I hired him today to start moving some stuff from here to storage, which is fascinating, right? Because it's like. I can't get within 10 feet of him, but I can point to like 1,000 pounds of sand that I needed to get out of here, and he humped it all over there to storage, which is great.
 
 [00:03:59] Norm: Laser pointer?
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:05:55] Will: Yeah.
 
-[00:05:55] Adam: And then you bring your oil to fairly hot, like four hundred, I think. And if I remember correctly, it's like five minutes exactly in 400 degree oil makes the most perfect, soft inside, crispy outside sweet potato fries.
+[00:05:55] Adam: And then you bring your oil to fairly hot, like 400, I think. And if I remember correctly, it's like five minutes exactly in 400 degree oil makes the most perfect, soft inside, crispy outside sweet potato fries.
 
 [00:06:11] Will: So let's see. These you parboiled just to cook the potato, right? Get them a little fluffy. Then you you wanted to make sure you didn't do that so fast so far that they broke down. We got a little bit far on that because it's it's a little tricky.
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:07:35] Adam: Yeah,
 
-[00:07:35] Will: more than once or twice a week. So yeah, in that regard, did we we've been doing really well on groceries. And I was able to buy before King Arthur shut down online sales. I bought what as much flour as they would let us make, as let us buy, which was like twenty pound bags. So we're pretty good.
+[00:07:35] Will: more than once or twice a week. So yeah, in that regard, did we we've been doing really well on groceries. And I was able to buy before King Arthur shut down online sales. I bought what as much flour as they would let us make, as let us buy, which was like 20 pound bags. So we're pretty good.
 
 [00:07:51] Adam: There are some, I mean, a bunch of local mission places are turning into small general stores that are selling pallets of eggs and milk and flour.
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:08:09] Adam: I mean, I have an account at one.
 
-[00:08:10] Will: Well, yeah, and then and then you have the, but then you do have the problem of like, okay, I've got a thirty pound bag of flour. How do I store this once I take the three cups out I need for my bread today or whatever it is? So
+[00:08:10] Will: Well, yeah, and then and then you have the, but then you do have the problem of like, okay, I've got a 30 pound bag of flour. How do I store this once I take the three cups out I need for my bread today or whatever it is? So
 
 [00:08:21] Adam: we store Julia stores all of our flour in the freezer.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:16:39] Adam: The sunset, and you see everything reflected on his helmet, blew my freaking mind.
 
-[00:16:43] Norm: And the evolution of that technology—it's been used, you know, for past ten years in lots of ways. You know, the Tom Cruise movie * Oblivion*, where they had these cities above the clouds, and there was a ring, right? Um, they've used them in * Star Wars*.
+[00:16:43] Norm: And the evolution of that technology—it's been used, you know, for past 10 years in lots of ways. You know, the Tom Cruise movie * Oblivion*, where they had these cities above the clouds, and there was a ring, right? Um, they've used them in * Star Wars*.
 
 [00:16:57] Will: Well, that was motion control.
 

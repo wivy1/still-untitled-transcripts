@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:07:16] Adam: Yeah. So it's it's great that Wednesday was such a slow news day.
 
-[00:07:25] Will: Look, the thing I I want to say was Patton Oswalt, but it probably wasn't. Whoever came up with the remember when you woke up this morning that was three years ago thing. Right. Never been more true. Like the last ten days have been bananas for news. Um,
+[00:07:25] Will: Look, the thing I I want to say was Patton Oswalt, but it probably wasn't. Whoever came up with the remember when you woke up this morning that was three years ago thing. Right. Never been more true. Like the last 10 days have been bananas for news. Um,
 
 [00:07:38] Adam: my personal favorite. Hold on, I got to find this
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:09:31] Will: If only there was some way to find out.
 
-[00:09:32] Adam: So out of sight is ninety eight. Sex Sex Lies videotape is like nine ninety.
+[00:09:32] Adam: So out of sight is '98. Sex Sex Lies videotape is like nine ninety.
 
 [00:09:40] Will: I watched Sex Lies and Videotape. Like I don't know that I've ever actually seen Sex Lies and Videotape with dialogue, because I watched it on the on the satellite dish, and I think we. Like on the big satellite dish, you could get the picture at the time, but not the sound.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:10:23] Norm: after this. He did the special effects
 
-[00:10:25] Adam: after he did, and he can continue to do visual effects. But at one point in Brainstorm, it's about Natalie Wood. She's a designer, industrial designer, married to a scientist played by a very young Chris Walken, and she's having flashbacks to the life of their marriage at one point in the film. And there's this one point at which he's in their backyard, and there's this giant satellite dish back there, and it's literally like twenty feet in diameter. And he goes, " You can put flowers all around it. I don't know what you're so upset about." That is the worst Christopher Walken impression I know. I made it sound like Bernie Sanders.
+[00:10:25] Adam: after he did, and he can continue to do visual effects. But at one point in Brainstorm, it's about Natalie Wood. She's a designer, industrial designer, married to a scientist played by a very young Chris Walken, and she's having flashbacks to the life of their marriage at one point in the film. And there's this one point at which he's in their backyard, and there's this giant satellite dish back there, and it's literally like 20 feet in diameter. And he goes, " You can put flowers all around it. I don't know what you're so upset about." That is the worst Christopher Walken impression I know. I made it sound like Bernie Sanders.
 
 [00:11:00] Will: That was exceptionally bad.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:14:08] Adam: Oh, at the very end. Okay.
 
-[00:14:10] Will: They cleaned out the the sorry spoilers for a twenty year old movie. They cleaned out the casino
+[00:14:10] Will: They cleaned out the the sorry spoilers for a 20 year old movie. They cleaned out the casino
 
 [00:14:15] Adam: yeah
 
@@ -742,7 +742,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:25:39] Adam: I appreciate you sticking with it because I usually give up after two episodes.
 
-[00:25:42] Will: Well, they're like twenty minutes long, so it's a little bit easier. Because it's you know it's animated
+[00:25:42] Will: Well, they're like 20 minutes long, so it's a little bit easier. Because it's you know it's animated
 
 [00:25:46] Adam: still I'm merciless.
 
@@ -832,7 +832,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:29:37] Norm: Harrison Ford.
 
-[00:29:38] Will: Harrison Ford was like ninety years old when he was supposed to be playing somebody who was like eighteen.
+[00:29:38] Will: Harrison Ford was like 90 years old when he was supposed to be playing somebody who was like 18.
 
 [00:29:41] Adam: I'm sorry, I think it's a
 
@@ -1008,7 +1008,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:34:09] Adam: Yeah.
 
-[00:34:09] Will: For example, in literature, there's a list of books, and then there's a list of hundred of hundred best books. There's a list of hundred banned books. There's a list of actors. There's a list of actors by television.
+[00:34:09] Will: For example, in literature, there's a list of books, and then there's a list of 100 of 100 best books. There's a list of 100 banned books. There's a list of actors. There's a list of actors by television.
 
 [00:34:29] Adam: So this is a list of lists.
 

@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:06:47] Adam: Is that everything in it is possible? There are no. There's one leap that the plot of the book makes, and it's the flexibility of spacesuits. It posits that they're more flexible than they currently are, and that that problem has been solved. And they don't really talk about how, but we. I have no problem with that as a technological.
 
-[00:07:05] Will: You assume in the twenty or thirty years between now and when this happens, we will work out flexible spacesuits.
+[00:07:05] Will: You assume in the 20 or 30 years between now and when this happens, we will work out flexible spacesuits.
 
 [00:07:11] Norm: And JPL gets a really nice entrance gateway.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:09:56] Will: I have a hard copy.
 
-[00:09:56] Norm: It's coming today. 21 bucks.
+[00:09:56] Norm: It's coming today. $21.
 
 [00:09:58] Will: It's a big giant book.
 
@@ -222,7 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:10:39] Will: Yeah. Anyway, Diamond Age. It's it's right up there with the very best.
 
-[00:10:47] Norm: Excellent. Thirty one hours audio book.
+[00:10:47] Norm: Excellent. 31 hours audio book.
 
 [00:10:49] Adam: So plan accordingly. For one, welcome our new robot overlords. Is that your what you took away from DARPA?
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:11:32] Adam: It was an amazing success that actually Google stepped in and generated Google's autonomous car division based on the two winners of that DARPA challenge.
 
-[00:11:43] Will: Lots. So, so they do two sides. First, they offer a very large prize. It's like a two or three million dollar prize pool, depending on the challenge. But they also fund researchers at universities and and even private companies give issue grants to work to work toward these goals. So, the idea, I think, is that you get a lot of brains working on it on in different directions, and there's some that some people that rolled into this with like 12,000 dollar robots, some people that rolled into this with 2,000,000 dollar robots. Some people that loaned rolled into this with software that they'd written for loaner robots from Boston Dynamics,
+[00:11:43] Will: Lots. So, so they do two sides. First, they offer a very large prize. It's like a $2 million or $3 million prize pool, depending on the challenge. But they also fund researchers at universities and and even private companies give issue grants to work to work toward these goals. So, the idea, I think, is that you get a lot of brains working on it on in different directions, and there's some that some people that rolled into this with like $12,000 robots, some people that rolled into this with $2 million robots. Some people that loaned rolled into this with software that they'd written for loaner robots from Boston Dynamics,
 
 [00:12:13] Norm: right?
 
@@ -342,11 +342,11 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:16:52] Adam: So did did did you watch a lot of robots fall over?
 
-[00:16:54] Will: So the other, I was going to say, the other important thing about this is these aren't autonomous robots. They're not fully autonomous. Right, right, right. They're kind of most of them. It seemed like are remote controlled with limited autonomy. So instead of saying you know go to this door and open it, you say, okay, here's the handle. Here's here's where the door is. The door. Opens inward to the right. Right. The handles at three feet above. You know, you paint the handle with a mouse. Right. You reach out, grab it. You turn it down ninety degrees, rotate it down through ninety degrees, and then push. Right. And that opens the door. Um, so so they're kind of remote controlled, but kind of not. Like the the driver would maybe say, okay, here's where you should put your feet within within these constraints. Right. Does that look good to the software? And then the software would model it out and be like, I think we can do that. They'd say go, and then it would execute that series of actions. Right. Um, kind of like the way Curiosity and and like the Mars rovers work without the time lag of of sending light to Mars.
+[00:16:54] Will: So the other, I was going to say, the other important thing about this is these aren't autonomous robots. They're not fully autonomous. Right, right, right. They're kind of most of them. It seemed like are remote controlled with limited autonomy. So instead of saying you know go to this door and open it, you say, okay, here's the handle. Here's here's where the door is. The door. Opens inward to the right. Right. The handles at three feet above. You know, you paint the handle with a mouse. Right. You reach out, grab it. You turn it down 90 degrees, rotate it down through 90 degrees, and then push. Right. And that opens the door. Um, so so they're kind of remote controlled, but kind of not. Like the the driver would maybe say, okay, here's where you should put your feet within within these constraints. Right. Does that look good to the software? And then the software would model it out and be like, I think we can do that. They'd say go, and then it would execute that series of actions. Right. Um, kind of like the way Curiosity and and like the Mars rovers work without the time lag of of sending light to Mars.
 
 [00:17:49] Norm: Let's answer your question.
 
-[00:17:49] Will: So to answer your question, yes, lots of robots fell over. 2,000,000 dollars crunch like a tree. Ah. Um. They
+[00:17:49] Will: So to answer your question, yes, lots of robots fell over. $2 million crunch like a tree. Ah. Um. They
 
 [00:17:57] Adam: did anybody succeed at the challenge?
 
@@ -398,11 +398,11 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:20:05] Adam: fascinating
 
-[00:20:05] Will: right 2,000,000 dollars right on its side so. It was it was absolutely fascinating. There were a ton of other cool robots there as well. This was at the L.A. County Fairgrounds at Fairplex.
+[00:20:05] Will: right $2 million right on its side so. It was it was absolutely fascinating. There were a ton of other cool robots there as well. This was at the L.A. County Fairgrounds at Fairplex.
 
 [00:20:15] Adam: Oh, okay.
 
-[00:20:15] Will: And they had it's a racetrack among other things, and they had the four four identical courses set up in front of the grandstands for the racetrack, so you could kind of move back and forth. They would be running four robots through at any given time. Then they also kind of in the intermissions because each run took an hour. There was usually twenty or thirty minutes in between runs to move the old robot on and move the next robot, move the old robot off and move the next robot on. And they would bring things like Boston Dynamics Spot out to kind of just walk,
+[00:20:15] Will: And they had it's a racetrack among other things, and they had the four four identical courses set up in front of the grandstands for the racetrack, so you could kind of move back and forth. They would be running four robots through at any given time. Then they also kind of in the intermissions because each run took an hour. There was usually 20 or 30 minutes in between runs to move the old robot on and move the next robot, move the old robot off and move the next robot on. And they would bring things like Boston Dynamics Spot out to kind of just walk,
 
 [00:20:45] Adam: right?
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:20:51] Norm: Yeah. So it's like those cheetah robots that can run real fast there, and it's all in tradeoffs. Like they have really good you know motors and servos that can move their arms, but they there's not a lot of sensory feedback. They work only great on the terrain. It's the same thing with those YouTube videos. Like you wrote this thing for Wired. Saying like, don't trust a lot of these YouTube videos you watch.
 
-[00:21:10] Adam: Where you're watching one good take out of two hundred,
+[00:21:10] Adam: Where you're watching one good take out of 200,
 
 [00:21:12] Norm: exactly, and that's it's the same thing.
 
@@ -560,7 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:28:36] Adam: Right? Right.
 
-[00:28:36] Will: Yeah. It all comes out of the phones. It all started with the phones after you know forty years of of you know computing.
+[00:28:36] Will: Yeah. It all comes out of the phones. It all started with the phones after you know 40 years of of you know computing.
 
 [00:28:45] Adam: So when you went to at the end of the was it both days? Did you go Friday?
 

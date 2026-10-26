@@ -252,7 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:09:35] Norm: No, it was a Doctor Who companion, and and the cast of Arrow, and the Expanse, and Iron Fist, and they were all hanging out.
 
-[00:09:44] Adam: Yeah, worlds are colliding. A very sweet guy, a professional football player for the Atlanta Falcons, if I remember correctly, came up to me, and he was this giant professional athlete, man, mountain, and he was like, " I'm a professional athlete, but I am such a science fanboy, and I love your show, man." And he like grabbed my hand and his Giant hand, and we talked for a bit. He was super sweet, super awesome. He's been playing for the NFL for eleven seasons.
+[00:09:44] Adam: Yeah, worlds are colliding. A very sweet guy, a professional football player for the Atlanta Falcons, if I remember correctly, came up to me, and he was this giant professional athlete, man, mountain, and he was like, " I'm a professional athlete, but I am such a science fanboy, and I love your show, man." And he like grabbed my hand and his Giant hand, and we talked for a bit. He was super sweet, super awesome. He's been playing for the NFL for 11 seasons.
 
 [00:09:44] Norm: Oh my god!
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:15:03] Adam: and we all went to Cornwall, England. We stayed in St Ives and drove over to Terry's shop every morning for a week. Terry is, of course. You don't know this, but Terry English, master armorer, he's made armor for a bazillion movies, from the Harry Potter films and Excalibur, most famously for me. And Terry led us into a shop, and we filmed a whole bunch of videos about how to make armor, how Terry makes armor, the history of his creation, and then together he he let me assist him in making my all-time dream suit of armor.
 
-[00:15:44] Norm: It was the learning process. Anyone who's watched the video of you with Peter Lyon at Weta being almost apprentice for a day to make a sword, this was that over the span of ten days almost.
+[00:15:44] Norm: It was the learning process. Anyone who's watched the video of you with Peter Lyon at Weta being almost apprentice for a day to make a sword, this was that over the span of 10 days almost.
 
 [00:15:58] Adam: Yeah.
 
@@ -522,7 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:23:21] Adam: Sauron's armor was lovely.
 
-[00:23:23] Norm: Yes, that was originally hammered out of out of steel too. Yeah, when they did that almost twenty years ago.
+[00:23:23] Norm: Yes, that was originally hammered out of out of steel too. Yeah, when they did that almost 20 years ago.
 
 [00:23:28] Danica: I know they're going to start doing vinyl toys. So smart! It makes so much sense.
 
@@ -588,7 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:25:13] Adam: The cosplay and the the people, everyone walking around as superheroes and being kind of like drinking cokes and like complaining and moving straps and stuff. It's always the best.
 
-[00:25:23] Norm: Mm-hmm. Yeah, I have definitely some some my eyes on some of the toys, on the floor that I want to pick up. Oh yeah. Got to see the the one seventy two scale Millennium Falcon that Bandai is is releasing.
+[00:25:23] Norm: Mm-hmm. Yeah, I have definitely some some my eyes on some of the toys, on the floor that I want to pick up. Oh yeah. Got to see the the 1:72 scale Millennium Falcon that Bandai is is releasing.
 
 [00:25:23] Adam: Yes.
 
@@ -596,11 +596,11 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:25:38] Adam: that's the one that's
 
-[00:25:39] Norm: it's it's one seventy two so
+[00:25:39] Norm: it's it's 1:72 so
 
-[00:25:41] Adam: it's like twenty six twenty eight inches or something.
+[00:25:41] Adam: it's like 26 28 inches or something.
 
-[00:25:43] Norm: A little, it's still a little smaller than that. Like ah, it's like you know, yeah, a little maybe fourteen inches or so, fourteen fifteen sixteen inches.
+[00:25:43] Norm: A little, it's still a little smaller than that. Like ah, it's like you know, yeah, a little maybe 14 inches or so, 14 15 16 inches.
 
 [00:25:49] Adam: But I cannot wait to get my hands on that
 
@@ -634,7 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:26:15] Norm: And this year, their big display was going to be a sixth scale Enterprise D bridge.
 
-[00:26:42] Adam: I did hear about this. So a sixth scale Enterprise D bridge. That means it fits twelve inch figures.
+[00:26:42] Adam: I did hear about this. So a sixth scale Enterprise D bridge. That means it fits 12 inch figures.
 
 [00:26:48] Norm: Which they they made.
 
@@ -778,7 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:31:35] Danica: Harrison Ford in the new Blade Runner?
 
-[00:31:39] Adam: I can put on a T-shirt, but I can't wear it like Harrison can. Even at seventy-five, he is a damn virile, amazing man.
+[00:31:39] Adam: I can put on a T-shirt, but I can't wear it like Harrison can. Even at 75, he is a damn virile, amazing man.
 
 [00:31:46] Danica: Yes, indeed.
 
@@ -812,7 +812,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:32:38] Adam: Yeah, and the first one, you know, it's anchored by Andy Serkis's performance as Caesar. As Caesar becomes self aware, the second film much more about the apes. I think the apes are like 65% of the screen time, and you don't care. And the performances again, Judy Greer, Andy Serkis, a host of really great actors. Only playing apes, not appearing as themselves in the movie at all. This movie, it's official. I we have left the uncanny valley,
 
-[00:33:05] Norm: at least for these animals. There are scenes, and without going into the plotty, there are scenes and close-ups of the faces of Andy Serkis and Maurice, the orangutan, and the the emotion that you get out of them. Just camera held onto a face for ten seconds. It's unbelievable.
+[00:33:05] Norm: at least for these animals. There are scenes, and without going into the plotty, there are scenes and close-ups of the faces of Andy Serkis and Maurice, the orangutan, and the the emotion that you get out of them. Just camera held onto a face for 10 seconds. It's unbelievable.
 
 [00:33:23] Adam: Totally. You see the little hair and the sweat and the bokeh. And there's nothing wrong with these shots. There's nothing I can spot that's not this is a real entity being in front of me. Steve Zahn has an incredible turn in the Planet of the Apes movie as one of the apes, and it's it's an amazing performance. It really is incredible, and I met one of the other actors who played Winter, the white ape.
 
@@ -862,7 +862,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:36:32] Adam: in that kind of really lovely way in which the score worked with the action
 
-[00:36:46] Norm: and the cinematography. Yeah, I think Matt Reeves said they wanted to make it look like a western almost. They're they shot sixty five mil, and and they're like these the one shot in particular when they're riding on horseback along the water like at sunset.
+[00:36:46] Norm: and the cinematography. Yeah, I think Matt Reeves said they wanted to make it look like a western almost. They're they shot 65 mil, and and they're like these the one shot in particular when they're riding on horseback along the water like at sunset.
 
 [00:36:46] Adam: Yeah, yeah,
 

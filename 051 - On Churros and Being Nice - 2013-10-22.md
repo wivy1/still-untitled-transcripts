@@ -198,9 +198,9 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:05:52] Adam: the venerable hundred and some
 
-[00:05:54] Will: forty-four year old,
+[00:05:54] Will: 44 year old,
 
-[00:05:55] Adam: hundred and forty-four year old institution of Popular Science.
+[00:05:55] Adam: 144 year old institution of Popular Science.
 
 [00:05:58] Will: PopSci these days.
 
@@ -470,7 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:17:27] Adam: I don't.
 
-[00:17:28] Will: But but yeah, there's a problem on the technology side too. Comments are essentially unchanged over the last ten years technologically.
+[00:17:28] Will: But but yeah, there's a problem on the technology side too. Comments are essentially unchanged over the last 10 years technologically.
 
 [00:17:35] Adam: Right.
 
@@ -734,7 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:30:28] Will: So yeah, I guess that's
 
-[00:30:30] Adam: This, this is. I I think in the end that comments on the web are going to be something that in like ten years will be like well. Can you imagine? Remember what it used to be like. Like there will be a way in which this thing it doesn't get settled, but at least it gets understood, and perhaps the the right solutions become more universal.
+[00:30:30] Adam: This, this is. I I think in the end that comments on the web are going to be something that in like 10 years will be like well. Can you imagine? Remember what it used to be like. Like there will be a way in which this thing it doesn't get settled, but at least it gets understood, and perhaps the the right solutions become more universal.
 
 [00:30:50] Will: Well, and and just to be clear, if you want to go and have a horrible conversation with awful people, there will always be places to do that. Like that is, yes, that is a thing.
 

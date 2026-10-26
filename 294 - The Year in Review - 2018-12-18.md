@@ -116,7 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:07:06] Adam: Yep.
 
-[00:07:06] Norm: In the actual wood to the blimp, since Jason. Designed the kit, and of course, original blimp thirty odd years ago is what was made. What I loved about this one is that it has a lot of old technology.
+[00:07:06] Norm: In the actual wood to the blimp, since Jason. Designed the kit, and of course, original blimp 30 odd years ago is what was made. What I loved about this one is that it has a lot of old technology.
 
 [00:07:20] Kayte: Yes,
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:14:44] Unknown (Kayte or Norm): Wow!
 
-[00:14:44] Adam: It had so that weighed like eighteen or twenty pounds, and so that's it's a nice small base that will hold this thing really rigidly. But then as we were looking at it on that base, we realized you want to look at both sides of it. So this past Saturday, I came in and I. I hacked apart a vacuum cleaner's retractable plug, and used the brass slip rings. And I machined them into a poplar, a set of poplar boards that I machined into round that perfectly match the circumference of the steel plate. So that basically, it's a long way of saying now you plug it in with a single plug, and you can spin it 360 all you want. It stays powered.
+[00:14:44] Adam: It had so that weighed like 18 or 20 pounds, and so that's it's a nice small base that will hold this thing really rigidly. But then as we were looking at it on that base, we realized you want to look at both sides of it. So this past Saturday, I came in and I. I hacked apart a vacuum cleaner's retractable plug, and used the brass slip rings. And I machined them into a poplar, a set of poplar boards that I machined into round that perfectly match the circumference of the steel plate. So that basically, it's a long way of saying now you plug it in with a single plug, and you can spin it 360 all you want. It stays powered.
 
 [00:15:25] Kayte: And that's that's what's great too is because there are so many angles to it. Is it would it would be a shame if it was you know positioned in one place and you couldn't see the backside or you couldn't see here or there. So it's nice to be able to get a full view.
 
@@ -274,11 +274,11 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:19:44] Norm: Yep. And then and then went back to to chat with Peter Jackson about Mortal Engines. It's I mean, like I don’t think because I mean I don’t think I think I'm putting you in spot a little bit, but like going back, I think if you look at photos of the cave. At the beginning of the year, like these spacesuits weren't here.
 
-[00:19:57] Adam: No, no, it became a much. So I knew this at the beginning of eighteen that spacesuits were going to become more prominent because we're entering 2019, the fiftieth anniversary of Apollo 11. NASA is very near and dear to my heart. First man came out this year. Ryan Nagata and his incredible work are showcased in that film, as well as Chris Gilman from Global Effects, and I have some of their pieces here. We also went to three cons. We did Silicon Valley Comic Con, San Diego Comic Con, and New York Comic Con. All three really unique cons with different cultures. It's it it has been a terrific from a tested standpoint. It has been a terrific year on the politics front. It's been an absolute shit show. It's it's stressful for everyone. I don't care what side of the aisle you are on. It's been a stressful year for us. But like the making aspect of of of you know reaching out, encouraging people to make has felt really like it's been a great saturated year for that.
+[00:19:57] Adam: No, no, it became a much. So I knew this at the beginning of '18 that spacesuits were going to become more prominent because we're entering 2019, the 50th anniversary of Apollo 11. NASA is very near and dear to my heart. First man came out this year. Ryan Nagata and his incredible work are showcased in that film, as well as Chris Gilman from Global Effects, and I have some of their pieces here. We also went to three cons. We did Silicon Valley Comic Con, San Diego Comic Con, and New York Comic Con. All three really unique cons with different cultures. It's it it has been a terrific from a tested standpoint. It has been a terrific year on the politics front. It's been an absolute shit show. It's it's stressful for everyone. I don't care what side of the aisle you are on. It's been a stressful year for us. But like the making aspect of of of you know reaching out, encouraging people to make has felt really like it's been a great saturated year for that.
 
 [00:20:56] Norm: And meeting new people and you know building that community of of people that you can reach out to and collaborate with.
 
-[00:21:02] Adam: A Nation of Makers had held their first conference, NOMCon, in Santa Fe, New Mexico. I took the train with a bunch of my board members and friends down there. Jen Schachter supervised with We the Builders an incredible six foot tall Rosie the Riveter made of eighteen hundred parts from seven hundred makerspaces around the world. Jen and I are going to be doing more collaboration in the future on Tested and on other projects.
+[00:21:02] Adam: A Nation of Makers had held their first conference, NOMCon, in Santa Fe, New Mexico. I took the train with a bunch of my board members and friends down there. Jen Schachter supervised with We the Builders an incredible six foot tall Rosie the Riveter made of 1,800 parts from 700 makerspaces around the world. Jen and I are going to be doing more collaboration in the future on Tested and on other projects.
 
 [00:21:27] Adam: Yeah,
 
@@ -324,7 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:22:51] Kayte, then Adam: It's buy Kayte two presents. Don't be a cheapskate.
 
-[00:22:54] Kayte: And don't go out of town until the twenty third, because it's really hard to hang out with people. Like, oh, I'm going to get together for my birthday, and everybody's like, I'm on the East Coast.
+[00:22:54] Kayte: And don't go out of town until the 23rd, because it's really hard to hang out with people. Like, oh, I'm going to get together for my birthday, and everybody's like, I'm on the East Coast.
 
 [00:23:02] Kayte: I’m here,
 
@@ -352,7 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:23:50] Kayte: And then I think I did Maker Faire after that, Monsterpalooza after that, then San Diego Comic Con was a big shock, and then I even got to go to New York Comic Con as well. So I got to Go all over the place and really get immersed in in it. And being there with you guys was a great introduction. I mean, there's no better way.
 
-[00:24:08] Adam: No, it feels like our family, and each one feels like different aspects of our family. And we have relationships with the folks behind the scenes and in front of the cameras. It's it's. I've been going to cons now for eleven or twelve years, and in the last couple, it has started to feel just like family reunions at each one.
+[00:24:08] Adam: No, it feels like our family, and each one feels like different aspects of our family. And we have relationships with the folks behind the scenes and in front of the cameras. It's it's. I've been going to cons now for 11 or 12 years, and in the last couple, it has started to feel just like family reunions at each one.
 
 [00:24:29] Norm: Yeah, it doesn't even matter that you're not at the panels. You're not seeing all the things on the floor that you want to see, as long as you see the people.
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:27:05] Kayte: and this is their livelihood. So it's been really nice to be able to to buy the kits straight from these guys, put them together. Showcase it and help them get some more business as well.
 
-[00:27:15] Adam: Absolutely, some of these there's some beautiful things being made out there by people who are only making twenty or thirty of something.
+[00:27:15] Adam: Absolutely, some of these there's some beautiful things being made out there by people who are only making 20 or 30 of something.
 
 [00:27:22] Kayte: Yes,
 

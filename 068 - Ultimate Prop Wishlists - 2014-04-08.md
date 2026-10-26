@@ -58,7 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:00:41] Norm: It's on Netflix.
 
-[00:00:41] Will: Thirty years ago,
+[00:00:41] Will: 30 years ago,
 
 [00:00:42] Adam: you know, I actually sat my kids down the other night and played for them Carl Sagan's Pale Pale Blue Dot. Every sinner, every hopeful child, it's just magnificent. I, I never don't get chills.
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:14:24] Adam: Right.
 
-[00:14:24] Will: I think it would be cool to have a lightsaber, but not enough to go out and spend the you know hundred bucks, 200 bucks, whatever it is to to buy one or take the time to machine one.
+[00:14:24] Will: I think it would be cool to have a lightsaber, but not enough to go out and spend the you know $100, $200, whatever it is to to buy one or take the time to machine one.
 
 [00:14:24] Adam: Mm-hmm.
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:15:44] Adam: And if I do, I'll just give you the other one
 
-[00:15:51] Norm: because Playmates did sell them. Yeah, 25 bucks. Yes, I'll buy one.
+[00:15:51] Norm: because Playmates did sell them. Yeah, $25. Yes, I'll buy one.
 
 [00:15:55] Adam: They're functionally they look great and they make great sounds, but the lights are shit.
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:16:12] Norm: The costume.
 
-[00:16:12] Will: just to be clear, hold on, you already have a DL forty four, which is one of
+[00:16:12] Will: just to be clear, hold on, you already have a DL-44, which is one of
 
 [00:16:17] Norm: yes,
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:18:54] Adam: and it originated at the Boston Museum of Science in Boston, which means it's probably really well written. That's a phenomenal museum,
 
-[00:18:59] Norm: and it’s done the international tour. And in San Jose, it was a final stop, the twentieth stop.
+[00:18:59] Norm: and it’s done the international tour. And in San Jose, it was a final stop, the 20th stop.
 
 [00:18:59] Adam: Oh,
 
@@ -684,13 +684,13 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:21:01] Adam: You can buy a three-foot Millennium Falcon. Master replicas made one, and they're really expensive now. Like they become. I, I bought one and I traded it for my Stormtrooper costume years ago. So the problem with the three-foot Millennium Falcon that Master Replicas made was that it was made in like plaster, so it weighed a freaking ton.
 
-[00:21:01] Norm: Oh, that had to be fifty or sixty pounds.
+[00:21:01] Norm: Oh, that had to be 50 or 60 pounds.
 
 [00:21:01] Adam: Oh, that made me so mad when I got it, and it’s the painting job was was genuinely terrible.
 
 [00:21:01] Norm: so you couldn’t pick it up and go. Rrrrr.
 
-[00:21:01] Adam: Well, even it weighed, yeah, weighed like twenty pounds.
+[00:21:01] Adam: Well, even it weighed, yeah, weighed like 20 pounds.
 
 [00:21:37] Will: Even if the paint job was great and it was plaster, it's not going to age well, right?
 
@@ -700,7 +700,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:21:41] Adam: and the Enterprise D is that is that they droop, and you can’t to build tooling to mold a three foot Millennium Falcon is hundreds of thousands of dollars, It's really crazy expensive.
 
-[00:22:05] Will: And They'll sell what five thousand of them at most.
+[00:22:05] Will: And They'll sell what 5,000 of them at most.
 
 [00:22:06] Unknown speaker: Right.
 
@@ -720,7 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:23:03] Norm: Wow,
 
-[00:23:03] Adam: that has been figured out. Every nut, every bolt, every wheel rim, every everything. And if you purchased all of the hundred and thirty some odd kits that it came from, you'd spend something like seven or eight thousand dollars. It's ridiculous. And some people have made castings of stuff, and on the RPF parts lots show up from time to time. Like you know, I managed to get the Porsche transmission that is on both the right and left side of the loading mandibles for the Falcon and stuff like that. But I am not going for a perfect fidelity to the three-foot shooting model, because the three-foot shooting model does not have a perfect fidelity to the six-foot shooting model. Does not have a perfect fidelity to the two-foot, one-foot. At ILM, when you had to do this, you'd get the major details right, and you'd fill the other stuff in because nobody's really paying that close attention.
+[00:23:03] Adam: that has been figured out. Every nut, every bolt, every wheel rim, every everything. And if you purchased all of the 130 some odd kits that it came from, you'd spend something like $7,000 or $8,000. It's ridiculous. And some people have made castings of stuff, and on the RPF parts lots show up from time to time. Like you know, I managed to get the Porsche transmission that is on both the right and left side of the loading mandibles for the Falcon and stuff like that. But I am not going for a perfect fidelity to the three-foot shooting model, because the three-foot shooting model does not have a perfect fidelity to the six-foot shooting model. Does not have a perfect fidelity to the two-foot, one-foot. At ILM, when you had to do this, you'd get the major details right, and you'd fill the other stuff in because nobody's really paying that close attention.
 
 [00:23:03] Norm: Well,
 
@@ -782,7 +782,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:25:46] Will: I mean, I assume
 
-[00:25:46] Adam: there are there are enough about where, but ten years ago you could have picked up an Enigma for about 20,000 dollars.
+[00:25:46] Adam: there are there are enough about where, but 10 years ago you could have picked up an Enigma for about $20,000.
 
 [00:25:46] Will: That that actually seems like a it’s expensive
 
@@ -794,7 +794,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:25:46] Will: Oh yeah,
 
-[00:25:46] Adam: and then just more interest in that kind of old stuff. They’re they’re more now. I’d say more in the twenty five to thirty five thousand dollars range now. You know, never say never. I might pick find one in a thrift store in Vale someday. Who knows? So that’s objects, right? Like old cray.
+[00:25:46] Adam: and then just more interest in that kind of old stuff. They’re they’re more now. I’d say more in the $25,000 to $35,000 range now. You know, never say never. I might pick find one in a thrift store in Vale someday. Who knows? So that’s objects, right? Like old cray.
 
 [00:25:46] Norm: And old—
 
@@ -818,7 +818,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:26:56] Adam: Absolutely,
 
-[00:26:56] Will: I want a jetpack. Then, if that's what we're talking about, I want one of the jetpacks that's killed say three out of every ten people that used it. That sounds awesome. Like if you, I wanted something that's slightly more dangerous than a motorcycle. You could technically only ride it
+[00:26:56] Will: I want a jetpack. Then, if that's what we're talking about, I want one of the jetpacks that's killed say three out of every 10 people that used it. That sounds awesome. Like if you, I wanted something that's slightly more dangerous than a motorcycle. You could technically only ride it
 
 [00:26:56] Adam: Seven times.
 
@@ -934,7 +934,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:31:32] Adam: I love those too, and that is something I plan to add to my collection.
 
-[00:31:36] Will: Yeah, I got to imagine there are a lot of those that they made. Lots of those over the fifteen twenty years that they used them.
+[00:31:36] Will: Yeah, I got to imagine there are a lot of those that they made. Lots of those over the 15 20 years that they used them.
 
 [00:31:36] Adam: Well, I don't think I’m going to buy one.
 
@@ -988,7 +988,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:32:29] Adam: archive what these original constructions were like.
 
-[00:33:10] Will: Because I mean, one of the things NASA is really good about, you know, they they took a lot of film on the on the moon and on the early early NASA missions, and they still haven't developed some of it. Some of it's still sitting undeveloped because they're like, oh, we'll be better at this twenty years from now. Who knows?
+[00:33:10] Will: Because I mean, one of the things NASA is really good about, you know, they they took a lot of film on the on the moon and on the early early NASA missions, and they still haven't developed some of it. Some of it's still sitting undeveloped because they're like, oh, we'll be better at this 20 years from now. Who knows?
 
 [00:33:23] Adam: Exactly. Exactly.
 

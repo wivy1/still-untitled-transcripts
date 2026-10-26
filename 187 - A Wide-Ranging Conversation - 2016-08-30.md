@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=nHAUfyQf7jU
 
 [00:05:10] Simone: Shitty robots. Not I. I Google translated a headline on a Spanish article, and it said " Simone Giertz builds robot of shit." They're not made of shit. They're shitty robots. But I mean, because you have this like whole thought process around it, and this very like good way to to to to talk about what you do. This beautiful way of talking about what you do. Do you feel that that's like telling the story of what you do is a big part of your artistry, or is it mainly the art itself?
 
-[00:05:39] Tom: Well, make no mistake. My priority is making sculpture, and I will use whatever I have to get that job done. There's that. There's that line. You got to use what you got to get what you want. It's about shaking it, and I my the thing that saved sculpture saved my life. I was a I had a very troubled youth, and I discovered sculpture in my early twenties, and I had an instant success. I mean, it was a dozen years before I ever had an exhibition or my work left my studio, but I had an instant sense of self success.
+[00:05:39] Tom: Well, make no mistake. My priority is making sculpture, and I will use whatever I have to get that job done. There's that. There's that line. You got to use what you got to get what you want. It's about shaking it, and I my the thing that saved sculpture saved my life. I was a I had a very troubled youth, and I discovered sculpture in my early 20s, and I had an instant success. I mean, it was a dozen years before I ever had an exhibition or my work left my studio, but I had an instant sense of self success.
 
 [00:05:39] Unknown speaker: You knew that this was supposed to be doing.
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=nHAUfyQf7jU
 
 [00:09:13] Simone: mentally.
 
-[00:09:14] Tom: Yeah, and also I've done a lot of astronaut training, and and I still kind of keep up with it. Like things like, I well, I stopped with this with the underwater pressure stuff, but I still do alpine mountaineering, and that's pretty much the exact same thing thing in terms of like preparation, training, and technical risk, all that stuff. It's about as dangerous. Um, and uh, I don't as much as I do it. I don't think I I love it. And um, to quote Adam Steltzner, um, the most dangerous place on Earth is ten times safer than the most friendly place on Mars, and the Earth is like a big warm wet kiss, and I want to explore. Earth before going.
+[00:09:14] Tom: Yeah, and also I've done a lot of astronaut training, and and I still kind of keep up with it. Like things like, I well, I stopped with this with the underwater pressure stuff, but I still do alpine mountaineering, and that's pretty much the exact same thing thing in terms of like preparation, training, and technical risk, all that stuff. It's about as dangerous. Um, and uh, I don't as much as I do it. I don't think I I love it. And um, to quote Adam Steltzner, um, the most dangerous place on Earth is 10 times safer than the most friendly place on Mars, and the Earth is like a big warm wet kiss, and I want to explore. Earth before going.
 
 [00:10:05] Will: Okay,
 
@@ -190,11 +190,11 @@ Episode URL: https://www.youtube.com/watch?v=nHAUfyQf7jU
 
 [00:13:21] Tom: [unclear: Been working on it / Been working on it for a couple of years].
 
-[00:13:21] Will: Well, but the the sorting screws. You talked about something. You bring people. So you have a fairly large studio in New York, where you have what fifteen or twenty people working at any time.
+[00:13:21] Will: Well, but the the sorting screws. You talked about something. You bring people. So you have a fairly large studio in New York, where you have what 15 or 20 people working at any time.
 
-[00:13:38] Tom: Thirteen,
+[00:13:38] Tom: 13,
 
-[00:13:38] Will: thirteen, okay. And and you said that you bring people into the studio, and I can't. This might not have even made the final cut. We might have taken it out. I can't remember, but you said you bring people into the studio. You take their ADD medicine, and then you give them incredibly tedious tasks to help them learn how to focus and and and find inner peace with with like the kind of repetitive work that most of us don't do anymore.
+[00:13:38] Will: 13, okay. And and you said that you bring people into the studio, and I can't. This might not have even made the final cut. We might have taken it out. I can't remember, but you said you bring people into the studio. You take their ADD medicine, and then you give them incredibly tedious tasks to help them learn how to focus and and and find inner peace with with like the kind of repetitive work that most of us don't do anymore.
 
 [00:14:01] Tom: Right there is a there is this there is this quality of the work we call tedium, where we do these unbelievably tedious tasks, but at a pretty high level. It's like um, it's almost like making the Torah like you cannot make a mistake. So we build it in sections. So you throw the whole section out if it doesn't work, but that section might take a week, but it doesn't take a year. So you only lose a week's worth of work, not a year's worth of work, and a week's worth of work is a lot.
 
@@ -216,7 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=nHAUfyQf7jU
 
 [00:15:15] Simone: Are you going to be on Adderall on the date of your exhibition or exhibit? Well,
 
-[00:15:19] Tom: there is a marathon demo that's very long. It's, I think, in New York, it was eleven hours. We're trying to figure out a way to make it five, and in the middle of that, there is this thing called the indoctrination ritual, where we all gather around and we mix Adderall with Kool Aid, and we recite the Mentat prayer.
+[00:15:19] Tom: there is a marathon demo that's very long. It's, I think, in New York, it was 11 hours. We're trying to figure out a way to make it five, and in the middle of that, there is this thing called the indoctrination ritual, where we all gather around and we mix Adderall with Kool Aid, and we recite the Mentat prayer.
 
 [00:15:41] Simone: You have people drink the Kool Aid.
 

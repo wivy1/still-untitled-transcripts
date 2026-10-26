@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:02:38] Adam: Unbelievable!
 
-[00:02:38] Greg: So I've been working there for about seventeen years. I did concept design for a bunch of different things. District Nine is probably the most notable one that I most.
+[00:02:38] Greg: So I've been working there for about 17 years. I did concept design for a bunch of different things. District Nine is probably the most notable one that I most.
 
 [00:03:20] Adam: That was the movie where I looked up the design and and found you and became your fan.
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:10:59] Adam: Oh, Norm was using mine for Christmas.
 
-[00:11:01] Will: Yeah, I did. I had a project where we were doing some. It doesn't matter. Anyway, I had one at home, and we had a Christmas tree in what is a ten by fourteen foot room with a bunch of furniture, and there were. I have a six-year-old, so there's toys all over the place. The dog's bed is in the middle of the room. Like it is a nightmare.
+[00:11:01] Will: Yeah, I did. I had a project where we were doing some. It doesn't matter. Anyway, I had one at home, and we had a Christmas tree in what is a 10 by 14 foot room with a bunch of furniture, and there were. I have a six-year-old, so there's toys all over the place. The dog's bed is in the middle of the room. Like it is a nightmare.
 
 [00:11:01] Greg: Yeah.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:15:56] Adam: And so you keep on going back to China to do these giant Doctor Grordbort exhibits.
 
-[00:16:26] Greg: Yeah. So yeah, I've been making that world for so long and painting so many pictures, making sculptures and so on that we have a colossal exhibition of it. Like it actually fills, um, it fills multiple rooms. The last time we went to went there, we went to Wuzhen in Shanghai, and I think we had five or six rooms. One room was massive, easily bigger than this entire space. Like, yeah. And that was just the boardroom with paintings on the walls, mounted Venusian heads on the wall, and a massive boardroom table with like dioramas of Venus and like battle plans and all this kind of stuff. And you went through, you walk from there through a through a bookshelf that moves back when you get close to it. And now you're in the weapons room. It's like a lab where all the ray guns are. So we have, I think I've designed twenty odd ray guns, and so they're all in there as well as all the diagrams and paintings for them. And then you move from there into the Hall of Heroes. We had all these sculptures of characters, kind of heroic characters as well as their portraits. And from there into a natural history museum of Venus, so sort of inspired by the the London Natural History Museum. Yeah. Yeah. So yeah, it's it's massive, and it's yeah.
+[00:16:26] Greg: Yeah. So yeah, I've been making that world for so long and painting so many pictures, making sculptures and so on that we have a colossal exhibition of it. Like it actually fills, um, it fills multiple rooms. The last time we went to went there, we went to Wuzhen in Shanghai, and I think we had five or six rooms. One room was massive, easily bigger than this entire space. Like, yeah. And that was just the boardroom with paintings on the walls, mounted Venusian heads on the wall, and a massive boardroom table with like dioramas of Venus and like battle plans and all this kind of stuff. And you went through, you walk from there through a through a bookshelf that moves back when you get close to it. And now you're in the weapons room. It's like a lab where all the ray guns are. So we have, I think I've designed 20 odd ray guns, and so they're all in there as well as all the diagrams and paintings for them. And then you move from there into the Hall of Heroes. We had all these sculptures of characters, kind of heroic characters as well as their portraits. And from there into a natural history museum of Venus, so sort of inspired by the the London Natural History Museum. Yeah. Yeah. So yeah, it's it's massive, and it's yeah.
 
 [00:17:32] Adam: Do you have a skeleton hanging from the ceiling in there?
 
@@ -382,19 +382,19 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:23:04] Will: Yeah.
 
-[00:23:04] Adam: and it will know the game I was playing ten months ago, but whatever I was listening to this morning is a mystery to iTunes. And I did the eight tweet, seven tweet thing. Anyway, we got we got a call from like their concierge service, like we can help you with your.
+[00:23:04] Adam: and it will know the game I was playing 10 months ago, but whatever I was listening to this morning is a mystery to iTunes. And I did the eight tweet, seven tweet thing. Anyway, we got we got a call from like their concierge service, like we can help you with your.
 
 [00:23:31] Will: Oh, the famous people help.
 
 [00:23:32] Adam: And I'm like, that's not the help that I want. I want you to rewrite the software.
 
-[00:23:38] Will: From scratch. Couldn't they just roll it back like a hundred versions or something? I think would.
+[00:23:38] Will: From scratch. Couldn't they just roll it back like 100 versions or something? I think would.
 
 [00:23:42] Will: Wouldn't that be a solution?
 
 [00:23:44] Will: Well, but the thing where you get in the car.
 
-[00:23:44] Will: today, I'm like, grinds my gears. The thing where you get in the car and it just starts playing a random song that you haven't listened to in fifteen years.
+[00:23:44] Will: today, I'm like, grinds my gears. The thing where you get in the car and it just starts playing a random song that you haven't listened to in 15 years.
 
 [00:23:54] Adam: For Julia, for my wife, it's always the specific Michael Giacchino tune from Star Trek. She has no idea why it's the default. I'm just going to play.
 
@@ -492,7 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:30:01] Will: and if you don't know what family meal is, it's the end of service. Usually, people sit down and and make a meal for themselves. They sit down, they you know either new dishes that people are working on, or they they try different things or whatever. Anyway, so just for people at home. So what's what is is this the same? Is this a conceptual?
 
-[00:30:18] Greg: So our all hands, I end up we do them on a Friday. We actually knock off at about 4:30, and we get together and we talk with everyone. We drink a lot of beers and we eat a lot of chips, and it's a chance for us to share. We know what's happening with the studio because communication is everything, right? Like that's really what most companies ever studios cultures ever complain about is like the lack of communication. So it's a chance for us weekly to say, hey, these are the things that have been happening, and also a chance for everyone to come together and show something. So we have the awesomeness review where people can put in like a little video about the code that they've been developing, the tool that they've been building, the art, showing the animation, and we show it all off. And it's great. It's a really wonderful sharing thing. So. It's not actually a normal thing to do at a workshop. at Weta Workshop, Richard will do like a address to a lot of the team a little bit less often. But Richard is actually the great thing with communication. There is that Richard is on the floor all the time, walking around, and it's a very communicative place. But for us, this is just as part of Weta Gameshop, and so our all hands is really like that chance to get together and share all the information. Because, like I say, you just want to create more opportunities for that. If you're a creative team, and we're about fifty odd in our team at the moment, you're just trying to create as many opportunities as possible for people to talk.
+[00:30:18] Greg: So our all hands, I end up we do them on a Friday. We actually knock off at about 4:30, and we get together and we talk with everyone. We drink a lot of beers and we eat a lot of chips, and it's a chance for us to share. We know what's happening with the studio because communication is everything, right? Like that's really what most companies ever studios cultures ever complain about is like the lack of communication. So it's a chance for us weekly to say, hey, these are the things that have been happening, and also a chance for everyone to come together and show something. So we have the awesomeness review where people can put in like a little video about the code that they've been developing, the tool that they've been building, the art, showing the animation, and we show it all off. And it's great. It's a really wonderful sharing thing. So. It's not actually a normal thing to do at a workshop. at Weta Workshop, Richard will do like a address to a lot of the team a little bit less often. But Richard is actually the great thing with communication. There is that Richard is on the floor all the time, walking around, and it's a very communicative place. But for us, this is just as part of Weta Gameshop, and so our all hands is really like that chance to get together and share all the information. Because, like I say, you just want to create more opportunities for that. If you're a creative team, and we're about 50 odd in our team at the moment, you're just trying to create as many opportunities as possible for people to talk.
 
 [00:31:26] Adam: I really, I really respect and love how how proud the team is of their work and how much they love the work. It's something that's like whenever you introduce me to someone and say he did that part that you told me that you liked, and we start talking about it, it's always like an iceberg, right? There's so much depth below the thing and getting to it and describing it and hearing about it. It's just it's thrilling.
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:34:02] Greg: Chips. fush and chups,
 
-[00:34:02] Adam: fush and chups, and we ended up. We drove the forty-five minutes up to his farm and back on a random Thursday afternoon, and just had the loveliest conversation in the middle of the day, outside of rush hour. Just
+[00:34:02] Adam: fush and chups, and we ended up. We drove the 45 minutes up to his farm and back on a random Thursday afternoon, and just had the loveliest conversation in the middle of the day, outside of rush hour. Just
 
 [00:34:14] Greg: yeah, that's [unclear: Richard Wayne / Richard’s point].
 

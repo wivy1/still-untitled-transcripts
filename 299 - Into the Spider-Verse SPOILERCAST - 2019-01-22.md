@@ -60,7 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:01:20] Adam: 452735 at Hotmail.
 
-[00:01:21] Norm: Every time you guys say it, [unclear: it’s forty twenty / I need to / it’s 420]. Edit that out. [unclear: Sixty nine / 16]. Will, you got to stop right now.
+[00:01:21] Norm: Every time you guys say it, [unclear: it’s 40 20 / I need to / it’s 420]. Edit that out. [unclear: 69 / 16]. Will, you got to stop right now.
 
 [00:01:28] Will: Just we've just ruined Norm's day. Okay.
 
@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:01:31] Adam: Welcome, Ben. You want to start over?
 
-[00:01:33] Will: Let's do so. Norm doesn't have to edit it thirty-five times.
+[00:01:33] Will: Let's do so. Norm doesn't have to edit it 35 times.
 
 [00:01:35] Norm: It's more funny if we leave it in.
 
@@ -154,9 +154,9 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:04:09] Ben: I don't. I don't ask you to rank your friends. I am your best friend.
 
-[00:04:14] Norm: You know you got twelve in your top ten, right?
+[00:04:14] Norm: You know you got 12 in your top 10, right?
 
-[00:04:16] Adam: Yeah, exactly. There is at least thirty movies in my top five.
+[00:04:16] Adam: Yeah, exactly. There is at least 30 movies in my top five.
 
 [00:04:19] Ben: Fair.
 
@@ -322,9 +322,9 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:09:23] Ben: That's the very specific content people are after. Tell me a story about a building you shot a gun in, and then talk about a movie.
 
-[00:09:30] Will: Ben, what we didn't tell you was that today we're actually going to rank all twenty Marvel Universe movies in order, one to twenty. We're going to pick the best one, and we're going to pick the worst, and all the ones in between in order.
+[00:09:30] Will: Ben, what we didn't tell you was that today we're actually going to rank all 20 Marvel Universe movies in order, 1 to 20. We're going to pick the best one, and we're going to pick the worst, and all the ones in between in order.
 
-[00:09:42] Will: So I hope you're ready for the next sixteen hours.
+[00:09:42] Will: So I hope you're ready for the next 16 hours.
 
 [00:09:44] Ben: Argument settler.
 
@@ -588,11 +588,11 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:18:52] Ben: How did? It's Miller and Lord, right?
 
-[00:18:53] Will: Well, yeah, but still, I mean, they—they're the twenty 21 Jump Street.
+[00:18:53] Will: Well, yeah, but still, I mean, they—they're the 20 21 Jump Street.
 
 [00:18:56] Norm: I think it's because it's animated. Because they feel like with animation, the risk is lower.
 
-[00:19:00] Will: But but then they came back and had to ask for more money at the end, and the whole thing like it's it seemed like a project that would have been killed ten different times along the way.
+[00:19:00] Will: But but then they came back and had to ask for more money at the end, and the whole thing like it's it seemed like a project that would have been killed 10 different times along the way.
 
 [00:19:07] Adam: It's so novel. It feels so novel. It feels surprising that it got past studio notes.
 
@@ -1050,7 +1050,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:36:20] Adam: Doctor Wave.
 
-[00:36:20] Will: Yeah, they're missing one. Yes, Doctor Wave. Sorry, they. He told me about the time a friend of his was like, " Hey, you need to go see this movie, Akira. It's a 2,000,000,000 dollar live action movie that's animated." And that was the feeling I had walking out of this movie. Like this movie, this movie is a movie that is going to change the way people approach animation, just because of the the way it's astounding how it was shot.
+[00:36:20] Will: Yeah, they're missing one. Yes, Doctor Wave. Sorry, they. He told me about the time a friend of his was like, " Hey, you need to go see this movie, Akira. It's a $2 billion live action movie that's animated." And that was the feeling I had walking out of this movie. Like this movie, this movie is a movie that is going to change the way people approach animation, just because of the the way it's astounding how it was shot.
 
 [00:36:40] Ben: Didn't they invent new form, like do ways to animate? Didn't they like patent?
 
@@ -1118,7 +1118,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:38:04] Norm: Uh oh. What I mean, there's so much to talk about potentially.
 
-[00:38:09] Will: I really wish I had seen this less than a month ago. I can't remember. I remember walking out thinking, " Oh God, there's like twenty things I want to talk about."
+[00:38:09] Will: I really wish I had seen this less than a month ago. I can't remember. I remember walking out thinking, " Oh God, there's like 20 things I want to talk about."
 
 [00:38:15] Adam: Um.
 
@@ -1156,7 +1156,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:38:35] Adam: Yeah. And it's got like
 
-[00:38:52] Adam: eighty-eight
+[00:38:52] Adam: 88
 
 [00:38:53] Adam: percent on Rotten Tomatoes.
 

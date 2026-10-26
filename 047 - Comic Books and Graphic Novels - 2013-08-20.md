@@ -12,7 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:00:05] Adam: We're getting really good at that.
 
-[00:00:06] Will: It's it's almost like we've done it sixty or seventy times right now. I wonder how many. I I don't number these episodes, so I have no idea how many we've done.
+[00:00:06] Will: It's it's almost like we've done it 60 or 70 times right now. I wonder how many. I I don't number these episodes, so I have no idea how many we've done.
 
 [00:00:13] Adam: Somebody knows,
 
@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:01:07] Norm: they could spot the names like Vader, Vader. Tell me about that. We'll tell them about that some other time.
 
-[00:01:14] Adam: Yeah, we should go on a tour of the costumes at some point. So this is part of a. Yeah, I I had pieces of costumes all over the place, just drifting here and there, and I didn't have a centralized way to store them. I had a clothing rack upstairs, but you know it rapidly gets filled, and then stuff falls through the cracks because a lot of costumes have props. Where do those props go? So that's me buying a bunch of nice, robust wardrobes with clear fronts on Amazon for about ten bucks a piece. I bought two cases of them, and I've been slowly just every time I find a costume part, I get on a ladder and throw it in the place that it goes. And eventually, my goal is to archive all of it and actually serial number it and and note that what's in the collection. I have custom clothing labels I had printed up. Of the Adam Savage costume collection, with a space for a number and the item itemization, and then pictures of it, because you know I meticulously gathered that my V for Vendetta costume has a bunch of parts, and they're all super accurate. Many of them from the actual film, and so I want to. I'm the only one that knows what parts came from the real place and what parts are replicas.
+[00:01:14] Adam: Yeah, we should go on a tour of the costumes at some point. So this is part of a. Yeah, I I had pieces of costumes all over the place, just drifting here and there, and I didn't have a centralized way to store them. I had a clothing rack upstairs, but you know it rapidly gets filled, and then stuff falls through the cracks because a lot of costumes have props. Where do those props go? So that's me buying a bunch of nice, robust wardrobes with clear fronts on Amazon for about $10 a piece. I bought two cases of them, and I've been slowly just every time I find a costume part, I get on a ladder and throw it in the place that it goes. And eventually, my goal is to archive all of it and actually serial number it and and note that what's in the collection. I have custom clothing labels I had printed up. Of the Adam Savage costume collection, with a space for a number and the item itemization, and then pictures of it, because you know I meticulously gathered that my V for Vendetta costume has a bunch of parts, and they're all super accurate. Many of them from the actual film, and so I want to. I'm the only one that knows what parts came from the real place and what parts are replicas.
 
 [00:02:25] Norm: It's one of those things. The other cosplayers, some people assemble their costumes and sew everything, but I've always wanted to see like a like an exhibit.
 
@@ -72,13 +72,13 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:03:10] Will: So the first thing we have to do is make a bunch of mannequins.
 
-[00:03:11] Adam: Well, so then I bought some of these cheap poseable mannequins, and the guy who makes them, it's they're fine, but they don't really hold up a costume. So my V for Vendetta is sitting on an expensive cloth poseable mannequin, which is more than I want to spend. To buy, I mean, they're like seven or eight hundred bucks a piece.
+[00:03:11] Adam: Well, so then I bought some of these cheap poseable mannequins, and the guy who makes them, it's they're fine, but they don't really hold up a costume. So my V for Vendetta is sitting on an expensive cloth poseable mannequin, which is more than I want to spend. To buy, I mean, they're like $700 or $800 a piece.
 
 [00:03:29] Will: That's a lot.
 
 [00:03:30] Adam: That's a lot. I'm I'm not going to buy a whole. bunch of these.
 
-[00:03:32] Will: I mean, for 700 bucks, I'll just put the costume on and stand there.
+[00:03:32] Will: I mean, for $700, I'll just put the costume on and stand there.
 
 [00:03:35] Adam: But I would really like more costumes standing here, and I I I think I'm going to take one of the poseables and hang the Rocketeer in full backpack mode here
 
@@ -198,7 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:07:56] Will: Yeah.
 
-[00:07:57] Adam: Sorry. Um. Yeah, I too. I you know I read some of the horror comics that you could get back in the '70s, and you know had that kind of stuff. But it wasn't until I was eighteen, living in New York, and my best friend David introduced me to The Dark Knight.
+[00:07:57] Adam: Sorry. Um. Yeah, I too. I you know I read some of the horror comics that you could get back in the '70s, and you know had that kind of stuff. But it wasn't until I was 18, living in New York, and my best friend David introduced me to The Dark Knight.
 
 [00:08:14] Will: Yeah,
 
@@ -354,7 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:12:22] Adam: Right, right.
 
-[00:12:22] Norm: At the time, in the early '90s, when comics were flourishing and people were doing you know a million number ones and you'd sell a million issues on a comic book every month. That's insane. Batman doesn't sell a hundred thousand copies on on a good month. The kids, as I was back then, we read the Spider Mans and the Spawns, and and that was the world of comic books. And but it's like movies; you can go back and you can watch, read the classics, and have appreciation for this lineage and for the diversity of comics.
+[00:12:22] Norm: At the time, in the early '90s, when comics were flourishing and people were doing you know a million number ones and you'd sell 1 million issues on a comic book every month. That's insane. Batman doesn't sell 100,000 copies on on a good month. The kids, as I was back then, we read the Spider Mans and the Spawns, and and that was the world of comic books. And but it's like movies; you can go back and you can watch, read the classics, and have appreciation for this lineage and for the diversity of comics.
 
 [00:12:54] Adam: Yeah. Well, and my my sister gave me a lot of early advice about comics to read. She is an avid comic book reader. She manages a climbing gym in, in back east.
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:14:35] Will: Oh, that's fantastic.
 
-[00:14:36] Norm: That that's actually very characteristic of these highly anticipated comic books, the like the event books now these days that some get delayed months and months. And but I also like that some series, some comic, some of the best ones are the this books that are only going to last a year. They're only going to be twelve issues.
+[00:14:36] Norm: That that's actually very characteristic of these highly anticipated comic books, the like the event books now these days that some get delayed months and months. And but I also like that some series, some comic, some of the best ones are the this books that are only going to last a year. They're only going to be 12 issues.
 
 [00:14:52] Adam: Right, right, right.
 
@@ -484,7 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:19:08] Will: Um, the other one that I I know falls in for me fell in the there'll be water if God wills it kind of way. They come when they come. Was Planetary.
 
-[00:19:18] Norm: Same writer. So Warren Ellis, twenty six issues, and that's the one that came out. A year like took it took fi— five years for
+[00:19:18] Norm: Same writer. So Warren Ellis, 26 issues, and that's the one that came out. A year like took it took fi— five years for
 
 [00:19:25] Adam: wow
 
@@ -520,7 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:20:29] Norm: So, what, when if you go to a comic book store and you're looking for recommendations or you're browsing the shelf, what jumps out at you, and what are you likely to buy?
 
-[00:20:37] Adam: Um, I, well, like I said, you know, I, so I go to I shop at Comix Experience on Divisadero as I have for freaking twenty five years. I love those guys, um, and you know, I will go and see what's new for Frank Miller. Uh, I really like, you know, I look for artists that I really like. Uh, I'm a huge fan of Chris Ware. I, I have a ton of his stuff. I'm a huge fan of Dan Clowes, um. I think, well, Dan's local. Dan's in, in, over in Oakland.
+[00:20:37] Adam: Um, I, well, like I said, you know, I, so I go to I shop at Comix Experience on Divisadero as I have for freaking 25 years. I love those guys, um, and you know, I will go and see what's new for Frank Miller. Uh, I really like, you know, I look for artists that I really like. Uh, I'm a huge fan of Chris Ware. I, I have a ton of his stuff. I'm a huge fan of Dan Clowes, um. I think, well, Dan's local. Dan's in, in, over in Oakland.
 
 [00:21:09] Norm: I think he pops up at Ape very pretty frequently. the Alternative Press Expo.
 
@@ -654,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:25:27] Adam: Yes,
 
-[00:25:27] Norm: absolutely, and and Frank Miller did he did three hundred.
+[00:25:27] Norm: absolutely, and and Frank Miller did he did 300.
 
 [00:25:31] Will: 300 is great.
 
@@ -676,7 +676,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:25:49] Norm: No.
 
-[00:25:50] Adam: Um, it's on a scale of one to ten, how gay it is.
+[00:25:50] Adam: Um, it's on a scale of 1 to 10, how gay it is.
 
 [00:25:55] Norm: Pretty good joke.
 
@@ -832,13 +832,13 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:29:35] Will: Well, and and just to be clear, Neil is one of those people that when you go to a signing, he'll be there until two o'clock in the morning if that's how how long it takes to get the last person signed.
 
-[00:29:43] Adam: When I saw him at Comic Con, we were eating and talking about what he's been doing, and he had he said, " I've just signed forty thousand books."
+[00:29:43] Adam: When I saw him at Comic Con, we were eating and talking about what he's been doing, and he had he said, " I've just signed 40,000 books."
 
 [00:29:49] Will: Yeah, yeah. I mean, he is, and
 
 [00:29:53] Adam: and and he's that was over a one month book tour.
 
-[00:29:56] Will: Novels, novels, comics, his the biography that he did as a nineteen year old about Douglas Adams. Everything he's ever done is worth reading.
+[00:29:56] Will: Novels, novels, comics, his the biography that he did as a 19 year old about Douglas Adams. Everything he's ever done is worth reading.
 
 [00:30:06] Adam: Yeah, And he's annoyingly prolific and
 

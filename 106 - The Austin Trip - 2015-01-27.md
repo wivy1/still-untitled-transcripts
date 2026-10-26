@@ -76,7 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:04:08] Norm: What do you mean, put your head inside the towel loop?
 
-[00:04:09] Adam: Well, so it's like a machine, right? And a and a and a long cloth terry cloth towel comes out and goes back into it. And the way it works is, I think it's like fifty feet long, and you do it. They launder it every day or something.
+[00:04:09] Adam: Well, so it's like a machine, right? And a and a and a long cloth terry cloth towel comes out and goes back into it. And the way it works is, I think it's like 50 feet long, and you do it. They launder it every day or something.
 
 [00:04:21] Norm: Okay,
 
@@ -124,11 +124,11 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:04:55] Adam: Yeah.
 
-[00:04:55] Will: I looked at Google. And it said same twenty five minutes quicker to get from O'Hare to downtown
+[00:04:55] Will: I looked at Google. And it said same 25 minutes quicker to get from O'Hare to downtown
 
 [00:05:01] Adam: Yeah.
 
-[00:05:01] Will: on the train than the car. That's an easy decision. Five dollars and I'm there. And I walked around for about ten minutes. It was like this. This place is unbelievable. How have I never been here before?
+[00:05:01] Will: on the train than the car. That's an easy decision. $5 and I'm there. And I walked around for about 10 minutes. It was like this. This place is unbelievable. How have I never been here before?
 
 [00:05:10] Adam: It's a terrific city. It gets balls hot in the summer and crazy cold in the winter. But the food's really good.
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:05:37] Will: So it is it is a sausage on top of a burger.
 
-[00:05:39] Adam: I I I can't quite remember the specifics, but Kuma's is. I went there with our friends Kim and Clark and Julie, and I have good friends in Chicago, so we spent a lot of time there. And like Kuma's is a place where it was totally worth waiting ninety minutes to get the burger.
+[00:05:39] Adam: I I I can't quite remember the specifics, but Kuma's is. I went there with our friends Kim and Clark and Julie, and I have good friends in Chicago, so we spent a lot of time there. And like Kuma's is a place where it was totally worth waiting 90 minutes to get the burger.
 
 [00:05:55] Norm: It must be slathered in Miracle Whip, otherwise known as Goblin.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:06:43] Adam: Wow.
 
-[00:06:43] Will: I mean, so it was just a little tiny hint of fish with a potato cream, almost like a like a. It was. It was. It was easily a top ten meal of my life, and it was like eight dollars or twelve dollars or something for breakfast.
+[00:06:43] Will: I mean, so it was just a little tiny hint of fish with a potato cream, almost like a like a. It was. It was. It was easily a top 10 meal of my life, and it was like $8 or $12 or something for breakfast.
 
 [00:06:57] Adam: So I also went to an amazing food city, Austin, Texas.
 
@@ -178,11 +178,11 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:07:14] Will: You should watch the the talking room if you never saw it. It's really good.
 
-[00:07:16] Adam: Is, is one of my favorites, and Tom had a retrospective of his boom boxes going back fifteen years at the Contemporary Museum Austin, and then there was also talks given at the Sculpture Garden in Austin, where that has a few of Tom [unclear: Pete] Tom's pieces.
+[00:07:16] Adam: Is, is one of my favorites, and Tom had a retrospective of his boom boxes going back 15 years at the Contemporary Museum Austin, and then there was also talks given at the Sculpture Garden in Austin, where that has a few of Tom [unclear: Pete] Tom's pieces.
 
 [00:07:36] Will: So I'm not familiar with the boom boxes. We talked about his Le Corbusier stuff and all that, but
 
-[00:07:41] Adam: so so he has been making custom boom boxes for over for fifteen years,
+[00:07:41] Adam: so so he has been making custom boom boxes for over for 15 years,
 
 [00:07:47] Will: like parting out old boom boxes and then putting them in new cases or?
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:08:26] Will: five colors,
 
-[00:08:26] Adam: [unclear: Extra] things like zombie-killing machetes bolted to the side. Um, I don't mean to trivialize it at all. These things were gorgeous, and Julia, my wife, had never seen Tom's work in person. Oh. Um. So we went to the opening on Friday night. Um. Now, one of the one of the pieces that was down in Austin as part of this retrospective was a car, a souped-up Chevy Caprice. That that Tom has been lovingly restoring for the last ten years.
+[00:08:26] Adam: [unclear: Extra] things like zombie-killing machetes bolted to the side. Um, I don't mean to trivialize it at all. These things were gorgeous, and Julia, my wife, had never seen Tom's work in person. Oh. Um. So we went to the opening on Friday night. Um. Now, one of the one of the pieces that was down in Austin as part of this retrospective was a car, a souped-up Chevy Caprice. That that Tom has been lovingly restoring for the last 10 years.
 
 [00:08:55] Will: So it's a like '70s era, early '80s,
 
@@ -538,7 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:23:10] Will: That sounds good.
 
-[00:23:10] Adam: And had incredible food, really amazing fried chicken, super super spicy, with some hot. No, no, no. The the sausages were later at the sit down meal at the Saint Cecilia, which was also amazing. Like when is a eighty-person sit down dinner good food?
+[00:23:10] Adam: And had incredible food, really amazing fried chicken, super super spicy, with some hot. No, no, no. The the sausages were later at the sit down meal at the Saint Cecilia, which was also amazing. Like when is a 80-person sit down dinner good food?
 
 [00:23:27] Will: Right.
 

@@ -20,7 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=6XTL4cF5GtA
 
 [00:00:28] Adam: [Five / twenty-five] years! Oh my god!
 
-[00:00:30] Norm: Twenty-five!
+[00:00:30] Norm: 25!
 
 [00:00:31] Unknown speaker: Oh crap! I'm so old.
 
@@ -178,7 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=6XTL4cF5GtA
 
 [00:14:50] Adam: No, you can't force them, and you really have to let them find it. You really, yeah, like that's your job, and it also meant that. I still have crap around me in storage and in other places of stuff that I got for them on Craigslist that they never used. Um, there certainly were a lot of, uh, a lot of dead ends in in that case, but frankly, they're both they're both really creative and they're both really uh, uh, uh, uh, uh, excellent at executing in their fields of creativity, and they work hard. Then you can't really ask for more than that.
 
-[00:15:26] Will: The Craigslist thing is really important because, like, for example, my daughter was very into basketball last basketball season. We watched a lot of basketball games. We went outside and practiced dribbling and passing and all that stuff in the backyard on the regular. And she was like, " Can we get a hoop so I can practice shooting?" I was like, " Yes, absolutely." And thankfully, somebody from her school, one of the other kids' parents, was like, " Hey, we're getting rid of a basketball hoop because then we want to come get it." And I was like, " Yes, I'll be there this afternoon." Picked up the hoop. Like, go to Craigslist, go to your like free Nextdoor section, stuff like that, for that kind of stuff, and and. Once they, you know, don't don't go out and buy a thousand dollar Gibson guitar if your kid is like, I want to learn how to play guitar.
+[00:15:26] Will: The Craigslist thing is really important because, like, for example, my daughter was very into basketball last basketball season. We watched a lot of basketball games. We went outside and practiced dribbling and passing and all that stuff in the backyard on the regular. And she was like, " Can we get a hoop so I can practice shooting?" I was like, " Yes, absolutely." And thankfully, somebody from her school, one of the other kids' parents, was like, " Hey, we're getting rid of a basketball hoop because then we want to come get it." And I was like, " Yes, I'll be there this afternoon." Picked up the hoop. Like, go to Craigslist, go to your like free Nextdoor section, stuff like that, for that kind of stuff, and and. Once they, you know, don't don't go out and buy a $1,000 Gibson guitar if your kid is like, I want to learn how to play guitar.
 
 [00:16:03] Adam: No.
 
@@ -226,7 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=6XTL4cF5GtA
 
 [00:19:01] Will: Which, which is the the thing that did not happen when I was a kid for sure. It's like if you were in the, the, reading at a higher proficiency level at an earlier age, then you got bumped up into different classes, and you had an hour with a special teacher every week, and like it, there was not a lot of positive outcome from that. Aside from the fact that I got to spend way more time with computers than most of the kids in my class did,
 
-[00:19:20] Norm: at eighteen or nineteen months old, right now, which is what Avery is at right now, he's he's still he's starting to become more responsive, and you can tell that this is the stage where he's becoming less of a amorphous blob and something emergence of a personality. And there's almost this rush. I don't know if you guys felt it, but I can't wait to see the person that
+[00:19:20] Norm: at 18 or 19 months old, right now, which is what Avery is at right now, he's he's still he's starting to become more responsive, and you can tell that this is the stage where he's becoming less of a amorphous blob and something emergence of a personality. And there's almost this rush. I don't know if you guys felt it, but I can't wait to see the person that
 
 [00:19:43] Will: oh yeah
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=6XTL4cF5GtA
 
 [00:20:36] Will: Yeah.
 
-[00:20:37] Will: And also, like you can have you're starting to be able to have it won't be long before you're able to have conversations, and he'll start asking questions and things like that. And and it's it's really really compelling. One of the things you told me early on, I think Adam was that they understand you. Well before you think they'll understand you, and to talk like even if they're not particularly verbal at at twelve or eighteen months or whatever, to to talk to them like they're human beings and not you know not just parrot noises back to them and stuff like that and and like we already were doing that but but once you start once I started talking to our daughter and like it it was really clear that she knew what was going on at a level that I had no idea
+[00:20:37] Will: And also, like you can have you're starting to be able to have it won't be long before you're able to have conversations, and he'll start asking questions and things like that. And and it's it's really really compelling. One of the things you told me early on, I think Adam was that they understand you. Well before you think they'll understand you, and to talk like even if they're not particularly verbal at at 12 or 18 months or whatever, to to talk to them like they're human beings and not you know not just parrot noises back to them and stuff like that and and like we already were doing that but but once you start once I started talking to our daughter and like it it was really clear that she knew what was going on at a level that I had no idea
 
 [00:21:22] Adam: yeah
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=6XTL4cF5GtA
 
 [00:21:38] Adam: and after the issue came out a good friend of mine who has three amazing kids four amazing kids wrote to me and he was like thanks for making me feel like a dumb bad dad with all your incredible projects you did with your kids and I was like dude let me tell you. The article was literally all three things I have done with my kids. There's no more than that. I have done three maker projects with my kids, and I wrote about them, and that was it. Like there is no like that's not the tip of the iceberg. That's the whole iceberg.
 
-[00:22:13] Will: Well, and and so there's a, there's a thing that I don't know about because my parents were definitely not the pushing like my when I asked about taking piano lessons, my mom got me piano lessons, and when I was tired of taking piano lessons, and I was like, I don't like this, I don't like the teacher, I want to stop. She was like, okay, fine. And you, part of that was that we lived in a in a rural area, so it was a forty five minute drive each way to the piano lesson place. And I'm sure she was thrilled to not have to do that once a week. But but part of it was that her parents had done that to her and made her go through with a bunch of things, and she didn't want to force her kids to do stuff that they weren't excited about. Yeah. And and I don't know, like I kind of don't know at what point. You like I don't know how to tell tell the things you should. I mean, obviously, learning practicing reading is a thing you push on, right? You you want to you want to get your kid to be a good reader, but like you know, if my daughter wants to take guitar lessons or ukulele lessons, should I? And she wants to stop after three weeks because her fingers hurt. I feel like that's a push on situation. You know, get get her to go for a few more weeks, and then and then I like I don't I don't know when that where that line is.
+[00:22:13] Will: Well, and and so there's a, there's a thing that I don't know about because my parents were definitely not the pushing like my when I asked about taking piano lessons, my mom got me piano lessons, and when I was tired of taking piano lessons, and I was like, I don't like this, I don't like the teacher, I want to stop. She was like, okay, fine. And you, part of that was that we lived in a in a rural area, so it was a 45 minute drive each way to the piano lesson place. And I'm sure she was thrilled to not have to do that once a week. But but part of it was that her parents had done that to her and made her go through with a bunch of things, and she didn't want to force her kids to do stuff that they weren't excited about. Yeah. And and I don't know, like I kind of don't know at what point. You like I don't know how to tell tell the things you should. I mean, obviously, learning practicing reading is a thing you push on, right? You you want to you want to get your kid to be a good reader, but like you know, if my daughter wants to take guitar lessons or ukulele lessons, should I? And she wants to stop after three weeks because her fingers hurt. I feel like that's a push on situation. You know, get get her to go for a few more weeks, and then and then I like I don't I don't know when that where that line is.
 
 [00:23:17] Adam: Look, I I think that the ultimately the decisions that you're making are such that you want your kid to feel the freedom at a certain moment to come to you and say, I want to do this thing.
 
@@ -298,7 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=6XTL4cF5GtA
 
 [00:27:06] Norm: Wow!
 
-[00:27:06] Adam: And it's the first time we've lived together since my early twenties.
+[00:27:06] Adam: And it's the first time we've lived together since my early 20s.
 
 [00:27:11] Will: How how is that going, Adam?
 

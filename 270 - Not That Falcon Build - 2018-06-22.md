@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:00:45] Norm: I'm getting PTSD from like 2013.
 
-[00:00:48] Will: Yeah, remember that? I'm going to be on tour. I'm going to shoot twenty episodes of MythBusters this year. We work like ten hours a day.
+[00:00:48] Will: Yeah, remember that? I'm going to be on tour. I'm going to shoot 20 episodes of MythBusters this year. We work like 10 hours a day.
 
 [00:00:57] Adam: Um, I was spent all day yesterday at different doctors.
 
@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:01:28] Norm: Really?
 
-[00:01:28] Will: and I was eighteen years old and completely unable. Like I was drunk at a level my eighteen year old body had never experienced before, and I just that's the last thing I remember.
+[00:01:28] Will: and I was 18 years old and completely unable. Like I was drunk at a level my 18 year old body had never experienced before, and I just that's the last thing I remember.
 
 [00:01:52] Norm: All right, you and a baseball player.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:09:15] Norm: and I understand from a structural standpoint like it was a sculpture that Jen did of Rosie the Riveter the external shell of that it makes sense right you piece together it's a puzzle right but 2600 piece puzzle that's three dimensional I couldn't wrap my head around the logistics of piecing the internal pieces and how everything fit together
 
-[00:09:36] Adam: well so it was in I think like twenty some odd layers
+[00:09:36] Adam: well so it was in I think like 20 some odd layers
 
 [00:09:36] Norm: Uh-huh.
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:10:48] Unknown speaker: Oh, that’s awesome.
 
-[00:10:48] Adam: They they basically, Jen also looked at this. Spectrum online did a bunch of color spectrum research and gave people, I think, a a grid of sixteen colors to choose from that went from light to dark, based on filaments that are available.
+[00:10:48] Adam: They they basically, Jen also looked at this. Spectrum online did a bunch of color spectrum research and gave people, I think, a a grid of 16 colors to choose from that went from light to dark, based on filaments that are available.
 
 [00:11:13] Will: Stuff you can, okay,
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:11:22] Unknown speaker: Wow.
 
-[00:11:22] Adam: It was a seventeen-hour.
+[00:11:22] Adam: It was a 17-hour.
 
 [00:11:50] Will: I talked to one of your fellow travelers
 
@@ -366,13 +366,13 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:12:27] Will: Well, so so my friend was saying that like they you guys set up the meals, you asked the conductor to set up the meals so that all of your group would kind of be seated in the same sitting, and you'd be able to like mix and mingle and meet new people every time. And she said it was amazing.
 
-[00:12:42] Adam: It's exactly how it went. It was really lovely, and the observation car too. We would like get up really early and look at, and so you you you leave Los Angeles at like six p.m. You have dinner, you see the view of you know the various Los Angeles train stations on your way out west, east, sorry, and then you wake up and you're in the desert and The view out the window feels like it could be Wild Wild West. You know, it is. It's just it hasn't changed in one hundred and fifty years since
+[00:12:42] Adam: It's exactly how it went. It was really lovely, and the observation car too. We would like get up really early and look at, and so you you you leave Los Angeles at like six p.m. You have dinner, you see the view of you know the various Los Angeles train stations on your way out west, east, sorry, and then you wake up and you're in the desert and The view out the window feels like it could be Wild Wild West. You know, it is. It's just it hasn't changed in 150 years since
 
 [00:13:09] Norm: they built
 
 [00:13:09] Adam: that train. Yeah, and it's super gorgeous everywhere they stop. You feel a little bit different, you know, of that desert weather. It was great. It was a terrific way to get into the zone.
 
-[00:13:21] Will: It reminded me of the train jam, which is a thing that happens in the springtime before GDC. So, a bunch of game developers get on a. They they basically buy out the entire train. It runs from Chicago to Emeryville, and they get on in Chicago. And by the end of the thing, then there've like been twenty teams. The teams form spontaneously out of people on the jam. I mean, some people bring their own teams, I guess. And then they present the games at GDC when they get here, and it's like a four-day long. Jason did that. Jason Imms, one of our former staff writers from before your time went on the ride two two or three years ago and covered it and said
+[00:13:21] Will: It reminded me of the train jam, which is a thing that happens in the springtime before GDC. So, a bunch of game developers get on a. They they basically buy out the entire train. It runs from Chicago to Emeryville, and they get on in Chicago. And by the end of the thing, then there've like been 20 teams. The teams form spontaneously out of people on the jam. I mean, some people bring their own teams, I guess. And then they present the games at GDC when they get here, and it's like a four-day long. Jason did that. Jason Imms, one of our former staff writers from before your time went on the ride two two or three years ago and covered it and said
 
 [00:13:59] Adam: It’s a great train ride.
 
@@ -464,7 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:16:44] Adam: Yeah, it's it feels like we are gen. It feels like we're at the beginning of a wonderful long-term community, beneficial set of relationships. That's what that's what it felt like.
 
-[00:17:29] Will: I mean, this this has been going on for what fifteen years, almost twenty years, almost. Maker
+[00:17:29] Will: I mean, this this has been going on for what 15 years, almost 20 years, almost. Maker
 
 [00:17:34] Norm: spaces and hackerspaces.
 
@@ -472,7 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:17:35] Adam: Yeah, no, Make came around in 2004.
 
-[00:17:38] Will: Yeah, so we're we're coming up on on on sixteen, fourteen, fifteen years next year. I guess
+[00:17:38] Will: Yeah, so we're we're coming up on on on 16, 14, 15 years next year. I guess
 
 [00:17:44] Adam: it's the thing that I kept saying is that it was felt so lucky that MythBusters came of age of alongside the whole maker movement and got to like hand in hand to a certain extent, you know, to to be part of that. It felt like the most ideal time for that.
 
@@ -530,7 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:21:18] Adam: all the topography, and it's an ass kicker, man. I'm not a sculptor. It is. I'm just like going at it about an hour a day, just you know. Let me work on this feather. Let me work on that feather.
 
-[00:21:28] Will: The you sculpting equivalent of writing a thousand words a day or whatever.
+[00:21:28] Will: The you sculpting equivalent of writing 1,000 words a day or whatever.
 
 [00:21:32] Adam: I'm trying. I'm trying, Ringo.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:22:35] Adam: so it's all one?
 
-[00:22:36] Adam: It's pretty much known that there were at least two lead castings made for the film, and that in the scene when they're spinning it around at the end, when Peter Lorre cuts into it and finds out that it's lead, that that is an actual lead bird that weighed fifty some odd pounds.
+[00:22:36] Adam: It's pretty much known that there were at least two lead castings made for the film, and that in the scene when they're spinning it around at the end, when Peter Lorre cuts into it and finds out that it's lead, that that is an actual lead bird that weighed 50 some odd pounds.
 
 [00:22:51] Will: I was going to say it had to be incredibly heavy.
 
@@ -558,11 +558,11 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:22:56] Will: Wow.
 
-[00:22:56] Adam: There's no way when Humphrey Bogart is holding it in the photo that he's holding a fifty pound bird. There's just no way. And a a filmmaker in L.A. came across in the early '90s a resin bird at an at a flea market that got sold at Profiles in History, I believe. Sold it, and I think it sold again a few years ago. I believe that that is absolutely a resin bird made at the time. And in fact, that's the only bird whose measurements I have exactly eleven and one eighth inches tall.
+[00:22:56] Adam: There's no way when Humphrey Bogart is holding it in the photo that he's holding a 50 pound bird. There's just no way. And a a filmmaker in L.A. came across in the early '90s a resin bird at an at a flea market that got sold at Profiles in History, I believe. Sold it, and I think it sold again a few years ago. I believe that that is absolutely a resin bird made at the time. And in fact, that's the only bird whose measurements I have exactly 11.125 inches tall.
 
 [00:22:56] Unknown speaker: Okay.
 
-[00:22:56] Adam: But it's a resin bird, and I start. I did a bunch of research into resins from the '40s. They'd be what they would have used, and even whether they were using polyester or epoxies, the shrinkage would have been somewhere between like ten and between like 7 and 12%
+[00:22:56] Adam: But it's a resin bird, and I start. I did a bunch of research into resins from the '40s. They'd be what they would have used, and even whether they were using polyester or epoxies, the shrinkage would have been somewhere between like 10 and between like 7 and 12%
 
 [00:23:48] Will: because it cures.
 
@@ -570,7 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:23:49] Will: Wow.
 
-[00:23:49] Adam: Yeah, big shrinkage because it's these big thermo thermoset reactions where it gets it's a exothermic reaction. So there's a yeah. So. Then I knowing that the bird that sold at Bonhams recently for millions of dollars was said to be about twelve inches tall, I thought, oh, you know what, eleven and eighth inches tall plus the shrinkage, so I went with eleven and three quarter inches tall.
+[00:23:49] Adam: Yeah, big shrinkage because it's these big thermo thermoset reactions where it gets it's a exothermic reaction. So there's a yeah. So. Then I knowing that the bird that sold at Bonhams recently for millions of dollars was said to be about 12 inches tall, I thought, oh, you know what, 11.125 inches tall plus the shrinkage, so I went with 11.75 inches tall.
 
 [00:23:49] Will: Okay.
 
@@ -652,7 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:26:26] Will: Yeah,
 
-[00:26:27] Adam: that is totally one. But imagine, like, you've seen some of the Hulkbuster cosplays that people have built out of foam that are like ten feet tall.
+[00:26:27] Adam: that is totally one. But imagine, like, you've seen some of the Hulkbuster cosplays that people have built out of foam that are like 10 feet tall.
 
 [00:26:27] Norm: Yep.
 
@@ -702,7 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:28:49] Will: floats
 
-[00:28:49] Adam: tank like hitting the water at thirty miles an hour.
+[00:28:49] Adam: tank like hitting the water at 30 miles an hour.
 
 [00:28:51] Will: I've done it.
 
@@ -1028,7 +1028,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:37:19] Will: No, no, you're talking about the one, the the '50s one.
 
-[00:37:22] Norm: Sixty, 1960.
+[00:37:22] Norm: '60, 1960.
 
 [00:37:23] Adam: Oh, oh, the Sinatra,
 
@@ -1178,7 +1178,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:41:59] Will: Okay. Very good.
 
-[00:42:00] Adam: Yeah. The XR is a stated range of between twelve and seventeen miles.
+[00:42:00] Adam: Yeah. The XR is a stated range of between 12 and 17 miles.
 
 [00:42:00] Norm: Wow.
 
@@ -1190,7 +1190,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:42:50] Norm: Well, that's why I think you love it so much is because while it's electric powered and it gets you that last mile much more efficiently than if you were walking or running
 
-[00:42:50] Will: or twelve,
+[00:42:50] Will: or 12,
 
 [00:42:50] Norm: you still have control. You are still it is you have there's skill involved in riding it, and that's why you're using your muscles.
 

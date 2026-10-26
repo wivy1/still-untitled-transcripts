@@ -14,7 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:00:13] Will: This one will take less than five minutes. It's short. It helps Still Untitled a ton, and you can do it by going to podsurvey. dot com slash Untitled.
 
-[00:00:23] Norm: It'll take less than five minutes, and you'll also be entered to enter a raffle to win a 100 dollar gift card from Amazon.
+[00:00:23] Norm: It'll take less than five minutes, and you'll also be entered to enter a raffle to win a $100 gift card from Amazon.
 
 [00:00:30] Will: It's an ongoing raffle. They'll need to collect your email address. They're only going to use it if you win the raffle, so you don't have to worry about it being sold to Russian spammers or Chinese militants or anything bad. Nothing bad's going to happen to your email address. It'll be perfectly safe, and you'll only see it used if you know you win the win the raffle. So the address again is podsurvey. dot com slash Untitled. I think that's it.
 
@@ -82,15 +82,15 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:03:45] Will: Oh, that's awesome!
 
-[00:03:50] Kevin: Yeah. That so so one of the things I I did and talked about at XO XO was this self published entity. It was a physical book. It weighs five pounds. It has a lot of atoms in it. It's very big and oversized. It's a book that lists the coolest recommendable tools that that I and the readers of the website for the past twelve years know about, and the experience of self-publishing it is a pretty cool thing because I was just two people, and I made a book that was very similar to something that was made a long time ago called the Whole Earth Catalog, which I did work on eventually and publish, which is a same thing. It's kind of like an encyclopedia of user recommended cool stuff, and it was made with the state of the art technology at that time, which is newsprint, really cheap, Polaroids, IBM Selectric, typewriting for the text, but it took thirty people a year to make one of them, and I and my assistant basically made the same book in color. With two people, that is the power of technology. That's what is now possible. That's what all the stuff that we're excited by is allowing individuals to accomplish a lot more with fewer barriers.
+[00:03:50] Kevin: Yeah. That so so one of the things I I did and talked about at XO XO was this self published entity. It was a physical book. It weighs five pounds. It has a lot of atoms in it. It's very big and oversized. It's a book that lists the coolest recommendable tools that that I and the readers of the website for the past 12 years know about, and the experience of self-publishing it is a pretty cool thing because I was just two people, and I made a book that was very similar to something that was made a long time ago called the Whole Earth Catalog, which I did work on eventually and publish, which is a same thing. It's kind of like an encyclopedia of user recommended cool stuff, and it was made with the state of the art technology at that time, which is newsprint, really cheap, Polaroids, IBM Selectric, typewriting for the text, but it took 30 people a year to make one of them, and I and my assistant basically made the same book in color. With two people, that is the power of technology. That's what is now possible. That's what all the stuff that we're excited by is allowing individuals to accomplish a lot more with fewer barriers.
 
-[00:05:17] Will: We do that right here, right? If you look at this, twenty years ago, this would have been a room in a special building, a special room in a special building with at least one and probably two people on the other side. More if we were actually doing real video, right? And yeah, everything. And and this is a thousand, maybe 1,200 dollars worth of gear. Exactly, and it's a little bit overkill for what we do.
+[00:05:17] Will: We do that right here, right? If you look at this, 20 years ago, this would have been a room in a special building, a special room in a special building with at least one and probably two people on the other side. More if we were actually doing real video, right? And yeah, everything. And and this is a thousand, maybe $1,200 worth of gear. Exactly, and it's a little bit overkill for what we do.
 
-[00:05:35] Kevin: So that so that amplification, which is what the this digital technology brings, is is really very powerful, particularly for individuals or small groups. And that's what the allowed me to self publish this book, which was about has about fifteen hundred different tools, and each one of them is a positive review. So these are recommendations. There are fifteen hundred recommendations of something that would allow you to leverage. And accomplish something. So these are things that allow you to make things and to make things happen. That's how my my definition is.
+[00:05:35] Kevin: So that so that amplification, which is what the this digital technology brings, is is really very powerful, particularly for individuals or small groups. And that's what the allowed me to self publish this book, which was about has about 1,500 different tools, and each one of them is a positive review. So these are recommendations. There are 1,500 recommendations of something that would allow you to leverage. And accomplish something. So these are things that allow you to make things and to make things happen. That's how my my definition is.
 
-[00:06:09] Norm: Is it from one time period or from the whole ten years?
+[00:06:09] Norm: Is it from one time period or from the whole 10 years?
 
-[00:06:12] Kevin: This is for the whole ten years. This is the best of.
+[00:06:12] Kevin: This is for the whole 10 years. This is the best of.
 
 [00:06:14] Adam: It's also one of the things I find so amazing about perusing this book is that there are solutions to problems I didn't know existed that can potentially solve problems I didn't know could be solved with a tool.
 
@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:08:32] Kevin: It's it's like it's liberating because you realize that you can make an alternative to having a big house and a mortgage if if you needed to, and that that kind of confidence allows you to do all kinds of things that you would never attempt before.
 
-[00:09:03] Will: Well, and and so, like the whole Earth Catalog, the whole Earth Catalog was a fixture at one of my grandmother's houses. It was there with Campmor and Foxfire books and all that stuff. She was kind of a you know a fifty year old hippie in the late '60s, and she like it was it was it was one of the books on the back of the toilet in the downstairs bathroom, and you would just take it out and kind of flip through, and you'd learn about all sorts of novel things that you probably didn't know existed. I think that's what I think you you captured that really well with this. It reminds me a lot of that.
+[00:09:03] Will: Well, and and so, like the whole Earth Catalog, the whole Earth Catalog was a fixture at one of my grandmother's houses. It was there with Campmor and Foxfire books and all that stuff. She was kind of a you know a 50 year old hippie in the late '60s, and she like it was it was it was one of the books on the back of the toilet in the downstairs bathroom, and you would just take it out and kind of flip through, and you'd learn about all sorts of novel things that you probably didn't know existed. I think that's what I think you you captured that really well with this. It reminds me a lot of that.
 
 [00:09:33] Kevin: So, for my own history, when I was in high school and graduating from high school, I discovered the Whole Earth Catalog for the first time. That was when it was coming out in '68, '69, 1968, 1969, and I got the message from the Whole Earth Catalog that I I didn't need to go to college and I could invent my own life.
 
@@ -152,11 +152,11 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:10:31] Will: You you said at XO, and I think I think that you copy edited the whole book in like three three
 
-[00:10:35] Kevin: forty eight hours.
+[00:10:35] Kevin: 48 hours.
 
 [00:10:35] Will: What?
 
-[00:10:38] Kevin: This whole this is like I don't know a half a million words or something or more. We copied it in forty eight hours because we we you know we distributed it to a number of different freelancers who around the world working you know different time zones, and they they copied the entire book in forty eight hours two two cycles.
+[00:10:38] Kevin: This whole this is like I don't know 500,000 words or something or more. We copied it in 48 hours because we we you know we distributed it to a number of different freelancers who around the world working you know different time zones, and they they copied the entire book in 48 hours two two cycles.
 
 [00:10:38] Will: Wow.
 
@@ -168,7 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:11:19] Adam: Right, that's a thing.
 
-[00:11:20] Kevin: That's a thing. Photoshop. All right, so we had them done for fifteen cents a piece, like in like a week.
+[00:11:20] Kevin: That's a thing. Photoshop. All right, so we had them done for $0.15 a piece, like in like a week.
 
 [00:11:26] Adam: No way.
 
@@ -272,9 +272,9 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:15:18] Kevin: with the stuff, let's get some really good, the best things that we can find that are going to be general purpose. So a staple gun to me is is an essential part of any kit because you can use it for I don't know art projects.
 
-[00:15:34] Adam: But the lovely thing about the reverse the reverse one is that it solves a problem you didn't realize was a problem, and is just the best. There is no better version of that device than that one. It is that's it, and it's great to have someone point you to that and say, " I used one of these for twenty five years, and this one's better than all of those that I learned on."
+[00:15:34] Adam: But the lovely thing about the reverse the reverse one is that it solves a problem you didn't realize was a problem, and is just the best. There is no better version of that device than that one. It is that's it, and it's great to have someone point you to that and say, " I used one of these for 25 years, and this one's better than all of those that I learned on."
 
-[00:15:54] Kevin: Right, and that's actually. That is the form of the best canonical cool tool review. I've used all staple guns for the past twenty years, and this is the one you want to buy. If you can say that, then then that's you've sold it.
+[00:15:54] Kevin: Right, and that's actually. That is the form of the best canonical cool tool review. I've used all staple guns for the past 20 years, and this is the one you want to buy. If you can say that, then then that's you've sold it.
 
 [00:16:09] Norm: And surprisingly, those things don't change very often.
 
@@ -296,13 +296,13 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:17:21] Kevin: It gets very heavy, and so I decided the the book came about. It's like okay, I'm going to put in just a few of the tools, and then I put the book in, and the book will point to all the rest. So so so this this set may not is not going to fit into a crate, but this is a list of the kinds of things that again are maybe not as obvious as you know a hammer. Like another one is digital calipers.
 
-[00:17:49] Will: Yep. Digital calipers when buying a pair of a pair of 25 dollar digital calipers are a life changing purchase.
+[00:17:49] Will: Yep. Digital calipers when buying a pair of a pair of $25 digital calipers are a life changing purchase.
 
-[00:17:54] Adam: You can now get a pair for seven or eight bucks.
+[00:17:54] Adam: You can now get a pair for $7 or $8.
 
 [00:17:56] Kevin: Yeah, it's it's amazing,
 
-[00:17:57] Adam: and they're 99.99% as good. I don't get me wrong. I love my Mitutoyo and my Starrett calipers, and over the years, as a machinist, I have learned the value of really good ones. But as an entry level thing that allows you to measure the thickness of a human hair for seven bucks, you can get a great digital caliper.
+[00:17:57] Adam: and they're 99.99% as good. I don't get me wrong. I love my Mitutoyo and my Starrett calipers, and over the years, as a machinist, I have learned the value of really good ones. But as an entry level thing that allows you to measure the thickness of a human hair for $7, you can get a great digital caliper.
 
 [00:18:15] Kevin: Yeah, and the way for for the listeners, this is kind of like a sliding a ruler, like a slide rule. There's two two parts to it that slide along, and then there's a there's a there's a little readout that gives you the measurement of the width that you're trying to measure. So you squeeze the little what do you call it the prongs, the two prongs, and it will it will read the length that inside or outside of what you're trying to measure. And so
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:19:31] Will: Nippers are wires. You use them for straight edge wire snips.
 
-[00:19:34] Adam: Knipex makes a host of tools, and in general, if they make a tool, they make one of the best versions of that tool. And they used to be about sixty bucks for a set of the the pressure pliers that would cut piano wire all day long and never dent. But now they make flush cutters and nippers. They make wire strippers. I just bought a pair of their wire strippers. They're cheaper than Greenlee's, cheaper than than a couple of the others that I've spent like a hundred bucks on. And better,
+[00:19:34] Adam: Knipex makes a host of tools, and in general, if they make a tool, they make one of the best versions of that tool. And they used to be about $60 for a set of the the pressure pliers that would cut piano wire all day long and never dent. But now they make flush cutters and nippers. They make wire strippers. I just bought a pair of their wire strippers. They're cheaper than Greenlee's, cheaper than than a couple of the others that I've spent like $100 on. And better,
 
 [00:19:59] Kevin: yeah. I also have the wrenches. They have a set of kind of like channel lock wrenches that adjust the the mouth of it, and they're otherwise they're kind of just two two levers handles, and they are indestructible. They're hefty. They're very precise, and so
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:20:27] Will: Well, and and in a pinch, you can use them in place of a pair of pliers, or or even like a box wrench or adjustable crescent.
 
-[00:20:34] Adam: I think I have about fifteen different Knipex tools in my collection, and they're just prized. And again, their Knipex has been they've been getting cheaper.
+[00:20:34] Adam: I think I have about 15 different Knipex tools in my collection, and they're just prized. And again, their Knipex has been they've been getting cheaper.
 
 [00:20:42] Kevin: Yeah, and so so the difference in price is not that that much, and that's a case where it's actually worth paying for a better. I'm actually I have a kind of a shopping philosophy of kind of highest common denominator. So so kind of like the level of Costco for a lot of stuff, I think is really Perfectly good enough for most people.
 
@@ -418,7 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:23:39] Adam: Yeah, it definitely does have that. Yeah, I agree.
 
-[00:23:42] Kevin: So, so it's actually a little hard to find. Most hardware stores don't sell it, but you can find it online. And it's, it's, it's a bit. There are other penetrating oils, but this one is particularly effective, and it's been around for like at least a hundred years or something.
+[00:23:42] Kevin: So, so it's actually a little hard to find. Most hardware stores don't sell it, but you can find it online. And it's, it's, it's a bit. There are other penetrating oils, but this one is particularly effective, and it's been around for like at least 100 years or something.
 
 [00:23:54] Adam: It's great.
 
@@ -452,7 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:25:22] Kevin: Yeah, yeah. So, so, so, so that that's something that again, it's it's a tool that will actually make if you're doing a lot of cutting of anything, it's a great thing to have. And I think even small versions of it, which can fit into this crate, would would be useful.
 
-[00:25:36] Adam: They make an eight and a half by eleven one, and I've got twenty of those.
+[00:25:36] Adam: They make an 8.5 by 11 one, and I've got 20 of those.
 
 [00:25:39] Kevin: Yeah, yeah.
 
@@ -508,11 +508,11 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:27:53] Adam: Oh yeah,
 
-[00:27:53] Kevin: almost ten feet or more. It's amazing.
+[00:27:53] Kevin: almost 10 feet or more. It's amazing.
 
 [00:28:04] Unknown: That's a contest.
 
-[00:28:04] Adam: We do that in Industrial Light and Magic that used to be a contest as to these high ceilings on the stages. How far can you can get to twenty feet?
+[00:28:04] Adam: We do that in Industrial Light and Magic that used to be a contest as to these high ceilings on the stages. How far can you can get to 20 feet?
 
 [00:28:14] Kevin: Right, right.
 
@@ -558,7 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:30:28] Kevin: you're going to buy a bunch of them, you're going to have more than one battery, and it's a modular system. It'll fit into the saw, the sawzall. You know,
 
-[00:30:35] Adam: there are also companies with multiple battery types and multiple. Most companies have like a low end twelve volt, a high end eighteen or twenty four, and then a lot of. I particularly like DeWalt because they go backwards compatible on their batteries, so you can buy a brand new lithium ion battery that will fit my old eighteen volt.
+[00:30:35] Adam: there are also companies with multiple battery types and multiple. Most companies have like a low end 12 volt, a high end 18 or 24, and then a lot of. I particularly like DeWalt because they go backwards compatible on their batteries, so you can buy a brand new lithium ion battery that will fit my old 18 volt.
 
 [00:30:54] Will: Oh, really?
 
@@ -570,13 +570,13 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:30:55] Will: Oh, that's exciting.
 
-[00:30:57] Kevin: I'm I'm with DeWalt too for that same reason, and. And and it's hard to kind of make a that's one place where things are changing so fast. It's kind of hard to make a recommendation. Is it eighteen volts, is it twenty four? Because they're improving it daily.
+[00:30:57] Kevin: I'm I'm with DeWalt too for that same reason, and. And and it's hard to kind of make a that's one place where things are changing so fast. It's kind of hard to make a recommendation. Is it 18 volts, is it 24? Because they're improving it daily.
 
 [00:31:09] Adam: My shop assistants were like, " Oh, we got this new system that's even much better." It's like, " Well, I'm committed right now."
 
 [00:31:15] Kevin: Yeah,
 
-[00:31:15] Adam: yeah. I wanted to mention with it with the tape measure. Do you? I was just making a recommendation last night for a twelve year old's birthday, and I was suggesting a toolkit. And I was I wasn't even thinking that we were going to do this this morning, but I was making what tools a twelve year old would have should have. And I included a cloth tape.
+[00:31:15] Adam: yeah. I wanted to mention with it with the tape measure. Do you? I was just making a recommendation last night for a 12 year old's birthday, and I was suggesting a toolkit. And I was I wasn't even thinking that we were going to do this this morning, but I was making what tools a 12 year old would have should have. And I included a cloth tape.
 
 [00:31:33] Norm: Oh,
 
@@ -616,15 +616,15 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:32:14] Kevin: Yeah, you don't want to go real cheap.
 
-[00:32:15] Adam: Don’t cheap out on those, and they're relatively. I mean, eighty bucks will get you just a fabulous thing.
+[00:32:15] Adam: Don’t cheap out on those, and they're relatively. I mean, $80 will get you just a fabulous thing.
 
 [00:32:20] Kevin: Yeah,
 
-[00:32:20] Will: and it'll last forever or ten years.
+[00:32:20] Will: and it'll last forever or 10 years.
 
 [00:32:22] Kevin: Yeah,
 
-[00:32:23] Adam: I find now that I own probably ten batteries on the Dewalt thing. I find I get about a failure a year of a battery that just.
+[00:32:23] Adam: I find now that I own probably 10 batteries on the Dewalt thing. I find I get about a failure a year of a battery that just.
 
 [00:32:32] Will: Well, you can get new batteries, and then
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:32:36] Adam: All or nothing.
 
-[00:32:36] Kevin: Well, because otherwise you always will grab this. So the whole idea is to always have rechargeables charged, and so to do that, you probably need to have like fifty or sixty of them in our household anyway.
+[00:32:36] Kevin: Well, because otherwise you always will grab this. So the whole idea is to always have rechargeables charged, and so to do that, you probably need to have like 50 or 60 of them in our household anyway.
 
 [00:32:36] Adam: Yeah, yeah, yeah.
 
@@ -654,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:33:22] Adam: It's time to do that. Yeah, it's just time.
 
-[00:33:23] Kevin: But the way to do it again is get a hundred of them.
+[00:33:23] Kevin: But the way to do it again is get 100 of them.
 
 [00:33:26] Adam: Right. Right. Right. Right. Right.
 
@@ -692,7 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:33:56] Adam: Right. Right.
 
-[00:33:57] Will: So you can get crazy high density Eneloops that have a really low charge cycle, so they only do like five hundred charges instead of two thousand. I am a huge fan of the Eneloops.
+[00:33:57] Will: So you can get crazy high density Eneloops that have a really low charge cycle, so they only do like 500 charges instead of 2,000. I am a huge fan of the Eneloops.
 
 [00:34:05] Norm: What's a good ratio?
 
@@ -722,13 +722,13 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:35:24] Kevin: And um, and and and then if you have a lot of stuff, you can make you can stack these trays. You can they have handles. You can kind of and they won't if you overturn them and it's closed, nothing shifts around, um and uh they're they're just indispensable for organizing small parts and small stuff.
 
-[00:35:44] Will: One of the things my mom gave me when I bought a house was, I mean, she basically went out and bought a a box that was similar to that. It's not the same thing, but it's a vertical box with a bunch of trays. It's not the box isn't great. The thing that's in it is awesome. She went to the hardware store and went and got a bunch of sheetrock nails, sheetrock screws, you know, different size nails, and just assorted fastening hardware for everything from like hanging pictures to bolting things to other things, and even some great big lag bolts to hang stuff in the garage. And put it all in a box and said, " Look, this is this this isn't all going to be perfect for when you're going to need stuff, but but this is the stuff that we use the most at home and have for the last twenty years, and it was it is proven to be incredibly useful.
+[00:35:44] Will: One of the things my mom gave me when I bought a house was, I mean, she basically went out and bought a a box that was similar to that. It's not the same thing, but it's a vertical box with a bunch of trays. It's not the box isn't great. The thing that's in it is awesome. She went to the hardware store and went and got a bunch of sheetrock nails, sheetrock screws, you know, different size nails, and just assorted fastening hardware for everything from like hanging pictures to bolting things to other things, and even some great big lag bolts to hang stuff in the garage. And put it all in a box and said, " Look, this is this this isn't all going to be perfect for when you're going to need stuff, but but this is the stuff that we use the most at home and have for the last 20 years, and it was it is proven to be incredibly useful.
 
 [00:36:25] Kevin: Now that's a whole different challenge, which would be really cool.
 
-[00:36:27] Kevin: If you're going to give a twelve year old a box, what would you put in the sorting box?
+[00:36:27] Kevin: If you're going to give a 12 year old a box, what would you put in the sorting box?
 
-[00:36:32] Adam: It's a fascinating. It's a wonderful exercise. Yeah, just thinking different types of people. The college student is definitely one. Twelve year old, your mom.
+[00:36:32] Adam: It's a fascinating. It's a wonderful exercise. Yeah, just thinking different types of people. The college student is definitely one. 12 year old, your mom.
 
 [00:36:39] Kevin: Yeah, exactly. So another couple, another something I would put on this indispensable crate would be silicone tape, and I don't. It comes in different names, but this is the tape that it's kind of stretchy. So when you're wrapping something, it's actually self gripping,
 
@@ -772,7 +772,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:38:01] Kevin: Right?
 
-[00:38:01] Adam: And I've been a Dremel user for thirty years. I mean, it's just a totally indispensable model making tool with all the different bits and saws and sanders and flap sanders. It's just gotten better and better and better. And now they have real cordless Dremels with genuine good batteries. The old ones, the first iteration, was not that good. But I'm a moderate user. I mean, when I use it, I use it. But I'm a moderate user, and I've had two failures in the last.
+[00:38:01] Adam: And I've been a Dremel user for 30 years. I mean, it's just a totally indispensable model making tool with all the different bits and saws and sanders and flap sanders. It's just gotten better and better and better. And now they have real cordless Dremels with genuine good batteries. The old ones, the first iteration, was not that good. But I'm a moderate user. I mean, when I use it, I use it. But I'm a moderate user, and I've had two failures in the last.
 
 [00:38:32] Kevin: Is it the battery failing or the motor failing?
 
@@ -810,7 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:39:33] Norm: shatter car windows with the exact same thing.
 
-[00:39:36] Adam: Um, I would be, I would love a recommendation for a never fail brand of those because I've been using those for twenty years, but I find that the springs wear out and that occasionally you'll they just they stop working. Okay, and I you know I've had that happen with with all of them that I've had over the years.
+[00:39:36] Adam: Um, I would be, I would love a recommendation for a never fail brand of those because I've been using those for 20 years, but I find that the springs wear out and that occasionally you'll they just they stop working. Okay, and I you know I've had that happen with with all of them that I've had over the years.
 
 [00:39:53] Kevin: Wow, yeah, well, see, I'm not a power user.
 
@@ -864,7 +864,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:42:59] Will: Well, and you can see what see what's in them too. Yeah,
 
-[00:43:01] Adam: I actually almost never throw out Ziploc bags. I have a whole shelf just for Ziplocs, new, old, covered with them. I remember we saw we just got some costumes with Ziploc bags that were like thirty six.
+[00:43:01] Adam: I actually almost never throw out Ziploc bags. I have a whole shelf just for Ziplocs, new, old, covered with them. I remember we saw we just got some costumes with Ziploc bags that were like 36.
 
 [00:43:13] Kevin: That’s what I'm saying. The big ones are. You you can get
 
@@ -926,13 +926,13 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:44:53] Adam: Wow, I didn't even know about this.
 
-[00:44:54] Kevin: Yeah, it's it's it's um it's like simple. It's like a dollar or something, and it's been around forever.
+[00:44:54] Kevin: Yeah, it's it's it's um it's like simple. It's like $1 or something, and it's been around forever.
 
 [00:45:00] Will: They usually come in a set of like three.
 
 [00:45:01] Kevin: Phillips or standard, and so you can you can you can screw a screw that's hidden in some way.
 
-[00:45:08] Will: The other nice thing about those is because essentially you know the the screwdriver is a wheel a wheel and an axle. So, because the the ninety degree offset makes the outside of the wheel a lot bigger, yeah, you can put a ton of torque on the screw if you have something that's stuck with those.
+[00:45:08] Will: The other nice thing about those is because essentially you know the the screwdriver is a wheel a wheel and an axle. So, because the the 90 degree offset makes the outside of the wheel a lot bigger, yeah, you can put a ton of torque on the screw if you have something that's stuck with those.
 
 [00:45:23] Kevin: Um, twe tweezers,
 
@@ -1128,7 +1128,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:52:16] Adam: Oh boy. I just wanted to show you. I'm always pleased when I can show an example of the absolute limit of a technology. So this is an internal Google project. That is, they they they developed it, and it's an incredibly. I'm not going to turn it on while I point it, but it's four four cluster.
 
-[00:52:35] Kevin: So there's sixteen high watt LEDs.
+[00:52:35] Kevin: So there's 16 high watt LEDs.
 
 [00:52:36] Adam: It runs on these big lithium ion batteries.
 
@@ -1148,7 +1148,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:53:04] Norm: Yeah.
 
-[00:53:04] Adam: At full power, this will only run for about ten minutes.
+[00:53:04] Adam: At full power, this will only run for about 10 minutes.
 
 [00:53:06] Kevin: even the LED is getting hot.
 
@@ -1222,7 +1222,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:55:40] Kevin: from most people. So all you need is a different tip for your set. But some of those securities are are kind of standard, and so you can actually get a set that covers most of the kind of screws that you would encounter, like say opening up a a Mac or something like that.
 
-[00:55:55] Will: iFixit sells, I think, the best one. It's fifty fifty four, fifty eight, or something security bits.
+[00:55:55] Will: iFixit sells, I think, the best one. It's 50 54, 58, or something security bits.
 
 [00:56:01] Adam: I have that one.
 

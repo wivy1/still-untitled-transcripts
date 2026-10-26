@@ -48,7 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:01:05] Norm: This is not an easy thing to replicate, to mass produce.
 
-[00:01:07] Adam: No, no, no. It's mass produced. He's he's very he's very good. Uh, actually, you can actually still buy them up on his website, I believe. Uh, I can't remember the exact cost, but it's under 100 bucks.
+[00:01:07] Adam: No, no, no. It's mass produced. He's he's very he's very good. Uh, actually, you can actually still buy them up on his website, I believe. Uh, I can't remember the exact cost, but it's under $100.
 
 [00:01:17] Will: Regular Tested readers will know.
 
@@ -84,13 +84,13 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:01:57] Will: and how many of them go? Do you know how many go up?
 
-[00:01:58] Adam: Uh, I can. Uh, they go one, two, three, four, five, six, seven, eight, nine, ten up, and they go one, two, three, four, five, six, seven, eight, nine, ten, eleven, twelve, thirteen, fourteen, fifteen, sixteen, seventeen, eighteen, nineteen, twenty, twenty-one, twenty-two, twenty-three, twenty-four, twenty-five, twenty-six around.
+[00:01:58] Adam: Uh, I can. Uh, they go one, two, three, four, five, six, seven, eight, nine, 10 up, and they go one, two, three, four, five, six, seven, eight, nine, 10, 11, 12, 13, 14, 15, 16, 17, 18, 19, 20, 21, 22, 23, 24, 25, 26 around.
 
 [00:02:14] Will: It was all I could do to not just to not start saying other numbers there.
 
 [00:02:18] Adam: Oh, I know. Wasn't that thrilling in real time?
 
-[00:02:20] Norm: Yeah, ten up, twenty-six around.
+[00:02:20] Norm: Yeah, 10 up, 26 around.
 
 [00:02:22] Adam: Yeah,
 
@@ -126,7 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:03:10] Adam: Yes.
 
-[00:03:10] Will: So, um, we've talked a little bit about traveling before, but kind of traveling for work. And I like, for me, a large part of my formative years were spent, you know, in the summer times and at spring break, riding with the family in cars to go to different places, like the Henry Ford Museum in Detroit, which was an amazing place to go when you're twelve or thirteen years old.
+[00:03:10] Will: So, um, we've talked a little bit about traveling before, but kind of traveling for work. And I like, for me, a large part of my formative years were spent, you know, in the summer times and at spring break, riding with the family in cars to go to different places, like the Henry Ford Museum in Detroit, which was an amazing place to go when you're 12 or 13 years old.
 
 [00:03:27] Norm: Great American road trip.
 
@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:04:05] Will: Okay.
 
-[00:04:06] Adam: My grandmother was born there. My mom grew up going there every summer. We have a house up there with a bunch of other relatives. I think there's three or four families on the point at this point, fifteen houses or so, and it's like four or five generations now that have grown up going to this this house in the Cape, these houses, this piece of land. Um, so that was a summer. Every summer we did that. My dad was a painter and an animator, so he also had control over his schedule, and we would go for a month every summer, which was kind of magical. You
+[00:04:06] Adam: My grandmother was born there. My mom grew up going there every summer. We have a house up there with a bunch of other relatives. I think there's three or four families on the point at this point, 15 houses or so, and it's like four or five generations now that have grown up going to this this house in the Cape, these houses, this piece of land. Um, so that was a summer. Every summer we did that. My dad was a painter and an animator, so he also had control over his schedule, and we would go for a month every summer, which was kind of magical. You
 
 [00:04:37] Will: that's awesome, yeah.
 
@@ -170,7 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:06:05] Will: Oh, that's cool.
 
-[00:06:06] Adam: Uh, and I, on the Upper Hudson, about 35 miles north of New York City, thirty miles north of New York City, there's a big mountain called Hook Mountain. Uh, it is a very prominent feature. You can see it from my house in Tarrytown. You could also see it from West Point, uh, south on the river. Pretty sure you could see it from West Point, uh, and it it is like a kind of a central, uh, central geographic visual, uh, reference on the Hudson River. And many of the artists painted it. And my father found all these places that
+[00:06:06] Adam: Uh, and I, on the Upper Hudson, about 35 miles north of New York City, 30 miles north of New York City, there's a big mountain called Hook Mountain. Uh, it is a very prominent feature. You can see it from my house in Tarrytown. You could also see it from West Point, uh, south on the river. Pretty sure you could see it from West Point, uh, and it it is like a kind of a central, uh, central geographic visual, uh, reference on the Hudson River. And many of the artists painted it. And my father found all these places that
 
 [00:06:33] Will: so he used it as a point of reference, and then could kind of back into where the where the paintings were made. That's awesome.
 
@@ -238,7 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:09:46] Will: I'd be down for that.
 
-[00:09:47] Adam: Early on in MythBusters, we went and were present at Disney World for the opening of Mission Space, which was really quite special. Um, I got to be at a party with like three hundred people where Sugar Ray opened for the B-52s. Like it was a surreal night. I got really drunk with Marcia Brady. It was it was a crazy, crazy,
+[00:09:47] Adam: Early on in MythBusters, we went and were present at Disney World for the opening of Mission Space, which was really quite special. Um, I got to be at a party with like 300 people where Sugar Ray opened for the B-52s. Like it was a surreal night. I got really drunk with Marcia Brady. It was it was a crazy, crazy,
 
 [00:10:04] Will: real Marcia Brady or Marcia?
 
@@ -284,7 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:12:31] Will: Okay.
 
-[00:12:32] Adam: And then went up, uh, to Whistler where we did some mountain biking, we did some zip lining, and drove all the way back. We did 2,400 miles in twelve days.
+[00:12:32] Adam: And then went up, uh, to Whistler where we did some mountain biking, we did some zip lining, and drove all the way back. We did 2,400 miles in 12 days.
 
 [00:12:39] Will: Well, that's a that's a good rate.
 

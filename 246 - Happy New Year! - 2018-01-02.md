@@ -292,11 +292,11 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:10:32] Will: Is that an SUV that you can't see out the back of?
 
-[00:10:34] Adam: No, you can kind of see out the back of it. It was for the dogs and us. And once we got to Portland, I took all the kids to see Star Wars, and you know, but it was like all hydroplaning black ice everywhere in Portland. Get on the freeway; no one's going over thirty.
+[00:10:34] Adam: No, you can kind of see out the back of it. It was for the dogs and us. And once we got to Portland, I took all the kids to see Star Wars, and you know, but it was like all hydroplaning black ice everywhere in Portland. Get on the freeway; no one's going over 30.
 
 [00:10:50] Will: Yeah,
 
-[00:10:51] Adam: Everyone’s just keeping like ninety feet between everyone else. I watched people just at like ten miles an hour drive through fences without being able to control the direction of their car.
+[00:10:51] Adam: Everyone’s just keeping like 90 feet between everyone else. I watched people just at like 10 miles an hour drive through fences without being able to control the direction of their car.
 
 [00:11:00] Norm: This is the Tesla autopilot death scenario.
 
@@ -454,7 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:16:00] Norm: a smaller zoo.
 
-[00:16:01] Adam: Let me tell you about downsizing. Everything you've seen in the trailer is the first twenty minutes of the movie.
+[00:16:01] Adam: Let me tell you about downsizing. Everything you've seen in the trailer is the first 20 minutes of the movie.
 
 [00:16:06] Will: Oh, I love that.
 
@@ -618,7 +618,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:22:03] Adam: I really hope this film has legs at the box office and with the Oscars because it is the kind of exciting, non-franchise, original project that we need more of in the movies.
 
-[00:22:16] Norm: You know, the last year in 2017, the only movie I think made it in the top ten box office wise as original story was Dunkirk.
+[00:22:16] Norm: You know, the last year in 2017, the only movie I think made it in the top 10 box office wise as original story was Dunkirk.
 
 [00:22:23] Adam: Right. Yeah. Right. Everything else was a franchise or an adaptation.
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:22:54] Norm: miscast, I think, a little bit in in the the leads, but I thought story wise was fantastic. Visually, of course,
 
-[00:23:01] Adam: I I still haven't finished it. I I got about forty five minutes in and I couldn't take the dialogue.
+[00:23:01] Adam: I I still haven't finished it. I I got about 45 minutes in and I couldn't take the dialogue.
 
 [00:23:07] Norm: I'll tell you this: getting I got new TV over over this past month,
 
@@ -664,7 +664,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:24:25] Will: I don't want to have
 
-[00:24:26] Norm: ten or thirty for denoising or sharpening? Yeah, I love it.
+[00:24:26] Norm: 10 or 30 for denoising or sharpening? Yeah, I love it.
 
 [00:24:32] Will: I, the the one joy, the one great joy of not going home at the holidays is that I don't have to go see all my relatives that have their TVs with motion smoothing on.
 
@@ -692,7 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:24:58] Will: Oh.
 
-[00:24:58] Norm: eighty-three men died in five minutes, and that's the premise. And it opens with a town that's run 90% by women, and a looming gang comes. Weeks.
+[00:24:58] Norm: 83 men died in five minutes, and that's the premise. And it opens with a town that's run 90% by women, and a looming gang comes. Weeks.
 
 [00:25:53] Will: What's the name of the What's the name of it?
 
@@ -782,7 +782,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:29:22] Adam: Right.
 
-[00:29:22] Will: When at this point, it's like anywhere from five cents to maybe a buck if you're writing for Condé or something.
+[00:29:22] Will: When at this point, it's like anywhere from $0.05 to maybe $1 if you're writing for Condé or something.
 
 [00:29:22] Adam: Yeah,
 
@@ -790,7 +790,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:29:22] Adam: No,
 
-[00:29:22] Will: for a five hundred five hundred word review that you're going to get paid thirty dollars for.
+[00:29:22] Will: for a 500 500 word review that you're going to get paid $30 for.
 
 [00:29:43] Adam: Indeed.
 

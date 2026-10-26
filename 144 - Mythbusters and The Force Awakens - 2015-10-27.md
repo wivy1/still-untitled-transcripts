@@ -28,7 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:01:27] Will: Yeah. Why you need a team of people? Because because you guys are you you your time is booked on weekdays. Anytime you're outside of your house, basically.
 
-[00:01:35] Adam: Yeah, yeah, it's true. I mean, and to to to put in in some perspective, I don't think that I fly a lot, but I'm wrong. I I I have my kids. I split custody with my kids with their mom week week right, and I genuinely managed to not have to travel. On the weeks that I have the boys, so over those twenty-five weeks a year that I don't have the boys, I still fly about a hundred thousand miles a year.
+[00:01:35] Adam: Yeah, yeah, it's true. I mean, and to to to put in in some perspective, I don't think that I fly a lot, but I'm wrong. I I I have my kids. I split custody with my kids with their mom week week right, and I genuinely managed to not have to travel. On the weeks that I have the boys, so over those 25 weeks a year that I don't have the boys, I still fly about 100,000 miles a year.
 
 [00:02:04] Norm: Wow! Just in those weeks.
 
@@ -42,7 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:02:11] Will: It’s a lot. Vacations.
 
-[00:02:11] Will: Yeah, that's forty cross countries.
+[00:02:11] Will: Yeah, that's 40 cross countries.
 
 [00:02:14] Adam: It's it it works out to something close to that. I mean, you know, we were in Abu Dhabi this summer, and
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:07:23] Adam: Right, Yes
 
-[00:07:23] Norm: , right. And you're not gonna feel that until you know you have guys like Jason Reitman who love MythBusters and informs how they think, critically think, but could be ten, fifteen years from now before the next you know batch of astronauts.
+[00:07:23] Norm: , right. And you're not gonna feel that until you know you have guys like Jason Reitman who love MythBusters and informs how they think, critically think, but could be 10, 15 years from now before the next you know batch of astronauts.
 
 [00:07:36] Adam: Yeah, you know, and it's parents come up and we've become sort of. I've said this before, but I think we've become sort of patron saints of autism spectrum disorder. You know, I do the signings at Maker Faire. I'm sorry, I didn't go last year. But whenever I do those signings. There's parents who come up and say your show is the only thing my kid slows down for, and it showed them that there was a possibility. And again, this isn't this is so far outside our original mission that is astonishing. So I love this show. I love making this show. I i i will miss making it. I really am excited about the next the next stage. And one of the great things about the the Twitter feed, my Twitter responses is a lot of people are saying exactly what I'm thinking, which is they're saying can't wait to see what happens on Tested next year,
 
@@ -196,7 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:13:26] Norm: So it's as if it had just pulled off.
 
-[00:13:27] Adam: Right. This is no. It is effectively. I was without a steering wheel from. I was going fifty miles an hour, and all of a sudden, my steering wheel broke away. Like nothing's happening.
+[00:13:27] Adam: Right. This is no. It is effectively. I was without a steering wheel from. I was going 50 miles an hour, and all of a sudden, my steering wheel broke away. Like nothing's happening.
 
 [00:13:41] Norm: 280 gets curvy,
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:18:31] Adam: tapping the brake, adjusting, tapping the brake, getting your siren on. All right, let's talk about the really important thing.
 
-[00:18:37] Will: Back to the Future Day. Oh wait, twenty five years ago today.
+[00:18:37] Will: Back to the Future Day. Oh wait, 25 years ago today.
 
 [00:18:43] Adam: Oh, I was sad that the Cubs didn't make it into the series.
 
@@ -514,13 +514,13 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:24:06] Adam: Right
 
-[00:24:07] Adam: you realize it's become mythology over the last thirty years.
+[00:24:07] Adam: you realize it's become mythology over the last 30 years.
 
 [00:24:10] Will: Well, that like I immediately went through and replayed all of the first three movies and was like, oh wait, okay, so Jedi were real in the Old Republic,
 
 [00:24:18] Adam: right?
 
-[00:24:18] Will: And then there's forty years, basically thirty five years, and all of the stuff that happened that we know about the the Jedi fight at the end of Episode Four,
+[00:24:18] Will: And then there's 40 years, basically 35 years, and all of the stuff that happened that we know about the the Jedi fight at the end of Episode Four,
 
 [00:24:27] Adam: right?
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:26:39] Adam: Seven. Oh no, no, no! I, I, I, my, my, my fantasy is that it's Carrie Fisher. Like the film's going to take great. So you imagine from a screenwriting standpoint, Larry Kasdan, and I love you. You imagine from a screenwriting standpoint that you've got to expend a certain amount of energy getting to Han, and then Leia, Han, Leia, and Luke are all reveals. I don't think you just start out knowing about.
 
-[00:27:05] Will: I mean, that's the thing. It's Act One is all. What's happened in the twenty years since?
+[00:27:05] Will: I mean, that's the thing. It's Act One is all. What's happened in the 20 years since?
 
 [00:27:09] Adam: Right, so maybe Act One is Han, Act Two is Leia, and Act Three is Luke.
 
@@ -658,7 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:29:56] Will: no, no.
 
-[00:29:56] Adam: no, no. and so yeah, no, that's very exciting. I will tell you, by the way, that the first time I saw Darth Maul, when I worked at Industrial Light and Magic, we would once a month gather together to watch all the shots that had been completed by the company that month. And there was a guy in the edit room up there who would cut together all the completed effects shots, but they weren't with sound. That's a totally different thing. So he'd just cut it to some cool piece of music, and you'd go once a month and to see theater where we watched the Martian screening last week. And you'd sit there for probably thirty-five minutes to some cool soundtrack, and what? And you'd watch like a perfect storm mixed with bits from Pearl Harbor, mixed with bits from Episode Two. And that was the first time I saw Darth Maul, and we were, I must say, from inside the company, we were making lots of fun of Darth Maul from the very beginning. We kept we called him El Diablo.
+[00:29:56] Adam: no, no. and so yeah, no, that's very exciting. I will tell you, by the way, that the first time I saw Darth Maul, when I worked at Industrial Light and Magic, we would once a month gather together to watch all the shots that had been completed by the company that month. And there was a guy in the edit room up there who would cut together all the completed effects shots, but they weren't with sound. That's a totally different thing. So he'd just cut it to some cool piece of music, and you'd go once a month and to see theater where we watched the Martian screening last week. And you'd sit there for probably 35 minutes to some cool soundtrack, and what? And you'd watch like a perfect storm mixed with bits from Pearl Harbor, mixed with bits from Episode Two. And that was the first time I saw Darth Maul, and we were, I must say, from inside the company, we were making lots of fun of Darth Maul from the very beginning. We kept we called him El Diablo.
 
 [00:30:48] Adam: I mean, I-
 
@@ -708,7 +708,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:31:41] Adam: Close Encounters is still amazing.
 
-[00:31:43] Will: I, you know, I haven't watched that in about twenty years. I need to go back to it again.
+[00:31:43] Will: I, you know, I haven't watched that in about 20 years. I need to go back to it again.
 
 [00:31:46] Adam: It's fantastic.
 

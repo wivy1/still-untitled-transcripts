@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:08:24] Adam: So yeah, Pongfinity is a a website of people doing impossible things with ping pong balls, like opening up bottles of Coke from across the room by putting enough spin on the ping pong ball that it hits a cap with enough spin to kind of give it that last twist to knock it off the top.
 
-[00:08:41] Norm: And is it that like internet video thing where they did that a thousand times and are just showing the one success?
+[00:08:41] Norm: And is it that like internet video thing where they did that 1,000 times and are just showing the one success?
 
 [00:08:47] Adam: Look, it’s certainly. Go ahead.
 
@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:09:29] Simone: I'm not. I'm not mentioning any names, but people I know.
 
-[00:09:33] Adam: Look, when we talk about fake, there's two kinds of fake. There's is it CG, and my answer to that is I think steadfastly no. And the other question is is is it fake because they took a thousand tries and only showed a successful one. That's not fake.
+[00:09:33] Adam: Look, when we talk about fake, there's two kinds of fake. There's is it CG, and my answer to that is I think steadfastly no. And the other question is is is it fake because they took 1,000 tries and only showed a successful one. That's not fake.
 
 [00:09:45] Unknown speaker: That's that's something else.
 
@@ -320,7 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:14:43] Simone: Did you get any gut punches?
 
-[00:14:45] Adam: Um, yeah, no. There's definitely some parts that I, um, that I I got weepy at. I'm a crier. Um, I found it really moving, and so so we were down in L.A. We had a lovely Thanksgiving dinner. My mom was there. My eighty-two-year-old mom, who none of us can keep up with, she is just a, a lightning bolt. Um, and I went and saw. I went to LACMA, uh, the L.A. County Museum of Art, where I went to see the Guillermo exhibit, only to find out that it was sold out. So I went again. So I went to LACMA twice.
+[00:14:45] Adam: Um, yeah, no. There's definitely some parts that I, um, that I I got weepy at. I'm a crier. Um, I found it really moving, and so so we were down in L.A. We had a lovely Thanksgiving dinner. My mom was there. My 82-year-old mom, who none of us can keep up with, she is just a, a lightning bolt. Um, and I went and saw. I went to LACMA, uh, the L.A. County Museum of Art, where I went to see the Guillermo exhibit, only to find out that it was sold out. So I went again. So I went to LACMA twice.
 
 [00:15:14] Norm: Wait, they sell out of [unclear: an / it]? [unclear: You can. / You can? / You can sell]
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:15:27] Norm: Right.
 
-[00:15:27] Adam: Um, you had to buy a, a reserved ticket. There's a rain room there. I don't know if you know about the rain room at LACMA. Well, it's only open. It's only there until the end of the year. Um, it's pretty amazing. It's like this forty by forty foot square room that is black, and it is raining from the ceiling, like heavy, big, fat drops of rain. Um, and the floor is like this big grate, so the rain collects, and it you know doesn't make the floor wet. And you walk through. And there are sensors, and you walk slowly, and it doesn't rain on you.
+[00:15:27] Adam: Um, you had to buy a, a reserved ticket. There's a rain room there. I don't know if you know about the rain room at LACMA. Well, it's only open. It's only there until the end of the year. Um, it's pretty amazing. It's like this 40 by 40 foot square room that is black, and it is raining from the ceiling, like heavy, big, fat drops of rain. Um, and the floor is like this big grate, so the rain collects, and it you know doesn't make the floor wet. And you walk through. And there are sensors, and you walk slowly, and it doesn't rain on you.
 
 [00:15:58] Simone: Doesn't rain on you.
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:16:03] Norm: how many people can go through it at once?
 
-[00:16:04] Adam: Um, it's about like fifteen or so.
+[00:16:04] Adam: Um, it's about like 15 or so.
 
 [00:16:07] Norm: Okay,
 
@@ -470,11 +470,11 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:21:45] Norm: Yeah. It’s for a new book.
 
-[00:21:47] Adam: So Francis Coppola, when he first heard that he might direct The Godfather, he bought a copy of the book and he read it and he made notes in the margins. Then, when he got the job to direct The Godfather, he took that book, sliced out every page of the book, pasted it into the middle of an eight and a half by eleven sheet of paper or A four to Europeans.
+[00:21:47] Adam: So Francis Coppola, when he first heard that he might direct The Godfather, he bought a copy of the book and he read it and he made notes in the margins. Then, when he got the job to direct The Godfather, he took that book, sliced out every page of the book, pasted it into the middle of an 8.5 by 11 sheet of paper or A four to Europeans.
 
 [00:22:06] Simone: Thanks.
 
-[00:22:06] Adam: Um, and put it in a binder and he started to add type-written pages about how these scenes might play out, um, moods, tones, inspirations, and pitfalls. And then in the end, he ended up directing the movie from this tome that was seven hundred pages, and it's perfectly reproduced in this book called The Godfather Diary.
+[00:22:06] Adam: Um, and put it in a binder and he started to add type-written pages about how these scenes might play out, um, moods, tones, inspirations, and pitfalls. And then in the end, he ended up directing the movie from this tome that was 700 pages, and it's perfectly reproduced in this book called The Godfather Diary.
 
 [00:22:27] Unknown speaker: Godfather Diary.
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:23:20] Norm: in all stories
 
-[00:23:20] Adam: seventy five minutes, and he just had story after story.
+[00:23:20] Adam: 75 minutes, and he just had story after story.
 
 [00:23:23] Norm: Wow!
 
@@ -504,7 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:23:57] Simone: Yeah.
 
-[00:23:58] Adam: But by the way, Coppola when he directed Godfather, twenty nine years old.
+[00:23:58] Adam: But by the way, Coppola when he directed Godfather, 29 years old.
 
 [00:24:03] Simone: What?
 
@@ -602,7 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:26:57] Simone: So much sheep.
 
-[00:26:59] Adam: And yeah, very very narrow roads. I found the two lane. Maybe that's all over Europe, but I personally, I found driving on the other side of the road in Scotland on those narrow roads where eighteen wheelers are heading towards you.
+[00:26:59] Adam: And yeah, very very narrow roads. I found the two lane. Maybe that's all over Europe, but I personally, I found driving on the other side of the road in Scotland on those narrow roads where 18 wheelers are heading towards you.
 
 [00:27:02] Simone: Yeah.
 
@@ -726,7 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:31:24] Simone: Such a grownup.
 
-[00:31:25] Adam: So much fun to do that in London, where I found out that for four and a half million dollars, you can have eighteen hundred square feet of house.
+[00:31:25] Adam: So much fun to do that in London, where I found out that for $4.5 million, you can have 1,800 square feet of house.
 
 [00:31:34] Simone: That’s quite the catch.
 
@@ -874,7 +874,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:35:51] Norm: still going. So please check it out. You can search Foo VR, uh, on Kickstarter. I think he's really close to his goal. So, uh, it'd be great if you can help him out. And we'll be doing projects all this week. Lots of stuff going on.
 
-[00:36:04] Adam: Um, a sorry, one other shout out. I tweeted earlier this week. My friend Ken Plume is doing a fundraiser for some stuff for surgery that he needs. Um, go check it out. Give him five bucks. Give him ten bucks. Ken is literally one of the sweetest humans alive, and this is really important to him. And he's a very brave guy. So help him out.
+[00:36:04] Adam: Um, a sorry, one other shout out. I tweeted earlier this week. My friend Ken Plume is doing a fundraiser for some stuff for surgery that he needs. Um, go check it out. Give him $5. Give him $10. Ken is literally one of the sweetest humans alive, and this is really important to him. And he's a very brave guy. So help him out.
 
 [00:36:22] Norm: Awesome. Um, and thanks Simone for joining us.
 

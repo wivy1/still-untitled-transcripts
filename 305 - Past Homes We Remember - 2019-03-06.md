@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:04:37] Adam: money's are up. Okay, all right, that's what's going on.
 
-[00:04:39] Norm: Yeah, I mean, it's it's still around, and I think the the goal of getting people in the seats and preserving that, whatever that is evolving, because that definitely is not the same as it was a hundred years ago. You know with IMAX and Dolby and 3D.
+[00:04:39] Norm: Yeah, I mean, it's it's still around, and I think the the goal of getting people in the seats and preserving that, whatever that is evolving, because that definitely is not the same as it was 100 years ago. You know with IMAX and Dolby and 3D.
 
 [00:04:52] Will: I mean, it's not it's not a people in a tent with a with a hand projector,
 
@@ -206,11 +206,11 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:07:59] Will: I think it does actually.
 
-[00:08:02] Norm: The fifty, twenty million dollar movie,
+[00:08:02] Norm: The $50 million, $20 million movie,
 
 [00:08:02] Unknown speaker (Norm or Will): right?
 
-[00:08:02] Norm: Everything is 100,000,000 dollars. Everything is the world at stake.
+[00:08:02] Norm: Everything is $100 million. Everything is the world at stake.
 
 [00:08:06] Will then Adam then Will: Bridesmaids, bridesmaids, bridesmaids is a hard R comedy.
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:09:16] Norm: The the categories or the lines are blurred.
 
-[00:09:18] Will: The thing well, the thing that's happened across all media is that either you have to make something incredibly cheap with really low overhead and plan to make your money back if you're lucky, or you grab some sort of tiger by its tail and you accidentally buy Marvel if you're Disney and you crank out 19 movies and make 20 billion dollars over the next 10 years. There's really not much of an in between anymore. I mean, there's occasional anomalies. Crazy Rich Asians is one of them.
+[00:09:18] Will: The thing well, the thing that's happened across all media is that either you have to make something incredibly cheap with really low overhead and plan to make your money back if you're lucky, or you grab some sort of tiger by its tail and you accidentally buy Marvel if you're Disney and you crank out 19 movies and make $20 billion over the next 10 years. There's really not much of an in between anymore. I mean, there's occasional anomalies. Crazy Rich Asians is one of them.
 
 [00:09:42] Adam: And hopefully, its success yields many more.
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:10:09] Adam: and so when I tweet about you know Mythbusters Junior airing in the U.S. and I can't get numbers from Discovery about when it's airing in Canada, in South America, Central America, Asia, Europe, those are the those people follow us in all of those places and want to know that kind of stuff. And Netflix makes that trivial.
 
-[00:10:44] Will: Well, so there's. There's the the thing that they did is you know half of a but of if a movie costs 100,000,000 dollars to make often the studio will spend another seventy five or a hundred million dollars marketing it.
+[00:10:44] Will: Well, so there's. There's the the thing that they did is you know half of a but of if a movie costs $100 million to make often the studio will spend another $75 million or $100 million marketing it.
 
 [00:10:44] Adam: Jesus Christ!
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:10:44] Adam: Understood.
 
-[00:10:44] Will: And Netflix bypasses that because everybody turns on the TV and I go straight to the Netflix menu and plays menu here for ten minutes.
+[00:10:44] Will: And Netflix bypasses that because everybody turns on the TV and I go straight to the Netflix menu and plays menu here for 10 minutes.
 
 [00:11:12] Norm: Yeah, and they don't need to pay for prints to be made. They don't need to pay the the theater chains.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:11:19] Will: yeah,
 
-[00:11:19] Norm: yes, but that that's still a big part of that's why independent films who aren't picked up by Netflix have very tough time in the awards because they don't get distribution. Yeah, in the same way, but just in the format of film, we can all agree that that ninety minute to two hour story, it's the same. Roma. And and and and Avengers: Infinity War are both films, are both movies,
+[00:11:19] Norm: yes, but that that's still a big part of that's why independent films who aren't picked up by Netflix have very tough time in the awards because they don't get distribution. Yeah, in the same way, but just in the format of film, we can all agree that that 90 minute to two hour story, it's the same. Roma. And and and and Avengers: Infinity War are both films, are both movies,
 
 [00:11:46] Adam: absolutely, absolutely.
 
@@ -308,13 +308,13 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:11:51] Adam: So there is a really interesting article I came across that talked about that. The very last time the studios, did I already talk about this on the podcast?, that the studios had a hostless Oscars was 1968, 69. At the very moment, the studio system was dying, and young, brash filmmakers like John Cassavetes and were bringing up films that were super cheap with amazing performances and amazing writing in them, and that engendered this whole radical shift in film into the early '70s. So that they pointed out that that happened at this pivot point in in film.
 
-[00:12:23] Will: So I was going to say the thing that hasn't happened as much with film as it has happened with online video and even TV to a lesser extent is that the democratization of the process hasn't gone down. And part of it is that is that you know with a podcast, the stuff that we have sitting on our desk would have cost fifteen or twenty thousand dollars
+[00:12:23] Will: So I was going to say the thing that hasn't happened as much with film as it has happened with online video and even TV to a lesser extent is that the democratization of the process hasn't gone down. And part of it is that is that you know with a podcast, the stuff that we have sitting on our desk would have cost $15,000 or $20,000
 
-[00:12:39] Will: right ten or twelve years ago.
+[00:12:39] Will: right 10 or 12 years ago.
 
-[00:12:40] Will: And now it's five less than a grand to get everything you need to have a three-person podcast in in your living room.
+[00:12:40] Will: And now it's five less than $1,000 to get everything you need to have a three-person podcast in in your living room.
 
-[00:12:46] Adam: And and this is why I love what Neill Blomkamp is doing with Oats Studio. I love that he is let's build a Roger Corman model where the quality now is ten times what it was when Roger Corman was putting ships on sticks and filming them with cameras and makes them compelling stories.
+[00:12:46] Adam: And and this is why I love what Neill Blomkamp is doing with Oats Studio. I love that he is let's build a Roger Corman model where the quality now is 10 times what it was when Roger Corman was putting ships on sticks and filming them with cameras and makes them compelling stories.
 
 [00:13:04] Norm: He's doing everything from short films, full-length films, to commercial projects, during advertisements for you know people want to have Neill Blomkamp film.
 
@@ -324,11 +324,11 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:13:18] Adam: Right,
 
-[00:13:18] Will: is so that you can instead of you know spending you know six months pre-production on a TV show and then shipping it off for fifty weeks to Southeast Asia or Africa to be animated,
+[00:13:18] Will: is so that you can instead of you know spending you know six months pre-production on a TV show and then shipping it off for 50 weeks to Southeast Asia or Africa to be animated,
 
 [00:13:18] Adam: Yeah.
 
-[00:13:18] Will: and then getting it back and doing the last cleanup and publishing it, we can do that. We can take out that fifty weeks and make it like two or three weeks.
+[00:13:18] Will: and then getting it back and doing the last cleanup and publishing it, we can do that. We can take out that 50 weeks and make it like two or three weeks.
 
 [00:13:18] Adam: Yeah.
 
@@ -360,7 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:14:30] Will: Like Jaws would have been would have been a drive in theater movie.
 
-[00:14:39] Will: You know, that was ten years before.
+[00:14:39] Will: You know, that was 10 years before.
 
 [00:14:40] Adam: You know, Jaws was on on Hotel Television, where I was. I was on a shoot recently, and I sat and watched it one night.
 
@@ -644,23 +644,23 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:26:59] Unknown (Will or Norm): Okay.
 
-[00:26:59] Adam: Somebody else was like, " I love this puppy," and she's like, " Go get it." And somebody else was like, " I want this ridiculous 5,000,000 dollar house in Garrison, New York," and they posted this Zillow ad for this ludicrous 5,000,000 dollar house in Garrison, New York. And I went and looked at it because I love real estate porn.
+[00:26:59] Adam: Somebody else was like, " I love this puppy," and she's like, " Go get it." And somebody else was like, " I want this ridiculous $5 million house in Garrison, New York," and they posted this Zillow ad for this ludicrous $5 million house in Garrison, New York. And I went and looked at it because I love real estate porn.
 
 [00:26:59] Unknown speaker (Adam or Norm): Oh yeah!
 
 [00:26:59] Adam: [unclear: And I’m flipping / Flipping].
 
-[00:27:40] Will: And here, like just to be clear, here a 5,000,000 dollar house is like four bedrooms, three baths.
+[00:27:40] Will: And here, like just to be clear, here a $5 million house is like four bedrooms, three baths.
 
-[00:27:47] Adam: No, like on a it's a two thousand square foot house here.
+[00:27:47] Adam: No, like on a it's a 2,000 square foot house here.
 
-[00:27:48] Will: Yeah, yeah, yeah. Five thousand square foot lot.
+[00:27:48] Will: Yeah, yeah, yeah. 5,000 square foot lot.
 
 [00:27:50] Adam: Um, and I'm flipping through the pages of this Zillow listing, and it's bringing something up in my memory.
 
 [00:27:50] Unknown speaker: Oh my!
 
-[00:27:50] Adam: And I text my mom, and I'm like, " Hey, is this Doug and Sarah's old house? Because they had some very good friends. He worked on Wall Street. They were friends since I was in New York, so since the since like '68, '69, something like that. And they had this house that I remember going to, and I was right. This was a house that I grew up going to from ages like seven to twelve.
+[00:27:50] Adam: And I text my mom, and I'm like, " Hey, is this Doug and Sarah's old house? Because they had some very good friends. He worked on Wall Street. They were friends since I was in New York, so since the since like '68, '69, something like that. And they had this house that I remember going to, and I was right. This was a house that I grew up going to from ages like seven to 12.
 
 [00:27:50] Norm: Oh my, how did you feel?
 
@@ -680,7 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:29:11] Norm: can be yours for the bargain price,
 
-[00:29:12] Adam: 5,000,000 bucks. Um, yeah, that was a weird trip down memory lane. I didn't expect.
+[00:29:12] Adam: $5 million. Um, yeah, that was a weird trip down memory lane. I didn't expect.
 
 [00:29:16] Will: Did I tell you about the time I was on r/architecture, and they're like, " What the hell were they thinking?" Thread of that day featured my old apartment.
 
@@ -698,11 +698,11 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:29:33] Adam: got it,
 
-[00:29:33] Will: and it was relatively inexpensive. We were paying 2,400 dollars a month for three, two bedrooms and two baths.
+[00:29:33] Will: and it was relatively inexpensive. We were paying $2,400 a month for three, two bedrooms and two baths.
 
 [00:29:33] Adam: Yeah,
 
-[00:29:33] Will: twelve hundred square feet, glorious in San Francisco. It had one problem. Through the kitchen, there was a five six inch steel girder that came diagonally out of the cabinets and and stuck out about halfway into the into the main entry for the house.
+[00:29:33] Will: 1,200 square feet, glorious in San Francisco. It had one problem. Through the kitchen, there was a five six inch steel girder that came diagonally out of the cabinets and and stuck out about halfway into the into the main entry for the house.
 
 [00:30:10] Adam: Oh, I love that so much!
 
@@ -710,7 +710,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:30:12] Norm: tripping hazard.
 
-[00:30:12] Will: Like we literally looked at him. We're like, man, we've been in this four hundred square foot apartment that we're paying almost the exact same thing for for a year.
+[00:30:12] Will: Like we literally looked at him. We're like, man, we've been in this 400 square foot apartment that we're paying almost the exact same thing for for a year.
 
 [00:30:19] Norm: You can deal with it.
 
@@ -754,7 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:31:06] Adam: Yeah,
 
-[00:31:06] Will: that's like a thousand acres for only 13,000,000 dollars right now. So if anybody wants to, you know, get a farm up on Westeroma,
+[00:31:06] Will: that's like 1,000 acres for only $13 million right now. So if anybody wants to, you know, get a farm up on Westeroma,
 
 [00:31:31] Adam: oh well, you know, I'm sure some billionaire would like to buy it and limit beach access like a douchebag.
 
@@ -804,7 +804,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:32:40] Will: infinite.
 
-[00:32:41] Norm: There, there are many, and these are folks who spent upwards of like 10,000,000 dollars on, and the range is like the 1,000,000 dollar, the 5,000,000 dollar, and a 10,000,000 dollar house lakeside in one episode. I'm like, how is this even believable that these people are choosing between these three?
+[00:32:41] Norm: There, there are many, and these are folks who spent upwards of like $10 million on, and the range is like the $1 million, the $5 million, and a $10 million house lakeside in one episode. I'm like, how is this even believable that these people are choosing between these three?
 
 [00:32:57] Unknown speaker (Adam or Will): I know,
 
@@ -878,9 +878,9 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:34:56] Adam: Bye guys.
 
-[00:34:58] Will: Nice. Did they do Thirty Rock? Thirty Rock had to be done in L.A., right?
+[00:34:58] Will: Nice. Did they do 30 Rock? 30 Rock had to be done in L.A., right?
 
-[00:35:03] Adam then Will then Adam then Norm: Uh, that I don’t think so. No, Thirty Rock was shot. Shot in New York? At, uh, um. Yep. It was.
+[00:35:03] Adam then Will then Adam then Norm: Uh, that I don’t think so. No, 30 Rock was shot. Shot in New York? At, uh, um. Yep. It was.
 
 [00:35:09] Adam: It was shot at the at the studios in Queens.
 

@@ -20,9 +20,9 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:00:38] Norm: contributor of Tested, co-host of our other podcast. This is only a test, and also you have your own podcast too, Inquiring Minds. With Indre.
 
-[00:00:44] Kishore: I do. I talk about science all the time. I don't understand this format where you guys only talk for about like thirty minutes. I'm used to like four hours or
+[00:00:44] Kishore: I do. I talk about science all the time. I don't understand this format where you guys only talk for about like 30 minutes. I'm used to like four hours or
 
-[00:00:51] Norm: Sometimes twenty-five.
+[00:00:51] Norm: Sometimes 25.
 
 [00:00:52] Adam: I was thinking as I passed you guys recording your podcast. The other day, and made the joke for the millionth time. Were you guys about to record that four-hour podcast, and I thought you got to get rid of these jokes you say all the time. That's what I said to myself.
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:03:09] Adam: How much fun was that?
 
-[00:03:11] Kishore: So much fun because it's it holds up in a way that you don't see many movies that are almost forty years old hold up in that way.
+[00:03:11] Kishore: So much fun because it's it holds up in a way that you don't see many movies that are almost 40 years old hold up in that way.
 
 [00:03:19] Adam: Not at all, and and you know Steven Soderbergh took Raiders a couple years ago, stripped all the color out and removed the sound and played it as a silent film as a demonstration of how well you can tell exactly what's going on through the whole film without ever hearing a line of dialogue. And he points out that that is a testament to Spielberg's beyond genius framing.
 
@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:05:11] Norm: It's one of those things once you see it, you can't see. But I'm not going to reveal until Adam list your movie is some 1981 ish.
 
-[00:05:17] Adam: This is why it was a great thing to be a 14 year old boy in 1981. We had Raiders of the Lost Ark, Stripes, Escape from New York, Evil Dead, American Werewolf in London, Halloween II, Cannonball Run, Road Warrior, Excalibur, Body Heat, Das Boot, Victory, Postman's Always Rings Twice, Ragtime, Endless Love, Heavy Metal, Friday the Thirteenth Part Two, Clash of the Titans. Time Bandits, Dragonslayer, History of the World Part One for Your Eyes Only. That was the Bond movie that came out that year. Let's see, Scanners.
+[00:05:17] Adam: This is why it was a great thing to be a 14 year old boy in 1981. We had Raiders of the Lost Ark, Stripes, Escape from New York, Evil Dead, American Werewolf in London, Halloween II, Cannonball Run, Road Warrior, Excalibur, Body Heat, Das Boot, Victory, Postman's Always Rings Twice, Ragtime, Endless Love, Heavy Metal, Friday the 13th Part Two, Clash of the Titans. Time Bandits, Dragonslayer, History of the World Part One for Your Eyes Only. That was the Bond movie that came out that year. Let's see, Scanners.
 
 [00:05:55] Norm: Wow.
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:06:25] Norm: pop culture history. And like if you were if you're the culmination of the films you watched, then you maybe like you could replicate you just by inserting those films and into the pot that makes a person up.
 
-[00:06:38] Adam: So I remember seeing Raiders and the credits are rolling in Raiders, and I'm there 14. I'm just like. My life is different now. This movie has happened to me, and my cousin turned to me and he went, " Well, for your eyes only is still the best movie this summer." And at fourteen, I remember saying, " I have no idea what you're talking about. We just, we just went through something really important, and you're denying its importance."
+[00:06:38] Adam: So I remember seeing Raiders and the credits are rolling in Raiders, and I'm there 14. I'm just like. My life is different now. This movie has happened to me, and my cousin turned to me and he went, " Well, for your eyes only is still the best movie this summer." And at 14, I remember saying, " I have no idea what you're talking about. We just, we just went through something really important, and you're denying its importance."
 
 [00:07:03] Kishore: Yeah, I think you won out.
 
@@ -346,7 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:14:27] Kishore: Oh, that's great. So, like, even the Freedom Tower, which is relatively new,
 
-[00:14:32] Adam: yeah, yeah, and so there is also there is little wires for planes that take off at LaGuardia and land at Kennedy on on little strings. It's it's. Gobsmacking to see it's something like a hundred some a hundred and fifty thousand buildings.
+[00:14:32] Adam: yeah, yeah, and so there is also there is little wires for planes that take off at LaGuardia and land at Kennedy on on little strings. It's it's. Gobsmacking to see it's something like 100 some 150,000 buildings.
 
 [00:14:47] Kishore: I've never seen this.
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:17:11] Kishore: Yeah, I I think calling it a magic show is sort of a a weird disservice to what it actually is. It's really it's you're going to a one man show.
 
-[00:17:20] Adam: It's a one man show, seventy minutes long with six tricks in it, and every one of them. I mean, like Michael Weber, who directed Brain Candy and is a wonderful magic designer and magician in his own right, has this you know conversational gambit. He'll be like, " There's only X number of tricks," and then he'll lay out for you the categorical top lines of these like seven different kinds of tricks. And you realize, oh wow, he's really right. There's only these kinds of these number of tricks. It still feels like all six tricks, in and of itself, are different than anything I have seen. And as much as I know about magic over the years, there is there's one trick in there I still don't know how they do it. I have like literally no idea at all.
+[00:17:20] Adam: It's a one man show, 70 minutes long with six tricks in it, and every one of them. I mean, like Michael Weber, who directed Brain Candy and is a wonderful magic designer and magician in his own right, has this you know conversational gambit. He'll be like, " There's only X number of tricks," and then he'll lay out for you the categorical top lines of these like seven different kinds of tricks. And you realize, oh wow, he's really right. There's only these kinds of these number of tricks. It still feels like all six tricks, in and of itself, are different than anything I have seen. And as much as I know about magic over the years, there is there's one trick in there I still don't know how they do it. I have like literally no idea at all.
 
 [00:18:03] Kishore: So you can go in with the mindset that Adam's talking about, like where you try to figure the show out. I would say if you have any control, don't do that.
 
@@ -446,9 +446,9 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:19:08] Norm: And it wasn't a it's not a big theater because I'm looking for tickets.
 
-[00:19:11] Kishore: No, hundred,
+[00:19:11] Kishore: No, 100,
 
-[00:19:12] Adam: hundred fifty.
+[00:19:12] Adam: 150.
 
 [00:19:12] Kishore: Wow,
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:21:21] Adam: British magician,
 
-[00:21:22] Norm: mentalist. Yes, exactly, and he does a show called Miracle. I guess he did in London 2015 2016. That's now on Netflix. And watching it, I am like, do I want to watch a magic show on on the television? Because yeah, when you are an audience, and he does it for audience of two thousand people, like you have a buy in. Already, you have a suspicion that you are you are the energy of the room. The reality distortion field is there.
+[00:21:22] Norm: mentalist. Yes, exactly, and he does a show called Miracle. I guess he did in London 2015 2016. That's now on Netflix. And watching it, I am like, do I want to watch a magic show on on the television? Because yeah, when you are an audience, and he does it for audience of 2,000 people, like you have a buy in. Already, you have a suspicion that you are you are the energy of the room. The reality distortion field is there.
 
 [00:21:45] Adam: Yeah.
 
@@ -532,9 +532,9 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:28:35] Adam: If I do a trick, I am nothing but just. A a litany of tells. I blink before I do the move. I do all sorts of crap. I'm just I'm terrible, but I you know it is that it is exactly that thing of of holding of hope like holding someone really tightly and doing giving them something really remarkable.
 
-[00:28:57] Kishore: I think the other thing is he was doing that show in front of like whatever two thousand people, and there was nothing more intimate than watching that moment one on one with one person on stage and that level of intimacy in an age where everything feels like the opposite of intimacy these days felt really special and and kind.
+[00:28:57] Kishore: I think the other thing is he was doing that show in front of like whatever 2,000 people, and there was nothing more intimate than watching that moment one on one with one person on stage and that level of intimacy in an age where everything feels like the opposite of intimacy these days felt really special and and kind.
 
-[00:29:16] Norm: Well, that's what I was watching it for. Like you know, yeah, you watch his version of the trick and his storytelling, but it's how does he capture two thousand people and what is the performance? What is that seventy minutes? You know, he he has seventy minutes to tell his x number of stories and and tricks. How does that unfold and what does it build up to and is there a culmination? And for this one, there was. Yeah, so I'd recommend that. So I'm, you know, that's a long way saying I'm very looking forward to.
+[00:29:16] Norm: Well, that's what I was watching it for. Like you know, yeah, you watch his version of the trick and his storytelling, but it's how does he capture 2,000 people and what is the performance? What is that 70 minutes? You know, he he has 70 minutes to tell his x number of stories and and tricks. How does that unfold and what does it build up to and is there a culmination? And for this one, there was. Yeah, so I'd recommend that. So I'm, you know, that's a long way saying I'm very looking forward to.
 
 [00:29:41] Adam: I can't wait to see it.
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:34:07] Norm: I don't know.
 
-[00:34:09] Kishore: Low, low, low, low price of eight hundred eighty-five thousand.
+[00:34:09] Kishore: Low, low, low, low price of 885,000.
 
 [00:34:12] Adam: So, yeah, the first film that got Steven—I'm going to tell a story that ties back into this. The first movie that Steven Soderbergh got famous for was * Sex, Lies, and Videotape*, which is a masterpiece and is still a wonderful and weird and intense movie. And it stars Peter Gallagher, Andie MacDowell, Laura San Giacomo, and. Come on, the guy, James Spader. Excuse me. And Spader,
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:37:32] Norm: And I can't wait till you come back from your trip and see the finished cast one.
 
-[00:37:36] Adam: Well, so I've built this box, which I am transporting my wax master to Colorado in. I have ordered on eBay a case in which to transport back what will be a thirty-five-plus pound bronze master.
+[00:37:36] Adam: Well, so I've built this box, which I am transporting my wax master to Colorado in. I have ordered on eBay a case in which to transport back what will be a 35-plus pound bronze master.
 
 [00:37:54] Kishore: Wow! Please tell me it's like a James Bond villain aluminum case.
 

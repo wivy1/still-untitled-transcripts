@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:11:49] Norm: A legitimate incognito.
 
-[00:11:50] Adam: A legitimate incognito, unfilmed. I did not tell anyone I was doing it. Still recognized five times in thirty minutes.
+[00:11:50] Adam: A legitimate incognito, unfilmed. I did not tell anyone I was doing it. Still recognized five times in 30 minutes.
 
 [00:11:58] Norm: Because.
 
@@ -228,13 +228,13 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:12:59] Simone: and it's been really warm here.
 
-[00:13:01] Adam: 60% humidity, 85 degrees Fahrenheit. But the other thing I love are the costumes where it's like the materials and the skills are really low, and yet what you're seeing is made extant is the drive to put the thing on. My Captain America shield is printed on eight and a half by eleven sheets of paper and glued to cardboard, and I made it and I'm wearing it and I feel great in it.
+[00:13:01] Adam: 60% humidity, 85 degrees Fahrenheit. But the other thing I love are the costumes where it's like the materials and the skills are really low, and yet what you're seeing is made extant is the drive to put the thing on. My Captain America shield is printed on 8.5 by 11 sheets of paper and glued to cardboard, and I made it and I'm wearing it and I feel great in it.
 
 [00:13:25] Simone: I'm Captain America.
 
 [00:13:26] Adam: Yes,
 
-[00:13:27] Norm: you're just as much Captain America as someone who bought the 800 dollar replica.
+[00:13:27] Norm: you're just as much Captain America as someone who bought the $800 replica.
 
 [00:13:31] Adam: I had an experience yesterday as Kylo, where I'm walking through and I'm kind of giving my all, and this little boy walks up and he's like Kylo, and I'm like I give him a little high five, he gives me a high five, and his dad's like, you want to take a picture? And kid's like, yeah, and I get down on the kid's level, and as I get down, the kid looks more and more horrified and runs away screaming. It was a little too much Kylo, too close.
 
@@ -304,7 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:17:34] Norm: a live orchestra and choir
 
-[00:17:36] Adam: and choir a full forty member choir.
+[00:17:36] Adam: and choir a full 40 member choir.
 
 [00:17:39] Simone: How did that work out?
 
@@ -316,7 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:17:45] Norm: Wow.
 
-[00:17:45] Adam: I took pictures with a bunch of the choir members. They were lovely, but the whole cast was there. It was. It was. Really fun and really exciting. It was also elegiac. I actually sat right behind Anton Yelchin's parents. That was very intense and emotional. J.J. Abrams gave an impassioned, lovely speech and held a moment of silence for Anton, the actor who played Chekhov, who died under just the worst circumstances recently. And it was clear that had cast a pall over the release of this film for the cast and crew. One of the things I can tell you from having been around the cast and crew a bunch during the release of this film is that it really is a family. These guys have been making these movies now for almost ten years. The actors all love each other. The crew love each other. The directors—I mean—it is a deep, abiding family unit. And the loss of one of them, and under any circumstances, would be a tragedy. And in this, it's particularly keenly felt.
+[00:17:45] Adam: I took pictures with a bunch of the choir members. They were lovely, but the whole cast was there. It was. It was. Really fun and really exciting. It was also elegiac. I actually sat right behind Anton Yelchin's parents. That was very intense and emotional. J.J. Abrams gave an impassioned, lovely speech and held a moment of silence for Anton, the actor who played Chekhov, who died under just the worst circumstances recently. And it was clear that had cast a pall over the release of this film for the cast and crew. One of the things I can tell you from having been around the cast and crew a bunch during the release of this film is that it really is a family. These guys have been making these movies now for almost 10 years. The actors all love each other. The crew love each other. The directors—I mean—it is a deep, abiding family unit. And the loss of one of them, and under any circumstances, would be a tragedy. And in this, it's particularly keenly felt.
 
 [00:18:47] Norm: The film is just out, so we're going to save our spoiler cast for another time.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:21:55] Adam: Really?
 
-[00:21:55] Norm: Because I check my I check my walking stats and. Like this is not to go on the convention floor. Of course, that would be a terrible fire hazard. And but you know, I'm getting my twenty thousand steps in at Comic Con every day.
+[00:21:55] Norm: Because I check my I check my walking stats and. Like this is not to go on the convention floor. Of course, that would be a terrible fire hazard. And but you know, I'm getting my 20,000 steps in at Comic Con every day.
 
 [00:22:07] Adam: Yeah.
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:23:41] Norm: Hotels should definitely have this, like things you can get for guests to to rent or loan for the day. Yeah. To get around.
 
-[00:23:48] Adam: Let's be clear, Comic Con is a Warren of one way streets here in the Gaslamp District. So jumping in an Uber to drive three blocks can take thirty minutes during Comic Con. At any time of day or night.
+[00:23:48] Adam: Let's be clear, Comic Con is a Warren of one way streets here in the Gaslamp District. So jumping in an Uber to drive three blocks can take 30 minutes during Comic Con. At any time of day or night.
 
 [00:23:59] Norm: Well, there's also other ways getting around. There were the the
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:24:05] Adam: Like by the way, before you say this, I said to my assistant who lives here. I said we can rent one of those pedophiles or whatever it's called, and she goes, whatever it's called, it's just as dangerous.
 
-[00:24:16] Simone: Just pay twenty bucks. You can rent a pedophile. Oh gosh, yeah, no. So we were going. We were at a yacht party with IMDb, and we're going to a Weta party. And I didn't, I didn't anticipate how far it was. So we were five people, and we got into one of these rickshaws. What was it called?
+[00:24:16] Simone: Just pay $20. You can rent a pedophile. Oh gosh, yeah, no. So we were going. We were at a yacht party with IMDb, and we're going to a Weta party. And I didn't, I didn't anticipate how far it was. So we were five people, and we got into one of these rickshaws. What was it called?
 
 [00:24:34] Norm: Pedicabs.
 

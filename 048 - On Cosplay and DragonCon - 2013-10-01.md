@@ -26,7 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:00:39] Norm: Will and I, as we have these past two years, now working with you, is there a weird time dilation effect that you feel?
 
-[00:00:50] Adam: It's just that, like every now and then, I look up and I think, " Oh my gosh, a month has passed," and you know, something that like we were at DragonCon what twelve days ago or something, right? Like fourteen days ago,
+[00:00:50] Adam: It's just that, like every now and then, I look up and I think, " Oh my gosh, a month has passed," and you know, something that like we were at DragonCon what 12 days ago or something, right? Like 14 days ago,
 
 [00:01:01] Norm: about two weeks ago.
 
@@ -46,11 +46,11 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:01:49] Norm: Oh, very cool.
 
-[00:01:51] Adam: We're doing Thirty cities. So it gets crazy again.
+[00:01:51] Adam: We're doing 30 cities. So it gets crazy again.
 
-[00:01:54] Norm: Thirty additional cities?
+[00:01:54] Norm: 30 additional cities?
 
-[00:01:56] Adam: Thirty additional. Well, I think we're going back to some cities we already went to, but yeah, we're doing thirty cities in five weeks.
+[00:01:56] Adam: 30 additional. Well, I think we're going back to some cities we already went to, but yeah, we're doing 30 cities in five weeks.
 
 [00:02:03] Norm: Amazing, you said you had something to show me.
 
@@ -72,13 +72,13 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:03:07] Norm: and it's like science for adults, is the translation.
 
-[00:03:10] Adam: And they're expensive; they're about 120 dollars for one of these. But something happened, and now they're like eleven dollars. I don't quite understand, except that the magazine itself has been torn out, and I wonder if that if this is like kind of like a remaindered book where they tear the cover off. But this is just the Strandbeest kit and the directions. And I got one for you. I got, I got one for Will too when he shows up.
+[00:03:10] Adam: And they're expensive; they're about $120 for one of these. But something happened, and now they're like $11. I don't quite understand, except that the magazine itself has been torn out, and I wonder if that if this is like kind of like a remaindered book where they tear the cover off. But this is just the Strandbeest kit and the directions. And I got one for you. I got, I got one for Will too when he shows up.
 
 [00:03:36] Norm: So this is exactly. It's not like a bootleg kit.
 
 [00:03:38] Adam: This is not a bootleg. This is from the same mold, same company. It's not like, yeah.
 
-[00:03:43] Norm: The volume thirty, and this is the same book cover.
+[00:03:43] Norm: The volume 30, and this is the same book cover.
 
 [00:03:45] Adam: It is the same book cover, and it's the exact same kit. It makes a beautiful wind walking Strandbeest. You blow on it, and it walks. And it's absolutely one of my favorites.
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:04:33] Norm: Yes. Yeah. So they should still be on eBay. You said there were a lot of them.
 
-[00:04:36] Adam: As far as I can see, there were five or six sellers right now. I think this is why I think it's a remaindered book thing. There are still people selling these kits for over a hundred bucks, but there's a whole bunch selling with more than ten available, selling them for between twelve and twenty dollars. Oh. And so, I find myself wondering if there was an overprinting or something,
+[00:04:36] Adam: As far as I can see, there were five or six sellers right now. I think this is why I think it's a remaindered book thing. There are still people selling these kits for over $100, but there's a whole bunch selling with more than 10 available, selling them for between $12 and $20. Oh. And so, I find myself wondering if there was an overprinting or something,
 
 [00:04:56] Norm: or some unscrupulous... Unscrupulous warehouse owner.
 
@@ -150,11 +150,11 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:06:22] Norm: but it's very commercial.
 
-[00:06:23] Adam: It's very commercial. So what you end up with is there's a lot of people that go just to watch the other people that are going. There's a lot of people buy day passes for that. There are a lot of people who go in costume, but when I say a lot, I mean Comic Con's attendance is somewhere in the almost two hundred thousand range.
+[00:06:23] Adam: It's very commercial. So what you end up with is there's a lot of people that go just to watch the other people that are going. There's a lot of people buy day passes for that. There are a lot of people who go in costume, but when I say a lot, I mean Comic Con's attendance is somewhere in the almost 200,000 range.
 
 [00:06:40] Norm: Yeah, it's a big convention center,
 
-[00:06:41] Adam: It's a giant convention center. So when I say there's a lot of people in costume, maybe that's like twenty thousand people in costume. It's not; it's it's on a percentage basis. It's like 10%,
+[00:06:41] Adam: It's a giant convention center. So when I say there's a lot of people in costume, maybe that's like 20,000 people in costume. It's not; it's it's on a percentage basis. It's like 10%,
 
 [00:06:51] Norm: right? And there are definitely more people just there, just gawkers, yeah, or shoppers, or comic book fans, movie fans.
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:08:38] Adam: Right.
 
-[00:08:38] Norm: And inside the hotels are these atriums, these massive, like, forty-seven-story hotels,
+[00:08:38] Norm: And inside the hotels are these atriums, these massive, like, 47-story hotels,
 
 [00:08:45] Adam: which make it feel kind of like a set of Star Trek.
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:16:14] Adam: yeah,
 
-[00:16:14] Norm: in the entire spectrum of what that word means, that phrase means. Because you have people and expression of creativity. You have people who do weird mashups, and at night I saw this group of cosplayers that had a big flag, and they were dressed as like bros with pop collars, and they were the riders of Brohan, and they would just it would be a dozen of them with you know many polo shirts and glasses standing in a corner holding a big flag like Lord of the Rings Brohan, handing out swag. Wait fifteen minutes, and then you moved another part of the room and do the same thing in a different crowd, and then you had people start little dance circles, and
+[00:16:14] Norm: in the entire spectrum of what that word means, that phrase means. Because you have people and expression of creativity. You have people who do weird mashups, and at night I saw this group of cosplayers that had a big flag, and they were dressed as like bros with pop collars, and they were the riders of Brohan, and they would just it would be a dozen of them with you know many polo shirts and glasses standing in a corner holding a big flag like Lord of the Rings Brohan, handing out swag. Wait 15 minutes, and then you moved another part of the room and do the same thing in a different crowd, and then you had people start little dance circles, and
 
 [00:16:52] Adam: you know. So there's there is. I've been reading some of. I haven't watched Heroes of Cosplay yet.
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:17:46] Norm: Extremely gracious.
 
-[00:17:48] Adam: It is is incredibly incredibly rare to run across any kind of negative response to that. I mean, you know, I see I saw it first on the RPF. You'd see somebody who's like a fourteen year old kid in the Philippines who's got like you know forty bucks to spend on an Iron Man costume, and he's making it out of cardboard and meticulously doing it, and it might be crunchy. But everyone is encouraging the crap out of him because it's like good work, keep going. That looks great, and giving him reference and giving him guidelines, and that's the spirit of that whole community. And DragonCon is like forty thousand people strong with that kind of feeling.
+[00:17:48] Adam: It is is incredibly incredibly rare to run across any kind of negative response to that. I mean, you know, I see I saw it first on the RPF. You'd see somebody who's like a 14 year old kid in the Philippines who's got like you know $40 to spend on an Iron Man costume, and he's making it out of cardboard and meticulously doing it, and it might be crunchy. But everyone is encouraging the crap out of him because it's like good work, keep going. That looks great, and giving him reference and giving him guidelines, and that's the spirit of that whole community. And DragonCon is like 40,000 people strong with that kind of feeling.
 
 [00:18:21] Norm: That's not to say that cosplayers can't be competitive
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:25:59] Adam: Yes,
 
-[00:25:59] Norm: then it's it's only like fifty dollars or something for the whole weekend.
+[00:25:59] Norm: then it's it's only like $50 or something for the whole weekend.
 
 [00:26:02] Adam: I I had so much fun this year. I had a really. I think it was my favorite Dragon Con yet.
 

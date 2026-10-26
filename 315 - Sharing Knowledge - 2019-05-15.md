@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:06:38] Kevin: technical stuff.
 
-[00:07:02] Adam: The number of, and I find myself really invigorated by the sheer generosity of it because while there are a lot of high-profile players, like us, like you know, Man at Arms and other maker channels, Clickspring, etc. There's tons of those. There are also for every one of those, there's like a thousand of some guy in his shop in the winter in Connecticut who's like, I just learned this new thing with a hammer. Let me show this to you and walks you through it. I have learned to fix so many things by just watching. Like, oh, okay, that's pretty straightforward.
+[00:07:02] Adam: The number of, and I find myself really invigorated by the sheer generosity of it because while there are a lot of high-profile players, like us, like you know, Man at Arms and other maker channels, Clickspring, etc. There's tons of those. There are also for every one of those, there's like 1,000 of some guy in his shop in the winter in Connecticut who's like, I just learned this new thing with a hammer. Let me show this to you and walks you through it. I have learned to fix so many things by just watching. Like, oh, okay, that's pretty straightforward.
 
 [00:07:34] Kevin: [unclear: Right, it’s the yeah, it’s it’s / Right. Leaking faucet. Yeah, it’s, it’s].
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:09:55] Norm: And the forum is the thing that Retains the temporal aspect of the conversation of the information.
 
-[00:10:00] Adam: I mean, especially because half of the searches for how to fix Apple products give you Apple links that are between two and ten years old.
+[00:10:00] Adam: I mean, especially because half of the searches for how to fix Apple products give you Apple links that are between 2 and 10 years old.
 
 [00:10:07] Norm: Yeah, yeah. And they game them now by just updating that timestamp.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:20:54] Adam: And I know you worked on. The Whole Earth Catalog, with Stewart and Wired. And I love the fact that these exercises of yours are always to me. They always sort of give me a wider picture of the world of the possible.
 
-[00:21:14] Kevin: Yes, [unclear: ∅ / And] that is actually the subtitle for Cool Tools, which is a catalog of possibilities. And I think part of what you guys are doing here with Tested is is opening up the possible, saying, " Look, you know, you don't know it, but you too, you could make a suit of armor. You can make something, you know, a new variety of materials that doesn't even exist now. You, twelve-year-old girl out in the audience, that's something that you are capable of. [unclear: ∅ / Yeah]. Here are some tools that would allow you to do that. And the thing about tools, since we're talking about tools, is that even if you don't own it, knowing that it exists,
+[00:21:14] Kevin: Yes, [unclear: ∅ / And] that is actually the subtitle for Cool Tools, which is a catalog of possibilities. And I think part of what you guys are doing here with Tested is is opening up the possible, saying, " Look, you know, you don't know it, but you too, you could make a suit of armor. You can make something, you know, a new variety of materials that doesn't even exist now. You, 12-year-old girl out in the audience, that's something that you are capable of. [unclear: ∅ / Yeah]. Here are some tools that would allow you to do that. And the thing about tools, since we're talking about tools, is that even if you don't own it, knowing that it exists,
 
 [00:21:55] Norm: its name, yeah,
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:22:58] Adam: Right.
 
-[00:22:58] Kevin: with a two foot Fresnel? If I had, if only I had, like you know, twenty dollars, and you were a kid. But what could I do with a two foot Fresnel lens? And that is the beginning of creativity, of art, of science.
+[00:22:58] Kevin: with a two foot Fresnel? If I had, if only I had, like you know, $20, and you were a kid. But what could I do with a two foot Fresnel lens? And that is the beginning of creativity, of art, of science.
 
 [00:23:15] Adam: Exactly.
 
@@ -446,7 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:26:25] Adam: I'll be giving a talk on Sunday around midday, like usual.
 
-[00:26:28] Kevin: Yeah, I'm going to be there on Saturday probably. My modus of operation is I drive down within like ten miles and then I get my bike out and I ride in and park.
+[00:26:28] Kevin: Yeah, I'm going to be there on Saturday probably. My modus of operation is I drive down within like 10 miles and then I get my bike out and I ride in and park.
 
 [00:26:38] Adam: Oh, very smart.
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:30:25] Kevin: This is a little. I mean, this is a chapter you didn't put in your book.
 
-[00:30:27] Adam: Yeah, so I wrote a whole chapter on glues, and I thought I am not sure I can write a comprehensive chapter on the physics of glue. So I am just going to write a chapter on the eight glues that I use and why, and how they serve me within the context. And I give a disclaimer at the beginning about how you know your results may vary, and you may disagree with everything I am saying, and that could also be true. Yeah. And then someone tweeted to me after the book came out, " I love the chapter on glue. What about a chapter on tape?" And I thought, " Holy shit, I didn't think of that!" And I started writing it. I am now about you know fifteen hundred words into a chapter on tape. And I don't know whether it goes in the next edition of Every Tool's a Hammer or it's part of the next book.
+[00:30:27] Adam: Yeah, so I wrote a whole chapter on glues, and I thought I am not sure I can write a comprehensive chapter on the physics of glue. So I am just going to write a chapter on the eight glues that I use and why, and how they serve me within the context. And I give a disclaimer at the beginning about how you know your results may vary, and you may disagree with everything I am saying, and that could also be true. Yeah. And then someone tweeted to me after the book came out, " I love the chapter on glue. What about a chapter on tape?" And I thought, " Holy shit, I didn't think of that!" And I started writing it. I am now about you know 1,500 words into a chapter on tape. And I don't know whether it goes in the next edition of Every Tool's a Hammer or it's part of the next book.
 
 [00:31:01] Kevin: Yeah, or maybe you could talk about it, Maker Faire.
 
@@ -524,7 +524,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:31:20] Kevin: Okay.
 
-[00:31:20] Norm: You know, there's the dark room. There's the stuff outside. The expo halls where people have small ten by ten booths. And last year they had a big train group, European train.
+[00:31:20] Norm: You know, there's the dark room. There's the stuff outside. The expo halls where people have small 10 by 10 booths. And last year they had a big train group, European train.
 
 [00:31:20] Adam: Oh yeah, I love that model trains.
 

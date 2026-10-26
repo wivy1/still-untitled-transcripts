@@ -98,7 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:03:45] Norm: Yeah,
 
-[00:03:46] Adam: and for the longest time, if you ejected on the ground, you had only like a fifty-fifty chance of living through that because the parachutes weren't built to eject from from the ground.
+[00:03:46] Adam: and for the longest time, if you ejected on the ground, you had only like a 50-50 chance of living through that because the parachutes weren't built to eject from from the ground.
 
 [00:04:01] Michael Green: Huh.
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:16:08] Michael Green: oh no, that I have no idea.
 
-[00:16:09] Adam: It's a famous part of the writing process. Is there's a there's a scene in which Frances McDormand and Patrick Fugit. He wants to show his mom that rock music can have depth, and so he plays her stairway to heaven. It's in its entirety, and it's a scene written into the script, written as Cameron Crowe said, into all fifty drafts of the script, where they sit, right? The camera watches and plays all five minutes of the song. Unbroken, just with the looks on their faces, and he said, " If you'd asked me all the way through production till the end of post, what film, what scene would not get cut? I would say that scene, and in the end, he had to cut it. But in the DVD, because they didn't get rights to the song, so what he does in the DVD, he says, 'Go get yourself your copy of 'Stairway to Heaven' and start playing it 
+[00:16:09] Adam: It's a famous part of the writing process. Is there's a there's a scene in which Frances McDormand and Patrick Fugit. He wants to show his mom that rock music can have depth, and so he plays her stairway to heaven. It's in its entirety, and it's a scene written into the script, written as Cameron Crowe said, into all 50 drafts of the script, where they sit, right? The camera watches and plays all five minutes of the song. Unbroken, just with the looks on their faces, and he said, " If you'd asked me all the way through production till the end of post, what film, what scene would not get cut? I would say that scene, and in the end, he had to cut it. But in the DVD, because they didn't get rights to the song, so what he does in the DVD, he says, 'Go get yourself your copy of 'Stairway to Heaven' and start playing it 
 
 [00:16:09] Unknown speaker (Michael Green or Adam): Right.
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:17:41] Adam: right.
 
-[00:17:41] Michael Green: But the closest I've come was like there was one screening we went to where we're doing a panel, and I walked into the theater for the last like three minutes, and I actually like sunk into maybe thirty seconds or a minute of it and felt something, and I was like, " Oh, that worked." And like, and that was it. And the rest is like like the closest is. I'll turn on the TV and it's on HBO, and like a scene comes on. I'm like, " Oh, that's a pretty Deakins shot." I remember, I remember being there for that one, but like I still, and yeah, the dump file on it is just a survival mechanism. Otherwise, you can just keep playing it out or thinking what I could have done.
+[00:17:41] Michael Green: But the closest I've come was like there was one screening we went to where we're doing a panel, and I walked into the theater for the last like three minutes, and I actually like sunk into maybe 30 seconds or a minute of it and felt something, and I was like, " Oh, that worked." And like, and that was it. And the rest is like like the closest is. I'll turn on the TV and it's on HBO, and like a scene comes on. I'm like, " Oh, that's a pretty Deakins shot." I remember, I remember being there for that one, but like I still, and yeah, the dump file on it is just a survival mechanism. Otherwise, you can just keep playing it out or thinking what I could have done.
 
 [00:18:15] Norm: So that's the material, but your relationship with that film is in the the years that leading up to and the making of, and I think you wrote a whole like your journey.
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:36:50] Norm: Yes, just for the day. Watch a thing, enjoy it, and then like, oh, I enjoyed that.
 
-[00:36:54] Michael Green: Yeah, I just couldn't. I mean, I I think I I turned on TV and like a Smallville episode I'd written was on, and it was a good eleven years later, and I'm watching it, and I see a scene, and I'm like, kind of trying to like just give myself like just sit here for three minutes, dream a little zen about it, and something just sounded wrong, and I had to open up my laptop, and I realized, oh right, there was an onset change on that line, and it was just like it, and like just don't do this. It's not good for you. It doesn't help. You're not in a better mood. You know, like my rule is generally when it comes to The intake and outtake, like of how I spend my time, and like with with art, is um, does it make you write more, faster, better? Like, just don't do things that so like looking at old things doesn't make me feel better, write better. Like, I don't learn from.
+[00:36:54] Michael Green: Yeah, I just couldn't. I mean, I I think I I turned on TV and like a Smallville episode I'd written was on, and it was a good 11 years later, and I'm watching it, and I see a scene, and I'm like, kind of trying to like just give myself like just sit here for three minutes, dream a little zen about it, and something just sounded wrong, and I had to open up my laptop, and I realized, oh right, there was an onset change on that line, and it was just like it, and like just don't do this. It's not good for you. It doesn't help. You're not in a better mood. You know, like my rule is generally when it comes to The intake and outtake, like of how I spend my time, and like with with art, is um, does it make you write more, faster, better? Like, just don't do things that so like looking at old things doesn't make me feel better, write better. Like, I don't learn from.
 
 [00:37:37] Adam: That's a really great axiom
 

@@ -326,7 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:12:07] Adam: so.
 
-[00:12:10] Adam: Okay, it might have been. Oh yeah, you're right. You're right. You're right. Because we made like eight thousand labeled cans of like, [unclear: Oh, my God / …].
+[00:12:10] Adam: Okay, it might have been. Oh yeah, you're right. You're right. You're right. Because we made like 8,000 labeled cans of like, [unclear: Oh, my God / …].
 
 [00:12:17] Simone: yeah, it was wild. I mean,
 
@@ -396,7 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:13:50] Will: bombing range, and we stood. I had no idea how far away that bunker is. A
 
-[00:13:55] Adam: five hundred
+[00:13:55] Adam: 500
 
 [00:13:56] Will: feet, which is amazing.
 
@@ -454,13 +454,13 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:16:30] Adam: Yeah.
 
-[00:16:30] Simone: And it's still like when I was working in Sweden and I I would freelance for some American magazines and they would send me a check and I'm like this is going to be just like 50 bucks to my bank to process.
+[00:16:30] Simone: And it's still like when I was working in Sweden and I I would freelance for some American magazines and they would send me a check and I'm like this is going to be just like $50 to my bank to process.
 
 [00:16:30] Adam: Right.
 
 [00:16:30] Simone: It’s just ridiculous.
 
-[00:16:46] Will: 50 bucks to you or [unclear: 50 bucks to them / 50 bucks to them. It’s 50 bucks to them], and they're going to defer it to you.
+[00:16:46] Will: $50 to you or [unclear: 50 bucks to them / 50 bucks to them. It’s 50 bucks to them], and they're going to defer it to you.
 
 [00:16:46] Simone: It’s just—
 
@@ -476,7 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:17:02] Will: You’ve gotten soft, man.
 
-[00:17:02] Adam: I know. I know. It's. I am. I have gotten soft, but look, it. I just I I don't leave the house with enough clothes to as a bulwark against forty degree weather, and it feels quite cold.
+[00:17:02] Adam: I know. I know. It's. I am. I have gotten soft, but look, it. I just I I don't leave the house with enough clothes to as a bulwark against 40 degree weather, and it feels quite cold.
 
 [00:17:14] Simone: Yeah. What type of heating do you have in here?
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:22:13] Simone: it's in all of the states.
 
-[00:22:14] Will: In all the states, yeah. Well, because it's it's it's you know it's kind of centrally located on the east on the east coast. So it's a few hours. It's a ten-hour drive from D.C. or five hours from Atlanta, and all of North Carolina is. It's easy to get to, and it's really really gorgeous. But yeah, it's it's it's it's really it's really sad. Brutal. A lot of, I mean, it's it's the community as always. They do has pulled together in a really lovely way, and the Dollywood Foundation is giving money to everybody whose houses got burned down until they get back settled. And like, it's people are taking care of each other, which is always the kind of heartwarming thing that comes out of stuff like this.
+[00:22:14] Will: In all the states, yeah. Well, because it's it's it's you know it's kind of centrally located on the east on the east coast. So it's a few hours. It's a 10-hour drive from D.C. or five hours from Atlanta, and all of North Carolina is. It's easy to get to, and it's really really gorgeous. But yeah, it's it's it's it's really it's really sad. Brutal. A lot of, I mean, it's it's the community as always. They do has pulled together in a really lovely way, and the Dollywood Foundation is giving money to everybody whose houses got burned down until they get back settled. And like, it's people are taking care of each other, which is always the kind of heartwarming thing that comes out of stuff like this.
 
 [00:22:50] Adam: Our our our our holiday, our thoughts and wishes out to those folks
 
@@ -722,9 +722,9 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:24:48] Simone: That's mad. What was your goal?
 
-[00:24:49] Will: Fifty grand.
+[00:24:49] Will: $50,000.
 
-[00:24:49] Adam: Now it's like eighteen months till you write an essay about how everything went to hell.
+[00:24:49] Adam: Now it's like 18 months till you write an essay about how everything went to hell.
 
 [00:24:52] Will: Look, I’m going to wait until the very last minute. I’m going to get outside of the country.
 
@@ -750,7 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:26:02] Unknown speaker: [unclear: Right / Mm-hmm. Mm-hmm. Mm-hmm. Mm-hmm].
 
-[00:26:02] Will: Um, And it’s not something I like. I didn't I didn't have those muscles to stretch, so I had to learn how to do that stuff. The other thing that's really hard is if you're a slightly obsessive person like I am, it's it's really easy to get like really buried in the esoterica of like, well, what if I put up? Let's see, these Facebook ads cost four dollars to get a conversion. Can I can I use Facebook ads to get more people on the and and then looking at like like keyword traffic and how you do post and at the end of the day, what really matters is [unclear: that / is that / …].
+[00:26:02] Will: Um, And it’s not something I like. I didn't I didn't have those muscles to stretch, so I had to learn how to do that stuff. The other thing that's really hard is if you're a slightly obsessive person like I am, it's it's really easy to get like really buried in the esoterica of like, well, what if I put up? Let's see, these Facebook ads cost $4 to get a conversion. Can I can I use Facebook ads to get more people on the and and then looking at like like keyword traffic and how you do post and at the end of the day, what really matters is [unclear: that / is that / …].
 
 [00:26:47] Adam: I fell asleep there.
 
@@ -758,7 +758,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:26:49] Unknown speaker: What what
 
-[00:26:50] Will: what really? Well, like you wake up first thing in the morning, like where are? Okay, we got we got fifty more people. That's great. Okay, we need to get two hundred people today.
+[00:26:50] Will: what really? Well, like you wake up first thing in the morning, like where are? Okay, we got we got 50 more people. That's great. Okay, we need to get 200 people today.
 
 [00:26:57] Simone: Yeah.
 
@@ -942,7 +942,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:32:58] Unknown speaker: [unclear: um / there’s],
 
-[00:33:00] Adam: there's like there's like eighty street lamps in this tight grid. It's a sculpture by Chris Burden, and it's really really cool. And you can almost not take a bad picture of it. I will show you guys a picture, and then because it's rude to do that without 
+[00:33:00] Adam: there's like there's like 80 street lamps in this tight grid. It's a sculpture by Chris Burden, and it's really really cool. And you can almost not take a bad picture of it. I will show you guys a picture, and then because it's rude to do that without 
 
 [00:33:00] Will: sharing,
 

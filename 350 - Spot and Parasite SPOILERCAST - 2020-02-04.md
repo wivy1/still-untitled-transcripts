@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:02:29] Adam: Well, they set the archetype. also, also, it's a murderer's row of great actors like Lance Henriksen is in there, like buried. You know, you forget all these amazing people.
 
-[00:02:36] Will: I haven't watched that in probably fifteen years. I should go back and watch it.
+[00:02:36] Will: I haven't watched that in probably 15 years. I should go back and watch it.
 
 [00:02:38] Adam: I watched it last year, and it really holds up.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:14:36] Will: What?
 
-[00:14:36] Adam: It's 25 bucks. Attach that to your Samsung TV, but once you do, you don't need to use the Roku remote. Your Samsung remote will operate the channel just fine, which is that as a
+[00:14:36] Adam: It's $25. Attach that to your Samsung TV, but once you do, you don't need to use the Roku remote. Your Samsung remote will operate the channel just fine, which is that as a
 
 [00:14:49] Will: brilliant. HDMI-CEC stuff does that. Yeah.
 
@@ -456,7 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:19:32] Adam: Um, one of the things I love, we all know how fun it is to talk to screenwriters about film, right? To hear what someone who is immersed in the mechanics of it thinks about various things. And one of the things I love about Ben and the way he talks about it is, it's always about character for him. Character, character, character. He doesn't give a shit about plots if it's not about the characters and what they're what was actually happening because of the characters. And
 
-[00:19:55] Will: it took me forty years to get to that spot, just for the record.
+[00:19:55] Will: it took me 40 years to get to that spot, just for the record.
 
 [00:19:58] Adam: And Parasite is the one of the most interesting character films I have ever seen in terms of what you think about the people on screen, where your alliances fall, how you feel about the characters. It is. I have never felt so much tension and such a thrill over just thinking, " What the hell is going to happen next?"
 
@@ -680,7 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:27:52] Norm: even before the moment happens where they they telegraph that something's supposed to
 
-[00:27:55] Adam: And that scene lasts, that scene lasts like ten times longer than I could take.
+[00:27:55] Adam: And that scene lasts, that scene lasts like 10 times longer than I could take.
 
 [00:27:59] Will: So long.
 
@@ -956,7 +956,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:37:51] Adam: And so it's.
 
-[00:37:52] Will: I shouldn't have watched this when I hadn't slept in thirty hours.
+[00:37:52] Will: I shouldn't have watched this when I hadn't slept in 30 hours.
 
 [00:37:55] Adam: Just watch it again. Just watch it again.
 
@@ -1022,7 +1022,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:40:42] Norm: And he reveals what's beneath the surface, and it's so unsettling. And it's you know it's a face of society.
 
-[00:40:48] Adam: Well, and that's the thing. So you watch, you know, classically, you watch the movie The Fighter with with Mark Wahlberg and and Christian Bale, and you realize at the end that the fighter is Christian Bale, right? You realize, oh, the title's about a different guy than I thought it was, right? Well, and Parasite does the same thing. What who's the parasite? You start out twenty minutes in, you have one answer. Forty minutes in, you have another answer. At the end of the film, it's kind of the answer is all of the above.
+[00:40:48] Adam: Well, and that's the thing. So you watch, you know, classically, you watch the movie The Fighter with with Mark Wahlberg and and Christian Bale, and you realize at the end that the fighter is Christian Bale, right? You realize, oh, the title's about a different guy than I thought it was, right? Well, and Parasite does the same thing. What who's the parasite? You start out 20 minutes in, you have one answer. 40 minutes in, you have another answer. At the end of the film, it's kind of the answer is all of the above.
 
 [00:41:16] Norm: Yeah.
 

@@ -148,7 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:07:14] Norm: So let's start with Adam's opinion, then, being the freshest off of viewing the first viewing.
 
-[00:07:20] Adam: It's I. It's beautiful. It's amazing. I loved it. I, I. It is. I think, and I'm going to have to see it a couple more times, seriously. But I think it's the most cinematically beautiful of the of all the Star Wars movies. And what do we have now? Nine or eleven or something like that.
+[00:07:20] Adam: It's I. It's beautiful. It's amazing. I loved it. I, I. It is. I think, and I'm going to have to see it a couple more times, seriously. But I think it's the most cinematically beautiful of the of all the Star Wars movies. And what do we have now? Nine or 11 or something like that.
 
 [00:07:38] Will: I mean, yeah.
 
@@ -164,7 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:08:56] Norm: Could you sum up in one or two words, or let's say like three words, the the film walking out of the theaters?
 
-[00:09:04] Adam: We were talking about this off mic. Then you were saying to Will and I that as fathers, it might have affected us more, and I have to agree. The the moments I found most affecting, and still as I think about it. Because literally, we left the theater thirty minutes ago. As I think about that, I still find quite moving are the moments between fathers and their children, between parents and their children. There’s this movie is so much about that lineage of the master to the student, of the parent to the child, of of the of the of the uninitiated to the initiated, and back and forth.
+[00:09:04] Adam: We were talking about this off mic. Then you were saying to Will and I that as fathers, it might have affected us more, and I have to agree. The the moments I found most affecting, and still as I think about it. Because literally, we left the theater 30 minutes ago. As I think about that, I still find quite moving are the moments between fathers and their children, between parents and their children. There’s this movie is so much about that lineage of the master to the student, of the parent to the child, of of the of the of the uninitiated to the initiated, and back and forth.
 
 [00:09:41] Will: But I mean, all Star Wars is about that. Like Star Wars is always about the relationship between a parent figure and a child.
 
@@ -194,7 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:11:26] Will: Be careful; he's going to call you out on Twitter if you say anything bad.
 
-[00:11:28] Adam: I don't mind. I don't suspect that Mark Hamill minds being a handful. He's an amazing actor. He's built an incredible post-Star Wars career as one of the defining voice actors of the last twenty years. Yeah, and well deserved. And what he brought to this film is incredible. And if that was a handful on set, it was completely worth it.
+[00:11:28] Adam: I don't mind. I don't suspect that Mark Hamill minds being a handful. He's an amazing actor. He's built an incredible post-Star Wars career as one of the defining voice actors of the last 20 years. Yeah, and well deserved. And what he brought to this film is incredible. And if that was a handful on set, it was completely worth it.
 
 [00:11:48] Norm: I'm just thinking of Jay and Silent Bob Strike Back when he has a cameo as the cop blocker, cop knocker. Sorry, and he has like a Schwartz type power. And then now he's this.
 
@@ -314,7 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:18:41] Will: Here we go. Turn it off. Go see the movie, please.
 
-[00:18:43] Adam: Yes, go see the movie. It deserves your ten or fifteen bucks.
+[00:18:43] Adam: Yes, go see the movie. It deserves your $10 or $15.
 
 [00:18:47] Will: They need money. It turns out Disney is suffering, people.
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:21:30] Adam: Star Wars is made for everyone. It's also funny. I love Han Solo putting his hand over three PO's mouth to shut him up while Han is flirting. Or negging Leia.
 
-[00:21:40] Will: Yeah. Or or can somebody get this walking carpet out of my way? Right. Like like these are these are movies. When George Lucas made the original trilogy, he was thinking about '30s serials, where he was like which are corny and cheesy, and and some of that stuff came through. And the movies are better for it because if you had two hours and twenty two minutes or whatever this is of unrelenting action at the end of it, you would want to cut yourself. Yeah. Like at the end of Age of Ultron.
+[00:21:40] Will: Yeah. Or or can somebody get this walking carpet out of my way? Right. Like like these are these are movies. When George Lucas made the original trilogy, he was thinking about '30s serials, where he was like which are corny and cheesy, and and some of that stuff came through. And the movies are better for it because if you had two hours and 22 minutes or whatever this is of unrelenting action at the end of it, you would want to cut yourself. Yeah. Like at the end of Age of Ultron.
 
 [00:22:02] Adam: Okay. So sorry.
 
@@ -778,7 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:36:21] Adam: it's also very Jesus. Really,
 
-[00:36:23] Will: there were two hundred and eighty books that were wiped away in the extended universe. The petition on change.org explains exquisitely in detail.
+[00:36:23] Will: there were 280 books that were wiped away in the extended universe. The petition on change.org explains exquisitely in detail.
 
 [00:36:30] Adam: Okay, um, I, I, I, it's very Buddhist. The idea of erasing your past. It is a very Buddhist idea that our self is construct. I think that there's. I'm going to have to see it again, but upon The first pass in my brain, I’m going to have to see Rey going to the down into the hole and seeing reflections of herself, and that delay. I think what she's looking at is the long tail of her actions always end up with her, right? So whatever you do, it is still you. You are still at the end of this tail of of of action. There's something there to scratch the surface of about what the force means, and you know what she says. What she thinks the force is is exactly what most people would say. Oh, it's a power that Jedi have so that they can float shit.
 
@@ -818,7 +818,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:38:18] Norm: So he made that one again.
 
-[00:38:19] Will: Yeah. So so he has that. He comes out with the Graflex. He has the he has the trimmed trimmed darker beard. He looks about ten years younger.
+[00:38:19] Will: Yeah. So so he has that. He comes out with the Graflex. He has the he has the trimmed trimmed darker beard. He looks about 10 years younger.
 
 [00:38:25] Adam: Right. I totally missed the beard bit.
 
@@ -860,9 +860,9 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:39:30] Adam: That's what that's what I always found it surprising how old the many of the rebels are. And boy, did they we we we they cut it to the quick by the end. There is like half a dozen left,
 
-[00:39:39] Norm: and and I think Leia saying that you know it's about saving lives, not in the in chastising Poe at the beginning, is because there are not a lot. It's like very Battlestar Galactica. There are only four hundred. The whole movie is one long chase scene.
+[00:39:39] Norm: and and I think Leia saying that you know it's about saving lives, not in the in chastising Poe at the beginning, is because there are not a lot. It's like very Battlestar Galactica. There are only 400. The whole movie is one long chase scene.
 
-[00:39:51] Will: How did they mess this up? Like they win, they they. Took out the command and control structure of the empire at the end of Jedi, Yeah, right? They killed the emperor. They killed Darth Vader. The Death Star is blown up. The the executor with all of the top brass in the Imperial Navy is gone. How did the rebels lose the Republic in twenty years?
+[00:39:51] Will: How did they mess this up? Like they win, they they. Took out the command and control structure of the empire at the end of Jedi, Yeah, right? They killed the emperor. They killed Darth Vader. The Death Star is blown up. The the executor with all of the top brass in the Imperial Navy is gone. How did the rebels lose the Republic in 20 years?
 
 [00:40:07] Norm: Go read the comics.
 

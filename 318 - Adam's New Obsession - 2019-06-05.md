@@ -82,7 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:02:21] Adam: Yeah, yeah, yeah. No, that'll that'll get you sweaty very quickly.
 
-[00:02:23] Will: East Coast eighty will wreck you.
+[00:02:23] Will: East Coast 80 will wreck you.
 
 [00:02:25] Adam: Yeah,
 
@@ -120,7 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:03:28] Adam: Being interviewed by Ira Flatow, one of my heroes, Science Friday. Ira Flatow, yeah, it was awesome, super awesome.
 
-[00:03:37] Will: Randall Munroe, I have a bunch of his books, but the one that I like the best is the is the thing explainer book, the thousand words. It's it's. I think he uses the thousand most common words in the English language to explain incredibly complicated things like quantum mechanics and the space shuttle. It is awesome with your young child.
+[00:03:37] Will: Randall Munroe, I have a bunch of his books, but the one that I like the best is the is the thing explainer book, the 1,000 words. It's it's. I think he uses the 1,000 most common words in the English language to explain incredibly complicated things like quantum mechanics and the space shuttle. It is awesome with your young child.
 
 [00:03:52] Adam: I love that guy. It’s bizarre and fun being between two of my heroes.
 
@@ -172,15 +172,15 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:05:31] Adam: Given Derek is in and of himself.
 
-[00:05:32] Adam: Well, yeah, within within five minutes, she had him telling his childhood upbringing story, and that lasted about forty five minutes, and it's a riveting and amazing story.
+[00:05:32] Adam: Well, yeah, within within five minutes, she had him telling his childhood upbringing story, and that lasted about 45 minutes, and it's a riveting and amazing story.
 
 [00:05:41] Will: That's awesome.
 
-[00:05:42] Adam: And then after that, I went back to my hotel room. I had about forty five minutes to rest and maybe play a little Beat Saber, and then I went back out to Upright Citizens Brigade, where I participated in an evening they have where they bring in monologists like me, people who can tell stories, and we tell a quick short story, and then they improv for twenty minutes based on that story.
+[00:05:42] Adam: And then after that, I went back to my hotel room. I had about 45 minutes to rest and maybe play a little Beat Saber, and then I went back out to Upright Citizens Brigade, where I participated in an evening they have where they bring in monologists like me, people who can tell stories, and we tell a quick short story, and then they improv for 20 minutes based on that story.
 
 [00:06:02] Will: That sounds great.
 
-[00:06:02] Adam: And then I tell another story, and they improv for twenty minutes based on that story, and it's super fun and hilarious. I mean,
+[00:06:02] Adam: And then I tell another story, and they improv for 20 minutes based on that story, and it's super fun and hilarious. I mean,
 
 [00:06:09] Norm: Who’s the story.
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:06:49] Will: that's very. I can totally see that.
 
-[00:06:50] Adam: The funny story was the second the I did tell one story about confiscating the kids' phones and how we confiscated them every night at 9:30 from the moment they had phones until they were like sixteen and a half, and we were like the only parents in our peer group that were actually taking all electronics every night.
+[00:06:50] Adam: The funny story was the second the I did tell one story about confiscating the kids' phones and how we confiscated them every night at 9:30 from the moment they had phones until they were like 16.5, and we were like the only parents in our peer group that were actually taking all electronics every night.
 
 [00:07:10] Will: Yeah, no, it's a good move.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:10:19] Norm: And you’d call and it would tell you
 
-[00:10:20] Adam: It’s 8:59 and forty seconds.
+[00:10:20] Adam: It’s 8:59 and 40 seconds.
 
 [00:10:21] Will: Yeah, yeah. The sound of the third beep. Blah blah blah. Mm-hmm. Yeah. So, I couldn't receive a call that made the phones ring, and we didn't. We only had one line. Okay, so I would just pick up and call the time number because you could stay on it for like two minutes, and I'd wait until she called and the call waiting came in, and then I just beep over.
 
@@ -312,9 +312,9 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:10:45] Will: Yeah,
 
-[00:10:45] Adam: we did not have Star seventy or Star sixty nine.
+[00:10:45] Adam: we did not have Star 70 or Star 69.
 
-[00:10:47] Will: So anyway, when my dad got a caller ID box that did call waiting plus caller ID, he was like, " Hey, wait a second." He was flipping through the numbers one day. He's like, " The hell is this at ten o'clock on Tuesday night?" And then he went back. Ten o'clock on Monday night. Ten o'clock on Sunday. Yeah, yeah. What? Why? Why are you getting a? How are you getting a call? And I had to explain it, and he like, and I lost. They they pulled the phone out of my room.
+[00:10:47] Will: So anyway, when my dad got a caller ID box that did call waiting plus caller ID, he was like, " Hey, wait a second." He was flipping through the numbers one day. He's like, " The hell is this at 10 o'clock on Tuesday night?" And then he went back. 10 o'clock on Monday night. 10 o'clock on Sunday. Yeah, yeah. What? Why? Why are you getting a? How are you getting a call? And I had to explain it, and he like, and I lost. They they pulled the phone out of my room.
 
 [00:11:11] Adam: Of course they did.
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:11:40] Will: Yeah.
 
-[00:11:40] Adam: They immediately pull out two chairs and two people sit down, and the third one comes out, and it's a woman, and she goes, " All right, kids, only thirty more minutes of porn, and then it's bedtime."
+[00:11:40] Adam: They immediately pull out two chairs and two people sit down, and the third one comes out, and it's a woman, and she goes, " All right, kids, only 30 more minutes of porn, and then it's bedtime."
 
 [00:11:53] Will: I, I mean, I think giving him the flip phone is worse than just taking the phone away. Hmm. I mean, because you can have it there.
 
@@ -356,7 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:12:26] Will: I. It's a really good game.
 
-[00:12:26] Adam: I've got all whatever. I played all twenty-five songs that you can get right now for the Quest, Beat Saber, and I'm I'm excited to say I can get to the end of each level on hard.
+[00:12:26] Adam: I've got all whatever. I played all 25 songs that you can get right now for the Quest, Beat Saber, and I'm I'm excited to say I can get to the end of each level on hard.
 
 [00:12:37] Will: That's good.
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:17:23] Adam: Oh, okay.
 
-[00:17:23] Will: So I go all the way down to twenty before I put them back in the charger.
+[00:17:23] Will: So I go all the way down to 20 before I put them back in the charger.
 
 [00:17:25] Adam: Oh, nifty.
 
@@ -526,9 +526,9 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:18:33] Will: and I use
 
-[00:18:34] Will: a ten-head USB fast charger that will charge ten devices at once.
+[00:18:34] Will: a 10-head USB fast charger that will charge 10 devices at once.
 
-[00:18:37] Adam: Oh, I didn’t. I haven’t seen ten-head ones. I have a dual. Oh, that's nice.
+[00:18:37] Adam: Oh, I didn’t. I haven’t seen 10-head ones. I have a dual. Oh, that's nice.
 
 [00:18:40] Will: Okay, yeah. So you can. So I have one of those behind my desk and a bunch of cable, like cable drops that just come up.
 
@@ -624,15 +624,15 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:21:36] Adam: I didn't watch it.
 
-[00:21:37] Will: I did. I didn't either. But like, there they launched a Mac Pro workstation desktop that starts at six grand
+[00:21:37] Will: I did. I didn't either. But like, there they launched a Mac Pro workstation desktop that starts at $6,000
 
-[00:21:44] Adam: with a with a 1,000 dollar monitor stand.
+[00:21:44] Adam: with a with a $1,000 monitor stand.
 
-[00:21:47] Will: Well, yeah, and a 6,000 dollar monitor, 1,000 dollar stand, and and the 6,000 dollar computer with a 256 gigabyte SSD in it.
+[00:21:47] Will: Well, yeah, and a $6,000 monitor, $1,000 stand, and and the $6,000 computer with a 256 gigabyte SSD in it.
 
 [00:21:55] Norm: Starting price, base price.
 
-[00:21:56] Will: That's the for the for the cheap one, the 6,000 dollar one.
+[00:21:56] Will: That's the for the for the cheap one, the $6,000 one.
 
 [00:21:59] Norm: Yeah,
 
@@ -646,7 +646,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:22:15] Will: That's it.
 
-[00:22:16] Norm: Well, sixteen gig iPhones for the longest time.
+[00:22:16] Norm: Well, 16 gig iPhones for the longest time.
 
 [00:22:18] Will: I mean, yeah, they did that too. I mean, the point is, most people who want to who think they are Mac Pro customers are probably iMac customers at this point.
 
@@ -684,7 +684,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:24:23] Will: She’s writing the new Bond’s.
 
-[00:24:24] Adam: She also did Punch Up on the final script for the twenty fifth Bond film. That's Coming up,
+[00:24:24] Adam: She also did Punch Up on the final script for the 25th Bond film. That's Coming up,
 
 [00:24:29] Will: Yeah.
 
@@ -716,7 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:26:19] Norm: Okay. Perfect. Also on Amazon, and I'll give a recommendation. Good Omens. I've started watching that halfway through that. This is the based on the Neil Gaiman, Terry Pratchett. Book
 
-[00:26:27] Adam: from thirty years ago. Neil was actually the showrunner,
+[00:26:27] Adam: from 30 years ago. Neil was actually the showrunner,
 
 [00:26:31] Norm: and he wrote the script.
 
@@ -746,7 +746,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:27:10] Will: exquisite corpse, yeah.
 
-[00:27:12] Norm: He's done interviews now. He's in like this promo tour for for the series and talking about how writing the book, writing the series today, and how that differs in writing the book and what he wanted to keep because you know they have to make these ninety or sixty minutes because it's a partnership with the BBC. But there are scenes.
+[00:27:12] Norm: He's done interviews now. He's in like this promo tour for for the series and talking about how writing the book, writing the series today, and how that differs in writing the book and what he wanted to keep because you know they have to make these 90 or 60 minutes because it's a partnership with the BBC. But there are scenes.
 
 [00:27:29] Adam: six episodes total.
 
@@ -896,7 +896,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:31:04] Adam: I really appreciate that, even if it's rough around the edges. I, I am glad we're getting big budget, awesome from other nations than the U.S.
 
-[00:31:11] Will: Like the title card at the beginning, where they list all the studios that worked on it, is like Avengers scale. It's like thirty studios chucked in here. It it tells a really personal story set in a really bad big, you know the the. I mean, I am not gonna. This isn't a spoiler because it happens in the first three minutes, but like the upshot is, the sun is going to explode, and they have to figure out how to solve the problem, and the solution is simultaneously ludicrous and. You know, very three body,
+[00:31:11] Will: Like the title card at the beginning, where they list all the studios that worked on it, is like Avengers scale. It's like 30 studios chucked in here. It it tells a really personal story set in a really bad big, you know the the. I mean, I am not gonna. This isn't a spoiler because it happens in the first three minutes, but like the upshot is, the sun is going to explode, and they have to figure out how to solve the problem, and the solution is simultaneously ludicrous and. You know, very three body,
 
 [00:31:39] Norm: wandering, wandering Earth.
 

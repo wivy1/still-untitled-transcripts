@@ -40,19 +40,19 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:00:47] Will: No, that's not true.
 
-[00:00:48] Norm: No, whatever. It's it's fine. It's it's and by any metric, you can still look back the past ten years.
+[00:00:48] Norm: No, whatever. It's it's fine. It's it's and by any metric, you can still look back the past 10 years.
 
 [00:00:53] Will: Did we finish the millennium at the end of 2000 or 1999?
 
 [00:00:56] Norm: I don't want to have this conversation.
 
-[00:00:56] Adam: What we what we end up so this year 2020 August 2020 is the thirtieth anniversary of my arrival in San Francisco.
+[00:00:56] Adam: What we what we end up so this year 2020 August 2020 is the 30th anniversary of my arrival in San Francisco.
 
 [00:01:05] Will: Wow, really?
 
 [00:01:05] Adam: Uh huh.
 
-[00:01:05] Will: It's the twentieth anniversary of my arrival in San Francisco.
+[00:01:05] Will: It's the 20th anniversary of my arrival in San Francisco.
 
 [00:01:09] Adam: It's um, it's the what?
 
@@ -114,7 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:02:10] Adam: At the very front, Alamo Drafthouse, Theater Five, second floor, way up there, tiny little theater,
 
-[00:02:15] Will: ninety-four seats.
+[00:02:15] Will: 94 seats.
 
 [00:02:16] Adam: Fantastic theater to see it in.
 
@@ -230,9 +230,9 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:07:06] Adam: That's shocking How long this year has been, but
 
-[00:07:07] Norm: and that was the culmination of yeah, twenty two movies and ten years of filmmaking.
+[00:07:07] Norm: and that was the culmination of yeah, 22 movies and 10 years of filmmaking.
 
-[00:07:12] Adam: This is nine movies and forty years of filmmaking,
+[00:07:12] Adam: This is nine movies and 40 years of filmmaking,
 
 [00:07:14] Norm: and so theoretically, like you have the same opportunity to to you know close the book in a way and make you feel something as an audience. And I kept on thinking back, wow, there is no they. I see they want to have a portals moment here. They want to have a Cap's Mjolnir moment here, but like I didn't feel it.
 
@@ -266,7 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:08:37] Adam: But that's also like, what what could you give me after all this time?
 
-[00:08:42] Will: I, You know, you want on something that is the end of a forty year, eleven movie saga or something.
+[00:08:42] Will: I, You know, you want on something that is the end of a 40 year, 11 movie saga or something.
 
 [00:08:48] Adam: But every one of us has our own experience of it. So how do you?
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:09:16] Adam: Mm-hmm.
 
-[00:09:09] Will: and I I didn't want I I wasn't expecting a landing to be stuck. You know, it's too much to ask for Watchmen and Endgame and and fifteen other things that came out this year to stick the landing. What what I was hoping for was a resolution that felt just and right. And I don't think I can talk about why I'm disappointed in that without getting into spoilers.
+[00:09:09] Will: and I I didn't want I I wasn't expecting a landing to be stuck. You know, it's too much to ask for Watchmen and Endgame and and 15 other things that came out this year to stick the landing. What what I was hoping for was a resolution that felt just and right. And I don't think I can talk about why I'm disappointed in that without getting into spoilers.
 
 [00:09:35] Adam: Sure. No, that's and we can get there. We can get there in a second.
 
@@ -408,7 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:13:55] Will: Yeah, deus ex...
 
-[00:13:57] Adam: It's it's fine to use a coincidence to get your characters into trouble. It's not okay to use a coincidence to get your characters out of trouble. Um, I I had some trouble with the plot on this one because it felt a little overly, uh, overly obvious. Oh, really? Sixteen hours? Sixteen hours? That's all we have with all of us. Like all these big ships. Now it turns out with light speed, no one's more than five minutes from any planet.
+[00:13:57] Adam: It's it's fine to use a coincidence to get your characters into trouble. It's not okay to use a coincidence to get your characters out of trouble. Um, I I had some trouble with the plot on this one because it felt a little overly, uh, overly obvious. Oh, really? 16 hours? 16 hours? That's all we have with all of us. Like all these big ships. Now it turns out with light speed, no one's more than five minutes from any planet.
 
 [00:14:19] Norm: Oh, the physics of Star Wars have never made sense.
 
@@ -528,7 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:17:37] Norm: he's plugged in, and yeah.
 
-[00:17:39] Will: The the the I mean the big look if we want to get to the thing that is the unearned thing that made me like I was with the movie right up until about the last ten minutes, and then we got to the bit where the Emperor—Rey does the business with the Force and the lightsabers, and I'm like, fuck yeah, kill the Emperor with his own. Bad force juice, and then then she dies,
+[00:17:39] Will: The the the I mean the big look if we want to get to the thing that is the unearned thing that made me like I was with the movie right up until about the last 10 minutes, and then we got to the bit where the Emperor—Rey does the business with the Force and the lightsabers, and I'm like, fuck yeah, kill the Emperor with his own. Bad force juice, and then then she dies,
 
 [00:17:57] Unknown speaker: Force juice.
 
@@ -894,7 +894,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:29:01] Norm: right? All these like things, and and I felt like we know Star Wars isn't going to end. Like the Star Wars saga, I am okay with Rey Skywalker going off into the world and doing her own thing. I don't need to revisit these characters, but like lay some seeds in the universe. Right? What does it mean now that the Emperor and the the Final Order are gone? Right? It was a great place.
 
-[00:29:39] Will: ten thousand years of peace. They're cool. Everything's good.
+[00:29:39] Will: 10,000 years of peace. They're cool. Everything's good.
 
 [00:29:41] Norm: It could have been a good place to to lay some cool seeds in.
 

@@ -378,19 +378,19 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:12:05] Norm: prime numbers are found,
 
-[00:12:07] Adam: right? And this is the thing where they're talking about. They're like they're looking at the first four or five hundred million prime numbers.
+[00:12:07] Adam: right? And this is the thing where they're talking about. They're like they're looking at the first 400 or 500 million prime numbers.
 
 [00:12:07] Will: Yeah.
 
 [00:12:07] Adam: Right, holy crap!
 
-[00:12:14] Will: Prime numbers, like Mersenne primes, are these unfathomably large numbers that are like something, something, something times ten to the fifty-five thousandth minus one.
+[00:12:14] Will: Prime numbers, like Mersenne primes, are these unfathomably large numbers that are like something, something, something times 10 to the 55,000th minus one.
 
 [00:12:24] Adam: And then we'll talk about. Then I came across this this morning, which is about pi, which is this.
 
 [00:12:31] Will: Oh yeah,
 
-[00:12:32] Adam: pi being calculated to n degree. Turns out that thirty nine places, pi to thirty nine places, that's memorizable by any one of us on a bet.
+[00:12:32] Adam: pi being calculated to n degree. Turns out that 39 places, pi to 39 places, that's memorizable by any one of us on a bet.
 
 [00:12:32] Norm: Sure,
 
@@ -398,19 +398,19 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:12:42] Norm: 3.141592652 something.
 
-[00:12:45] Adam: Right, so thirty nine places is accurate enough to calculate the circumference of the known universe to the width of an atom.
+[00:12:45] Adam: Right, so 39 places is accurate enough to calculate the circumference of the known universe to the width of an atom.
 
 [00:12:55] Will: This is one of those
 
-[00:12:56] Norm: powers of ten, though.
+[00:12:56] Norm: powers of 10, though.
 
 [00:12:56] Adam: Yeah,
 
-[00:12:56] Norm: at thirty nine,
+[00:12:56] Norm: at 39,
 
 [00:12:56] Adam: yeah,
 
-[00:12:56] Norm: the ten, you know, that's yeah, that's a lot. I like that when you talk about how prime numbers, you know, tend to resist or prefer.
+[00:12:56] Norm: the 10, you know, that's yeah, that's a lot. I like that when you talk about how prime numbers, you know, tend to resist or prefer.
 
 [00:13:08] Adam: This is what I found so intoxicating about reading the article. It was out of off of Slashdot, talking about mathematicians using words like resist,
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:14:20] Norm: right. Well, which is not something you would give to numbers.
 
-[00:14:24] Adam: It also turns out to be the case whether or not you're looking at primes using a base ten or log three or many other different permutations
+[00:14:24] Adam: It also turns out to be the case whether or not you're looking at primes using a base 10 or log three or many other different permutations
 
 [00:14:33] Will: of notating number systems.
 

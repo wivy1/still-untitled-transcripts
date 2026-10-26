@@ -30,15 +30,15 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:00:14] Will: Imagine a world.
 
-[00:00:14] Norm: It went on sale ten minutes ago, and I had
+[00:00:14] Norm: It went on sale 10 minutes ago, and I had
 
 [00:00:16] Adam: imagine a world
 
 [00:00:17] Will: where you can buy concert tickets from an ATM.
 
-[00:00:21] Adam: Right, and and twenty dollar concert tickets are only fifty nine ninety five after the convenience fees.
+[00:00:21] Adam: Right, and and $20 concert tickets are only $59.95 after the convenience fees.
 
-[00:00:27] Will: Don't forget the fifteen dollar super convenience fee for the venue. Now,
+[00:00:27] Will: Don't forget the $15 super convenience fee for the venue. Now,
 
 [00:00:30] Norm: I know a guy. Speaking of ATMs, I know a guy who works for a major bank, we'll say, who programs all the graphics.
 
@@ -142,7 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:03:48] Will: Oh yeah, you guys do do that,
 
-[00:03:49] Norm: right? You don't have a billion dollars to donate to charity,
+[00:03:49] Norm: right? You don't have $1 billion to donate to charity,
 
 [00:03:52] Adam: right? But we do. We we we do have some science and some humor to bear. And just to briefly explain the myths that they wanted to dispel, a lot of people, and these aren't just things that the general public believes. Like Bill says that he gets. buttonholed by world leaders who believe this sometimes, which is things like giving money to a third world country is just pouring it into the hands of corrupt officials. That's one. Another is that
 
@@ -206,7 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:06:35] Will: It's one of the only functional monorails outside of Disney World in the world.
 
-[00:06:39] Adam: Um, so the the building, uh, it's incredibly green. It has things like living roofs and a million gallon cistern of rainwater that runs all the faucets and toilets in the place. Um, it is.
+[00:06:39] Adam: Um, so the the building, uh, it's incredibly green. It has things like living roofs and a 1 million gallon cistern of rainwater that runs all the faucets and toilets in the place. Um, it is.
 
 [00:06:54] Will: Do they do like electrical generation and stuff like that?
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:15:40] Will: yeah,
 
-[00:15:40] Adam: being in that position, and I, I, I know enough to know that it's ten times that for Bill and Melinda that they get out of their car and they go and do something and they got to put a face on to meet the faces that they'll meet. They got to deal with this thing and they got to deal with the fact that everyone in the room is thinking about the fact that they're there and
+[00:15:40] Adam: being in that position, and I, I, I know enough to know that it's 10 times that for Bill and Melinda that they get out of their car and they go and do something and they got to put a face on to meet the faces that they'll meet. They got to deal with this thing and they got to deal with the fact that everyone in the room is thinking about the fact that they're there and
 
 [00:15:56] Will: they all want something. Like yeah,
 
@@ -376,7 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:17:04] Norm: If I was meeting Bill Gates, it would be. The the meter of like how much money this is costing them. Like when we hang out with you, Adam, the meter moves. Little maybe not as fast as with Bill Gates.
 
-[00:17:16] Adam: Do you remember the? Do you remember the? I don't know if you remember this, but back in the back in the '90s, when you know he was the richest man in the world, there was there was a thing of like Bill could throw hundred dollar bills over his shoulder and it wouldn't be worth his time to pick them up.
+[00:17:16] Adam: Do you remember the? Do you remember the? I don't know if you remember this, but back in the back in the '90s, when you know he was the richest man in the world, there was there was a thing of like Bill could throw $100 bills over his shoulder and it wouldn't be worth his time to pick them up.
 
 [00:17:31] Norm: Yeah,
 

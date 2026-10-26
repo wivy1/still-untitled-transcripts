@@ -64,7 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:01:16] Will: Oh my—great! What did it cost you to drive back from Los Angeles?
 
-[00:01:18] Norm: Uh, fourteen dollars.
+[00:01:18] Norm: Uh, $14.
 
 [00:01:20] Will: Wow.
 
@@ -74,7 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:01:23] Norm: But it took you know seven and a half hours.
 
-[00:01:25] Will: Okay, so fourteen dollars plus
+[00:01:25] Will: Okay, so $14 plus
 
 [00:01:27] Norm: plus time.
 
@@ -152,7 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:04:32] Will: wow
 
-[00:04:32] Adam: eighty hours.
+[00:04:32] Adam: 80 hours.
 
 [00:04:34] Will: I saw you had all those 3D printers down there, so now I guess I know why.
 
@@ -300,7 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:10:53] Norm: we'll have a chance to go back to New York to check it out. Maybe in like a week and a half.
 
-[00:10:57] Will: I was going to say one of the one of my favorite places that we visited when I was at Tested was NYC Resistor, which was one of the first maker spaces. And I think that that was one of the ones that some some friends were like, " Man, I really want a laser cutter, but it's twenty five grand. What if we all put in like three grand and and you know we
+[00:10:57] Will: I was going to say one of the one of my favorite places that we visited when I was at Tested was NYC Resistor, which was one of the first maker spaces. And I think that that was one of the ones that some some friends were like, " Man, I really want a laser cutter, but it's $25,000. What if we all put in like $3,000 and and you know we
 
 [00:11:15] Adam: yeah
 
@@ -308,7 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:11:30] Adam: Ah.
 
-[00:11:30] Will: But it was twenty
+[00:11:30] Will: But it was 20
 
 [00:11:30] Will: different people's worth of stuff. So there was like it was it just felt really organic and neat, and it's the kind of place I could have spent three or four hours just walking around and asking, " Hey, what's this? Hey, what's this?
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:12:01] Adam: So that was awesome. I was in Knoxville the day before.
 
-[00:12:06] Will: Oh, I lived in Knoxville for almost ten years.
+[00:12:06] Will: Oh, I lived in Knoxville for almost 10 years.
 
 [00:12:08] Adam: I did a appearance at UT for the incredible students there as part of a thing called the Mossman Lectures, a part of an endowment given to UT that that part of an endowment devoted to science communicators and scientists coming and talking to kids. We had a capacity crowd and two overflow rooms filled with students.
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:14:43] Adam: I tend to be a window side.
 
-[00:14:45] Will: Um, because she likes to have the window open, likes a little bit more air than I do. But she hurt her ankle a few weeks ago and has had like. Hasn't been able to keep it under the covers, and the side that it's on means that we've had to switch sides of the bed at home, which has been—it was really discomforting. Like we've lived in this house for twelve years, I've slept on the same side of the bed every night for twelve years. Yeah, it's real weird, man.
+[00:14:45] Will: Um, because she likes to have the window open, likes a little bit more air than I do. But she hurt her ankle a few weeks ago and has had like. Hasn't been able to keep it under the covers, and the side that it's on means that we've had to switch sides of the bed at home, which has been—it was really discomforting. Like we've lived in this house for 12 years, I've slept on the same side of the bed every night for 12 years. Yeah, it's real weird, man.
 
 [00:15:08] Adam: Yeah,
 
@@ -596,7 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:25:35] Adam: I tried to watch it. I got about
 
-[00:25:37] Adam: fifteen minutes in and it took it.
+[00:25:37] Adam: 15 minutes in and it took it.
 
 [00:25:38] Norm: or Jake Gyllenhaal's
 
@@ -682,9 +682,9 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:27:22] Adam: How was that?
 
-[00:27:24] Norm: Six six out of ten.
+[00:27:24] Norm: 6 6 out of 10.
 
-[00:27:25] Adam: Six out of ten.
+[00:27:25] Adam: 6 out of 10.
 
 [00:27:26] Will: It's it's a comedy.
 
@@ -756,7 +756,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:29:48] Will: Yeah,
 
-[00:29:48] Will: It takes like ten seconds.
+[00:29:48] Will: It takes like 10 seconds.
 
 [00:29:48] Adam: but back then it was insanely intensive.
 
@@ -782,11 +782,11 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:30:29] Adam: Oh, it's also on an iPad. You can get the iPad app and it'll look it up.
 
-[00:30:32] Norm: Oh yeah. So Predator six out the Predator six out of ten. A simple favor.
+[00:30:32] Norm: Oh yeah. So Predator six out the Predator 6 out of 10. A simple favor.
 
 [00:30:37] Will: Oh yeah, that's the.
 
-[00:30:39] Norm: Solid eight out of ten.
+[00:30:39] Norm: Solid 8 out of 10.
 
 [00:30:40] Will: That’s the Paul Feig film?
 
@@ -794,7 +794,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:30:43] Will: Who's in that? It's
 
-[00:30:43] Norm: Anna Kendrick, Blake Lively. Solid eight out of ten. Searching, I think I recommended this before. Nine out of ten.
+[00:30:43] Norm: Anna Kendrick, Blake Lively. Solid 8 out of 10. Searching, I think I recommended this before. 9 out of 10.
 
 [00:30:50] Adam: Searching.
 
@@ -830,13 +830,13 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:32:13] Will: Wow!
 
-[00:32:13] Adam: Another, it's like the greatest defense. This most recent episode is the greatest defense lawyer in history. Another one is a family that was on the run for thirty years and how that what toll that took.
+[00:32:13] Adam: Another, it's like the greatest defense. This most recent episode is the greatest defense lawyer in history. Another one is a family that was on the run for 30 years and how that what toll that took.
 
 [00:32:25] Will: Wow!
 
 [00:32:25] Adam: Oh, it's it's fantastic. It's a really good podcast.
 
-[00:32:29] Will: So the thing that I like about American Vandal, I mean, in addition to it being clever and funny and thirty-minute episodes, I'll actually watch it. Is that it? It they really looked at the the tropes of that format of
+[00:32:29] Will: So the thing that I like about American Vandal, I mean, in addition to it being clever and funny and 30-minute episodes, I'll actually watch it. Is that it? It they really looked at the the tropes of that format of
 
 [00:32:41] Adam: right, right, right
 

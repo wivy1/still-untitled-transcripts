@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=SqndNdkYKtg
 
 [00:03:09] Dave Miller: Exactly.
 
-[00:03:09] Norm: Amazing. Wow. So you mentioned roadmaps. When we love The Martian, and we've talked about extensively on our podcast, and one of the things we looked about because it's talking about somewhere maybe thirty years, forty years into the future, and that's what you're thinking about those technologies, all all the things that can get us to Mars and beyond.
+[00:03:09] Norm: Amazing. Wow. So you mentioned roadmaps. When we love The Martian, and we've talked about extensively on our podcast, and one of the things we looked about because it's talking about somewhere maybe 30 years, 40 years into the future, and that's what you're thinking about those technologies, all all the things that can get us to Mars and beyond.
 
 [00:03:31] Dave Miller: That's right. So right now we're building the world's biggest rocket. It's called the Space Launch System for or SLS. It's going to be bigger than the Saturn V. But once we have that in place and the Orion capsule that goes on top, we have to start building all the tools that are going to help us get out to Mars and and work productively and get back home. So we're working on a round trip in the 2030s.
 
@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=SqndNdkYKtg
 
 [00:05:01] Will: seven minutes of terror.
 
-[00:05:03] Dave Miller: Yes, terror. Seven minutes terror. So a thing to think about is that at the surface of Mars, the thickness of the atmosphere is is about 1% Earth's, and so it's like our atmosphere at a hundred thousand feet. So it's it's really hard to get a to get a bite on that atmosphere. So we're working on a lot of different ways of doing this, like inflatable, high well, HIAD's a name for it, but inflatable deceleration devices that would work at supersonic speeds. It's just a series of events that is seven minutes of terror. And we're trying to figure out since we have to land much larger payloads on the surface, Curiosity was one ton. We have to get a lot more than that to support humans. So you really got to get a bite on that air, and we're going to have to rely a lot more on retropropulsion, basically firing engines to get that last sort of kilometer per second down to a so we can land softly.
+[00:05:03] Dave Miller: Yes, terror. Seven minutes terror. So a thing to think about is that at the surface of Mars, the thickness of the atmosphere is is about 1% Earth's, and so it's like our atmosphere at 100,000 feet. So it's it's really hard to get a to get a bite on that atmosphere. So we're working on a lot of different ways of doing this, like inflatable, high well, HIAD's a name for it, but inflatable deceleration devices that would work at supersonic speeds. It's just a series of events that is seven minutes of terror. And we're trying to figure out since we have to land much larger payloads on the surface, Curiosity was one ton. We have to get a lot more than that to support humans. So you really got to get a bite on that air, and we're going to have to rely a lot more on retropropulsion, basically firing engines to get that last sort of kilometer per second down to a so we can land softly.
 
 [00:05:55] Unknown speaker: Okay. Thank you.
 
@@ -100,13 +100,13 @@ Episode URL: https://www.youtube.com/watch?v=SqndNdkYKtg
 
 [00:07:53] Will: If you haven't seen these pictures, they're absolutely astounding. Yeah. If you if you want to feel the smallest you're ever going to feel in your life, imagine the darkest spot in the sky, and then you look at the picture of what's there, and it's it's just You know, it's it's breathtaking.
 
-[00:08:08] Adam: The first time you guys did that, I sat down with my kids. They were probably ten or eleven at that time, and they just the sound. I mean, that when I showed it to them, the sound when they realized that looking at this dark spot was thousands of galaxies, each composed of billions of stars. They were, “Oh!” I mean, it's wonderful, wonderful how accessible that is, and how you—it's just an incredible illumination.
+[00:08:08] Adam: The first time you guys did that, I sat down with my kids. They were probably 10 or 11 at that time, and they just the sound. I mean, that when I showed it to them, the sound when they realized that looking at this dark spot was thousands of galaxies, each composed of billions of stars. They were, “Oh!” I mean, it's wonderful, wonderful how accessible that is, and how you—it's just an incredible illumination.
 
 [00:08:35] Dave Miller: To To borrow a phrase from sci-fi, you know, it's really full of stars.
 
 [00:08:41] Will: I mean, so so Hubble is one of the great telescopes, right? There's a there's a handful of others, and two of them, one of them has been in the news a lot lately for finding a bunch of exoplanets.
 
-[00:08:52] Dave Miller: Yeah, the little the little the little satellite that could, the little telescope that could, Kepler. So it's been looking at. Let's see. Let me a little history going all the way back to 1995. In 1995, we knew of nine planets, and then we demoted. Poor old Pluto, but that was in 2006. But now we know of over 2,000, and there's probably three more that are on the yet to be verified list. Three thousand more on the yet to be verified list, and and Kepler was only looking at about 1% of the sky, and the so we can in that 1% we've also identified a handful, maybe eight or ten that are planets about our size in the what we call the well not the technical term the Goldilocks the Goldilocks zone,
+[00:08:52] Dave Miller: Yeah, the little the little the little satellite that could, the little telescope that could, Kepler. So it's been looking at. Let's see. Let me a little history going all the way back to 1995. In 1995, we knew of nine planets, and then we demoted. Poor old Pluto, but that was in 2006. But now we know of over 2,000, and there's probably three more that are on the yet to be verified list. 3,000 more on the yet to be verified list, and and Kepler was only looking at about 1% of the sky, and the so we can in that 1% we've also identified a handful, maybe 8 or 10 that are planets about our size in the what we call the well not the technical term the Goldilocks the Goldilocks zone,
 
 [00:09:39] Will: which means not too hot and not too cold.
 
@@ -202,7 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=SqndNdkYKtg
 
 [00:13:56] Norm: Yeah, about the technologies that trickle.
 
-[00:13:58] Dave Miller: Every year that comes out talks about probably a thousand or so spinoff technologies into non aerospace sectors that that NASA makes every every year, and we publish these. You can download them from our website, NASA Spinoffs. The there's a lot of examples of things that we've spun off.
+[00:13:58] Dave Miller: Every year that comes out talks about probably 1,000 or so spinoff technologies into non aerospace sectors that that NASA makes every every year, and we publish these. You can download them from our website, NASA Spinoffs. The there's a lot of examples of things that we've spun off.
 
 [00:14:16] Will: Stuff like Velcro and Tang.
 
@@ -286,7 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=SqndNdkYKtg
 
 [00:19:11] Dave Miller: I think Adam's going to move up. He's going to move up one.
 
-[00:19:14] Will: I'll take the chance on seventeen or eighteen.
+[00:19:14] Will: I'll take the chance on 17 or 18.
 
 [00:19:16] Adam: They get a patch. They get a patch that says I went to Mars and only circled.
 
@@ -324,7 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=SqndNdkYKtg
 
 [00:20:42] Norm: right? Segue.
 
-[00:20:42] Dave Miller: Yes. Right. So, um, we've been thinking that the best place to look for life outside Earth is probably at Mars, and and that's probably still a very good shot because we're finding water and liquid water, and we're finding methane, and we found, uh, organic compounds in the fossil record at Mars. We're just getting really close, but the what the ocean worlds in our solar system, and there are a number of them, um, are showing a lot of promise. So Europa has an ocean under a frozen surface, and Enceladus, which I think is only like 500 kilometers in diameter, uh, very near to Saturn, its southern hemisphere has sort of a bulge in it that's a that's a bit of a deep ocean, liquid water, and it has geysers shooting out of it. I don't know if you've seen those photos, but the Cassini spacecraft, which has been up there for 12 years now, going around Mars, going around Saturn, has, uh, flew through it. But tomorrow we're going to fly through it at an altitude of 30 miles, right through it. And the last time we went through, it's got plenty of water. I mean, it freezes. It comes out. It's got ice crystals. But we've also measured organic compounds in it, so it's kind of like a soup. There's stuff coming out of that, uh, It's a briny ocean. There's stuff coming out of there that, uh, that you know. If only we could measure, detect life, and that's a good question. How do you do that? But it that's a very promising place. And tomorrow, think of this: we're gonna with about a one mile accuracy. We're gonna fly thirty miles above the surface of Enceladus, and that's we're flying it from a distance of 800,000,000 miles away. That's called threading the needle.
+[00:20:42] Dave Miller: Yes. Right. So, um, we've been thinking that the best place to look for life outside Earth is probably at Mars, and and that's probably still a very good shot because we're finding water and liquid water, and we're finding methane, and we found, uh, organic compounds in the fossil record at Mars. We're just getting really close, but the what the ocean worlds in our solar system, and there are a number of them, um, are showing a lot of promise. So Europa has an ocean under a frozen surface, and Enceladus, which I think is only like 500 kilometers in diameter, uh, very near to Saturn, its southern hemisphere has sort of a bulge in it that's a that's a bit of a deep ocean, liquid water, and it has geysers shooting out of it. I don't know if you've seen those photos, but the Cassini spacecraft, which has been up there for 12 years now, going around Mars, going around Saturn, has, uh, flew through it. But tomorrow we're going to fly through it at an altitude of 30 miles, right through it. And the last time we went through, it's got plenty of water. I mean, it freezes. It comes out. It's got ice crystals. But we've also measured organic compounds in it, so it's kind of like a soup. There's stuff coming out of that, uh, It's a briny ocean. There's stuff coming out of there that, uh, that you know. If only we could measure, detect life, and that's a good question. How do you do that? But it that's a very promising place. And tomorrow, think of this: we're gonna with about a one mile accuracy. We're gonna fly 30 miles above the surface of Enceladus, and that's we're flying it from a distance of 800,000,000 miles away. That's called threading the needle.
 
 [00:22:25] Adam: That is thrilling.
 
@@ -336,7 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=SqndNdkYKtg
 
 [00:22:45] Will: to measure life.
 
-[00:22:46] Will: Cassini twelve years ago when we launched it wasn't designed, or twenty years ago when we launched it wasn't designed to. fly through the geyser.
+[00:22:46] Will: Cassini 12 years ago when we launched it wasn't designed, or 20 years ago when we launched it wasn't designed to. fly through the geyser.
 
 [00:22:51] Dave Miller: Yeah,
 

@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:02:27] Will: I was just going to say, what makes a good venue, Adam? Sorry.
 
-[00:02:29] Adam: Yeah, we've discovered over the course of this tour that we've been doing very, very full crowds, and even when the crowds weren't full, the crowds have been super enthusiastic. So that's been awesome. But we also find that some halls there's a long distance between the back of the stage and the back of the auditorium, like it's hundreds of feet. And others fit the same amount of people, but they're wider. And specifically, the Moody Theater—it's like the distance from the stage to the back of the house has got to be not much more than like eighty to a hundred feet. It's that the Moody feels like it's right on top of you, and that's kind of the ideal house for our show. That type of intimacy is is phenomenal. Both for I think the audience—it's like looking right into the show, but also the performers. It feels like the audience is just sitting on top of you in the best way. Like you really hear them.
+[00:02:29] Adam: Yeah, we've discovered over the course of this tour that we've been doing very, very full crowds, and even when the crowds weren't full, the crowds have been super enthusiastic. So that's been awesome. But we also find that some halls there's a long distance between the back of the stage and the back of the auditorium, like it's hundreds of feet. And others fit the same amount of people, but they're wider. And specifically, the Moody Theater—it's like the distance from the stage to the back of the house has got to be not much more than like 80 to 100 feet. It's that the Moody feels like it's right on top of you, and that's kind of the ideal house for our show. That type of intimacy is is phenomenal. Both for I think the audience—it's like looking right into the show, but also the performers. It feels like the audience is just sitting on top of you in the best way. Like you really hear them.
 
 [00:03:28] Will: That's awesome. I love it when you feel like you're in the like on the stage almost when you're in that kind of a shallow venue.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:04:41] Norm: Oh yes, yeah, yeah. The the movie is unbelievable. Um,
 
-[00:04:48] Adam: so I I saw Chappelle perform at the Punchline in San Francisco years ago, and at some point the. He asked the audience what they wanted to talk about, and they said, " Hey, MythBusters." And he said, " I don't know what MythBusters is," and they all pointed at me, and he and I had a little interaction where he asked me what the show was about, and I said what it was, and he said, " What are you guys testing lately?" And I said, " This is years ago, so the Dick Cheney had just shot that guy in the face," and I said, " Well, we wanted to do the Dick Cheney shooting, but Discovery wouldn't let us," and then Chappelle did like twenty-five minutes of brilliant material on Dick Cheney, and it was it was totally mind blowing. So I asked, I was talking to Chris Hardwick about it later, and Chris has actually toured with with Dave, and I said, " Did he just come up with that material off the top of his head, or did he have it somewhere sitting in his pocket?" And Chris said, " I have no idea." He said, " I toured with him, and I barely heard the same jokes twice." He said, " I I think it might be that he has a larger roster of material than anyone could possibly imagine, and he can spontaneously cough up twenty minutes of high quality material on anything you want to talk about at any time."
+[00:04:48] Adam: so I I saw Chappelle perform at the Punchline in San Francisco years ago, and at some point the. He asked the audience what they wanted to talk about, and they said, " Hey, MythBusters." And he said, " I don't know what MythBusters is," and they all pointed at me, and he and I had a little interaction where he asked me what the show was about, and I said what it was, and he said, " What are you guys testing lately?" And I said, " This is years ago, so the Dick Cheney had just shot that guy in the face," and I said, " Well, we wanted to do the Dick Cheney shooting, but Discovery wouldn't let us," and then Chappelle did like 25 minutes of brilliant material on Dick Cheney, and it was it was totally mind blowing. So I asked, I was talking to Chris Hardwick about it later, and Chris has actually toured with with Dave, and I said, " Did he just come up with that material off the top of his head, or did he have it somewhere sitting in his pocket?" And Chris said, " I have no idea." He said, " I toured with him, and I barely heard the same jokes twice." He said, " I I think it might be that he has a larger roster of material than anyone could possibly imagine, and he can spontaneously cough up 20 minutes of high quality material on anything you want to talk about at any time."
 
 [00:06:04] Will: Wow,
 
@@ -146,7 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:08:49] Norm: Yeah, it was like three fifty a pound, and yeah. So so Adam, the tour it's you have like a week and a half left, right? It's coming to a close.
 
-[00:09:00] Adam: Uh, just about two weeks. April 10 is when I get home. Uh, I'm actually going home tomorrow for twenty four hours, just because it's been too long since I've been home.
+[00:09:00] Adam: Uh, just about two weeks. April 10 is when I get home. Uh, I'm actually going home tomorrow for 24 hours, just because it's been too long since I've been home.
 
 [00:09:11] Norm: Oh wow!
 
@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:10:14] Will: Oh man!
 
-[00:10:15] Adam: Picture five of us on the bus. We are on this bus: five men and one one woman. And Chelsea, the the my assistant on the tour, female, was off in the theater taking care of some stuff. So it was five of us guys. The brisket arrived, and we stood around the table with forks and just ate meat almost without talking for about twenty five minutes. It was pretty frigging bestial.
+[00:10:15] Adam: Picture five of us on the bus. We are on this bus: five men and one one woman. And Chelsea, the the my assistant on the tour, female, was off in the theater taking care of some stuff. So it was five of us guys. The brisket arrived, and we stood around the table with forks and just ate meat almost without talking for about 25 minutes. It was pretty frigging bestial.
 
 [00:10:45] Will: Was it Salt Lick or something like that? Do you know? We'll have to find out and put in the notes.
 
@@ -172,7 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:11:37] Will: kind of get calories.
 
-[00:11:47] Adam: No, it's totally like that. So we talk about you know that every crew is different. Some houses are some houses are cooperative. Some can be more difficult. We laugh about some of the difficulties we had. I mean. Sometimes we end up with like in one theater, the door to the theater was literally only wide enough for like two guys with a dolly, so two trucks worth of stuff had to come in through a single regular doorway. So the oh, and you couldn't park more than one eighteen wheeler there at a time. So the loadout took extra long because you could only load a single truck at once. You couldn't start spinning stuff between two trucks, which is usually what we do. There are other places where the crew, the local crew, is just amazing, and you know we get along really well. I mean, my crew plays all these houses multiple times per year, so every place has its own proclivities and its own difficulties and its own wonderful, weird, quirky qualities, and we talk about those.
+[00:11:47] Adam: No, it's totally like that. So we talk about you know that every crew is different. Some houses are some houses are cooperative. Some can be more difficult. We laugh about some of the difficulties we had. I mean. Sometimes we end up with like in one theater, the door to the theater was literally only wide enough for like two guys with a dolly, so two trucks worth of stuff had to come in through a single regular doorway. So the oh, and you couldn't park more than one 18 wheeler there at a time. So the loadout took extra long because you could only load a single truck at once. You couldn't start spinning stuff between two trucks, which is usually what we do. There are other places where the crew, the local crew, is just amazing, and you know we get along really well. I mean, my crew plays all these houses multiple times per year, so every place has its own proclivities and its own difficulties and its own wonderful, weird, quirky qualities, and we talk about those.
 
 [00:12:50] Will: Cool.
 
@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:14:40] Norm: no, what's that?
 
-[00:14:42] Will: Station Eight is a book by I think Elizabeth Spears, and it's basically it's basically a super flu wipes out a massive percentage of the population, and then like the book devotes the prologue to that, and the rest of it is. Ten or fifteen years later, kind of exploring what the world is like, and there's a lot of that. Like, like theatrical performer is is one of the traveling jobs, and these people go from from little village to village and and recreate plays and and things like that from from the before times.
+[00:14:42] Will: Station Eight is a book by I think Elizabeth Spears, and it's basically it's basically a super flu wipes out a massive percentage of the population, and then like the book devotes the prologue to that, and the rest of it is. 10 or 15 years later, kind of exploring what the world is like, and there's a lot of that. Like, like theatrical performer is is one of the traveling jobs, and these people go from from little village to village and and recreate plays and and things like that from from the before times.
 
 [00:15:16] Adam: That's exactly what's going to happen. I, I, I totally guarantee it. There's an immediacy to being in a theater as an audience member and as a performer that just doesn't exist anywhere else. We've been very careful with the promotional material for Brain Candy not to not to show too much of even the small things that we're doing on stage because seeing a picture of one of the things we do just does not communicate the the the experience of how much we stack the stuff we're doing on the show on top of each other. It'd be easy for you to look at a picture of us doing one little gag and being like, " Oh, I get what kind of show that is," and you totally don't get what kind of show this is, you know and Michael Stevens and I talk about it frequently. How different audiences get totally different performances out of you, and different houses have different flavors.
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:16:17] Will: I was blown away because it was not at all like I was expecting your kind of '90s style dry science show, and you guys definitely didn't do that. So I'm really excited to see what you've done with Michael and and and see how this new shows come together and how it's different.
 
-[00:16:45] Adam: And it's it is so so so different. It's um yeah, it's completely different, and I really enjoyed working with Michael. He is, I mean, anybody who's seen his videos knows how talented he is and how what an amazing master explainer he is. But he's also Wonderful, wonderful at improv, moving on the fly. We try different things all the time. We've added several pieces into the show over the course of it, and the collaboration with him and my director, our director Michael Weber, is just—it's super, super fruitful. I look forward to continuing to tour this show and continuing to write new versions of Brain Candy because it's endlessly fun seeing how the audience responds. Plus, we're—I guess—have we talked about the fact that our meet and greets now are a hundred people a night instead of fifty people a night? Yeah.
+[00:16:45] Adam: And it's it is so so so different. It's um yeah, it's completely different, and I really enjoyed working with Michael. He is, I mean, anybody who's seen his videos knows how talented he is and how what an amazing master explainer he is. But he's also Wonderful, wonderful at improv, moving on the fly. We try different things all the time. We've added several pieces into the show over the course of it, and the collaboration with him and my director, our director Michael Weber, is just—it's super, super fruitful. I look forward to continuing to tour this show and continuing to write new versions of Brain Candy because it's endlessly fun seeing how the audience responds. Plus, we're—I guess—have we talked about the fact that our meet and greets now are 100 people a night instead of 50 people a night? Yeah.
 
 [00:17:37] Will: Oh wow.
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:21:51] Norm: and I love the analogy they had in the film where they realize. That the Chinese were using Mahjong as their analog to to understand the language,
 
-[00:22:03] Will: just like in the current geopolitical scene, like that that the way that story was framed as there is what twelve of these all around the world, and different people are approaching them in different ways was was really like it had a different impact on me now than it would have when it came out last year if I'd seen it then. I think
+[00:22:03] Will: just like in the current geopolitical scene, like that that the way that story was framed as there is what 12 of these all around the world, and different people are approaching them in different ways was was really like it had a different impact on me now than it would have when it came out last year if I'd seen it then. I think
 
 [00:22:21] Adam: indeed, I totally i I totally see that. The one problem that another couple of people in in the group I saw it with had was how quickly. So here, spoiler alert: I am going to spoil something in here. Was when the bad guys from the military detonate the bomb inside the ship, and then, like two scenes later, they're like, " Yeah, that happens. Crazy people get into shit." So sorry. And then they moved on from it,
 
@@ -344,7 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:28:27] Will: you would know each other so well at the end of seven days
 
-[00:28:34] Will: or fourteen days.
+[00:28:34] Will: or 14 days.
 
 [00:28:36] Will: They were there for two weeks sometimes.
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:30:15] Unknown speaker: Okay.
 
-[00:30:15] Adam: I I bought like thirty or forty patches at Kennedy. I got a couple of extra Fisher Space Pens and I got some pins. Yeah, yeah, I loaded up.
+[00:30:15] Adam: I I bought like 30 or 40 patches at Kennedy. I got a couple of extra Fisher Space Pens and I got some pins. Yeah, yeah, I loaded up.
 
 [00:30:31] Will: I mean, it's amazing to be in a place where tens or even hundreds of thousands of people are working toward like one common goal, and you're at the point you're at the point of that when you're at Johnson or Kennedy or or whatever, which is which is amazing.
 

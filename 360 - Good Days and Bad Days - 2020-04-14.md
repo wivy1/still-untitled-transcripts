@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:08:46] Will: Yeah, depression. Depression. It's not great.
 
-[00:08:50] Adam: So all that being said, I, I got to see Thing Two yesterday. He came by to pick up some of his stuff, and I have a picture of it. And there he is with Julia and I. Each like fifteen feet away from him, and he's in the middle on the sidewalk, and we're having this conversation. And when my mom showed me the picture, it actually made me choke up because I miss hugging my kid. Yeah, he's quarantined somewhere else and doing his thing, and you know that's tough.
+[00:08:50] Adam: So all that being said, I, I got to see Thing Two yesterday. He came by to pick up some of his stuff, and I have a picture of it. And there he is with Julia and I. Each like 15 feet away from him, and he's in the middle on the sidewalk, and we're having this conversation. And when my mom showed me the picture, it actually made me choke up because I miss hugging my kid. Yeah, he's quarantined somewhere else and doing his thing, and you know that's tough.
 
 [00:09:23] Will: That that that part would be heartbreaking. Like that, like at least I'm cooped up in here with my seven year old, and I can hug her anytime I want within reason.
 
@@ -112,7 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:12:42] Unknown speaker (Adam or Will): [oh, Get Shorty's grab me / But Get Shorty is].
 
-[00:12:42] Adam: It of the three movies, it is definitely the lightest of the three movies. Um, but every, all three of those movies have perfect casts, excellent direction. Three totally different directors. You have Barry Levinson for Get Shorty, Quentin Tarantino, of course, for Jackie Brown, and Steven Soderbergh at the Peak of his powers for out of sight with a George Clooney who is literally fifteen years younger than I am now in out of sight. It's weird to see him so young.
+[00:12:42] Adam: It of the three movies, it is definitely the lightest of the three movies. Um, but every, all three of those movies have perfect casts, excellent direction. Three totally different directors. You have Barry Levinson for Get Shorty, Quentin Tarantino, of course, for Jackie Brown, and Steven Soderbergh at the Peak of his powers for out of sight with a George Clooney who is literally 15 years younger than I am now in out of sight. It's weird to see him so young.
 
 [00:13:14] Will: That was that was one of his first things. It was like that and The Peacemaker were his first few things out of.
 
@@ -138,7 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:13:58] Adam: Was it really?
 
-[00:13:59] Will: I think I mean I saw so we watched Trolls World Tour this weekend when it was because they did the home release for twenty bucks thing and which was very like good music lovely message good like the animation those movies is astounding they do all the physicality based renders that are just rad and it opens with the twenty fifth anniversary of DreamWorks open like title card and I was just like oh shit DreamWorks has been around for twenty five years that's that's amazing
+[00:13:59] Will: I think I mean I saw so we watched Trolls World Tour this weekend when it was because they did the home release for $20 thing and which was very like good music lovely message good like the animation those movies is astounding they do all the physicality based renders that are just rad and it opens with the 25th anniversary of DreamWorks open like title card and I was just like oh shit DreamWorks has been around for 25 years that's that's amazing
 
 [00:14:28] Adam: wow
 
@@ -228,7 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:18:39] Will: yeah
 
-[00:18:40] Adam: she's been amazing since Once and Again. Yeah, she's been amazing since she was twelve.
+[00:18:40] Adam: she's been amazing since Once and Again. Yeah, she's been amazing since she was 12.
 
 [00:18:45] Norm: I I don't want to spoil this the because you know both those seasons and now in the third season it builds up to the last two episodes having a lot of things coming together and and reveals that make you reevaluate the what you've seen so far. But performance in the second season, I'm really curious. When you get to the end, are you like close to the end?
 
@@ -348,7 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:24:59] Will: Hospitals have already said, " Hey, y'all, you're on your own for the personal protective gear," and like, no man, f that.
 
-[00:25:07] Norm: I got yeah. Two recommendations for movies. I know you guys recommend TV shows. Uh, I find TV new shows are tough for me to jump in right now, uh, but easy to put ninety minutes into a movie. One, it's on Netflix, uh, Death of Stalin. It's, um, Armando, uh
+[00:25:07] Norm: I got yeah. Two recommendations for movies. I know you guys recommend TV shows. Uh, I find TV new shows are tough for me to jump in right now, uh, but easy to put 90 minutes into a movie. One, it's on Netflix, uh, Death of Stalin. It's, um, Armando, uh
 
 [00:25:24] Will: Light
 
@@ -364,7 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:25:43] Will: Kind of post Stalin purges that happened.
 
-[00:25:46] Norm: It's it's the type of like ridiculous farce that I needed. Uh, and then there's a movie on um, Amazon Prime. It's on the Shudder network, but it's a Japanese zombie movie called One Cut of the Dead. And I find it really tough to talk too much about this movie because there's a big reveal in it. But it's comedy also. It's a comedy zombie movie, and the first thirty seven minutes of the film. Is a single take, and that's all I say.
+[00:25:46] Norm: It's it's the type of like ridiculous farce that I needed. Uh, and then there's a movie on um, Amazon Prime. It's on the Shudder network, but it's a Japanese zombie movie called One Cut of the Dead. And I find it really tough to talk too much about this movie because there's a big reveal in it. But it's comedy also. It's a comedy zombie movie, and the first 37 minutes of the film. Is a single take, and that's all I say.
 
 [00:26:14] Adam: Wow! Speaking of that, I watched 1917 again.
 
@@ -414,7 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:29:20] Adam: Yeah.
 
-[00:29:20] Will: Um, that that like I did twenty minutes of that the other day, and it wore me that wore my wore me out pretty good.
+[00:29:20] Will: Um, that that like I did 20 minutes of that the other day, and it wore me that wore my wore me out pretty good.
 
 [00:29:27] Adam: Okay.
 
@@ -436,7 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:30:00] Will: That's a Lego kit?
 
-[00:30:00] Norm: Show and tell. So Lego launched this. If you're what, if you're just listening to the audio, I'm holding. It's a koi fish. It's a Lego Technic set that they launched on as a crowdfunded campaign in 2018. Uh, called Lego Forma. This is on Indiegogo for about thirty bucks, and I had to buy it on eBay for about fifty bucks. Wow! But it's an automaton.
+[00:30:00] Norm: Show and tell. So Lego launched this. If you're what, if you're just listening to the audio, I'm holding. It's a koi fish. It's a Lego Technic set that they launched on as a crowdfunded campaign in 2018. Uh, called Lego Forma. This is on Indiegogo for about $30, and I had to buy it on eBay for about $50. Wow! But it's an automaton.
 
 [00:30:20] Adam: That is that is lovely. Pretty.
 
@@ -496,7 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:32:47] Adam: Excellent.
 
-[00:32:47] Will: On on the Tech Pod this week at techpod.content.town, we had a friend of tested Mike Mika on and talked about how old video games worked. So we talked about like how electronics wizards turned dumb circuits into games like Pong, all the way through how you own and maintain arcade machines, and like the we talked about the the end of CRTs and and. All the way through to like FPGA-based emulators that can basically reprogram these FPGA emulators are amazing because you can buy a thing for 150 bucks that basically replicates the actual circuitry in an old console or arcade arcade machine.
+[00:32:47] Will: On on the Tech Pod this week at techpod.content.town, we had a friend of tested Mike Mika on and talked about how old video games worked. So we talked about like how electronics wizards turned dumb circuits into games like Pong, all the way through how you own and maintain arcade machines, and like the we talked about the the end of CRTs and and. All the way through to like FPGA-based emulators that can basically reprogram these FPGA emulators are amazing because you can buy a thing for $150 that basically replicates the actual circuitry in an old console or arcade arcade machine.
 
 [00:33:30] Adam: Oh my god! Wow.
 

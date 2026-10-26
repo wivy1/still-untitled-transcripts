@@ -52,7 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:01:02] Adam: Pistol Whip
 
-[00:01:03] Will: nailed it. Ten out of ten.
+[00:01:03] Will: nailed it. 10 out of 10.
 
 [00:01:07] Norm: No, I'm leaving that in. Yeah.
 
@@ -110,7 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:02:15] Adam: How old are you?
 
-[00:02:16] Will: Forty-four.
+[00:02:16] Will: 44.
 
 [00:02:17] Adam: It's what it feels like to be eight years older.
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:06:35] Adam: moving. Now. Yeah. No, me too. I move a lot.
 
-[00:06:37] Will: And so with this, you have a hundred points for accuracy, hundred points for timing, and the closer you are to the beat, the more you get that little red circle above the guy when you shoot him, and then
+[00:06:37] Will: And so with this, you have 100 points for accuracy, 100 points for timing, and the closer you are to the beat, the more you get that little red circle above the guy when you shoot him, and then
 
 [00:06:49] Adam: okay,
 
@@ -290,7 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:08:46] Will: oh I can see that
 
-[00:08:47] Adam: when for a long time on MythBusters he I just love this guy he's so bizarre he's like Well, I thought about how to exercise as many of my muscle groups as possible in the most efficient amount of time, and so what I ended up doing was setting my treadmill to its steepest setting, and then I carry seventy pounds uphill for forty-five minutes.
+[00:08:47] Adam: when for a long time on MythBusters he I just love this guy he's so bizarre he's like Well, I thought about how to exercise as many of my muscle groups as possible in the most efficient amount of time, and so what I ended up doing was setting my treadmill to its steepest setting, and then I carry 70 pounds uphill for 45 minutes.
 
 [00:09:11] Norm: What is like building the pyramids or something?
 
@@ -330,7 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:11:04] Will: Really,
 
-[00:11:05] Adam: but Jamie is somebody who, when he talks to like people who study cognitive load and mental conditioning and stuff like that, I remember him twenty years ago saying, " I come up with all my best ideas during my workout, so I try to choose tedious, monotonous workouts that allow me to think about random shit." And studies totally bear this out that exercise is a fantastic way to let your brain kind of free fly.
+[00:11:05] Adam: but Jamie is somebody who, when he talks to like people who study cognitive load and mental conditioning and stuff like that, I remember him 20 years ago saying, " I come up with all my best ideas during my workout, so I try to choose tedious, monotonous workouts that allow me to think about random shit." And studies totally bear this out that exercise is a fantastic way to let your brain kind of free fly.
 
 [00:11:30] Will: Well, like I mean, it's the same as doing tedious work in the shop where you don't have to think about it; you just have to do it. Over mowing is great.
 
@@ -426,7 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:14:02] Adam: Um, and they they they uh Tulsa has reparations in the show. One of the things that happens is that Tulsa confronted itself and applied reparations. Um, and it's not a simple matter. It's a complex social thing that goes on, and that also weaves into the first three episodes. in a way I found really fascinating.
 
-[00:14:21] Norm: One of the really fascinating meta things about this show is an HBO show, and much like the way HBO's producers are making Westworld and and Watchmen and even True Detective, it's week by week release. They are well aware of kind of the online following and even us discussing this, right? And how a show in the community that follows a show. Builds a life of its own that the creators can't really anticipate, so they prepare a lot of ancillary material, which is perfect for a show like Watchmen, because that's exactly how that story was laid out when it was first put out. Most people know it as a graphic novel, but it really was twelve issues in a maxi series that was released, you know, one month at a time, and with each issue there would be excerpts from the original Nite Owl's memoir. There would be these newspaper clippings,
+[00:14:21] Norm: One of the really fascinating meta things about this show is an HBO show, and much like the way HBO's producers are making Westworld and and Watchmen and even True Detective, it's week by week release. They are well aware of kind of the online following and even us discussing this, right? And how a show in the community that follows a show. Builds a life of its own that the creators can't really anticipate, so they prepare a lot of ancillary material, which is perfect for a show like Watchmen, because that's exactly how that story was laid out when it was first put out. Most people know it as a graphic novel, but it really was 12 issues in a maxi series that was released, you know, one month at a time, and with each issue there would be excerpts from the original Nite Owl's memoir. There would be these newspaper clippings,
 
 [00:15:09] Will: and that stuff's in the Absolute Edition as the kind of interstitials, right?
 
@@ -614,7 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:23:57] Adam: Ripped from the [unclear]. Yeah, he sexually harasses, sexual impropriety at the workplace, and he sleeps with many people that he works so that work for him.
 
-[00:24:05] Will: So, like, if we think about the list of shows that are the framework of the show within the show, we have like Larry Sanders and Garry Shandling. We have Newsroom. We have Studio Sixty. Like we have Thirty Rock. Where does this land on the on like? Um, well, from what you've seen, like, is it because it's a drama, right?
+[00:24:05] Will: So, like, if we think about the list of shows that are the framework of the show within the show, we have like Larry Sanders and Garry Shandling. We have Newsroom. We have Studio 60. Like we have 30 Rock. Where does this land on the on like? Um, well, from what you've seen, like, is it because it's a drama, right?
 
 [00:24:24] Adam: Yeah, it feels as a drama. It feels more akin to like The Good Wife, like that kind of ensemble drama of good actors, and occasionally the dialogue can be stupid, turgid. Mark Duplass, by the way. An actor, the Duplass brothers are two actors, the founders of Mumblecore, and they've been in many, many different things, including the a whole bunch of television you've seen. Mark Duplass is terrific in this, playing this tired director. The supporting cast is terrific. I like it more than I don't like it.
 
@@ -774,7 +774,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:31:08] Norm: who wrote Chernobyl and Scriptnotes podcast. But very very good.
 
-[00:31:13] Adam: Watchmen is doing a wonderful job. Look, I was complaining last year about TV TV shows like Westworld, where I'd finish a whole season and I felt like I watched ten or twelve hours of ten or twelve hours of television. I felt like I watched four.
+[00:31:13] Adam: Watchmen is doing a wonderful job. Look, I was complaining last year about TV TV shows like Westworld, where I'd finish a whole season and I felt like I watched 10 or 12 hours of 10 or 12 hours of television. I felt like I watched four.
 
 [00:31:28] Will: It's like plot? Right, you're just getting plot.
 
@@ -792,7 +792,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:31:54] Norm: Every minute is crafted.
 
-[00:31:56] Adam: How amazing is Don Johnson too for seventy something years old, seventy four?
+[00:31:56] Adam: How amazing is Don Johnson too for 70 something years old, 74?
 
 [00:32:00] Will: I hope this is like John Johnson's Travolta moment, where he's suddenly cast as like the all folksy old guy who's in a bunch of other stuff.
 
@@ -806,7 +806,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:32:21] Adam: I Passed the Wilford Brimley line.
 
-[00:32:22] Adam: I passed it a year and a half ago. [unclear: Oh / did you, oh] yeah, it's like he was fifty-one.
+[00:32:22] Adam: I passed it a year and a half ago. [unclear: Oh / did you, oh] yeah, it's like he was 51.
 
 [00:32:27] Will: Jennifer Aniston passed it now.
 
@@ -818,7 +818,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:32:36] Adam: Yeah,
 
-[00:32:37] Will: Wilford Brimley came out of the womb with a mustache and a fifty-five-year-old guy's face.
+[00:32:37] Will: Wilford Brimley came out of the womb with a mustache and a 55-year-old guy's face.
 
 [00:32:42] Norm: Yeah, he didn't have it in the thing.
 
@@ -880,7 +880,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:34:51] Will: I've eaten there a lot with you. It's very good.
 
-[00:34:53] Adam: yeah, and it's wonderful down home. This is what the mission has always felt like to me. Panchitas used to have a Panchitas two and a Panchitas three; those two paired back, but now they have a new Panchitas on Valencia Street, around the corner from their old place. And if you're visiting San Francisco and you go into the one on Sixteenth and it's packed, walk around the corner to the other one; it's probably not as packed, and they both have the same great food. So those are my quick San Francisco shout-outs, but I can build up some more.
+[00:34:53] Adam: yeah, and it's wonderful down home. This is what the mission has always felt like to me. Panchitas used to have a Panchitas two and a Panchitas three; those two paired back, but now they have a new Panchitas on Valencia Street, around the corner from their old place. And if you're visiting San Francisco and you go into the one on 16th and it's packed, walk around the corner to the other one; it's probably not as packed, and they both have the same great food. So those are my quick San Francisco shout-outs, but I can build up some more.
 
 [00:35:21] Norm: And let's we'll do that as a full episode.
 
@@ -926,7 +926,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:36:51] Adam: you can see the city. It is one of the more remarkable views of any city ever, except for the view of Cape Town from Table Mountain. I and the two feel not dissimilar, although Table Mountain's a bit more majestic.
 
-[00:37:05] Will: The first time I was in Hawaii, I was I was there. I was like, oh, it's a cloudy, it's an overcast day. Let's go to the top of the volcano today and see what it's like up there. So we drove three hours up to the side of the volcano and got to the top, and I was like, oh, right, this is why this is a bad time to do this. It's forty degrees, and this is what the inside of a cloud feels like.
+[00:37:05] Will: The first time I was in Hawaii, I was I was there. I was like, oh, it's a cloudy, it's an overcast day. Let's go to the top of the volcano today and see what it's like up there. So we drove three hours up to the side of the volcano and got to the top, and I was like, oh, right, this is why this is a bad time to do this. It's 40 degrees, and this is what the inside of a cloud feels like.
 
 [00:37:20] Adam: The dumb shit we do on vacation. I ran out of gas in a Prius in front of the Dole Plantation on Hawaii.
 

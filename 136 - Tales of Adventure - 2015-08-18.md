@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:06:29] Will: I wonder what tickets to Ferrari World cost.
 
-[00:06:30] Adam: Fifteen dollars.
+[00:06:30] Adam: $15.
 
 [00:06:31] Will: Really?
 
@@ -150,7 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:07:35] Will: this is this is one of the things that architecture aficionados have been talking about for years, where you have buildings that are smart and adapt themselves to the climate around them, whether it's weather in the middle Midwest of the United States, you know, tornadoes and stuff like that. Or you know, incredibly hot conditions.
 
-[00:07:52] Adam: Well, and and one of the places at the forefront of this is the Masdar Institute, which is a really what I, as far as what I could see, a world class university looking at alternative fuels, alternative energies, new new industries. They're really so the the man, the sheikh that was in charge of Abu Dhabi as it was coming up, his name was Sheikh Zayed, and apparently one of his axioms was what you can build with your two hands, no man can take away from you. And this is a real guiding axiom in Abu Dhabi and at the Masdar Institute, where they're really training, they're they're really building the intellectual capital of Abu Dhabi with a world class science institute. They're building a city; it's you know a long twenty year plan, but they're building a completely self sustained green city. So they have a solar farm. They're experimenting with different types of solar farms, from the passive to the active to the heating of the sodium
+[00:07:52] Adam: Well, and and one of the places at the forefront of this is the Masdar Institute, which is a really what I, as far as what I could see, a world class university looking at alternative fuels, alternative energies, new new industries. They're really so the the man, the sheikh that was in charge of Abu Dhabi as it was coming up, his name was Sheikh Zayed, and apparently one of his axioms was what you can build with your two hands, no man can take away from you. And this is a real guiding axiom in Abu Dhabi and at the Masdar Institute, where they're really training, they're they're really building the intellectual capital of Abu Dhabi with a world class science institute. They're building a city; it's you know a long 20 year plan, but they're building a completely self sustained green city. So they have a solar farm. They're experimenting with different types of solar farms, from the passive to the active to the heating of the sodium
 
 [00:08:49] Will: and salt,
 
@@ -182,7 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:10:14] Will: This is okay. So you said it was a little bit like Blade Runner. You don't mean that in a dystopian sense. You mean in a it feels like you're in the future sense.
 
-[00:10:20] Adam: It does feel like you're in a future sense, but very specifically, I'm referring to one of the aesthetics that Syd Mead draws in a lot of his in a lot of the paintings he did of the Blade Runner of the city and Blade Runner. He has buildings that have a smaller footprint than their actual buildings. So you have this footprint that's about ten feet, fifteen, twenty feet smaller than the actual building will be. So on the first or second floor, it juts out.
+[00:10:20] Adam: It does feel like you're in a future sense, but very specifically, I'm referring to one of the aesthetics that Syd Mead draws in a lot of his in a lot of the paintings he did of the Blade Runner of the city and Blade Runner. He has buildings that have a smaller footprint than their actual buildings. So you have this footprint that's about 10 feet, 15, 20 feet smaller than the actual building will be. So on the first or second floor, it juts out.
 
 [00:10:45] Will: There's a building in Seattle that does that. That's just hypnotic. I just I kind of just like to walk around it.
 
@@ -256,7 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:12:49] Will: If I remember, I'll edit this out, but I probably won't remember. I'll be perfectly honest.
 
-[00:12:53] Adam: We are going to the resort, Qasr Al Sarab Desert Resort. Now, apparently, they shot some of the new Star Wars film out here, and it's totally clear why. I we it's two hours, it's 200 kilometers south of Abu Dhabi, due south. So you're about twenty clicks from the Saudi border, in a place called the Empty Quadrant. I think it's one of the largest unbroken deserts in the world. It is amazing.
+[00:12:53] Adam: We are going to the resort, Qasr Al Sarab Desert Resort. Now, apparently, they shot some of the new Star Wars film out here, and it's totally clear why. I we it's two hours, it's 200 kilometers south of Abu Dhabi, due south. So you're about 20 clicks from the Saudi border, in a place called the Empty Quadrant. I think it's one of the largest unbroken deserts in the world. It is amazing.
 
 [00:13:22] Will: Just sand dunes.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:13:49] Will: Okay.
 
-[00:13:49] Adam: And then we got to Qasr Al Sarab Desert Resort, which is really one of the loveliest hotels I've ever seen. Again, like ten years old.
+[00:13:49] Adam: And then we got to Qasr Al Sarab Desert Resort, which is really one of the loveliest hotels I've ever seen. Again, like 10 years old.
 
 [00:13:49] Will: Yeah.
 
@@ -334,7 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:16:45] Norm: from here. Went to Portland.
 
-[00:16:46] Adam: 3,000 miles in ten days.
+[00:16:46] Adam: 3,000 miles in 10 days.
 
 [00:16:47] Norm: Yeah, something like that. I mean, it was three days to Calgary and then two days back.
 
@@ -536,7 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:22:45] Adam: Oh,
 
-[00:22:45] Will: so this is I think of it as the new Air and Space Museum, but I think it's like ten or eleven years old now.
+[00:22:45] Will: so this is I think of it as the new Air and Space Museum, but I think it's like 10 or 11 years old now.
 
 [00:22:45] Adam: Right, right.
 
@@ -552,7 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:23:47] Norm: and Kickstarter.
 
-[00:23:48] Will: And yeah, and there's a Kickstarter, and they charge for parking. So parking was fifteen dollars. Yeah, which goes directly towards supporting the. Anyway,
+[00:23:48] Will: And yeah, and there's a Kickstarter, and they charge for parking. So parking was $15. Yeah, which goes directly towards supporting the. Anyway,
 
 [00:23:56] Adam: so it was awesome. Was it awesome?
 
@@ -632,7 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:26:43] Adam: Wow.
 
-[00:26:43] Will: Um, and and like I said, they're they're three layers deep. There's some that are on the floor. There's some that are hanging about twenty feet off the ground, and there's catwalks. All through the place, so you can get to them at all different. So you can see them at eye level, no matter which height they're at. So it's not like you're just seeing the bottom of some of the some of the yeah. If you're like a P51 P41 fan,
+[00:26:43] Will: Um, and and like I said, they're they're three layers deep. There's some that are on the floor. There's some that are hanging about 20 feet off the ground, and there's catwalks. All through the place, so you can get to them at all different. So you can see them at eye level, no matter which height they're at. So it's not like you're just seeing the bottom of some of the some of the yeah. If you're like a P51 P41 fan,
 
 [00:26:43] Adam: yeah,
 
@@ -682,7 +682,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:29:28] Adam: Derpy.
 
-[00:29:28] Will: But but yeah, spacesuits. I highly recommend it. Yeah, fifteen bucks to park. I think if you don't want to pay for parking, you can ride the bus from Dulles or something.
+[00:29:28] Will: But but yeah, spacesuits. I highly recommend it. Yeah, $15 to park. I think if you don't want to pay for parking, you can ride the bus from Dulles or something.
 
 [00:29:38] Adam: I am totally going there. The Smithsonian is one of my favorite museums in the world. There was a congressman for years in the '70s who had a yearly Golden Fleece Awards of the most expensive and overpriced government projects, and he had a. Special award for the Smithsonian for coming in ahead of schedule and under budget.
 

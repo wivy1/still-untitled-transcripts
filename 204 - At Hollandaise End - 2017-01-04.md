@@ -70,7 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:01:33] Will: Really. Yeah.
 
-[00:01:35] Norm: Which is mind-boggling. We have more golf. Forty-nine square miles.
+[00:01:35] Norm: Which is mind-boggling. We have more golf. 49 square miles.
 
 [00:01:38] Will: More golf courses than we have McDonald'ses, I think.
 
@@ -118,7 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:02:47] Adam: Okay,
 
-[00:02:48] Will: the market for espresso machines has changed a lot since then because back then you couldn't get a double boiler machine for less than like fifteen hundred or two grand
+[00:02:48] Will: the market for espresso machines has changed a lot since then because back then you couldn't get a double boiler machine for less than like $1,500 or $2,000
 
 [00:02:48] Adam: at the least, yeah,
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:04:42] Norm: Well, the machine you got for the shop. It's funny because I got the similar machine for my house for Christmas.
 
-[00:04:47] Adam: Eight fifty, and that's the eight seventy or something.
+[00:04:47] Adam: 850, and that's the 870 or something.
 
 [00:04:49] Norm: Yeah, Breville. Mine's called the Infuser, and yours the Barista Express.
 
@@ -226,11 +226,11 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:06:39] Will: You had a fabulous party this year, I have to say.
 
-[00:06:49] Adam: I did have a fabulous party. Um, my, my wife and I love to throw a New Year's party, even on years when we're sick and don't throw a party. We have about twenty people over. Um, but this year we had well over a hundred.
+[00:06:49] Adam: I did have a fabulous party. Um, my, my wife and I love to throw a New Year's party, even on years when we're sick and don't throw a party. We have about 20 people over. Um, but this year we had well over 100.
 
 [00:06:49] Will: Wow, really?
 
-[00:06:49] Adam: We had a we had over a hundred RSVPs, and that was the that was the biggest crowd we've ever had at midnight.
+[00:06:49] Adam: We had a we had over 100 RSVPs, and that was the that was the biggest crowd we've ever had at midnight.
 
 [00:07:10] Will: Wow, really?
 
@@ -540,7 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:17:51] Adam: Well, and this is what I brought up to her. As I said, look, I don't know how you feel about. Made in America, but Made in America is not just about the O.J. Simpson trial. It's about our whole culture and how it looks at an African American man, how it looks at celebrity, how it looks at football, how it looks, looked at O.J., how he placed within our culture, how we placed him. It's an amazing deep dive, uh, into into this into everything you can think of about the subject of O.J. Simpson and what it meant to us as a as a culture
 
-[00:18:19] Norm: and the symbol that he represented. And I think contextually today, twenty years later, I think a lot of the viewers never experienced that. I mean, even
+[00:18:19] Norm: and the symbol that he represented. And I think contextually today, 20 years later, I think a lot of the viewers never experienced that. I mean, even
 
 [00:18:29] Will: like you're you're you're on the like
 
@@ -596,9 +596,9 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:20:50] Adam: so one of so one of the jurors. There's this great moment when they ask this younger juror, she's African American, and they say, " You watched a trial that took. Two hundred and I'm gonna
 
-[00:21:02] Norm: two hundred sixty days.
+[00:21:02] Norm: 260 days.
 
-[00:21:03] Adam: Two hundred sixty days.
+[00:21:03] Adam: 260 days.
 
 [00:21:03] Norm: And it took you three hours to come to how could, how’s that justice?
 
@@ -610,7 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:21:08] Norm: come in because you normally don't get that,
 
-[00:21:13] Adam: right? And he says, two hundred sixty days. How the hell can you come to a conclusion in three hours? And she said, how many days was it? And he says, two hundred sixty-three. And she says,
+[00:21:13] Adam: right? And he says, 260 days. How the hell can you come to a conclusion in three hours? And she said, how many days was it? And he says, two hundred sixty-three. And she says,
 
 [00:21:22] Norm: two hundred sixty-two nights alone, going back to the hotel room,
 
@@ -620,7 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:21:27] Adam: not being able to talk to your family, not being able to do anything except go into the hotel room for the better part of a year. And it's not like that's an explanation, but she's giving you and she has a really impressive way of giving you an insight into how complicated it was for the jury.
 
-[00:21:46] Will: Oh, I mean, I can't imagine. Like you look at something like Survivor, where people are taken out on an island and dumped there, away from family and friends, for twenty days. And and this is two hundred and sixty-two nights is insane.
+[00:21:46] Will: Oh, I mean, I can't imagine. Like you look at something like Survivor, where people are taken out on an island and dumped there, away from family and friends, for 20 days. And and this is 262 nights is insane.
 
 [00:21:59] Adam: So this is, um, it’s a really important documentary to watch. I. It's really important, and it's really important because of the viewpoint it gives. It gave me about racial relations in America, uh, and about the difference between how the white community reacted to OJ's acquittal and subsequent uh, uh civil conviction, and then kidnapping conviction, um, which was far more complicated than I realized. Um, and about how the black community. I mean, really, like the it it. That's perhaps the main pivot of the thing is it's showing you the difference of the perception of OJ, uh, white America and black America, how they looked at this at this one man and how he placed between those two.
 
@@ -666,7 +666,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:26:18] Norm: Yeah, surreal.
 
-[00:26:19] Adam: Thirteen, yeah, thirteen years after the killing.
+[00:26:19] Adam: Thirteen, yeah, 13 years after the killing.
 
 [00:26:19] Will: Yeah.
 
@@ -794,11 +794,11 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:30:44] Adam: Well, and they did, and they did it pretty cheaply, if I remember correctly.
 
-[00:30:46] Will: thirty mil, right? Which I mean, look, it's yeah, like yeah, yeah. I I was so interested in that I walked out of the theater and was like, how much did that movie cost to make? It was it's like a 5,000,000 dollar thing that they used their own money and didn't do anything else for. And it was a yeah thirty thirty million
+[00:30:46] Will: thirty mil, right? Which I mean, look, it's yeah, like yeah, yeah. I I was so interested in that I walked out of the theater and was like, how much did that movie cost to make? It was it's like a $5 million thing that they used their own money and didn't do anything else for. And it was a yeah thirty thirty million
 
 [00:31:02] Adam: thirty million is is almost for free in Hollywood. Well, it’s not quite, but it's really really inexpensive for a for a movie starring Ryan Gosling and Emma Stone.
 
-[00:31:13] Will: Well, it’s, um, but, um, uh, John Waters years ago wrote an essay about how it's impossible to get an 8,000,000 dollar movie made today. Yeah. Um, the thing that I realized is that they they the the meta awareness of the people that created that film of what audiences expect at specific moments and because of specific setups and and as our as the audiences
+[00:31:13] Will: Well, it’s, um, but, um, uh, John Waters years ago wrote an essay about how it's impossible to get an $8 million movie made today. Yeah. Um, the thing that I realized is that they they the the meta awareness of the people that created that film of what audiences expect at specific moments and because of specific setups and and as our as the audiences
 
 [00:31:35] Norm: you mean narratively
 
@@ -1080,7 +1080,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:42:18] Adam: Oh, I think I have an immersion blender.
 
-[00:42:20] Will: Do you? If you don't, they're like eight dollars. So go nuts.
+[00:42:20] Will: Do you? If you don't, they're like $8. So go nuts.
 
 [00:42:23] Norm: Happy Hollandaise, indeed.
 

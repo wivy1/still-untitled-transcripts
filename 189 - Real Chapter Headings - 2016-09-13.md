@@ -24,7 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:01:00] Will: a month, maybe.
 
-[00:01:01] Adam: It's been a month. I have been gone for. Almost twenty three, twenty four days.
+[00:01:01] Adam: It's been a month. I have been gone for. Almost 23, 24 days.
 
 [00:01:05] Norm: Yeah, the last episode that I think you and I were both on, we recorded weeks before
 
@@ -50,17 +50,17 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:01:27] Will: Okay.
 
-[00:01:27] Adam: Um, that will show up on tested later, and then I was back here for sixteen hours for Norm's amazing, beautiful, lyrical, wonderful wedding.
+[00:01:27] Adam: Um, that will show up on tested later, and then I was back here for 16 hours for Norm's amazing, beautiful, lyrical, wonderful wedding.
 
 [00:01:38] Will: It worked out. It was absolutely lovely, Norm. You guys did an amazing job, and I like that. That it was a that was a big production. There were costume changes.
 
-[00:01:47] Adam: There and let me just say, just just for the public's edification, like you know Norm as somebody who has a clear idea about what he wants and how he wants to do something. Your wedding exemplified that in every way. You and Danica had your touch on every little aspect, and it wasn't like. It it felt completely homegrown. It's like you know when you go to someone's your good friend's house and they've done a centerpiece on the table for the dinner party that's really lovely. The wedding was like that for one hundred and fifty people
+[00:01:47] Adam: There and let me just say, just just for the public's edification, like you know Norm as somebody who has a clear idea about what he wants and how he wants to do something. Your wedding exemplified that in every way. You and Danica had your touch on every little aspect, and it wasn't like. It it felt completely homegrown. It's like you know when you go to someone's your good friend's house and they've done a centerpiece on the table for the dinner party that's really lovely. The wedding was like that for 150 people
 
 [00:02:18] Will: and
 
-[00:02:18] Norm: two hundred and eight
+[00:02:18] Norm: 208
 
-[00:02:19] Adam: two hundred and eight. Oh my God.
+[00:02:19] Adam: 208. Oh my God.
 
 [00:02:20] Will: Oh wow, really?
 
@@ -102,7 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:03:08] Norm: remember. Never
 
-[00:03:09] Will: remember it. See, Gina and I eloped. So we went to an island someplace because we hadn't been on vacation in twenty years, and we're just like, let's just spend this money on a vacation instead of our.
+[00:03:09] Will: remember it. See, Gina and I eloped. So we went to an island someplace because we hadn't been on vacation in 20 years, and we're just like, let's just spend this money on a vacation instead of our.
 
 [00:03:20] Adam: It's that's a good vacation.
 
@@ -188,9 +188,9 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:05:53] Norm: We one day to
 
-[00:05:54] Adam: one day one day to Boise. So it was eighty out to Winnemucca and then north, oh, and then across to Boise. [unclear: Next / It’s like]
+[00:05:54] Adam: one day one day to Boise. So it was 80 out to Winnemucca and then north, oh, and then across to Boise. [unclear: Next / It’s like]
 
-[00:06:03] Will: twelve thirteen hours.
+[00:06:03] Will: 12 13 hours.
 
 [00:06:04] Adam: No, it was not that bad. It was about I think about nine solid hours of driving.
 
@@ -198,9 +198,9 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:06:12] Norm: And Vegas?
 
-[00:06:13] Will: Vegas is eleven.
+[00:06:13] Will: Vegas is 11.
 
-[00:06:14] Adam: You know it. It wasn't. I have to think. We might have been on the road for eleven hours, but the the actual driving was like nine hours.
+[00:06:14] Adam: You know it. It wasn't. I have to think. We might have been on the road for 11 hours, but the the actual driving was like nine hours.
 
 [00:06:22] Will: Okay, that's a big drive.
 
@@ -208,7 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:06:26] Will: Just saying, you know.
 
-[00:06:27] Adam: Then we went to Sun Valley. We did Jackson Hole. We were going to do Yellowstone, but the wildfires kept us out. We did Jackson Hole, amazing, beautiful place. Then we did Devil's Tower, Black Hills, Craters of the Moon. Not all in this order. Mount Rushmore. We did Devil's Tower, Mount Rushmore on the day that was the hundredth anniversary of the national park.
+[00:06:27] Adam: Then we went to Sun Valley. We did Jackson Hole. We were going to do Yellowstone, but the wildfires kept us out. We did Jackson Hole, amazing, beautiful place. Then we did Devil's Tower, Black Hills, Craters of the Moon. Not all in this order. Mount Rushmore. We did Devil's Tower, Mount Rushmore on the day that was the 100th anniversary of the national park.
 
 [00:06:50] Will: Oh my god, that's awesome! 
 
@@ -238,13 +238,13 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:07:44] Norm: I mean, it was a road trip with a purpose, and you wanted to, but you want to take your time with it.
 
-[00:07:49] Adam: Yeah, so we took ten days to make the journey. We ended up effectively mirroring a trip that Julia, my wife, had done when she drove back from Chicago about twenty years ago. She had hit all of these places and had things to say about each one, and it was she was totally right. It was a great route. To take, we bypassed Nebraska entirely.
+[00:07:49] Adam: Yeah, so we took 10 days to make the journey. We ended up effectively mirroring a trip that Julia, my wife, had done when she drove back from Chicago about 20 years ago. She had hit all of these places and had things to say about each one, and it was she was totally right. It was a great route. To take, we bypassed Nebraska entirely.
 
 [00:08:12] Will: Oklahoma was bad too. Nothing personal, Oklahoma.
 
 [00:08:14] Adam: The second big drive was hightailing it from Mount Rushmore all the way to Minneapolis. That was another long.
 
-[00:08:20] Will: I know, that's one of those ones that looks like, looks like it's like three inches on the map, but I assume it's about a thousand miles, 800 miles, something.
+[00:08:20] Will: I know, that's one of those ones that looks like, looks like it's like three inches on the map, but I assume it's about 1,000 miles, 800 miles, something.
 
 [00:08:27] Adam: Yeah, it was. It was almost as long as San Francisco to Boise, if not slightly longer.
 
@@ -270,7 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:09:28] Will: It was just so so so pretty,
 
-[00:09:30] Adam: and we took routes out of both Jackson Hole and out of Sun Valley that took us on like twenty mile dirt roads to get out of those.
+[00:09:30] Adam: and we took routes out of both Jackson Hole and out of Sun Valley that took us on like 20 mile dirt roads to get out of those.
 
 [00:09:30] Will: Oh wow!
 
@@ -336,9 +336,9 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:11:53] Norm: Did not break his leg.
 
-[00:11:54] Adam: How far did he fall? Like twenty feet?
+[00:11:54] Adam: How far did he fall? Like 20 feet?
 
-[00:11:55] Norm: It was. It I think it was more than twenty feet.
+[00:11:55] Norm: It was. It I think it was more than 20 feet.
 
 [00:11:55] Adam: Whoa!
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:15:01] Adam: Yeah,
 
-[00:15:01] Will: and 40 is great, and you get to go to the Grand Canyon if you want to drive a couple hours extra, and there's like things like Meteor Crater, and but it's It's not like this this route that you went. I think if you are talking about kind of the top, the Big Ten national parks.
+[00:15:01] Will: and 40 is great, and you get to go to the Grand Canyon if you want to drive a couple hours extra, and there's like things like Meteor Crater, and but it's It's not like this this route that you went. I think if you are talking about kind of the top, the Big 10 national parks.
 
 [00:15:22] Adam: Oh yeah,
 
@@ -578,9 +578,9 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:17:49] Adam: And then I flew to Toronto for a week.
 
-[00:18:34] Norm: So wait, so the road trip that was ten days right there that you talked about.
+[00:18:34] Norm: So wait, so the road trip that was 10 days right there that you talked about.
 
-[00:18:37] Adam: that was ten days, which I just described.
+[00:18:37] Adam: that was 10 days, which I just described.
 
 [00:18:39] Norm: Question: How did you did you guys document it?
 
@@ -632,7 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:21:02] Will: a great experience it freezes for like five minutes
 
-[00:21:22] Norm: and the reason I ask if you documented it is because that trip across country that ten day trip or however long it usually takes that is the right amount of time you see enough different things that when people used to do it in the 20th century and they shot it with film you get this amazing story
+[00:21:22] Norm: and the reason I ask if you documented it is because that trip across country that 10 day trip or however long it usually takes that is the right amount of time you see enough different things that when people used to do it in the 20th century and they shot it with film you get this amazing story
 
 [00:21:36] Adam: right right
 
@@ -640,7 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:21:42] Adam: well I kept on one of the main pictures I kept taking was I would hand my camera and have one of the boys hold the camera right up to the dashboard and just look at the road and that view is so similar and yet changes so radically in so many ways and we went through wildfires so we saw terrifying skies and we talked about you know my sons started to ask questions about like why do the clouds have flat bottoms and we talked about thermal layers and how air is liquid and it's like you actually start to understand that when you have enough time to contemplate and and look at that
 
-[00:22:15] Will: well and and the thing is when you're driving First off, the the windshield of the car kind of frames the world for you when you're on that kind of a long road trip, and it becomes a it becomes a static part of your environment, and then everything else is framed around it. So when you're driving through the Rockies or the or the Eastern Sierras, and you're in a giant valley, and there's you know three four thousand foot mountains on either side of you, the world feels a little bit smaller.
+[00:22:15] Will: well and and the thing is when you're driving First off, the the windshield of the car kind of frames the world for you when you're on that kind of a long road trip, and it becomes a it becomes a static part of your environment, and then everything else is framed around it. So when you're driving through the Rockies or the or the Eastern Sierras, and you're in a giant valley, and there's you know 3,000-4,000 foot mountains on either side of you, the world feels a little bit smaller.
 
 [00:22:15] Adam: Yeah.
 
@@ -652,7 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:22:49] Adam: He said the movie um is a wonderful movie starring Robert Duvall and Tess Harper called Tender Mercies, which is one of my family's favorite movies. And he said that movie communicates how beautiful that that giant sky really is.
 
-[00:23:14] Will: The first time I drove across the country was with a friend of mine from college, and we were bringing his car back from Arizona to Tennessee. We had we had. We're having fun in Phoenix, so we dilly dallied and dilly dallied, leaving, put it off and put it off, put it off. Had a crippling hangover, you know the normal stuff, and ended up with thirty six hours to get back, which for a 2,400 mile drive or whatever it's eighteen nineteen hundred mile drive is was aggressive even for twenty three year olds.
+[00:23:14] Will: The first time I drove across the country was with a friend of mine from college, and we were bringing his car back from Arizona to Tennessee. We had we had. We're having fun in Phoenix, so we dilly dallied and dilly dallied, leaving, put it off and put it off, put it off. Had a crippling hangover, you know the normal stuff, and ended up with 36 hours to get back, which for a 2,400 mile drive or whatever it's 1,800-1,900 mile drive is was aggressive even for 23 year olds.
 
 [00:23:39] Adam: Yeah, that's yeah. So
 
@@ -738,7 +738,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:28:10] Will: Yeah, of course.
 
-[00:28:11] Adam: We ate some great food. We ate some absolutely terrible food. We ate in some roadside place near Devil's Tower where. I think there was six people eating in the restaurant, and it took me twenty minutes to find a waitress and get my check.
+[00:28:11] Adam: We ate some great food. We ate some absolutely terrible food. We ate in some roadside place near Devil's Tower where. I think there was six people eating in the restaurant, and it took me 20 minutes to find a waitress and get my check.
 
 [00:28:26] Will: They were just enjoying having you there, Adam.
 
@@ -752,13 +752,13 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:28:30] Adam: And that's also going to show up on Tested later on. I don't want to spoil anything, but I just had the best time. That so not only is that we we we did a podcast about the Expanse. We had watched episodes one through four. The thing I am here to tell you is that episodes five through
 
-[00:28:54] Will: twelve, or something—I don't know,
+[00:28:54] Will: 12, or something—I don't know,
 
-[00:28:55] Adam: twelve or ten—I
+[00:28:55] Adam: 12 or 10—I
 
-[00:28:56] Norm: It’s less than ten.
+[00:28:56] Norm: It’s less than 10.
 
-[00:28:57] Adam: it's thirteen. I think it's thirteen. It might be ten. Anyway,
+[00:28:57] Adam: it's 13. I think it's 13. It might be 10. Anyway,
 
 [00:29:00] Will: the rest of the season,
 
@@ -800,21 +800,21 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:30:30] Will: Did you get to the North Pole?
 
-[00:30:31] Norm: Did not get to the North Pole. This wasn't the specific trip there. But at one point, the last thing I'll say is, at one point, we sat down and thought about it, and basically, I guess there are fewer than a hundred people north of us in the world, out of seven billion. So
+[00:30:31] Norm: Did not get to the North Pole. This wasn't the specific trip there. But at one point, the last thing I'll say is, at one point, we sat down and thought about it, and basically, I guess there are fewer than 100 people north of us in the world, out of 7 billion. So
 
-[00:30:44] Adam: that's significant because on the South Pole there's like ten thousand people. Yeah, right on the South Pole.
+[00:30:44] Adam: that's significant because on the South Pole there's like 10,000 people. Yeah, right on the South Pole.
 
 [00:30:50] Will: Well, only during the summer though.
 
 [00:30:50] Adam: Right, right.
 
-[00:30:50] Will: The winter it's like a hundred.
+[00:30:50] Will: The winter it's like 100.
 
 [00:30:50] Adam: Right.
 
 [00:30:50] Will: Then and we all see how that ends up.
 
-[00:30:55] Adam: Maybe by the end of the winter, ninety-eight.
+[00:30:55] Adam: Maybe by the end of the winter, 98.
 
 [00:30:57] Norm: So stay tuned.
 

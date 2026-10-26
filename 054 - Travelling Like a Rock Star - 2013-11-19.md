@@ -174,7 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:04:07] Adam: Really?
 
-[00:04:07] Will: Yeah, I got my my mom or my dad got me like a seven inch strap on your thigh kill a bear knife when I was ten years old.
+[00:04:07] Will: Yeah, I got my my mom or my dad got me like a seven inch strap on your thigh kill a bear knife when I was 10 years old.
 
 [00:04:16] Adam: Nice.
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:05:17] Will: but it was never. You know, I never lived that down.
 
-[00:05:19] Adam: There are however many knives for however many Rambo movies, and they show up on the RPF from time to time. The trick is, if you want the one that is the most accurate, it's made by the guy who made the original, or a guy who actually worked for him and has the license and makes the perfect replica. But they're expensive, like genuinely expensive, well over a thousand dollars.
+[00:05:19] Adam: There are however many knives for however many Rambo movies, and they show up on the RPF from time to time. The trick is, if you want the one that is the most accurate, it's made by the guy who made the original, or a guy who actually worked for him and has the license and makes the perfect replica. But they're expensive, like genuinely expensive, well over $1,000.
 
 [00:05:40] Will: A well knife, like a like a should be any kind of well any kind of blade is expensive.
 
@@ -294,13 +294,13 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:08:59] Adam: Oh wow. He did one where they were selling a necklace made of ice, and they were talking about how it's they're going fast, and it was like a midnight joke, like two in the morning. And the problem was, was within something like 20 minutes, they'd sold 150 of them.
 
-[00:09:15] Will: Okay, hold on. Is one hundred and fifty not very many?
+[00:09:15] Will: Okay, hold on. Is 150 not very many?
 
 [00:09:18] Adam: Well, no, no, no. It was like people. It was a total parody.
 
 [00:09:22] Will: Oh, okay.
 
-[00:09:22] Adam: Of this is a necklace, but it's made out of ice, and he like came up with some copy for it, and within like ten minutes, one hundred and fifty people had called the call center to order this melting necklace.
+[00:09:22] Adam: Of this is a necklace, but it's made out of ice, and he like came up with some copy for it, and within like 10 minutes, 150 people had called the call center to order this melting necklace.
 
 [00:09:32] Unknown speaker: Oh, no.
 
@@ -366,7 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:11:24] Will: Okay.
 
-[00:11:25] Adam: There, because there's eight or nine or ten crew members.
+[00:11:25] Adam: There, because there's 8 or 9 or 10 crew members.
 
 [00:11:28] Will: Okay.
 
@@ -412,9 +412,9 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:12:56] Adam: It was terrible. It was just a terrible way to live. So this time I’m, I want to head out each day and kind of do something. So I've got a little bit of a goal. I'm going to try and implement that and try and get some food in each town and like get something.
 
-[00:13:08] Will: Thirty thirty days, thirty kinds of barbecue. Thirty days, thirty kinds of barbecue,
+[00:13:08] Will: 30 30 days, 30 kinds of barbecue. 30 days, 30 kinds of barbecue,
 
-[00:13:12] Adam: thirty kinds of hot dog, thirty kinds of thrift stores, thirty kinds of. tchotchke shops, pictures. Yeah, I want to just I want to do something.
+[00:13:12] Adam: 30 kinds of hot dog, 30 kinds of thrift stores, 30 kinds of. tchotchke shops, pictures. Yeah, I want to just I want to do something.
 
 [00:13:18] Norm: Are there cities that you haven't been to before on this tour that you're kind of excited about getting to.
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:13:52] Will: Show time is 7:30.
 
-[00:13:53] Adam: Show time 7:30 or eight o'clock, and sometimes Jamie and I only see each other back for the first time on a day backstage. Like hey, it's like places, and we I show up backstage right, and Jamie's standing there, and I'm like hey, good show, and he's like good show, and we go out and we do the show, come back, do a meet and greet with fifty or seventy five people, VIPs. You can get VIP tickets to the shows and see a meet and greet, and we'll take pictures and answer questions backstage, and then. Back on the bus by eleven, 11:30. Some pizza with the crew. Usually by 12:30 or one, you're on the road. You fall asleep. You wake up in a new city. Same thing goes again.
+[00:13:53] Adam: Show time 7:30 or eight o'clock, and sometimes Jamie and I only see each other back for the first time on a day backstage. Like hey, it's like places, and we I show up backstage right, and Jamie's standing there, and I'm like hey, good show, and he's like good show, and we go out and we do the show, come back, do a meet and greet with 50 or 75 people, VIPs. You can get VIP tickets to the shows and see a meet and greet, and we'll take pictures and answer questions backstage, and then. Back on the bus by eleven, 11:30. Some pizza with the crew. Usually by 12:30 or one, you're on the road. You fall asleep. You wake up in a new city. Same thing goes again.
 
 [00:14:27] Norm: Awesome. That life for a month, for just one month.
 
@@ -498,7 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:17:10] Will: You're thinking out loud. Right. To make sure that that the people at home understand what just happened, even if you couldn't necessarily show it, or if it gets lost in translation or whatever.
 
-[00:17:18] Adam: Exactly, but on stage it doesn't work like that. On stage, you are the ringleader, like it or not. You are the ringleader, and they want you to take them on a journey, and it's a different style of thing. So we use the audience as the audience's avatar. We bring up like thirteen people on stage in the course of the show, and we we play around with them, we mess with their perceptions, we test them against each other in feats of strength, utilizing some physics and some counterintuitive physics as well, and it's really, really, really fun. Like
+[00:17:18] Adam: Exactly, but on stage it doesn't work like that. On stage, you are the ringleader, like it or not. You are the ringleader, and they want you to take them on a journey, and it's a different style of thing. So we use the audience as the audience's avatar. We bring up like 13 people on stage in the course of the show, and we we play around with them, we mess with their perceptions, we test them against each other in feats of strength, utilizing some physics and some counterintuitive physics as well, and it's really, really, really fun. Like
 
 [00:17:49] Norm: tests of character.
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:18:04] Norm: Yes, you're working on it. You tweeted a photo of the so it's like. It's a thing that you actually worked on, and we talked about this last time when we talked about the the tour. But you know, you're very hands on with the equipment.
 
-[00:18:13] Adam: Yeah, Jamie and I designed Jamie and I wrote the show with the director Jim Millan, who's wonderful director. He worked with my friend Todd Robbins and directing the show Play Dead, which is I think in L. A. Right now. It was co directed by Teller, and Jim brought great structure and intelligence to the the bunch of random things that Jamie and I threw at him that we thought we could do, and really helped shape something that I have fun doing every single night. And the audiences are fantastic. It's a lot of kids, it's a lot of families, a lot of grizzled old engineers. I mean, it's seven to seventy. It's just like the Mythbusters viewing audience.
+[00:18:13] Adam: Yeah, Jamie and I designed Jamie and I wrote the show with the director Jim Millan, who's wonderful director. He worked with my friend Todd Robbins and directing the show Play Dead, which is I think in L. A. Right now. It was co directed by Teller, and Jim brought great structure and intelligence to the the bunch of random things that Jamie and I threw at him that we thought we could do, and really helped shape something that I have fun doing every single night. And the audiences are fantastic. It's a lot of kids, it's a lot of families, a lot of grizzled old engineers. I mean, it's 7 to 70. It's just like the Mythbusters viewing audience.
 
 [00:18:49] Will: Okay,
 
@@ -514,7 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:19:00] Adam: Yeah,
 
-[00:19:00] Adam: we had a different conception of how we wanted to do it at the beginning, and Jim and our tour promoter Lee Marshall really helped guide us as to you know what would What would be a successful show that people would want to come back to that people that would spread word of mouth, et cetera? And it mostly grew out of the fact that we've done seventy or eighty college appearances and corporate appearances, and people always want us to do some big stage set piece, and we were always at a loss about what to do.
+[00:19:00] Adam: we had a different conception of how we wanted to do it at the beginning, and Jim and our tour promoter Lee Marshall really helped guide us as to you know what would What would be a successful show that people would want to come back to that people that would spread word of mouth, et cetera? And it mostly grew out of the fact that we've done 70 or 80 college appearances and corporate appearances, and people always want us to do some big stage set piece, and we were always at a loss about what to do.
 
 [00:19:24] Will: Okay.
 
@@ -572,7 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:23:12] Will: okay,
 
-[00:23:12] Adam: up in up in Marin County, and he's actually just finished refurbishing a bunch of stuff because it's beaten up after seventy shows.
+[00:23:12] Adam: up in up in Marin County, and he's actually just finished refurbishing a bunch of stuff because it's beaten up after 70 shows.
 
 [00:23:20] Will: Yeah,
 
@@ -592,7 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:23:44] Adam: yeah, it's going to be really nice.
 
-[00:23:46] Will: Um, so that's your next. thirty-seven days.
+[00:23:46] Will: Um, so that's your next. 37 days.
 
 [00:23:48] Adam: holiday season. Oh, we are going to. There is there is a question of what do you do over Thanksgiving? We're going to Canada, where they don't care about
 

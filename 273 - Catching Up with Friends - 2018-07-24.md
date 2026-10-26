@@ -40,7 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:00:51] Norm: Yeah.
 
-[00:00:54] Simone: Feels like ten years ago.
+[00:00:54] Simone: Feels like 10 years ago.
 
 [00:00:56] Norm: Well, let's catch up. And what a place to do it because we are at San Diego Comic Con.
 
@@ -68,7 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:01:19] Simone: Yeah.
 
-[00:01:19] Norm: It occurs to me now that we probably it was it was a mad rush packing for this, but that's something we could have packed because as we're recording this today is on the twentieth. That's forty ninth anniversary of the moon landing.
+[00:01:19] Norm: It occurs to me now that we probably it was it was a mad rush packing for this, but that's something we could have packed because as we're recording this today is on the 20th. That's 49th anniversary of the moon landing.
 
 [00:01:32] Adam: The moon landing. Um, and and uh, I totally forgot what I was going to say. I had
 
@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:01:42] Adam: that's how Comic Con is. I was up until 1:30. Yeah.
 
-[00:01:46] Norm: Well, it's perfect because Comic Con is an annual get together with friends. Like, yes, there are a hundred to two hundred thousand people out there beyond the scope of this hotel room exploring Comic Con, but for us, yeah, we want to see some cool stuff. But for us, it's Really, seeing old friends.
+[00:01:46] Norm: Well, it's perfect because Comic Con is an annual get together with friends. Like, yes, there are 100,000 to 200,000 people out there beyond the scope of this hotel room exploring Comic Con, but for us, yeah, we want to see some cool stuff. But for us, it's Really, seeing old friends.
 
 [00:02:03] Simone: Just saying, we're only talking to people we already know.
 
@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:04:47] Adam: I'll bet.
 
-[00:04:48] Simone: They're like, if I have to explain how you poop on the ISS one fucking more time, I'm gonna flip up. I'm gonna like punch a twelve-year-old in the face.
+[00:04:48] Simone: They're like, if I have to explain how you poop on the ISS one fucking more time, I'm gonna flip up. I'm gonna like punch a 12-year-old in the face.
 
 [00:04:57] Norm: So you would never see them do that, though. And Adam, he doesn’t want to be the greatest guitarist on Earth, off Earth. Off Earth, yes, exactly. I think it's he set the high bar.
 
@@ -294,7 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:10:27] Simone: Yeah,
 
-[00:10:27] Adam: and there are pictures of him walking out to the plane, and he's walking all hunched over because it wouldn't allow him to stand up. It was a B.F. Goodrich. He convinced B.F. Goodrich. Let's see, Wiley Post was a pilot in 1934. Most of the planes were made of wood, and he flew this wooden plane for a millionaire that he worked for, and surmised he knew everyone knew you couldn't fly above a certain altitude, like you know twenty thousand plus feet, because you there's not enough oxygen, you suffocate. And he thought, well, what if I brought my own atmosphere? He thought wooden planes can't be pressurized because they're too weak. But what if I brought my own atmosphere? He got B.F. Goodrich to make him this anthropomorphic rubber bladder. That he encased in fabric material with stitching. What he called a good God, I can't believe I'm forgetting the the term. It's basically holding on to the bladder with a net so that it can only expand so much. And then he flew hundreds of miles at like 45,000 feet
+[00:10:27] Adam: and there are pictures of him walking out to the plane, and he's walking all hunched over because it wouldn't allow him to stand up. It was a B.F. Goodrich. He convinced B.F. Goodrich. Let's see, Wiley Post was a pilot in 1934. Most of the planes were made of wood, and he flew this wooden plane for a millionaire that he worked for, and surmised he knew everyone knew you couldn't fly above a certain altitude, like you know 20,000 plus feet, because you there's not enough oxygen, you suffocate. And he thought, well, what if I brought my own atmosphere? He thought wooden planes can't be pressurized because they're too weak. But what if I brought my own atmosphere? He got B.F. Goodrich to make him this anthropomorphic rubber bladder. That he encased in fabric material with stitching. What he called a good God, I can't believe I'm forgetting the the term. It's basically holding on to the bladder with a net so that it can only expand so much. And then he flew hundreds of miles at like 45,000 feet
 
 [00:10:27] Simone: Oh, wow.
 
@@ -422,7 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:16:42] Norm: Go go scout the location. It's a it's a little bit of the things that you would have to do to make a film, and we did one for a film about two and a half minutes long.
 
-[00:16:51] Adam: But and everyone you're talking to is like our son, our our our stunt our monster. Was played like every orc in all the movies, and a guy who the monster kills also played a bunch of orcs and elves and hobbits and background characters. Like this, these movies were part of lives of all the people we knew and know in Wellington for the last twenty years. So everyone has amazing stories about it.
+[00:16:51] Adam: But and everyone you're talking to is like our son, our our our stunt our monster. Was played like every orc in all the movies, and a guy who the monster kills also played a bunch of orcs and elves and hobbits and background characters. Like this, these movies were part of lives of all the people we knew and know in Wellington for the last 20 years. So everyone has amazing stories about it.
 
 [00:17:14] Norm: Yeah,
 
@@ -470,13 +470,13 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:18:31] Norm: This is apparently only one tenth the scale of the filming miniature.
 
-[00:18:37] Adam: Wait, the filming miniature was eighty feet long?
+[00:18:37] Adam: Wait, the filming miniature was 80 feet long?
 
 [00:18:39] Norm: Yes. If you Google 2001 Discovery, I was skeptical. I'm like, are you sure this isn't one tenth like human scale? There's no way because yeah, yeah, yeah, it would be like one one thirtieth. And I googled it, and you can see photos of the miniatures from 2001, and Discovery is a warehouse size,
 
-[00:18:39] Adam: eighty feet.
+[00:18:39] Adam: 80 feet.
 
-[00:18:39] Norm: Yeah, it's it's sixty to eighty feet. I did not know that.
+[00:18:39] Norm: Yeah, it's it's 60 to 80 feet. I did not know that.
 
 [00:18:57] Simone: Does it still count as a miniature then?
 
@@ -484,13 +484,13 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:19:03] Simone: Bigature
 
-[00:19:04] Adam: for for the like the the sets they built for Lord of the Rings was like it's a miniature city, but it's twenty feet tall.
+[00:19:04] Adam: for for the like the the sets they built for Lord of the Rings was like it's a miniature city, but it's 20 feet tall.
 
 [00:19:10] Simone: Yeah.
 
 [00:19:10] Adam: So it's a bigature.
 
-[00:19:12] Norm: Yep. Yep. Side Show Collectibles has like over two hundred new statues. It's one of those things like I can never, I can you know I can afford to buy one if I wanted to, but like I go here just to look at them. Like this is like the sculpture garden for pop culture. Where I'm like, that's the most beautiful Wolverine I've seen.
+[00:19:12] Norm: Yep. Yep. Side Show Collectibles has like over 200 new statues. It's one of those things like I can never, I can you know I can afford to buy one if I wanted to, but like I go here just to look at them. Like this is like the sculpture garden for pop culture. Where I'm like, that's the most beautiful Wolverine I've seen.
 
 [00:19:28] Adam: You brought one of my favorite pop culture sculptors to the party last night, Jason Freeny.
 

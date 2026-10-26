@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:02:02] Will: Oh, they're snap kits. They're not glue.
 
-[00:02:04] Norm: Really, no glue. And the thing we found because it was our first foray, we did a whole premium video series. You guys can check it on Tested.com about building this one sixtieth scale kit with over two thousand parts, and it took us five hours with four people.
+[00:02:04] Norm: Really, no glue. And the thing we found because it was our first foray, we did a whole premium video series. You guys can check it on Tested.com about building this one sixtieth scale kit with over 2,000 parts, and it took us five hours with four people.
 
 [00:02:19] Adam: Wow, five hours, four people, and it's all snapped together.
 
@@ -210,7 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:05:46] Adam: Oscar Madison is the odd couple.
 
-[00:05:48] Will: It's a completely different toy set, not for twelve year olds. But yeah, so she had like the Six Million Dollar Man. You could look through the eye.
+[00:05:48] Will: It's a completely different toy set, not for 12 year olds. But yeah, so she had like the Six Million Dollar Man. You could look through the eye.
 
 [00:05:57] Adam: Oh, yeah, so if she had Oscar Goldman, she had Maskatron.
 
@@ -428,7 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:11:25] Adam: Yeah, probably for the best. climbing into the gunners, the circular polycarbonate gunners turret on a on a bomber,
 
-[00:11:31] Will: the bottom of a the the which is the death cannon on a B seventeen.
+[00:11:31] Will: the bottom of a the the which is the death cannon on a B-17.
 
 [00:11:35] Adam: All you have to do is look at that and see all of Star Wars in that one piece of equipment.
 
@@ -480,7 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:13:06] Adam: right
 
-[00:13:06] Will: and and things like self driving cars. We're not going to have dashboards in cars in twenty years. You're not going to. There's no reason to put a dashboard in a self driving car.
+[00:13:06] Will: and and things like self driving cars. We're not going to have dashboards in cars in 20 years. You're not going to. There's no reason to put a dashboard in a self driving car.
 
 [00:13:14] Adam: Right.
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:16:42] Adam: that's how you wake up Skynet.
 
-[00:16:44] Norm: Yeah. If you activate a hundred of them, and it's a
+[00:16:44] Norm: Yeah. If you activate 100 of them, and it's a
 
 [00:16:47] Adam: fleet. Dun dun dun. You do it three times.
 
@@ -648,7 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:19:15] Norm: What is what's it? What is on Twitter today?
 
-[00:19:17] Will: Hey, my wife texted me eighteen times. I wonder if it's anything important,
+[00:19:17] Will: Hey, my wife texted me 18 times. I wonder if it's anything important,
 
 [00:19:21] Norm: right? Like the idea that Tesla tells you that even with this feature on, you should pay your full attention to the road as if you are still the driver.
 

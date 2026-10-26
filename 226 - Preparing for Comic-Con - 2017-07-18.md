@@ -20,7 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:01:08] Norm: We have reunited.
 
-[00:01:09] Will: Yeah. How was your fourth? What did you? Did anybody ever? You have ten fingers and ten toes.
+[00:01:09] Will: Yeah. How was your fourth? What did you? Did anybody ever? You have 10 fingers and 10 toes.
 
 [00:01:13] Adam: Yes, we did. We even fired weaponry on the Fourth of July.
 
@@ -70,13 +70,13 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:01:59] Adam: Um, we did skeet shooting.
 
-[00:02:14] Will: It's not the way it works back east. Like I got a four ten when I turned nine years old. and I was in Tennessee. Not even joking. That's a real thing.
+[00:02:14] Will: It's not the way it works back east. Like I got a .410 when I turned nine years old. and I was in Tennessee. Not even joking. That's a real thing.
 
 [00:02:21] Adam: They were firing buckshot, so it wasn't a huge kick or birdshot.
 
 [00:02:21] Unknown speaker: Yeah, birdshot.
 
-[00:02:21] Adam:  It wasn't a huge kick, Um, and but they also fired a, a forty-four revolver.
+[00:02:21] Adam:  It wasn't a huge kick, Um, and but they also fired a, a .44 revolver.
 
 [00:02:30] Will: That'll that'll that'll leave a mark.
 
@@ -120,11 +120,11 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:03:44] Will: Um. Or we also had some hand throwers that my my dad would huck when he wanted to throw a, a, a tricky one in there. Yeah, something. Yeah, put some little wild in there. But it's all about you know it's just lea-, learning how long to
 
-[00:03:56] Adam: lead. How to lead it? Yeah, it was it was really fun. Um. So we did that. I brought a, so. Twelve years ago,
+[00:03:56] Adam: lead. How to lead it? Yeah, it was it was really fun. Um. So we did that. I brought a, so. 12 years ago,
 
 [00:04:04] Will: okay,
 
-[00:04:05] Adam: fourteen years ago, maybe. I
+[00:04:05] Adam: 14 years ago, maybe. I
 
 [00:04:06] Will: way back in 2005.
 
@@ -244,7 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:07:45] Norm: Yeah, and and obviously we'll be shooting a bunch of videos down there. Uh, we're hoping to see a lot of friends down there. Um, and like, this is your like seventh Comic Con, seventh or eighth Comic Con.
 
-[00:07:57] Unknown speaker: It’s got to be close to ten.
+[00:07:57] Unknown speaker: It’s got to be close to 10.
 
 [00:07:57] Adam: It's my eighth. I think 2008 was my very first one.
 
@@ -260,15 +260,15 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:08:09] Adam: I'm, uh, I, I, uh, that's going to be really exciting.
 
-[00:08:16] Will: Hold on, the two thousand’s era one, right? The sci-fi one.
+[00:08:16] Will: Hold on, the 2000s era one, right? The sci-fi one.
 
 [00:08:19] Adam: I actually don't know the scope. I just heard that and figure I'm in.
 
 [00:08:25] Norm: No, I think I believe it's yeah the Sci-Fi Channel the the reboot, which at this point it's
 
-[00:08:28] Will: like twelve years old,
+[00:08:28] Will: like 12 years old,
 
-[00:08:29] Norm: ten years since that's come out.
+[00:08:29] Norm: 10 years since that's come out.
 
 [00:08:31] Adam: Really, really, still important. Still an, yeah, an amazing achievement.
 
@@ -362,17 +362,17 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:11:42] Will: That's awesome!
 
-[00:11:42] Adam: I’m excited. He comes. It's a long shift, ten hours.
+[00:11:42] Adam: I’m excited. He comes. It's a long shift, 10 hours.
 
 [00:11:53] Norm: You shouldn't feel that bad about not going to Comic Con, and that's the point I wanted to get across. Because of all our listeners out there, the vast majority of you guys probably probably are not going to be at Comic Con, and not going to complain. Love going to Comic Con. I'll go until they won't have me there anymore. Until I can't find a way to go. But going to Comic Con the way we go to Comic Con is very different than going to Comic Con. Someone who's going there just to go to the panels and just to go experience, and you almost get a, you can have a very fulfilling Comic Con experience, not being at Comic Con, and following all the trailer releases, all the news, all the buzz. It really pop culture pays attention to it.
 
-[00:12:32] Adam: I'll go even further and say that cons are popping up so fast and furiously all over the country and all over the world that if there is a con near you, and you go to that, even if there's five thousand people at that con. There's going to be some people, you know. Presumably, you're going because maybe there's a panel with some people you're interested in. Well, if you go to that con, you're gonna, you have a much higher likelihood of getting FaceTime and an autograph or a thank to say thank you to that person at a smaller con. If you want to do cosplay, cosplay in San Diego in the summer is the hottest thing imaginable. Heatstroke is a real danger, as we've seen and on Tested. All the things that you want out of Comic Con, except for you know waiting on line for the look. The culture of the line is a significant thing, and Hall H and what goes on there on the multiple days is its own thing, and that is singular to San Diego.
+[00:12:32] Adam: I'll go even further and say that cons are popping up so fast and furiously all over the country and all over the world that if there is a con near you, and you go to that, even if there's 5,000 people at that con. There's going to be some people, you know. Presumably, you're going because maybe there's a panel with some people you're interested in. Well, if you go to that con, you're gonna, you have a much higher likelihood of getting FaceTime and an autograph or a thank to say thank you to that person at a smaller con. If you want to do cosplay, cosplay in San Diego in the summer is the hottest thing imaginable. Heatstroke is a real danger, as we've seen and on Tested. All the things that you want out of Comic Con, except for you know waiting on line for the look. The culture of the line is a significant thing, and Hall H and what goes on there on the multiple days is its own thing, and that is singular to San Diego.
 
 [00:13:28] Norm: It's ritualistic,
 
 [00:13:29] Adam: yeah. And those those are things that yes are special about San Diego Comic Con. But a lot of the other things about going to see your people and finding your you know your your your cosplayers of your of the genre that you like to Cosplay, in, you could probably find something within a couple hundred miles of you.
 
-[00:13:44] Will: Well, and that, as somebody who's gone to a lot, I, I've been to like ten Comic Cons, and then stopped when I stopped working here full time.
+[00:13:44] Will: Well, and that, as somebody who's gone to a lot, I, I've been to like 10 Comic Cons, and then stopped when I stopped working here full time.
 
 [00:13:44] Adam: Yeah,
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:14:20] Adam: and that's significant. Yeah, for me too. There is a the backstage at w00tstock on the Thursday of Comic Con is one of the key social events of my year.
 
-[00:14:27] Will: I mean, it's almost worth going to San Diego just to go hang out at the backstage of w00tstock, see those twenty, forty, fifty people, however many are back there now, and then just leaving.
+[00:14:27] Will: I mean, it's almost worth going to San Diego just to go hang out at the backstage of w00tstock, see those 20, 40, 50 people, however many are back there now, and then just leaving.
 
 [00:14:34] Norm: Plenty of people do that go to San Diego and not enter the main convention hall because they can't get passes, and maybe they want to crash in the front, but there are plenty of peripheral events as well.
 
@@ -424,9 +424,9 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:15:41] Will: How many How many costumes are you going to go for this year, Norm?
 
-[00:15:44] Norm: Ten,
+[00:15:44] Norm: 10,
 
-[00:15:45] Will: thirteen hundred, fifteen hundred. What was your your record?
+[00:15:45] Will: 1,300, 1,500. What was your your record?
 
 [00:15:48] Norm: Yeah, we'll see.
 
@@ -438,13 +438,13 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:15:51] Norm: I will bring a camera.
 
-[00:15:52] Will: Back in the day, when we first started doing that, which it's been almost—ten, you did it for what eight years, probably seven years.
+[00:15:52] Will: Back in the day, when we first started doing that, which it's been almost—10, you did it for what eight years, probably seven years.
 
-[00:15:59] Norm: This will be my twelfth year at Comic Con.
+[00:15:59] Norm: This will be my 12th year at Comic Con.
 
 [00:16:00] Will: Yeah. Wow. The the norm would go out every year, and he'd be like, " I'm going to get 800 photos." We're like, " Did you have to take? You have to take 60 photos a day if you're going to get 800 photos.
 
-[00:16:09] Norm: Two hundred, four days.
+[00:16:09] Norm: 200, four days.
 
 [00:16:11] Will: Yeah, and then he would go out and take 1,300 photos. Yeah, and
 
@@ -506,7 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:17:59] Norm: if you've seen that Seven Up commercial with the musician Drake and his his whole face explodes like a robot. That is a real animatronic made by
 
-[00:18:09] Adam: Mark Setrakian. Wow, and he's an old friend of mine. I've known him for over twenty years. And last year was it? When did I? When did I do Kylo Ren? Last year.
+[00:18:09] Adam: Mark Setrakian. Wow, and he's an old friend of mine. I've known him for over 20 years. And last year was it? When did I? When did I do Kylo Ren? Last year.
 
 [00:18:18] Will: It must have been last year.
 
@@ -548,7 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:20:02] Will: Probably more than one thing, but at least one thing.
 
-[00:20:10] Adam: We have a great lineup of some awesome people this year, as we do every year. The Balboa is, I think, we it seats around sixteen hundred, eighteen hundred, but it feels a lot more intimate than that. It feels more like Largo, which is I think on the order of four or five hundred people. Largo in L.A.
+[00:20:10] Adam: We have a great lineup of some awesome people this year, as we do every year. The Balboa is, I think, we it seats around 1,600, 1,800, but it feels a lot more intimate than that. It feels more like Largo, which is I think on the order of 400 or 500 people. Largo in L.A.
 
 [00:20:28] Norm: I’m getting a ton of press releases now, of course, this week and this past month from PR people about the things that are happening at Comic Con, and one that caught my eye that's not actually in the Convention Center is Laika is bringing many of their miniatures and many of their sets from their films
 
@@ -592,7 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:22:02] Norm: and not to, I mean, not to say that their videos are bad, right? [unclear: And any of their work / To denigrate any of their work] because it's it's not easy to try to catch these moments of creativity and spontaneity and not get in the way of the filmmaking process.
 
-[00:22:14] Adam: Oh, I mean, let's talk about you know a film like Kubo is probably happening on twenty to forty stages. Yeah, that means twenty to forty separate animators animating on specific sets, animating single shots that maybe two or three seconds, and it's taking them weeks sometimes to achieve these shots.
+[00:22:14] Adam: Oh, I mean, let's talk about you know a film like Kubo is probably happening on 20 to 40 stages. Yeah, that means 20 to 40 separate animators animating on specific sets, animating single shots that maybe two or three seconds, and it's taking them weeks sometimes to achieve these shots.
 
 [00:22:32] Norm: But I rarely find the the standard. I think for these behind the scenes is the Lord of the Rings films and the behind the scenes documentaries, and I I've rarely seen a film reach a behind the scenes documentary and pieces reach that level of detail and comprehensiveness.
 
@@ -614,17 +614,17 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:23:15] Adam: yes,
 
-[00:23:16] Adam: yeah. And the those time lapse of the animator moving all around it, animating all of its parts is like I could sit and watch that forever. Oh my god! Do you know what I sat and watched for thirty minutes last night?
+[00:23:16] Adam: yeah. And the those time lapse of the animator moving all around it, animating all of its parts is like I could sit and watch that forever. Oh my god! Do you know what I sat and watched for 30 minutes last night?
 
 [00:23:30] Will: I I
 
-[00:23:31] Adam: I sat and watched I sat and watched a craftsman who in the in the Curta the the Curta computers those little yeah yeah that I have in the fa- the six hundred separate parts to put one of those together.
+[00:23:31] Adam: I sat and watched I sat and watched a craftsman who in the in the Curta the the Curta computers those little yeah yeah that I have in the fa- the 600 separate parts to put one of those together.
 
 [00:23:45] Will: Wow,
 
 [00:23:45] Norm: yeah.
 
-[00:23:46] Adam: And I watch for thirty minutes. I watch a craftsman assemble one.
+[00:23:46] Adam: And I watch for 30 minutes. I watch a craftsman assemble one.
 
 [00:23:46] Will: Oh, that’s fun.
 
@@ -706,7 +706,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:27:15] Adam: I will take that bet.
 
-[00:27:17] Norm: Yes, give a thirty minute video of sewing clothes.
+[00:27:17] Norm: Yes, give a 30 minute video of sewing clothes.
 
 [00:27:19] Adam: [unclear: with puppets. This is / Wood puppets. This is / Sounds] delightful,
 

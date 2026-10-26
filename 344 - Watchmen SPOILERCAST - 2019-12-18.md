@@ -160,7 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:04:47] Adam: Um, yeah, it will. It is amazing how long he was able to perform that character. It is truly astounding.
 
-[00:04:56] Will: Well, and and the process for training his understudy, his replacement, was a like a ten-year process, ten, twelve-year.
+[00:04:56] Will: Well, and and the process for training his understudy, his replacement, was a like a 10-year process, 10, 12-year.
 
 [00:05:02] Adam: Was it really?
 
@@ -234,11 +234,11 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:07:06] Norm: Yes, I think.
 
-[00:07:07] Adam: maybe ten episodes?
+[00:07:07] Adam: maybe 10 episodes?
 
 [00:07:08] Norm: something like that.
 
-[00:07:08] Will: Nine or ten,
+[00:07:08] Will: 9 or 10,
 
 [00:07:08] Norm: yeah, yeah. It is early this week because of the rise of Skywalker. Oh. So I think you get the episode before not on Friday because, of course, Disney wants people in theaters on Friday.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:07:21] Norm: Oh, they push it a week.
 
-[00:07:22] Adam: Week, I think they pushed it a half week, so it's like the twenty third.
+[00:07:22] Adam: Week, I think they pushed it a half week, so it's like the 23rd.
 
 [00:07:25] Will: Oh, so we get Wednesday and Friday of next week,
 
@@ -262,7 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:07:43] Will: Well, I mean, look, there are people turning knobs and dials. I, I've, I'm kind of. I'm kind of. I feel like the last couple episodes haven't been my favorite on the Mando.
 
-[00:07:52] Adam: Oh, um, I still enjoy having such a highly lovely produced, uh, uh, fantasy series that's only thirty minutes, thirty forty minutes long. It feels kind of amazing.
+[00:07:52] Adam: Oh, um, I still enjoy having such a highly lovely produced, uh, uh, fantasy series that's only 30 minutes, 30 40 minutes long. It feels kind of amazing.
 
 [00:08:06] Will: Yeah.
 
@@ -742,7 +742,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:30:46] Adam: Yeah, we're all letting this show wash over us as we're thinking. about.
 
-[00:30:49] Will: I literally watched this on the plane at eleven o'clock last night, so it's it's it's still real fresh in a way that like I haven't had time to think about it.
+[00:30:49] Will: I literally watched this on the plane at 11 o'clock last night, so it's it's it's still real fresh in a way that like I haven't had time to think about it.
 
 [00:30:57] Norm: Yeah, no, I watched it.
 
@@ -794,11 +794,11 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:32:45] Adam: that he and Doctor Manhattan always knew that the egg would be left there for Angela, and that she was the one, and that's what William is saying to Angela for all that
 
-[00:32:55] Will: he could do, he didn't do enough. Yeah, yeah. I mean, so that's like that's why I asked, does plot matter in a story with Doctor Manhattan? Because You know the the the the the deus ex machina of the story is that Doctor Manhattan in in Cal disguise before he lost his memory went to her grandfather and said, " Hey, you got to go do this in like ten years," and and gave him the whole rundown and told him exactly what to do and how to do it, and and at that point you don't have. I I mean I I don't think plot matters in a story with an with an omnipotent omniscient being. Although the making him giving amnesia kind of gives you the the out on that.
+[00:32:55] Will: he could do, he didn't do enough. Yeah, yeah. I mean, so that's like that's why I asked, does plot matter in a story with Doctor Manhattan? Because You know the the the the the deus ex machina of the story is that Doctor Manhattan in in Cal disguise before he lost his memory went to her grandfather and said, " Hey, you got to go do this in like 10 years," and and gave him the whole rundown and told him exactly what to do and how to do it, and and at that point you don't have. I I mean I I don't think plot matters in a story with an with an omnipotent omniscient being. Although the making him giving amnesia kind of gives you the the out on that.
 
 [00:33:36] Adam: The tachyon field.
 
-[00:33:37] Will: Although presumably he knew what was going to happen after the amnesia ends, he just doesn't. He just gets to live ten years of a normal life, which is really a sweet.  kind of.
+[00:33:37] Will: Although presumably he knew what was going to happen after the amnesia ends, he just doesn't. He just gets to live 10 years of a normal life, which is really a sweet.  kind of.
 
 [00:33:44] Adam: Which is a real risk. He gets to enjoy a beginning and an ending, which is something that he doesn't actually have.
 
@@ -906,7 +906,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:38:47] Adam: Every now and then, I see a kid acting on screen, and I think, Oh my God, you guys all knew that you wrote this, hoping that a kid could carry this idea.
 
-[00:38:56] Will: But not only the kid carrying that, but also Angela watching him and seeing him start down the path that she's like, shit, maybe that path I've been on for the last thirty years was bad after all. Oh, by the way, I'm going to go eat an egg.
+[00:38:56] Will: But not only the kid carrying that, but also Angela watching him and seeing him start down the path that she's like, shit, maybe that path I've been on for the last 30 years was bad after all. Oh, by the way, I'm going to go eat an egg.
 
 [00:39:07] Norm: Well, having superhero or being a superhero and having kids are incompatible.
 
@@ -1056,7 +1056,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:45:03] Adam: It's uh, yeah, and you you know there were times when I was watching Ron Moore's reboot of Battlestar Galactica, and I was thinking, wow. This is some of the most intense social commentary I've ever come across in narrative form. Watchmen was like that times three.
 
-[00:45:25] Will: Well, it's fifteen years later too.
+[00:45:25] Will: Well, it's 15 years later too.
 
 [00:45:27] Adam: Yeah, yeah.
 

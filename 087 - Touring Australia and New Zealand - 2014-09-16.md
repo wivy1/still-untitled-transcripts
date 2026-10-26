@@ -42,13 +42,13 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:01:01] Norm: So, how many shows over how many days?
 
-[00:01:04] Adam: I think we did like fourteen over thirty-one days.
+[00:01:04] Adam: I think we did like 14 over 31 days.
 
 [00:01:04] Will: Okay.
 
 [00:01:07] Will: When you tour the U.S., it's like every day or every other day.
 
-[00:01:10] Adam: Yeah. So when I tour this fall, when Jamie and I tour this fall, it'll be. I think it'll be twenty-six cities in thirty-two days, or something like that.
+[00:01:10] Adam: Yeah. So when I tour this fall, when Jamie and I tour this fall, it'll be. I think it'll be 26 cities in 32 days, or something like that.
 
 [00:01:10] Will: Wow.
 
@@ -62,7 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:01:56] Adam: Yeah.
 
-[00:01:58] Will: How many deadly animals over the thirty-two days did you see? That's what everybody asks.
+[00:01:58] Will: How many deadly animals over the 32 days did you see? That's what everybody asks.
 
 [00:02:03] Norm: Encounter.
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:02:59] Adam: But boy, they're they're unique all over the place. It's quite fascinating.
 
-[00:03:04] Will: When you sent the trucks, this is a weird question. But when you said that, like one of the things that always blew me away in Australia is they do three and four deep tractor trailers through like the central part of the country, right? And I just I like that is a. I mean, I know that it's a big. Then there's lots of empty, and there's not much traffic. I assume, but an eighteen wheeler with four trailers on it seems just reckless and wild and out of order. Out of control.
+[00:03:04] Will: When you sent the trucks, this is a weird question. But when you said that, like one of the things that always blew me away in Australia is they do three and four deep tractor trailers through like the central part of the country, right? And I just I like that is a. I mean, I know that it's a big. Then there's lots of empty, and there's not much traffic. I assume, but an 18 wheeler with four trailers on it seems just reckless and wild and out of order. Out of control.
 
 [00:03:26] Adam: Except that there's almost nobody on those roads, from what I understand, and the distance between gas stations is so great that passenger cars pretty much don't make the trip because you have to bring extra fuel.
 
@@ -328,7 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:12:28] Will: You stayed until he’s through the metal detector, picks up his bag, turns and waves.
 
-[00:12:31] Adam: Fifty-seven B.
+[00:12:31] Adam: 57B.
 
 [00:12:33] Will: Well, and and there's multiple stages of that too. Like a direct flight to Seattle, where you don't have to make a big change in a huge multi-terminal airport, is a completely different thing than like flying through Chicago or or Atlanta or. Even yeah, even Dallas,
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:13:54] Will: Okay, fair enough. I mean that that that works.
 
-[00:13:56] Adam: Look, it's also we're trying to inculcate them with a value of like people do this. You can't just go to a hotel and like drop your clothes everywhere, and then someone else. I don't think it's right for. I personally don't think it's right for a fifteen-year-old to go to a hotel where it's like, yeah, I can do whatever the fuck I want because someone's gonna clean it up. Nope.
+[00:13:56] Adam: Look, it's also we're trying to inculcate them with a value of like people do this. You can't just go to a hotel and like drop your clothes everywhere, and then someone else. I don't think it's right for. I personally don't think it's right for a 15-year-old to go to a hotel where it's like, yeah, I can do whatever the fuck I want because someone's gonna clean it up. Nope.
 
 [00:14:16] Will: Look, you'll never believe what I use these washcloths for.
 
@@ -432,9 +432,9 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:16:44] Norm: gnashing
 
-[00:16:45] Adam: our teeth and freaking out. There was a lot of that, and then the second hike we did was in Auckland. We took the ferry over to Waiheke Island, which is a a beautiful, beautiful. Uh, island about a thirty-minute ferry ride, um, and with a gorgeous hike. We set a bunch of gorgeous hikes. It's a really big island. We only got this one like four-mile loop done. Um, but we were, how does this work? We were three quarters of the way done with the loop, and we were thinking, well, we can go to the town, which will be another hour and a half before we get back to the ferry, or we could just head back overland. And Lincoln head back overland, and it's one hour back to the ferry. And then Julia looks at her watch and she says, " When will the ferry get here?" And I said, " It leaves in exactly thirty-one minutes." And she's like, " I think we can make it." I'm like, " Back to the ferry, so we get back early." And she's like, " Come on, let's." And by the time we decided, it was twenty-eight minutes.
+[00:16:45] Adam: our teeth and freaking out. There was a lot of that, and then the second hike we did was in Auckland. We took the ferry over to Waiheke Island, which is a a beautiful, beautiful. Uh, island about a 30-minute ferry ride, um, and with a gorgeous hike. We set a bunch of gorgeous hikes. It's a really big island. We only got this one like four-mile loop done. Um, but we were, how does this work? We were three quarters of the way done with the loop, and we were thinking, well, we can go to the town, which will be another hour and a half before we get back to the ferry, or we could just head back overland. And Lincoln head back overland, and it's one hour back to the ferry. And then Julia looks at her watch and she says, " When will the ferry get here?" And I said, " It leaves in exactly 31 minutes." And she's like, " I think we can make it." I'm like, " Back to the ferry, so we get back early." And she's like, " Come on, let's." And by the time we decided, it was 28 minutes.
 
-[00:17:44] Will: So you made a one-hour walk in twenty-eight minutes.
+[00:17:44] Will: So you made a one-hour walk in 28 minutes.
 
 [00:17:48] Adam: We ran. It was such a thing. So it was a thing where we like cross-country cresting over a hill, where we see the ferry coming into the harbor, and we're
 
@@ -578,7 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:23:20] Will: Yeah.
 
-[00:23:20] Norm: and the city was actually decked out to celebrate the success of those movies and the cultural phenomenon. I think in the middle of one square they had a giant, like, thirty foot statue of of an orc or a troll or something. Was that city also in full Hobbit mode?
+[00:23:20] Norm: and the city was actually decked out to celebrate the success of those movies and the cultural phenomenon. I think in the middle of one square they had a giant, like, 30 foot statue of of an orc or a troll or something. Was that city also in full Hobbit mode?
 
 [00:23:44] Adam: No no no no. But everywhere you went in New Zealand, Everybody, I can't say it would be wrong to say that everyone laid their claim on Peter Jackson, but it's really clear that the entire country takes a great pride in having played such a central and important role in such a great series of movies. I mean, the Lord of the Rings films are just so important and so beautiful. And New Zealand, in all of its ecosystems, it's an astonishing country for the breadth of climates that it encompasses. And so, I mean, so just to continue on, and we'll we'll cover Weta the Weta visit in another podcast. But that night that I was finished, I spent about seven hours at Weta over all told, and that after that, I took the cab back to the hotel, got in a car with Julia, and we drove north about three hours, three and a half hours to the southern end of a the biggest lake in the southern hemisphere, Lake Taupo. It's the big body of water right in the middle of the North Island of New Zealand. Sadly, we did not get to the South Island, which is apparently a whole its own unbelievable thing.
 
@@ -606,9 +606,9 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:27:08] Adam: no, no, no, there's the same number of people in Australia as in California,
 
-[00:27:11] Will: right? And New Zealand is like what sixteen million people or something. It's it's very small.
+[00:27:11] Will: right? And New Zealand is like what 16 million people or something. It's it's very small.
 
-[00:27:15] Adam: Four and a half million people.
+[00:27:15] Adam: 4.5 million people.
 
 [00:27:16] Will: Right? I knew it was not many. Off by a factor of four. Nice job, Will. Did you like? I find when I go someplace, when I go back to you know visit family in rural parts of the East Coast, which is still much more dense than that, I kind of have like almost space shock, like like the crush of humanity coming back on me when I come to San Francisco, which isn't a super duper dense city by like northeast standards. Did you have any kind of any kind of
 
@@ -650,7 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:29:48] Adam: Yeah, the fracking boom in North Dakota. Um, so, uh, coming back into the United States, where in general, walking down the street here in San Francisco, especially in my neighborhood in the Mission, there's a certain level of aggression. Um, and it's I don't mean to say, uh, I want to be careful about saying this. I I don't mean to say Americans are aggressive. It's more just like there was a gentility to the populace of Australia, New Zealand that I I found I I don't. Find in my city right now, and that makes me kind of sad.
 
-[00:30:22] Will: It's it's the thing that I found the last time I went to Canada is something as simple as when the crosswalk is counting down and it has ten seconds left, and somebody's in turning right out of the street that that that it has the green light right now.
+[00:30:22] Will: It's it's the thing that I found the last time I went to Canada is something as simple as when the crosswalk is counting down and it has 10 seconds left, and somebody's in turning right out of the street that that that it has the green light right now.
 
 [00:30:22] Adam: Yeah.
 
@@ -814,7 +814,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:37:48] Adam: The food was fantastic. That is one thing that they that the touring companies really do also strive for is excellent catering.
 
-[00:37:55] Will: I mean, I have to imagine that makes it like if you are eating if you are doing this for thirty days in a row, twenty six or thirty days, like eating bad food is the most demoralizing thing in the world, and and it’ll get everybody
+[00:37:55] Will: I mean, I have to imagine that makes it like if you are eating if you are doing this for 30 days in a row, 26 or 30 days, like eating bad food is the most demoralizing thing in the world, and and it’ll get everybody
 
 [00:38:07] Adam: Very inexpensive morale.
 
@@ -890,7 +890,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:40:36] Adam: full cast recording.
 
-[00:40:38] Will: Yeah, and that's everybody should read American Gods. You American Gods is 99 cents on Kindle pretty much all the time now on Amazon. Get it, just go get it and read it if you know. But but we should do it.
+[00:40:38] Will: Yeah, and that's everybody should read American Gods. You American Gods is $0.99 on Kindle pretty much all the time now on Amazon. Get it, just go get it and read it if you know. But but we should do it.
 
 [00:40:48] Norm: But the Martian,
 
@@ -904,7 +904,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:41:01] Adam: So that we can do a cast on it because the thing about it is everything in it is technologically feasible now.
 
-[00:41:10] Will: It has been for ten, fifteen years.
+[00:41:10] Will: It has been for 10, 15 years.
 
 [00:41:12] Adam: That what that does is there are no leaps of like, and then I grabbed the hollow spoon laser beam and fixed. No,
 

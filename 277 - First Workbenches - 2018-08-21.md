@@ -140,7 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:08:01] Kayte Sabicer: Whoa!
 
-[00:08:02] Adam: And it started. It started with maybe the greatest Craigslist find ever, which is I guess this is probably now about ten, twelve years ago. I do a lot of regular eBay searches, but every now and then I port my eBay searches over to Craigslist, and most of the time I don't find stuff. But if you can hold, I found someone selling issues, Cinefex issues one through fifteen, for like 250 bucks.
+[00:08:02] Adam: And it started. It started with maybe the greatest Craigslist find ever, which is I guess this is probably now about 10, 12 years ago. I do a lot of regular eBay searches, but every now and then I port my eBay searches over to Craigslist, and most of the time I don't find stuff. But if you can hold, I found someone selling issues, Cinefex issues 1 through 15, for like $250.
 
 [00:08:27] Unknown speaker (Norm or Norm then Adam or Adam then Norm): Wow! I know that sounds like a lot. Sounds like a lot.
 
@@ -154,7 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:08:46] Kayte Sabicer: Actually, someone the other day just said to me, " Oh, you know, one day I was walking down the street and I just [unclear: found a box of those magazines that you were just talking about / found a box of those magazines that you were just talking about, and I was like, oh my God, I’m going to]. Like like tons of them. Not recent though; they were all like the old ones from like the '70s and '80s. And I was just like, 'Where are they?'"
 
-[00:09:01] Adam: Actually, as an aside, Freddie's over at my storage space. I, I'll have to find it. I have when I completed my collection, I ended up with a bunch of doubles because I had to buy some lots. I'll bring in my doubles later on this week, so you guys can sift through them and have them because I think I have about thirty thirty issues that are that are doubled up.
+[00:09:01] Adam: Actually, as an aside, Freddie's over at my storage space. I, I'll have to find it. I have when I completed my collection, I ended up with a bunch of doubles because I had to buy some lots. I'll bring in my doubles later on this week, so you guys can sift through them and have them because I think I have about 30 30 issues that are that are doubled up.
 
 [00:09:20] Kayte Sabicer: Holy moly!
 
@@ -162,7 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:09:23] Kayte Sabicer: I'll just take a vacation week, just look at Cinefex the whole time.
 
-[00:09:27] Adam: It's I. It really like, way back before I was doing television, I worked for Lucasfilm, and they started to send me out to do public speaking on behalf of Lucasfilm. I mentioned to the PR department that I was potentially good at it, and in 2000, they sent me to the Breckenridge, Colorado Film Festival, and in this, uh, in this small auditorium, I, I I built a slide deck with with actual slides and a slide projector from Lucasfilm Archives, and I built a talk, and then I took questions from the audience, and this is I'm like. A thirty-year-old model maker, right? Thirty-three-year-old model maker. I don't, and yet, because I had read every single episode of Cine—every single issue of Cinefex, I had this ability to put these pieces together for the audience to really help them understand the arc of, uh, how some of the effects that we're using today are still some of the oldest effects that anyone's used in film.
+[00:09:27] Adam: It's I. It really like, way back before I was doing television, I worked for Lucasfilm, and they started to send me out to do public speaking on behalf of Lucasfilm. I mentioned to the PR department that I was potentially good at it, and in 2000, they sent me to the Breckenridge, Colorado Film Festival, and in this, uh, in this small auditorium, I, I I built a slide deck with with actual slides and a slide projector from Lucasfilm Archives, and I built a talk, and then I took questions from the audience, and this is I'm like. A 30-year-old model maker, right? 33-year-old model maker. I don't, and yet, because I had read every single episode of Cine—every single issue of Cinefex, I had this ability to put these pieces together for the audience to really help them understand the arc of, uh, how some of the effects that we're using today are still some of the oldest effects that anyone's used in film.
 
 [00:10:33] Norm: Yeah,
 
@@ -260,7 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:15:06] Kayte Sabicer: Yep.
 
-[00:15:06] Norm: And no one's just lingering for forty five minutes. It's it's all good.
+[00:15:06] Norm: And no one's just lingering for 45 minutes. It's it's all good.
 
 [00:15:09] Adam: And and when you watch him on stage, it's really clear. He's he prizes that connection with the audience as a performer and storyteller. He he wants to be with them and he wants to close that gap.
 
@@ -362,7 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:23:18] Adam: Maybe we need
 
-[00:23:18] Adam: some more acrylic tools. Clearly, we need a shelf, but you can't because if it's a one-off and you get clever, you could put it somewhere and not see it for twenty years because you can't remember where you put it.
+[00:23:18] Adam: some more acrylic tools. Clearly, we need a shelf, but you can't because if it's a one-off and you get clever, you could put it somewhere and not see it for 20 years because you can't remember where you put it.
 
 [00:23:27] Kayte Sabicer: You are going to forget all about it. And that's the other thing that I like is, and I am sure you've done this a lot, is you find one tool or one new material that gets you excited, and then that inspires you to build your collection of tools, and then all of a sudden you have a storage issue or an organization issue that you didn't need to think about before. You are like, well, I didn't have any acrylic stuff, so now I have to reimagine the whole shop.
 
@@ -406,7 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:25:57] Kayte Sabicer: I've done that many times. It's so helpful.
 
-[00:25:59] Adam: So opaque projectors are. Expensive used ones start at like 150 bucks, and you know they're dumbly expensive.
+[00:25:59] Adam: So opaque projectors are. Expensive used ones start at like $150, and you know they're dumbly expensive.
 
 [00:26:06] Kayte Sabicer: They are.
 
@@ -490,7 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:30:11] Adam: So I mean, to say that it had grown is an understatement.
 
-[00:30:14] Norm: It is. We pull back in the video, you'll see, and it is now four feet by like twenty feet, and it is a landscape, and it's a whole tabletop world he's made.
+[00:30:14] Norm: It is. We pull back in the video, you'll see, and it is now 4 feet by like 20 feet, and it is a landscape, and it's a whole tabletop world he's made.
 
 [00:30:26] Adam: Oh yeah.
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:30:38] Norm: It cheap cheaper than the model making paint house paint. Wow. And now he's he's launching a crowdfunding campaign because these are going to be manufactured kits for people.
 
-[00:30:50] Kayte Sabicer: Wait for the full twenty foot long one?
+[00:30:50] Kayte Sabicer: Wait for the full 20 foot long one?
 
 [00:30:52] Norm: I think in various themes,
 
@@ -558,11 +558,11 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:32:38] Kayte Sabicer: Darrell.
 
-[00:32:39] Norm: and his first project was 3D printing and a helmet for you, Adam. And he goes through all. I mean, it's hundred plus hours of printing. So it's
+[00:32:39] Norm: and his first project was 3D printing and a helmet for you, Adam. And he goes through all. I mean, it's 100 plus hours of printing. So it's
 
 [00:32:50] Adam: he's been sending me updates, and yeah, I'm so glad that Darrell is on the team because he's so prolific. I said this in the tweet. He makes me a little jealous of how of how much he turns around.
 
-[00:33:03] Kayte Sabicer: Right, his helmets and masks are mind blowing. Yeah, I just can't believe it, and they're so complex. And have you seen when he posts something where it's like. Oh, I got fifty hours in, and then it failed.
+[00:33:03] Kayte Sabicer: Right, his helmets and masks are mind blowing. Yeah, I just can't believe it, and they're so complex. And have you seen when he posts something where it's like. Oh, I got 50 hours in, and then it failed.
 
 [00:33:13] Adam: Yeah,
 

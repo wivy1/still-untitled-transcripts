@@ -132,7 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=fdVm29yWCCY
 
 [00:12:54] Adam: Yes, she's a new superhero joining the seven. She seems spunky. She reminded me at first of Jenny Slate. I thought, is this Jenny Slate? For a brief second, she's got Jenny Slate's kind of sweet irreverence and kind of funny millennial sense of humor, which very quickly is revealed to hide a terrifying another sociopath.
 
-[00:13:18] Norm: Yeah, yeah, Aya Cash plays her from You're the Worst, and that kind of snarky, you know, very modern savvy that they they initially introduce her with is in direct contrast with you know the kind of traditional celebrity status that you have in the seven, which I think they did intentionally to show like maybe Homelander isn't in touch with meme culture and and how to best appease. But then it's quickly again, like you said, revealed that she is actually over a hundred years old.
+[00:13:18] Norm: Yeah, yeah, Aya Cash plays her from You're the Worst, and that kind of snarky, you know, very modern savvy that they they initially introduce her with is in direct contrast with you know the kind of traditional celebrity status that you have in the seven, which I think they did intentionally to show like maybe Homelander isn't in touch with meme culture and and how to best appease. But then it's quickly again, like you said, revealed that she is actually over 100 years old.
 
 [00:13:52] Adam: Yeah. That is that is an an awesome wrinkle. I I also I want to give a shout out to a character that shows up in season one is more prevalent in season two, and it's the Colonel. It's the the female CIA agent that originally hired Butcher and Mother's Milk and Frenchie to work for her. She's played by an actress named Laila Robins, and I have a very Jean Smart vibe from her in that she's an older actress really enjoying a role in which she can chew stuff up and spit it out and have a lot of fun. We live in a world where there's not a lot of acting, not a lot of juicy acting roles for older women, and it's great to see a lot of television recently that has supplied that.
 
@@ -218,7 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=fdVm29yWCCY
 
 [00:21:43] Norm: Yeah.
 
-[00:21:43] Joey: Yeah, well, that's what I was going to say. That the revealing of everything, I think that's the one thing with her that I kind of wanted a little bit. I wanted her manipulation and infiltration into him and into the the whole seven to be a little bit. To be a little more subdued, like I felt like she kind of came out at eleven, right? Like she came out and she, like snarky, like like you said, kind of had this attitude, where my mind just automatically goes like, okay, yeah, she's gonna do something. Like it was kind of
+[00:21:43] Joey: Yeah, well, that's what I was going to say. That the revealing of everything, I think that's the one thing with her that I kind of wanted a little bit. I wanted her manipulation and infiltration into him and into the the whole seven to be a little bit. To be a little more subdued, like I felt like she kind of came out at 11, right? Like she came out and she, like snarky, like like you said, kind of had this attitude, where my mind just automatically goes like, okay, yeah, she's gonna do something. Like it was kind of
 
 [00:22:10] Norm: she has a plan.
 

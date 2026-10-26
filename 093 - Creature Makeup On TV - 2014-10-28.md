@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:00:34] Adam: Oh, great. When does your album drop?
 
-[00:00:36] Norm: No, it’s fine. Six bucks.
+[00:00:36] Norm: No, it’s fine. $6.
 
 [00:00:39] Frank: Yeah. Our friend Len Peralta, that you introduced me to, had approached me about starting a podcast called Creature Geek, and we are going to talk about makeup effects and monsters and creatures and stuff. And that's going to start in October.
 
@@ -382,7 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:14:27] Adam: The the first I'm just saying as a layperson on this, I always notice if the hair is bad, and it's really one of those weird like some people spend a lot on the makeup and then not a lot on the hair, and you're like, " What the hell are you guys doing?"
 
-[00:14:40] Frank: A lot of that comes from producers and stuff. If you you know you you build a makeup. Let's say a makeup for a movie might cost eight or ten grand to make, like just to build it, right?
+[00:14:40] Frank: A lot of that comes from producers and stuff. If you you know you you build a makeup. Let's say a makeup for a movie might cost $8,000 or $10,000 to make, like just to build it, right?
 
 [00:14:48] Will: And that's a dozens of hours or hundreds of hours depends.
 
@@ -390,7 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:14:51] Will: Spitball.
 
-[00:14:51] Frank: And then you go. And then it's going to cost another 4,000 dollars for hair, and they go, " What? What? But custom wig, like a good custom wig, costs three, four thousand dollars, depending on length and color and all this.
+[00:14:51] Frank: And then you go. And then it's going to cost another $4,000 for hair, and they go, " What? What? But custom wig, like a good custom wig, costs $3,000, $4,000, depending on length and color and all this.
 
 [00:15:04] Will: It's not a thing you can do quickly. You just have to put the plug, the hair in, and plugs, right?
 
@@ -444,7 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:16:23] Frank: It is and it isn’t. I mean, you got to every job has to progress. I mean, you can say the same thing about model makers. Like, have model makers been affected by CG? Hell yeah. So is makeup, but there's still models being
 
-[00:16:34] Adam: built. There are still models being built, but maybe 10% of the amount that was being built ten years ago, and maybe 3% of what was being built twenty years ago.
+[00:16:34] Adam: built. There are still models being built, but maybe 10% of the amount that was being built 10 years ago, and maybe 3% of what was being built 20 years ago.
 
 [00:16:42] Frank: Yeah,
 

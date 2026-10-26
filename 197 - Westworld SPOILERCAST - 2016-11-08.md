@@ -90,7 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:03:00] Unknown: Oh, you just logged in.
 
-[00:03:12] Adam: It is a it is a beautiful Lego kit. I will tell you that when you knoll it, it has some interesting features. Which is, I'm used to Legos almost always being bilaterally symmetrical, which means the number counts for little parts is always like two, four, six, eight, twelve.
+[00:03:12] Adam: It is a it is a beautiful Lego kit. I will tell you that when you knoll it, it has some interesting features. Which is, I'm used to Legos almost always being bilaterally symmetrical, which means the number counts for little parts is always like two, four, six, eight, 12.
 
 [00:03:25] Norm: Yep.
 
@@ -98,11 +98,11 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:03:34] Will: I can't wait to build
 
-[00:03:33] Norm: The thing that bugs me the most about pre-sorting is not the number how few sometimes of a certain piece. I love it when there are like thirty like one piece
+[00:03:33] Norm: The thing that bugs me the most about pre-sorting is not the number how few sometimes of a certain piece. I love it when there are like 30 like one piece
 
 [00:03:43] Will: like the Death Star, the Star Destroyer, Super Star Destroyer. When we had dozens and dozens and dozens. When
 
-[00:03:47] Norm: your pile is of four or seven, yeah, as opposed to thirty, you have a lot of small piles to make, and you can't stack them your way.
+[00:03:47] Norm: your pile is of four or seven, yeah, as opposed to 30, you have a lot of small piles to make, and you can't stack them your way.
 
 [00:03:54] Will: I like the small piles. The small piles are very soothing.
 
@@ -278,7 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:10:10] Will: major genres.
 
-[00:10:11] Norm: That's right. 100,000,000 dollars put in this series.
+[00:10:11] Norm: That's right. $100 million put in this series.
 
 [00:10:11] Unknown speaker: Wow, really?
 
@@ -318,7 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:12:10] Adam: and in the order of like you know mid five figures per day to enjoy this park.
 
-[00:12:14] Norm: It's 40,000 dollars a day base, but if you do the website and you want all the amenities, meaning like lodging and money and clothes, it gets up to about 250,000 dollars a day in future currency, which they've said is in mid 21st century.
+[00:12:14] Norm: It's $40,000 a day base, but if you do the website and you want all the amenities, meaning like lodging and money and clothes, it gets up to about $250,000 a day in future currency, which they've said is in mid 21st century.
 
 [00:12:26] Adam: Oh, is that what they've said? So
 
@@ -532,7 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:23:37] Adam: have they said how many how many episodes they're planning to make?
 
-[00:23:40] Norm: I believe this season is ten or twelve episodes, but the season two has not been greenlit yet
+[00:23:40] Norm: I believe this season is 10 or 12 episodes, but the season two has not been greenlit yet
 
 [00:23:45] Adam: and so they don't know whether so.
 
@@ -638,7 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:28:24] Will: oh, were you traveling? I hadn't heard.
 
-[00:28:25] Adam: And I so you know you finish five episodes, you've got this sort of whole melange in your head of of what happened, and then you re I rewatched the first episode and I was like, holy cow! I can't believe how much territory they cover in this one fifty eight minute episode,
+[00:28:25] Adam: And I so you know you finish five episodes, you've got this sort of whole melange in your head of of what happened, and then you re I rewatched the first episode and I was like, holy cow! I can't believe how much territory they cover in this one 58 minute episode,
 
 [00:28:42] Norm: and they do it.
 
@@ -758,7 +758,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:31:52] Will: Anthony Hopkins really a robot
 
-[00:31:53] Norm: no well no we'll have a whole separate podcast about whether spoilers and discussions like what what the relationship between the viewer and the storytellers are when the storytellers also read the comments like that's a whole deep thing um so the prevailing theory And it's been widely—it's like fifty-fifty, forty-six, forty-three right now. Is that
+[00:31:53] Norm: no well no we'll have a whole separate podcast about whether spoilers and discussions like what what the relationship between the viewer and the storytellers are when the storytellers also read the comments like that's a whole deep thing um so the prevailing theory And it's been widely—it's like 50-50, 46, 43 right now. Is that
 
 [00:32:10] Will: that's too real,
 
@@ -778,9 +778,9 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:32:18] Adam: go vote.
 
-[00:32:19] Will: Speaking of forty-six, forty-three,
+[00:32:19] Will: Speaking of 46, 43,
 
-[00:32:21] Norm: is that the storyline that you just got introduced to? William and Logan is actually set thirty years ago, and their interactions with Dolores are in the past, and and that one of them becomes the Man in Black.
+[00:32:21] Norm: is that the storyline that you just got introduced to? William and Logan is actually set 30 years ago, and their interactions with Dolores are in the past, and and that one of them becomes the Man in Black.
 
 [00:32:36] Will: That’s—
 
@@ -862,13 +862,13 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:35:08] Adam: Can we put a graphic of Norm's theory coming up on the screen? Norm's theory.
 
-[00:35:11] Norm: The theory is. The multiple multiple layers of deception. William and Logan go into the park thirty years ago. They discuss later on that Logan's company wants to buy the park, that the park is suffering. Hence
+[00:35:11] Norm: The theory is. The multiple multiple layers of deception. William and Logan go into the park 30 years ago. They discuss later on that Logan's company wants to buy the park, that the park is suffering. Hence
 
 [00:35:24] Will: the logo change.
 
-[00:35:25] Norm: Hence the logo, possibly hence the logo change. Now it's a Delos company. William falls in love with Dolores, as we'll eventually see. I believe that to be true, and I think there's going to be a great tragedy where Dolores almost reaches her point of self-realization and fails thirty years ago, and William dies. Now the thing that people have kind of dropped hints about, maybe this is true, is that when you have sex with the robot in the park, and if you look at the terms of service in the the legalese, they own all your biological. They they own everything.
+[00:35:25] Norm: Hence the logo, possibly hence the logo change. Now it's a Delos company. William falls in love with Dolores, as we'll eventually see. I believe that to be true, and I think there's going to be a great tragedy where Dolores almost reaches her point of self-realization and fails 30 years ago, and William dies. Now the thing that people have kind of dropped hints about, maybe this is true, is that when you have sex with the robot in the park, and if you look at the terms of service in the the legalese, they own all your biological. They they own everything.
 
-[00:35:58] Will: So it's like twenty three and me,
+[00:35:58] Will: So it's like 23andMe,
 
 [00:35:59] Norm: kind of.
 

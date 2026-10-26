@@ -58,13 +58,13 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:01:10] Norm: It almost feels worse when you're there because you feel like it's right within your grasp, like this experience and that movie trailer and this freebie. But then you never can get any of it.
 
-[00:01:21] Adam: I will tell you that I felt less FOMO at this year's Comic Con than I have ever before, and a lot of it is because when I first got there ten years ago, it was a big mystery, and now it's like a lot of the stuff that's happening is stuff with my friends, and I I know what they're doing, and I you know people like Chris Hardwick and Felicia Day and Zachary Levi. You know those guys are awesome, and I love what they're doing, and I did stuff with all of them at the con. It was it was a really good con. It felt weirdly calmer than other Comic Cons, and we couldn't put our finger on why.
+[00:01:21] Adam: I will tell you that I felt less FOMO at this year's Comic Con than I have ever before, and a lot of it is because when I first got there 10 years ago, it was a big mystery, and now it's like a lot of the stuff that's happening is stuff with my friends, and I I know what they're doing, and I you know people like Chris Hardwick and Felicia Day and Zachary Levi. You know those guys are awesome, and I love what they're doing, and I did stuff with all of them at the con. It was it was a really good con. It felt weirdly calmer than other Comic Cons, and we couldn't put our finger on why.
 
-[00:01:56] Simone: Maybe it's because you just turned fifty,
+[00:01:56] Simone: Maybe it's because you just turned 50,
 
 [00:01:59] Simone: and you're now calmer and wiser.
 
-[00:02:01] Adam: It could be. I am fifty since our last podcast.
+[00:02:01] Adam: It could be. I am 50 since our last podcast.
 
 [00:02:03] Norm: Wow, yeah, happy birthday.
 
@@ -106,7 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:03:16] Simone: really is that breathable?
 
-[00:03:18] Adam: Yeah, it's it's lightweight. The whole thing weighs like eighteen or nineteen pounds. It's it's not that.
+[00:03:18] Adam: Yeah, it's it's lightweight. The whole thing weighs like 18 or 19 pounds. It's it's not that.
 
 [00:03:23] Simone: Really, I've not touched it. I don't dare to touch things here.
 
@@ -134,9 +134,9 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:04:16] Norm: And she's you know she's like a queen of Comic Con, right?
 
-[00:04:20] Adam: She's ninety plus and absolutely beautiful and amazing.
+[00:04:20] Adam: She's 90 plus and absolutely beautiful and amazing.
 
-[00:04:25] Norm: And she sits down, finds a corner. She and her her handler and her family, and it's one of those things like, do you say hi, you know? And and and Bobak, Bobak, you know Bobak, right? We were talking to Bobak. Bobak's like, yeah, I said I I did an event with her before, and I don't think she remembers me, but I I told her how much she meant to me, and I got my moment, and like that's the awesome. That's that's the that's kind of what I wanted to do, but I also don't want to bug her. Danica said she needed to have some meaningful interaction, and she she worked it, and we watched almost like from from like thirty feet away at a distance. We watched over the span of half an hour as she and and Rebecca,
+[00:04:25] Norm: And she sits down, finds a corner. She and her her handler and her family, and it's one of those things like, do you say hi, you know? And and and Bobak, Bobak, you know Bobak, right? We were talking to Bobak. Bobak's like, yeah, I said I I did an event with her before, and I don't think she remembers me, but I I told her how much she meant to me, and I got my moment, and like that's the awesome. That's that's the that's kind of what I wanted to do, but I also don't want to bug her. Danica said she needed to have some meaningful interaction, and she she worked it, and we watched almost like from from like 30 feet away at a distance. We watched over the span of half an hour as she and and Rebecca,
 
 [00:04:25] Adam: Rebecca Watson,
 
@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:05:52] Norm: I think it was very impressive.
 
-[00:05:53] Adam: So there's this thing I realized is that we have very good peripheral vision, but this the the social contract is that if I'm not looking at you, I don't notice you. So you can still believe that I haven't picked you up on my radar if I'm looking twenty degrees off. But the fact is, is there are sometimes you've been in a restaurant where I was in a restaurant once where Richard Gere was eating dinner, and that was kind of like subsumed our table because it was Richard Gere, like right over there. He's totally amazing and hot and incredible actor, and we couldn't believe that he was there. I have experienced the smaller version of that with my level of fame, where I can tell people can't take their eyes off me, right? Like they're they're watching me, and I can pick it up. But the the it gives me a little bit of a taste of what it's probably like to be a pretty girl, right? Where people are always like trying to smile at you in your periphery. And a friend of mine who is lovely, she said, " Yes, the hardest part for her was learning as a young girl, not as like you know fourteen, fifteen years old, not to smile back." And because because that was an invitation, and that look, this is a much deeper and more complex subject than than I am making it. But just suffice to say, my tiny little bit of notoriety gives me some inclination of what it's like to be lovely. There, that's my point.
+[00:05:53] Adam: So there's this thing I realized is that we have very good peripheral vision, but this the the social contract is that if I'm not looking at you, I don't notice you. So you can still believe that I haven't picked you up on my radar if I'm looking 20 degrees off. But the fact is, is there are sometimes you've been in a restaurant where I was in a restaurant once where Richard Gere was eating dinner, and that was kind of like subsumed our table because it was Richard Gere, like right over there. He's totally amazing and hot and incredible actor, and we couldn't believe that he was there. I have experienced the smaller version of that with my level of fame, where I can tell people can't take their eyes off me, right? Like they're they're watching me, and I can pick it up. But the the it gives me a little bit of a taste of what it's probably like to be a pretty girl, right? Where people are always like trying to smile at you in your periphery. And a friend of mine who is lovely, she said, " Yes, the hardest part for her was learning as a young girl, not as like you know 14, 15 years old, not to smile back." And because because that was an invitation, and that look, this is a much deeper and more complex subject than than I am making it. But just suffice to say, my tiny little bit of notoriety gives me some inclination of what it's like to be lovely. There, that's my point.
 
 [00:07:16] Norm: And creeped on.
 
@@ -190,11 +190,11 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:08:12] Adam: And and in the summer, like the sun never sets there, right? Like it's light until like
 
-[00:08:15] Simone: I mean, it sets, and so Stockholm is not in in the far north of Sweden. It never sets, and but in in Stockholm, it sets around like eleven, twelve p.m.
+[00:08:15] Simone: I mean, it sets, and so Stockholm is not in in the far north of Sweden. It never sets, and but in in Stockholm, it sets around like 11, 12 p.m.
 
 [00:08:25] Adam: That's awesome.
 
-[00:08:25] Simone: Yeah, yeah, yeah, yeah. It's it's it's beautiful. But I we filmed twelve episodes in two months.
+[00:08:25] Simone: Yeah, yeah, yeah, yeah. It's it's it's beautiful. But I we filmed 12 episodes in two months.
 
 [00:08:25] Adam: Wow!
 
@@ -368,7 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:14:47] Adam: and that was every day last week, long days.
 
-[00:14:53] Simone: It was a lot. It was like really long days. One call time was 4:30 a.m. Yeah. So, but it was so much. I felt. I mean, even though it took a lot of energy, it was also one of those projects that gives a lot of energy because I was really tired Friday, but just one night of sleep, I slept slept for ten, like twelve hours, and then I'm like, let's do it again.
+[00:14:53] Simone: It was a lot. It was like really long days. One call time was 4:30 a.m. Yeah. So, but it was so much. I felt. I mean, even though it took a lot of energy, it was also one of those projects that gives a lot of energy because I was really tired Friday, but just one night of sleep, I slept slept for 10, like 12 hours, and then I'm like, let's do it again.
 
 [00:15:12] Adam: I did so. I did the same thing yesterday. I slept until 11 a.m. and I haven't slept until 11 a.m. in probably 20 years.
 
@@ -550,7 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:24:04] Simone: way more disturbing things. No, it was a good movie. I was really surprised by it. Yeah, but yeah, we should definitely maybe Blade Runner.
 
-[00:24:12] Norm: Oh yeah, oh yeah, future movies. Do we definitely want to do Aliens sequel and then around the time maybe when Blade Runner twenty four nine comes out, we'll do Blade Runner.
+[00:24:12] Norm: Oh yeah, oh yeah, future movies. Do we definitely want to do Aliens sequel and then around the time maybe when Blade Runner 2049 comes out, we'll do Blade Runner.
 
 [00:24:22] Simone: So many things I need to watch.
 
@@ -580,9 +580,9 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:25:00] Norm: Um, I know we haven't done we're not doing spoiler casts of these, but Dunkirk is a movie that deserves to be watched in theaters
 
-[00:25:06] Adam: in seventy millimeter.
+[00:25:06] Adam: in 70 millimeter.
 
-[00:25:07] Norm: In seventy, you can find an IMAX theater. This is Christopher Nolan's film about World War Two.
+[00:25:07] Norm: In 70, you can find an IMAX theater. This is Christopher Nolan's film about World War Two.
 
 [00:25:13] Adam: A fictionalized film about a real event in World War Two
 

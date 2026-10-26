@@ -30,7 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:02:02] Norm: five feet tall.
 
-[00:02:04] Adam: So I did a search on eBay. Perimeter alarm. Turns out, there is like twenty different companies that make exactly this.
+[00:02:04] Adam: So I did a search on eBay. Perimeter alarm. Turns out, there is like 20 different companies that make exactly this.
 
 [00:02:10] Will: Is it just a bunch of stakes with strings and cans hanging off them?
 
@@ -44,7 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:02:19] Adam: that you can point outwards from your campsite that will that will let you know when beasties are approaching.
 
-[00:02:42] Norm: It’s made for twelve year olds with treehouses.
+[00:02:42] Norm: It’s made for 12 year olds with treehouses.
 
 [00:02:43] Adam: Exactly,
 
@@ -78,7 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:03:41] Norm: But you're gonna test this tent.
 
-[00:03:42] Adam: I'm gonna test this tent. It's really exciting. I love this idea. It's basically a really big double wide tent. So when it's all unfolded, it's ten feet long and five feet wide.
+[00:03:42] Adam: I'm gonna test this tent. It's really exciting. I love this idea. It's basically a really big double wide tent. So when it's all unfolded, it's 10 feet long and five feet wide.
 
 [00:03:42] Will: Okay.
 
@@ -134,7 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:05:02] Adam: Yeah,
 
-[00:05:02] Will: I I really really really want to try one of those, and they sell them at REI, but they're like a grand maybe 700 dollars. They're really expensive.
+[00:05:02] Will: I I really really really want to try one of those, and they sell them at REI, but they're like $1,000 maybe $700. They're really expensive.
 
 [00:05:26] Adam: That is that is a rough price.
 
@@ -246,15 +246,15 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:08:51] Will: Yeah.
 
-[00:08:51] Adam: And then another teacher saw it, and the police were called because they thought it looked like a bomb. And the police came, and they took this sweet. Scrawny fourteen-year-old kid out of the school in freaking handcuffs.
+[00:08:51] Adam: And then another teacher saw it, and the police were called because they thought it looked like a bomb. And the police came, and they took this sweet. Scrawny 14-year-old kid out of the school in freaking handcuffs.
 
-[00:09:08] Norm: Put him in a room and interrogated him for forty-five minutes to an hour.
+[00:09:08] Norm: Put him in a room and interrogated him for 45 minutes to an hour.
 
 [00:09:12] Adam: Well, also his account that one of the officers walked in, saw him, and said, " Yep, that's who I thought it was."
 
 [00:09:18] Norm: Ridiculous.
 
-[00:09:19] Will: So that I mean, I I can't imagine what kind of amazing bastard you have to be to look at this scrawny fourteen-year-old nerd
+[00:09:19] Will: So that I mean, I I can't imagine what kind of amazing bastard you have to be to look at this scrawny 14-year-old nerd
 
 [00:09:28] Norm: wearing a NASA wearing a NASA shirt.
 
@@ -264,11 +264,11 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:09:39] Unknown speaker: Scrawny, no.
 
-[00:09:39] Will: I'll post some pictures when I was when I was when I was your age. When I was nineteen, I weighed the better part of 122 pounds, and was six feet the same height I am right now.
+[00:09:39] Will: I'll post some pictures when I was when I was when I was your age. When I was 19, I weighed the better part of 122 pounds, and was six feet the same height I am right now.
 
 [00:09:39] Adam: Oh my god!
 
-[00:09:39] Will: So that is a literal hundred-pound difference.
+[00:09:39] Will: So that is a literal 100-pound difference.
 
 [00:09:54] Adam: You must have seemed like a particularly dim adult.
 
@@ -372,7 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:14:07] Norm: Yeah,
 
-[00:14:07] Adam: but you know our perception of what. Bombs should look like everyone's living in twenty four.
+[00:14:07] Adam: but you know our perception of what. Bombs should look like everyone's living in 24.
 
 [00:14:14] Will: My my favorite thing was that a bomb disposal expert from a local police department popped up on my Facebook, and and the quote was like, " Look, you have to be the worst bomb maker in the world to make a bomb that needs a circuit board to detonate. Like, why? Why would you? Why even bother? "
 
@@ -388,7 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:14:54] Will: his parents moved him to a school where he could learn about that stuff, and they said, " Hey, go do this. It's a great idea. "
 
-[00:15:10] Adam: Look, all of this is to say the plural of anecdote it is is not evidence. No. But the idea of a fourteen-year-old kid who is doing everything right—he's indulging his passion. He is exploring a new field for him, electronics. He is building something. He is making something,
+[00:15:10] Adam: Look, all of this is to say the plural of anecdote it is is not evidence. No. But the idea of a 14-year-old kid who is doing everything right—he's indulging his passion. He is exploring a new field for him, electronics. He is building something. He is making something,
 
 [00:15:10] Norm: and he's proud of it.
 
@@ -562,7 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:20:50] Will: and mission, you know, all that stuff.
 
-[00:20:56] Adam: And what's really funny is if you actually look at, let's say, the first season of the original series, it's like every time the the the the landing crew goes down, they they're minus a crew member when they come back, and the book just starts to casually go through these figures. Like, do you realize in the last like nine missions they've lost twelve? People,
+[00:20:56] Adam: And what's really funny is if you actually look at, let's say, the first season of the original series, it's like every time the the the the landing crew goes down, they they're minus a crew member when they come back, and the book just starts to casually go through these figures. Like, do you realize in the last like nine missions they've lost 12? People,
 
 [00:20:56] Will: Yeah.
 
@@ -586,7 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:21:45] Will: science?
 
-[00:21:45] Adam: Science. He works in science, and the the science lab eventually reveals to him that if he's approached by one of the big main characters for a solution, he is to promise it within an impossible amount of time. And at ninety minutes before that time, he go they go and get this black box, which will somehow solve the problem,
+[00:21:45] Adam: Science. He works in science, and the the science lab eventually reveals to him that if he's approached by one of the big main characters for a solution, he is to promise it within an impossible amount of time. And at 90 minutes before that time, he go they go and get this black box, which will somehow solve the problem,
 
 [00:22:05] Will: and it will give them the answer in just enough time for it to be dramatically interesting. The delivery of the of the response,
 
@@ -912,7 +912,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:32:33] Adam: coming up. Live show coming up, October
 
-[00:32:34] Norm: twenty third.
+[00:32:34] Norm: 23rd.
 
 [00:32:36] Will: We also have something new to announce,
 
@@ -922,7 +922,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:32:40] Norm: Yes, on the
 
-[00:32:41] Will: twenty seventh.
+[00:32:41] Will: 27th.
 
 [00:32:41] Adam: That's going to be very exciting. One of San Francisco's. If you've never been to San Francisco, you should come to San Francisco. But if you come to San Francisco and you're wondering what to do, and you are a couple months out, go to Alcatraz. It is truly one of those un what do you call it incomparable tourist attractions. It's an amazing thing to see.
 

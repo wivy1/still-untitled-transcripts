@@ -84,7 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:02:13] Will: Okay, I've heard you say that.
 
-[00:02:13] Adam: And I have a very specific definition for that. So, I am a big film buff. We're all film buffs, and we often talk as film buffs do. What's your top ten? What's your top five? And one of the things I've discovered about film buffs is any film buff worth their salt has at least thirty movies in their top five.
+[00:02:13] Adam: And I have a very specific definition for that. So, I am a big film buff. We're all film buffs, and we often talk as film buffs do. What's your top 10? What's your top five? And one of the things I've discovered about film buffs is any film buff worth their salt has at least 30 movies in their top five.
 
 [00:02:31] Norm: And you also asked the question: is, you know, is, is it—you are talking about your favorite movies or the best movies?
 
@@ -104,7 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:04:18] Will: That's a lot of Brazil to watch.
 
-[00:04:19] Adam: Which means I've sat through—I've sat through that movie in its entirety at least a hundred times.
+[00:04:19] Adam: Which means I've sat through—I've sat through that movie in its entirety at least 100 times.
 
 [00:04:24] Norm: And you've—you've seen new things every time.
 
@@ -156,7 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:06:13] Will: I can imagine.
 
-[00:06:14] Adam: I've used my lifetime allotment of viewings of Brazil. Not to say that it's not one of like the top ten films in my existence.
+[00:06:14] Adam: I've used my lifetime allotment of viewings of Brazil. Not to say that it's not one of like the top 10 films in my existence.
 
 [00:06:23] Unknown speaker: Mm-hmm.
 
@@ -184,7 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:08:17] Adam: To Indiana Jones to Han Solo. I mean.
 
-[00:08:24] Will: And didn't do shabby in the other fifty or sixty movies.
+[00:08:24] Will: And didn't do shabby in the other 50 or 60 movies.
 
 [00:08:26] Adam: Yes, I know.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:10:48] Will: Yeah.
 
-[00:10:51] Adam: Um. That. Yeah. Movie is totally, totally important to me. I, my first worn leather jacket, which I bought in high school and had like quilting on it, I still was thinking, oh, it's kind of like Raiders. And then when I was like nineteen and I was in Venice, California, with a friend of mine, and I bought a weathered leather jacket. I mean, I've had a succession of beat up leather jackets, and they all are referring to Harrison Ford's jacket.
+[00:10:51] Adam: Um. That. Yeah. Movie is totally, totally important to me. I, my first worn leather jacket, which I bought in high school and had like quilting on it, I still was thinking, oh, it's kind of like Raiders. And then when I was like 19 and I was in Venice, California, with a friend of mine, and I bought a weathered leather jacket. I mean, I've had a succession of beat up leather jackets, and they all are referring to Harrison Ford's jacket.
 
 [00:11:14] Will: Well, you could probably argue that any leather jacket sold in North America that's brown and weathered and is not a bomber jacket—
 
@@ -332,7 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:14:40] Adam: Then he then he sent me. Well, I mean, I purchased it, but he picked out a kangaroo hide that matched the type, the, the weight and feel of one from the movie, and I ended up making this this really like ridiculously long—
 
-[00:14:52] Will: Fourteen foot monster, right?
+[00:14:52] Will: 14 foot monster, right?
 
 [00:14:53] Adam: Yeah, it was like more bigger than you'd ever make a bullwhip, but then anyone would ever want to make a bullwhip. But—
 

@@ -200,7 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:06:29] Rebecca: Yeah,
 
-[00:06:29] Adam: and it's to his sixteen-year-old son, and it's ludicrously powerful.
+[00:06:29] Adam: and it's to his 16-year-old son, and it's ludicrously powerful.
 
 [00:06:34] Rebecca: Yeah.
 
@@ -518,7 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:17:14] Adam: yeah, he'll be there.
 
-[00:17:15] Rebecca: Okay, all right, yeah. The the one person I really wanted to meet at Comic Con, and this is a person that I've been trying to meet for the past ten years, probably of my con-going life, is H. Jon Benjamin.
+[00:17:15] Rebecca: Okay, all right, yeah. The the one person I really wanted to meet at Comic Con, and this is a person that I've been trying to meet for the past 10 years, probably of my con-going life, is H. Jon Benjamin.
 
 [00:17:28] Adam: Who is H. Jon Benjamin?
 
@@ -670,7 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:21:12] Adam: It's the thing. It's where I can it puts my imposter complex the farthest into the distance.
 
-[00:21:15] Rebecca: Yes, yes. I introduced Lucky Yates to Terry Gilliam, and it was maybe like one of the great, top ten greatest moments of my life.
+[00:21:15] Rebecca: Yes, yes. I introduced Lucky Yates to Terry Gilliam, and it was maybe like one of the great, top 10 greatest moments of my life.
 
 [00:21:23] Adam: Wow.
 

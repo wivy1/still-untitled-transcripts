@@ -446,15 +446,15 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:14:19] Norm: it's dark stuff.
 
-[00:14:21] Adam: And yet it's also a great movie. So I like the idea that that we go back, we see Han Solo again thirty years later. I mean, he is the he's the rogue's rogue man. He's the one of my favorite characters in film.
+[00:14:21] Adam: And yet it's also a great movie. So I like the idea that that we go back, we see Han Solo again 30 years later. I mean, he is the he's the rogue's rogue man. He's the one of my favorite characters in film.
 
-[00:14:32] Will: Is Han Solo thirty years later fat on the couch? I mean, it looks like a different
+[00:14:32] Will: Is Han Solo 30 years later fat on the couch? I mean, it looks like a different
 
 [00:14:37] Adam: Harrison Ford isn't fat on the couch. Well, I also think Mark Hamill's beard looks great. I think they're going for, you know, I don't know what what state the universe is in when we get there.
 
 [00:14:48] Will: But it has to be bad, or it wouldn't be interesting.
 
-[00:14:50] Adam: And if if and I know that Damon Lindelof doesn't have anything to do with this movie, but he did say as soon as you're spending 200,000,000 dollars at a movie, the fate of the universe has to be hanging in the balance. So clearly, we're probably meeting them when they're all old and don't want to be galvanized, and you get to watch these these three characters
+[00:14:50] Adam: And if if and I know that Damon Lindelof doesn't have anything to do with this movie, but he did say as soon as you're spending $200 million at a movie, the fate of the universe has to be hanging in the balance. So clearly, we're probably meeting them when they're all old and don't want to be galvanized, and you get to watch these these three characters
 
 [00:15:09] Frank: like reluctantly get
 
@@ -500,7 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:17:52] Norm: Really?
 
-[00:17:52] Adam: We built a practical twelve-foot-long queenship.
+[00:17:52] Adam: We built a practical 12-foot-long queenship.
 
 [00:17:58] Norm: The B-wing looking one. Wow.
 
@@ -548,11 +548,11 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:19:55] Will: So, so the interesting thing to me about The fact that J. J. Abrams is doing this, he's saying he's committed to doing practical effects is where possible and where it makes sense.
 
-[00:20:03] Adam: Sorry about this. A B twelve bomber is starting up right outside the shop.
+[00:20:03] Adam: Sorry about this. A B-12 bomber is starting up right outside the shop.
 
-[00:20:06] Will: You know, UPS is delivering thirty five million packages today, which is their biggest package, biggest shipment day ever, is what they said this morning.
+[00:20:06] Will: You know, UPS is delivering 35 million packages today, which is their biggest package, biggest shipment day ever, is what they said this morning.
 
-[00:20:13] Adam: Thirty five billion
+[00:20:13] Adam: 35 billion
 
 [00:20:14] Will: million million million in one day.
 
@@ -566,13 +566,13 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:20:25] Frank: I already gave you your present.
 
-[00:20:26] Will: But but I like looking at what they can do. Well, looking at what how technology for real world stuff, like even with like off the shelf microcontrollers and the rise of all that stuff, the rise of accelerometers and and and cheap motors and all the stuff that's possible today that wasn't possible or was possible at great cost twenty years ago, fifteen years ago, and they started working on the prequels. Like I have to imagine the things you can do with practical effects today would look like magic to you guys fifteen years ago. Or or maybe it's a budget difference.
+[00:20:26] Will: But but I like looking at what they can do. Well, looking at what how technology for real world stuff, like even with like off the shelf microcontrollers and the rise of all that stuff, the rise of accelerometers and and and cheap motors and all the stuff that's possible today that wasn't possible or was possible at great cost 20 years ago, 15 years ago, and they started working on the prequels. Like I have to imagine the things you can do with practical effects today would look like magic to you guys 15 years ago. Or or maybe it's a budget difference.
 
 [00:20:56] Adam: You end up with you end up with certain specialists, and they certainly have them in England at Pinewood and Elstree, who can do, you know, over the years some of the groundbreaking work that was that was that was, uh, not invented, but really sort of developed by people like Mark Setrakian, who was one of the first people to build algorithms so that you could control clusters of servos to behave in different ways depending upon the gesture you infused them with.
 
 [00:21:21] Frank: Things like tentacles and stuff.
 
-[00:21:22] Adam: Okay. You can do yeah. You can now do animatronic stuff so inexpensively and simply that normally would have taken massive banks of controllers, and now servos have gotten smaller, gotten stronger. You rubbers have gotten lighter. The techniques people have had, you know, you now have people that have been doing animatronics for thirty years.
+[00:21:22] Adam: Okay. You can do yeah. You can now do animatronic stuff so inexpensively and simply that normally would have taken massive banks of controllers, and now servos have gotten smaller, gotten stronger. You rubbers have gotten lighter. The techniques people have had, you know, you now have people that have been doing animatronics for 30 years.
 
 [00:21:43] Will: It's like the it's like the WALL-Es, right? The WALL-Es that Mike Senna and Mike McMaster made in their garages. Well, definitely the work of skilled craftsmen costs a, a fraction of a fraction of the millions of dollars that Imagineering spent to build one that would drive around Disneyland.
 

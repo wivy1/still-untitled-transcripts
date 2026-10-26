@@ -72,7 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:03:46] Adam: He did The Incredibles. He did all of Pete Docter's films.
 
-[00:03:48] Will: Just The Incredibles alone is one of the great scores of the last thirty years, probably since Raiders. Maybe I don't know.
+[00:03:48] Will: Just The Incredibles alone is one of the great scores of the last 30 years, probably since Raiders. Maybe I don't know.
 
 [00:03:56] Adam: John Landis said it's the best Bond score anyone's ever written.
 
@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:06:10] Norm: right? Because because you think of performers like musicians. One in orchestration, it's a collaboration, so you think they'd have to play off each other. And two, it's like it's like acting, right? You know, actors they read their lines beforehand. They get the script, so if you get the music, the sheet music, it can't be like how can that be?
 
-[00:06:29] Adam: It's a it's incredible, and and then what's really amazing is you are sitting in this. So it's a historical room. Jaws was recorded in this room. Shirley Temple used to make movies in this room. The tracks for the old sets are still in the ceiling. It's a legendary place, like any place on a studio lot, like like many buildings on the studio lot. This one has a tremendous history. The the the insane competency of watching the musicians do their thing is like a magic trick happening that a hundred people are doing perfectly every single time
+[00:06:29] Adam: It's a it's incredible, and and then what's really amazing is you are sitting in this. So it's a historical room. Jaws was recorded in this room. Shirley Temple used to make movies in this room. The tracks for the old sets are still in the ceiling. It's a legendary place, like any place on a studio lot, like like many buildings on the studio lot. This one has a tremendous history. The the the insane competency of watching the musicians do their thing is like a magic trick happening that 100 people are doing perfectly every single time
 
 [00:07:02] Will: in sync.
 
@@ -144,7 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:07:03] Will: yeah,
 
-[00:07:03] Adam: you'll have like. Justin will be like, " Hey, when the blah blah blah does the blah blah blah? Can the strings be a little more like dent dent dent?" And and Michael go, " Yeah." And then he'll push a button and be like, " On eighty seven, I want the strings to go mezzo forte," right? Like this whole language, and that's all he needs to say to say, and like the the strings will all reach out and make a little tick mark on their scores, and then they get it right the next time.
+[00:07:03] Adam: you'll have like. Justin will be like, " Hey, when the blah blah blah does the blah blah blah? Can the strings be a little more like dent dent dent?" And and Michael go, " Yeah." And then he'll push a button and be like, " On 87, I want the strings to go mezzo forte," right? Like this whole language, and that's all he needs to say to say, and like the the strings will all reach out and make a little tick mark on their scores, and then they get it right the next time.
 
 [00:07:29] Will: So is he is, but he's not like standing up in front of the
 
@@ -176,7 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:09:11] Adam: Yeah, exactly.
 
-[00:09:12] Will: So, like, when you record a rock and roll band, you go into a little studio, and there is a there is a box that they put the drummer in, and then there is everybody's kind of in their own room performing, even though they can all hear each other. They get isolated audio. Do they? They don't have ninety seven small rooms for the orchestra. Everybody in the orchestra, right?
+[00:09:12] Will: So, like, when you record a rock and roll band, you go into a little studio, and there is a there is a box that they put the drummer in, and then there is everybody's kind of in their own room performing, even though they can all hear each other. They get isolated audio. Do they? They don't have 97 small rooms for the orchestra. Everybody in the orchestra, right?
 
 [00:09:30] Adam: Yeah, no, they don't. They don't. They have a single large room, but people are in groups. And for instance, there are two horn sections at either side of the room, and that must be for audio spill.
 
@@ -194,11 +194,11 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:10:10] Norm: Look at that! Like that track. Right, if if they had individual mics or at least it's you know how many tracks that would be.
 
-[00:10:16] Will: Ninety-six tracks,
+[00:10:16] Will: 96 tracks,
 
 [00:10:16] Norm: So many.
 
-[00:10:17] Adam: Ninety tracks. It's it is incredible how much is actually going on and how calm everybody is while they're doing it. It literally, it was so inspiring to watch. But even more, like they're just spooling it up. All right, we're gonna go to scene forty-two B times one-seven. Great, everyone ready? Yeah. And we're talking. All of a sudden, they're just playing like and and recording, and they're like, " Oh, we like that one. Let's do it again."
+[00:10:17] Adam: 90 tracks. It's it is incredible how much is actually going on and how calm everybody is while they're doing it. It literally, it was so inspiring to watch. But even more, like they're just spooling it up. All right, we're gonna go to scene 42B times one-seven. Great, everyone ready? Yeah. And we're talking. All of a sudden, they're just playing like and and recording, and they're like, " Oh, we like that one. Let's do it again."
 
 [00:10:44] Norm: I keep thinking about that scene in " Forgetting Sarah Marshall," where his his character does the score for a CSI type show.
 
@@ -230,7 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:11:30] Norm: talking about
 
-[00:11:30] Adam: twenty-three episodes a year times
+[00:11:30] Adam: 23 episodes a year times
 
 [00:11:32] Norm: yes, seven years.
 
@@ -398,7 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:16:41] Will: It seems.
 
-[00:16:41] Adam: Anyway, James Remar is also in that. But his first big role was playing Gans, the villain in Forty Eight Hours, and it's terrifying. What
+[00:16:41] Adam: Anyway, James Remar is also in that. But his first big role was playing Gans, the villain in 48 Hours, and it's terrifying. What
 
 [00:16:49] Will: is this? Why is it terrifying?
 
@@ -484,13 +484,13 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:18:44] Norm: Okay,
 
-[00:18:45] Adam: fifty bucks a piece.
+[00:18:45] Adam: $50 a piece.
 
 [00:18:45] Norm: Perfect.
 
 [00:18:45] Will: Cool.
 
-[00:18:45] Adam: 48 bucks a piece. Um, yeah, so they have a Y-wing fighter that is actually almost precisely the scale of the one I scratch built for Galoob Toys way back in the day.
+[00:18:45] Adam: $48 a piece. Um, yeah, so they have a Y-wing fighter that is actually almost precisely the scale of the one I scratch built for Galoob Toys way back in the day.
 
 [00:18:45] Will: Wow.
 

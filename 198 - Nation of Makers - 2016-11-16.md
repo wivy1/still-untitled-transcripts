@@ -508,9 +508,9 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:20:46] Adam: Absolutely, and this is the kind of thing. There are there are places. There are businesses like this popping up all over the country, and we need to promote more of them and help kids understand that this is something that you can totally do, and this is sustainable. There are ways to make it sustainable, and we can help.
 
-[00:21:01] Will: I mean, those those are those were some of my favorite stories that we found at Tested the Taylor Stitches and the and the um. I mean, even the coffee places, like the all the the people in the in the last ten years that have taken a business that you know sends people to to Central America and Africa to find coffee. Growers bring them. It's all, yeah. It's it's amazing,
+[00:21:01] Will: I mean, those those are those were some of my favorite stories that we found at Tested the Taylor Stitches and the and the um. I mean, even the coffee places, like the all the the people in the in the last 10 years that have taken a business that you know sends people to to Central America and Africa to find coffee. Growers bring them. It's all, yeah. It's it's amazing,
 
-[00:21:21] Adam: and also to help get the word out about what you're doing, and find sponsors, and find partners, and find people to come and attend and use the spaces. And this isn't like I keep on punching up about the kids, but I mean that's because I specifically believe that you know we really need to focus on the ten year olds, the eleven year olds, the the grade school kids. That’s why I want to get them as young as possible to come and learn how to make. But maker spaces are great for everybody. Maker spaces, hackerspaces, places like Tech Shop, even you know, absolutely, there are so many businesses and so many ideas and so many inventions being started from these spaces, and we need to just keep increasing it.
+[00:21:21] Adam: and also to help get the word out about what you're doing, and find sponsors, and find partners, and find people to come and attend and use the spaces. And this isn't like I keep on punching up about the kids, but I mean that's because I specifically believe that you know we really need to focus on the 10 year olds, the 11 year olds, the the grade school kids. That’s why I want to get them as young as possible to come and learn how to make. But maker spaces are great for everybody. Maker spaces, hackerspaces, places like Tech Shop, even you know, absolutely, there are so many businesses and so many ideas and so many inventions being started from these spaces, and we need to just keep increasing it.
 
 [00:22:01] Norm: And I think it's important to acknowledge that even though the initiative is called Nation of Makers, it's global, right? Like,
 
@@ -584,7 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:24:18] Will: Oh, yeah.
 
-[00:24:18] Adam: He looked for a thing that was lucky and. Symbolized food, you threw it in the pot, and in ten minutes, you gave you seventy ten minutes of boiling in the pot gave you 70% of your day's needs of iron, Oh, and it eliminated anemia.
+[00:24:18] Adam: He looked for a thing that was lucky and. Symbolized food, you threw it in the pot, and in 10 minutes, you gave you 70 10 minutes of boiling in the pot gave you 70% of your day's needs of iron, Oh, and it eliminated anemia.
 
 [00:24:32] Will: That's amazing!
 
@@ -616,7 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:26:16] Norm: A materials champion.
 
-[00:26:17] Adam: But and and so they didn't know that. They had the same problem with foam core and hot glue that a lot of people do, which is if you use a hot hot glue gun and you try and edge glue foam core, the the glue is so hot it boils and bubbles out of the edge of the foam core. But if you use a lower temperature hot glue gun, either that orange three M one that Frank Frank Ippolito is a big fan of, or there is some dual temperature or adjustable temperature ones if you are willing to spend like fifty or sixty bucks or more, then you can lower the temperature and hot glue and foam core were a match made in heaven. I love those things and
+[00:26:17] Adam: But and and so they didn't know that. They had the same problem with foam core and hot glue that a lot of people do, which is if you use a hot hot glue gun and you try and edge glue foam core, the the glue is so hot it boils and bubbles out of the edge of the foam core. But if you use a lower temperature hot glue gun, either that orange three M one that Frank Frank Ippolito is a big fan of, or there is some dual temperature or adjustable temperature ones if you are willing to spend like $50 or $60 or more, then you can lower the temperature and hot glue and foam core were a match made in heaven. I love those things and
 
 [00:26:53] Norm: welding for foam core
 
@@ -626,7 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:27:09] Will: roll through.
 
-[00:27:10] Adam: I meditated for forty minutes and then slept for ninety.
+[00:27:10] Adam: I meditated for 40 minutes and then slept for ninety.
 
 [00:27:13] Norm: Yeah,
 
@@ -732,7 +732,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:30:17] Adam: It feels so much better than just blearily like waiting for the Wi-Fi to get faster.
 
-[00:30:23] Will: It doesn't. It never does. It's always bad. It's never worth sixteen dollars.
+[00:30:23] Will: It doesn't. It never does. It's always bad. It's never worth $16.
 
 [00:30:28] Norm: That's a spectrum, right? That's that's you just that's both ends.
 
@@ -926,11 +926,11 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:35:23] Adam: Ye olde leather boob joke. Right.
 
-[00:35:26] Will: Okay. I think this is as good a place as any to wrap this one up. My Kickstarter is live right now. You can go to foovr dot com slash Kickstarter. It'll take you there. We would love your support there. There are options ranging from like one dollar if you want to get a dope paper. So we made we made a Pepakura version of my avatar.
+[00:35:26] Will: Okay. I think this is as good a place as any to wrap this one up. My Kickstarter is live right now. You can go to foovr dot com slash Kickstarter. It'll take you there. We would love your support there. There are options ranging from like $1 if you want to get a dope paper. So we made we made a Pepakura version of my avatar.
 
 [00:35:42] Adam: Oh, nice.
 
-[00:35:42] Will: So it's um you can print it out at home if you pay us a buck. We'll send you the file.
+[00:35:42] Will: So it's um you can print it out at home if you pay us $1. We'll send you the file.
 
 [00:35:47] Adam: Oh My God, I love little kids can dress up as Will's avatar. for Halloween.
 

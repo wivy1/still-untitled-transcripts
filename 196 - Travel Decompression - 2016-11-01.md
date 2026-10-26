@@ -38,7 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:02:10] Adam: Wait, where am I today? And you got stuck. You you missed a connector at Heathrow.
 
-[00:02:16] Joey Fameli: No, no, Frankfurt. I got to see a little bit of Frankfurt. So the Budapest to Frankfurt, Frankfurt to SFO. I had about forty-five minutes layover and the twenty-minute delay from Budapest to Frankfurt. I don't know if you've ever been to the Frankfurt airport, but
+[00:02:16] Joey Fameli: No, no, Frankfurt. I got to see a little bit of Frankfurt. So the Budapest to Frankfurt, Frankfurt to SFO. I had about 45 minutes layover and the 20-minute delay from Budapest to Frankfurt. I don't know if you've ever been to the Frankfurt airport, but
 
 [00:02:16] Unknown speaker: I have not.
 
@@ -80,7 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:03:45] Norm: part. Okay, yeah.
 
-[00:03:46] Adam: Look, it's not as bad as it used to be. I mean, you really used to be there like you'd you'd be allowed to enter the United States with two bags, but while switching, we went to Africa through Heathrow while switching to the African plane. Heathrow was like one bag, one bag, and they literally it was like one bag, and if you are going to join your two bags, you've got like. Thirty seconds to do it, and you have to get it on your first try. Otherwise, they send you back out of the airport to come back through security. This was years ago, but the other day when I was coming through Heathrow, my bag got flagged because I had a thing of hair product. That's all.
+[00:03:46] Adam: Look, it's not as bad as it used to be. I mean, you really used to be there like you'd you'd be allowed to enter the United States with two bags, but while switching, we went to Africa through Heathrow while switching to the African plane. Heathrow was like one bag, one bag, and they literally it was like one bag, and if you are going to join your two bags, you've got like. 30 seconds to do it, and you have to get it on your first try. Otherwise, they send you back out of the airport to come back through security. This was years ago, but the other day when I was coming through Heathrow, my bag got flagged because I had a thing of hair product. That's all.
 
 [00:03:46] Adam: Hmm.
 
@@ -108,13 +108,13 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:05:35] Adam: and this no, I never, I I almost never do either. But this woman had a whole bunch of liquids toiletries in a nine by nine inch bag, and so no, this is I am not exaggerating. He made he got her an eight inch bag, and he handed it to her, and he stood there with his arms crossed, watching her while she put everything in, and he wouldn't let her go until the eight by eight inch bag could close all the way, and uh. I this this brought me to such a point of of of rage for my culture.
 
-[00:06:11] Norm: seventeen square inches. Right, by the way,
+[00:06:11] Norm: 17 square inches. Right, by the way,
 
 [00:06:16] Adam: eight by eight inch.
 
 [00:06:17] Norm: The difference.
 
-[00:06:18] Adam: Oh, right, the difference. Yes. Yeah. Right. No, it's like it was. It it brought me to the edge of my sanity. And then he, you know, he he finds my thing, and you know, of course, it's like I get a look, right? It just and immediately after dealing with all that, now I've got like twenty five minutes to make my flight, and in Heathrow, it's like there's a bus you've got to take somewhere. It's a whole thing. I'm in Terminal Five. I need to get to Terminal Two. Anyone who's gone through Heathrow knows what that's like. And just as I'm leaving security, this sweet fan comes up and says, " Mr. Savage," and I am like, before I even looked at him, I was like, " I have to apologize to you." I said, grabbing his hand, " You have caught me in the worst possible mood." He's like, I'm just a big fan. I'm like, I'm so pleased. If you will let me go, I need to figure out where I have to go because I have to start running in a second. Have a wonderful trip.
+[00:06:18] Adam: Oh, right, the difference. Yes. Yeah. Right. No, it's like it was. It it brought me to the edge of my sanity. And then he, you know, he he finds my thing, and you know, of course, it's like I get a look, right? It just and immediately after dealing with all that, now I've got like 25 minutes to make my flight, and in Heathrow, it's like there's a bus you've got to take somewhere. It's a whole thing. I'm in Terminal Five. I need to get to Terminal Two. Anyone who's gone through Heathrow knows what that's like. And just as I'm leaving security, this sweet fan comes up and says, " Mr. Savage," and I am like, before I even looked at him, I was like, " I have to apologize to you." I said, grabbing his hand, " You have caught me in the worst possible mood." He's like, I'm just a big fan. I'm like, I'm so pleased. If you will let me go, I need to figure out where I have to go because I have to start running in a second. Have a wonderful trip.
 
 [00:07:12] Joey Fameli: That sounds like a pretty good response, though.
 
@@ -214,7 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:11:25] Unknown speaker: Yeah, awesome.
 
-[00:11:25] Adam: And I found the people very. I found the. I mean, not to say that this is surprising because I really didn't have an impression of Budapest in my head. It's very cosmopolitan city, very similar in size to San Francisco, eight hundred thousand people with several million in the greater urban area. Interestingly, and look, I don't know if I'm being totally off the mark, but the Buda side is the hilly side with all these big sort of castles on it. As you're driving up the Danube, and I arrived at night, so the buildings are all lit up, just gorgeous. And in a way, that sort of felt a little like Pittsburgh to me. Pittsburgh sits on a river where there's this big hill, and a lot of houses sit up top of that palisades above Pittsburgh. And weirdly, Budapest felt a little like Pittsburgh. Maybe I'm the first one to point that out.
+[00:11:25] Adam: And I found the people very. I found the. I mean, not to say that this is surprising because I really didn't have an impression of Budapest in my head. It's very cosmopolitan city, very similar in size to San Francisco, 800,000 people with several million in the greater urban area. Interestingly, and look, I don't know if I'm being totally off the mark, but the Buda side is the hilly side with all these big sort of castles on it. As you're driving up the Danube, and I arrived at night, so the buildings are all lit up, just gorgeous. And in a way, that sort of felt a little like Pittsburgh to me. Pittsburgh sits on a river where there's this big hill, and a lot of houses sit up top of that palisades above Pittsburgh. And weirdly, Budapest felt a little like Pittsburgh. Maybe I'm the first one to point that out.
 
 [00:12:35] Joey Fameli: I was in the the farmers market, and they have over on one side they have like a big display of the wine regions, and but they also have a it's like a model of the of the landscapes of Budapest.
 
@@ -402,7 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:19:51] Joey Fameli: and I won't I won't order pasta out unless it's made in house. Yeah, I won't do the box pasta eating out because I I can do that at home.
 
-[00:19:57] Adam: So and the one that I'm obsessed with lately is the the cacio e pepe, the simple butter and salt pasta spaghetti at Locanda here in the Mission District. Oh, it's I mean, it's comfort food times ninety. It's just so so delicious. I also cooked yesterday. Julia was got some some chicken that she'd cooked up with some spices and thought, oh, we could have chicken sandwiches for dinner. And then she didn't make the chicken sandwiches, but I had bought one of those grills for like serious grilled cheese making, like a big sixteen by twenty inch. No, like a it's a it's a big restaurant griddle.
+[00:19:57] Adam: So and the one that I'm obsessed with lately is the the cacio e pepe, the simple butter and salt pasta spaghetti at Locanda here in the Mission District. Oh, it's I mean, it's comfort food times 90. It's just so so delicious. I also cooked yesterday. Julia was got some some chicken that she'd cooked up with some spices and thought, oh, we could have chicken sandwiches for dinner. And then she didn't make the chicken sandwiches, but I had bought one of those grills for like serious grilled cheese making, like a big 16 by 20 inch. No, like a it's a it's a big restaurant griddle.
 
 [00:20:38] Joey Fameli: Oh yeah, okay,
 

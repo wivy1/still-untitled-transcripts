@@ -136,7 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:03:23] Will: Yeah. Avenue.
 
-[00:03:24] Adam: I've been here twenty-two years, and I know, I'm not sure. Um, is a store called Dandelion, and it's been there for decades.
+[00:03:24] Adam: I've been here 22 years, and I know, I'm not sure. Um, is a store called Dandelion, and it's been there for decades.
 
 [00:03:30] Will: Okay.
 
@@ -248,7 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:06:41] Adam: We've got it downstairs.
 
-[00:06:42] Will: Which is, it's awesome. The the original binding I think came with like lunar asteroid or something and sold for 15,000 dollars or something ridiculous, but they reissued it like three years ago. It's great.
+[00:06:42] Will: Which is, it's awesome. The the original binding I think came with like lunar asteroid or something and sold for $15,000 or something ridiculous, but they reissued it like three years ago. It's great.
 
 [00:06:51] Adam: That's awesome.
 
@@ -272,7 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:07:25] Adam: eBay does that.
 
-[00:07:26] Norm: Like fifty miles or closer, for a local pickup.
+[00:07:26] Norm: Like 50 miles or closer, for a local pickup.
 
 [00:07:27] Will: Or two-day shipping.
 
@@ -296,7 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:08:21] Unknown speaker: Yeah.
 
-[00:08:22] Adam: Every few weeks buy a bunch of cards from different makers on Etsy, and we keep here. Yeah, I know a lot of people have an emergency card box. That's just our card box. We go shopping in our own box, which has, at any given point, you know, a hundred cards in it.
+[00:08:22] Adam: Every few weeks buy a bunch of cards from different makers on Etsy, and we keep here. Yeah, I know a lot of people have an emergency card box. That's just our card box. We go shopping in our own box, which has, at any given point, you know, 100 cards in it.
 
 [00:08:37] Norm: Here's the funny thing about letterpress. We actually have a video about letterpress that's going up maybe in a week or two. Because there's tons of places in the city that actually do it.
 
@@ -338,7 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:09:50] Unknown speaker: Yeah.
 
-[00:09:51] Adam: I totally, as a life hacker thing, it's changed our lives, and my wife really loves doing the organization of stuff like that, so we have this really nice like box. I don't know what it used to be, but it's got you know one hundred and fifty cards in it with tags for what the categories are.
+[00:09:51] Adam: I totally, as a life hacker thing, it's changed our lives, and my wife really loves doing the organization of stuff like that, so we have this really nice like box. I don't know what it used to be, but it's got you know 150 cards in it with tags for what the categories are.
 
 [00:10:08] Norm: And you love the design. That's why you buy them, and you get to appreciate them before you give them away.
 
@@ -378,7 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:11:14] Adam: No, no, no, there was there was an article about him in the New York Times. There's a one guy wrote most of the fortunes you got up until like five or six years ago.
 
-[00:11:22] Will: If if I was in charge of the fortune cookie factory, the fortune— one out of a thousand would have something either awesome or horrible.
+[00:11:22] Will: If if I was in charge of the fortune cookie factory, the fortune— one out of 1,000 would have something either awesome or horrible.
 
 [00:11:28] Norm: You will find love—
 
@@ -488,9 +488,9 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:15:25] Will: It's—
 
-[00:15:25] Adam: Fourteen decimal points with this freaking thing.
+[00:15:25] Adam: 14 decimal points with this freaking thing.
 
-[00:15:28] Will: Yeah, it's, it's, you'd have to have a slide rule like twenty feet long to do that.
+[00:15:28] Will: Yeah, it's, it's, you'd have to have a slide rule like 20 feet long to do that.
 
 [00:15:30] Adam: Oh, yeah, no, this is nontrivial what you can do, and, uh, one of the things it was used for very frequently was, uh, rallying, uh, for calculating rally times while racing. Um, yeah, this is.
 
@@ -502,7 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:16:05] Adam: Calculator came out and it killed the Curta.
 
-[00:16:08] Will: Well, and if you and if you think about it, those digital calculators. I mean, I remember when I was ten, ten, eight or ten years old, maybe six years old. I had an aunt who gave me what I'm sure was a phenomenally expensive solar TI calculator.
+[00:16:08] Will: Well, and if you and if you think about it, those digital calculators. I mean, I remember when I was 10, 10, 8 or 10 years old, maybe six years old. I had an aunt who gave me what I'm sure was a phenomenally expensive solar TI calculator.
 
 [00:16:18] Adam: Yeah.
 
@@ -552,11 +552,11 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:18:16] Adam: It's the best thermos.
 
-[00:18:17] Will: Because you can, the— it's Japanese, so it's it's from people that normally make rice cookers, and you press the button, and the little lid flops open, so you don't pour coffee on yourself while you're trying to get the coffee in the little cup while you're driving with your knee and nice and like that's the kind of thing that like is a slam dunk. It's twenty bucks. You jam it in everybody's stocking.
+[00:18:17] Will: Because you can, the— it's Japanese, so it's it's from people that normally make rice cookers, and you press the button, and the little lid flops open, so you don't pour coffee on yourself while you're trying to get the coffee in the little cup while you're driving with your knee and nice and like that's the kind of thing that like is a slam dunk. It's $20. You jam it in everybody's stocking.
 
-[00:18:33] Norm: 36 bucks.
+[00:18:33] Norm: $36.
 
-[00:18:34] Will: Six— 36 bucks now, really?
+[00:18:34] Will: Six— $36 now, really?
 
 [00:18:35] Norm: Yeah.
 
@@ -586,7 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:19:15] Will: It's good that you'll fight that.
 
-[00:19:16] Adam: The number of things that I want to buy them, and then the number of things that I actually will buy them are very different numbers. But, uh, you know, they both have abused my collection of high-end headphones to such a degree that when I found a review on Engadget recently for, uh, the best headphones for around a hundred bucks—
+[00:19:16] Adam: The number of things that I want to buy them, and then the number of things that I actually will buy them are very different numbers. But, uh, you know, they both have abused my collection of high-end headphones to such a degree that when I found a review on Engadget recently for, uh, the best headphones for around $100—
 
 [00:19:37] Will: No, no, that's a Wirecutter story.
 
@@ -598,7 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:19:43] Will: It's okay. He doesn't listen to the show.
 
-[00:19:46] Adam: Um. It was Wirecutter. Those best headphones for under a hundred bucks.
+[00:19:46] Adam: Um. It was Wirecutter. Those best headphones for under $100.
 
 [00:19:50] Will: Yeah, they're fantastic.
 
@@ -654,7 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:21:00] Unknown speaker: No.
 
-[00:21:00] Will: When I worked, when I worked on Capitol Hill, all of the all of the response secretaries, the ones that would write the letter responses, had IBM Selectrics, and you had to type the letter in perfectly once, but then you would just turn the dial to twenty-five, hit go—
+[00:21:00] Will: When I worked, when I worked on Capitol Hill, all of the all of the response secretaries, the ones that would write the letter responses, had IBM Selectrics, and you had to type the letter in perfectly once, but then you would just turn the dial to 25, hit go—
 
 [00:21:12] Unknown speaker: Okay. Oh my God.
 
@@ -684,7 +684,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:21:58] Will: Well, you got to get them what they want.
 
-[00:22:00] Adam: At thirteen, you've got to get them what they want. You're right, though. You can get them weird stuff.
+[00:22:00] Adam: At 13, you've got to get them what they want. You're right, though. You can get them weird stuff.
 
 [00:22:04] Norm: I never got what I wanted.
 
@@ -718,7 +718,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:22:40] Will: They were a treasure to you as a child.
 
-[00:22:42] Norm: And and now they're cheap. It's thirty bucks.
+[00:22:42] Norm: And and now they're cheap. It's $30.
 
 [00:22:44] Will: Yeah. For a whole box—
 

@@ -54,7 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:01:20] Norm: Can you tell that story for people who might not know?
 
-[00:01:22] Eric Cheng: Yeah, so I about what maybe ten days ago, I had a thought that maybe we should fly these phantoms into the volcano, and I thought about this because I kept seeing these amazing volcano pictures coming over my social feeds in Iceland from Iceland because I have some friends who are there shooting, and and it just seemed like nobody had gotten that close with a camera to shoot, you know, really wide angle shots of a volcano. So I sent literally a one line email that said, " Hey, do you think we could fly a phantom into the into the volcano?" And and a guy said, " Yeah, I sure. I think we could do it." And but then after you know, like a week passed, and I didn't hear anything. [unclear: And then I was like, oh, I think we could do it.] And then one day I got a I got a call. Or an email, and it said a Saturday. The problem is, it was Thursday when I got the message.
+[00:01:22] Eric Cheng: Yeah, so I about what maybe 10 days ago, I had a thought that maybe we should fly these phantoms into the volcano, and I thought about this because I kept seeing these amazing volcano pictures coming over my social feeds in Iceland from Iceland because I have some friends who are there shooting, and and it just seemed like nobody had gotten that close with a camera to shoot, you know, really wide angle shots of a volcano. So I sent literally a one line email that said, " Hey, do you think we could fly a phantom into the into the volcano?" And and a guy said, " Yeah, I sure. I think we could do it." And but then after you know, like a week passed, and I didn't hear anything. [unclear: And then I was like, oh, I think we could do it.] And then one day I got a I got a call. Or an email, and it said a Saturday. The problem is, it was Thursday when I got the message.
 
 [00:01:22] Adam: Oh my god!
 
@@ -62,15 +62,15 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:02:07] Eric Cheng: and I was here.
 
-[00:02:08] Adam: Yeah. What is it? A ten-hour flight from here?
+[00:02:08] Adam: Yeah. What is it? A 10-hour flight from here?
 
-[00:02:10] Eric Cheng: Yeah, it's like well, with the connection, with the right, the proper connection, is twelve hours, and then it's a you know like a twelve to fifteen-hour drive to the
+[00:02:10] Eric Cheng: Yeah, it's like well, with the connection, with the right, the proper connection, is 12 hours, and then it's a you know like a 12 to 15-hour drive to the
 
-[00:02:17] Adam: twelve to fifteen-hour drive.
+[00:02:17] Adam: 12 to 15-hour drive.
 
 [00:02:19] Eric Cheng: Well, it's not that big. You can drive around it in in not too long, but this is in the middle of the country on a glacier, so you have to you have to get there the right way, and then there are no roads leading to it at the end, so you have to go off roading for four hours.
 
-[00:02:31] Norm: So this is a twenty four hour journey that you have to be there in two days.
+[00:02:31] Norm: So this is a 24 hour journey that you have to be there in two days.
 
 [00:02:37] Eric Cheng: Right. So wow,
 
@@ -108,7 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:04:05] Adam: Right. Right. Right.
 
-[00:04:06] Will: So so what's your like What's your go/no-go when you get there? And you're, I assume there's like base camp set up, or you're at a hotel twenty miles away, or something like that. And then you have to hike in the last last few miles, or off road in the last few miles,
+[00:04:06] Will: So so what's your like What's your go/no-go when you get there? And you're, I assume there's like base camp set up, or you're at a hotel 20 miles away, or something like that. And then you have to hike in the last last few miles, or off road in the last few miles,
 
 [00:04:18] Eric Cheng: off road in the last four hours or so. And so, yeah, they were really excited. We stopped at this really cute farmhouse with, you know, sheep like nibbling on the windows because it had, you know, like dirt or whatever. It had, it had grass on the walls. It was really cool.
 
@@ -190,7 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:08:19] Eric Cheng: Yeah, I wanted a clean feed, and we had a second unit that where we could have turned telemetry on, but I didn't have an assistant, and it was it was night. You know, it got dark during that time, and we just couldn't. I couldn't. You know, we didn't have the manpower we needed to do.
 
-[00:08:32] Adam: Okay, so just from a practical level, pausing here, you've traveled for twelve hours, driven for fifteen, set out from the farmhouse with the sheep to do this thing, and it's getting dark. There's a point at which you reach a natural limit of of being able to stay frosty and stay awake, isn't there? Or are you trying to catnap in the car on the way there and trading driving and?
+[00:08:32] Adam: Okay, so just from a practical level, pausing here, you've traveled for 12 hours, driven for fifteen, set out from the farmhouse with the sheep to do this thing, and it's getting dark. There's a point at which you reach a natural limit of of being able to stay frosty and stay awake, isn't there? Or are you trying to catnap in the car on the way there and trading driving and?
 
 [00:08:53] Eric Cheng: Yeah, I, I they were all relatively well rested because they live there.
 
@@ -246,7 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:11:08] Eric Cheng: No, it was actually it was really cold there. I was like, damn it! I was totally bundled up. But the the flow stopped just in front of us, and
 
-[00:11:15] Will: like just in front, like a hundred meters, or like just in front, like ten feet.
+[00:11:15] Will: like just in front, like 100 meters, or like just in front, like 10 feet.
 
 [00:11:18] Eric Cheng: You know, it you could you were right up to it, but it was older flow, so it wasn't like glowing red anymore. I don't know when it come out.
 
@@ -276,7 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:12:14] Eric Cheng: Yeah. So that was unexpected, and it had nothing to do with range because we had half, you know the range was easy by that by that point, and so and it was consistent. So you fly over the thing, video might go out,
 
-[00:12:27] Will: even like the cooled lava twenty feet in front of you, or the stuff that's still red hot and further.
+[00:12:27] Will: even like the cooled lava 20 feet in front of you, or the stuff that's still red hot and further.
 
 [00:12:31] Eric Cheng: No, no, the explosive lava up up front, the the the steam steam coming off of it.
 
@@ -486,7 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:18:52] Adam: So, but this year.
 
-[00:18:53] Eric Cheng: Yeah, this year, [unclear: this year] there were there was a organized registration. So two hundred. They capped it at two hundred registration registered drone drone pilots, and I, there was a big waiting list of eighty or ninety. So it was very popular. So you'd show up. Actually, this is my sticker from from Burning Man. This is little number two thirty seven, and you have a matching one on your radio and. And there were strict rules. Basically, you can't fly. You couldn't fly within, what was it like, twenty feet of any person, a hundred feet from any structure or art car. And at Burning Man, that's very hard.
+[00:18:53] Eric Cheng: Yeah, this year, [unclear: this year] there were there was a organized registration. So 200. They capped it at 200 registration registered drone drone pilots, and I, there was a big waiting list of 80 or 90. So it was very popular. So you'd show up. Actually, this is my sticker from from Burning Man. This is little number 237, and you have a matching one on your radio and. And there were strict rules. Basically, you can't fly. You couldn't fly within, what was it like, 20 feet of any person, 100 feet from any structure or art car. And at Burning Man, that's very hard.
 
 [00:19:24] Will: How would you land? Yeah.
 
@@ -700,11 +700,11 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:24:37] Eric Cheng: It's perfect. I mean, if you watch it, that's the only way you can can get that kind of launch.
 
-[00:24:41] Adam: I know, and can see the comments section filling up with suggestions. Oh, you've you've shown up just for long enough, Eric, to make me feel really jealous about what you're doing because it sounds amazing. Sounds totally like flying for twelve hours, driving for fifteen, filming, driving for fifteen more, and flying for twelve more does not sound like too much of a price to pay. That sounds. I would do that in a—
+[00:24:41] Adam: I know, and can see the comments section filling up with suggestions. Oh, you've you've shown up just for long enough, Eric, to make me feel really jealous about what you're doing because it sounds amazing. Sounds totally like flying for 12 hours, driving for fifteen, filming, driving for fifteen more, and flying for twelve more does not sound like too much of a price to pay. That sounds. I would do that in a—
 
-[00:25:02] Will: how long were you shooting? Twenty hours, you said.
+[00:25:02] Will: how long were you shooting? 20 hours, you said.
 
-[00:25:04] Eric Cheng: It was about twenty hour day. Yeah, it was. I was ready to keep going because when we left, there was actually northern lights appeared.
+[00:25:04] Eric Cheng: It was about 20 hour day. Yeah, it was. I was ready to keep going because when we left, there was actually northern lights appeared.
 
 [00:25:11] Adam: Oh.
 

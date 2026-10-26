@@ -180,9 +180,9 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:03:51] Will: Norm, you've you've been to—
 
-[00:03:53] Norm: This is my tenth.
+[00:03:53] Norm: This is my 10th.
 
-[00:03:54] Will: This is your tenth. I'm at like six or seven.
+[00:03:54] Will: This is your 10th. I'm at like six or seven.
 
 [00:03:57] Frank: I’ve never I’ve never counted, but I’ve gone to a bunch.
 
@@ -270,13 +270,13 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:07:20] Adam: Yeah.
 
-[00:07:20] Norm: and it made me think of what would if I was to design exhibit to showcase, you know, maybe a hundred years. You always have the if I was in crowd, just sleep the Futurama. You became the expert on the 20th century for the 30th century. How would you encapsulate that—
+[00:07:20] Norm: and it made me think of what would if I was to design exhibit to showcase, you know, maybe 100 years. You always have the if I was in crowd, just sleep the Futurama. You became the expert on the 20th century for the 30th century. How would you encapsulate that—
 
 [00:07:35] Adam: culture? Well, so I'll tell you a couple years ago, John Landis took me on a walk through Artist Alley because he was telling me, " You're full of shit. You don't know Comic Con unless you go into Artist Alley." And he took me down Artist Alley and introduced me to some of my favorite comic book artists who are just sitting there signing stuff at the tables, which is how Comic Con began.
 
 [00:07:56] Norm: Right. They're still accessible.
 
-[00:07:57] Adam: They're still totally accessible, and it is actually. It was. It is the high point of Comic Con to me to walk all the way to the back of the floor to artist alley where the real art is happening, and some of these guys are incredible, you know, and they're part of the history of the reason Comic Con is there, and you can actually interact with them. Unlike way out on the floor, if somebody like Nathan Fillion or Robert Downey Jr. comes out to do an appearance, man, you can't get within a thousand feet of them.
+[00:07:57] Adam: They're still totally accessible, and it is actually. It was. It is the high point of Comic Con to me to walk all the way to the back of the floor to artist alley where the real art is happening, and some of these guys are incredible, you know, and they're part of the history of the reason Comic Con is there, and you can actually interact with them. Unlike way out on the floor, if somebody like Nathan Fillion or Robert Downey Jr. comes out to do an appearance, man, you can't get within 1,000 feet of them.
 
 [00:08:25] Will: or you wait in line for three hours and you buy something to sign, and then you you walk up, you don't get a hello, you don't get a hi, you put it in front of them, what's your name?
 
@@ -306,7 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:09:36] Adam: Yeah.
 
-[00:09:36] Norm: And you have people who are guest stars who were in that show, and they bring so much joy to like you know the twenty, thirty people who are still there who hang out and they are friends, and people go every year,
+[00:09:36] Norm: And you have people who are guest stars who were in that show, and they bring so much joy to like you know the 20, 30 people who are still there who hang out and they are friends, and people go every year,
 
 [00:09:55] Adam: and they make reasonable livings doing it, which is. Also, totally, totally awesome.
 
@@ -386,7 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:12:20] Will: This was after MythBusters, though, right?
 
-[00:12:21] Adam: This was after MythBusters, like seven years, six years, seven years ago. So we get to the door, and you know, of course, there's like a couple of twenty-year-old girls with a list at the door, and they're like, " Yeah, can't, can't know."
+[00:12:21] Adam: This was after MythBusters, like seven years, six years, seven years ago. So we get to the door, and you know, of course, there's like a couple of 20-year-old girls with a list at the door, and they're like, " Yeah, can't, can't know."
 
 [00:12:21] Will: Adam Suss.
 
@@ -488,7 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:18:25] Will: Because it's an invitation.
 
-[00:18:26] Adam: Well, it's not only an invitation, but when people recognize you, and I can tell you, a semi-famous person, you can pick it up on your peripherals. You can tell, and frankly, if you've been in the room, if you've been in a restaurant with Richard Gere, it's hard to stop paying attention to the fact that Richard Gere is right over there, and when you're Richard Gere, you can yeah, he's genuinely lovely. When you're Richard Gere, you can genuinely feel it, even if you're not acknowledging it. Right. So famous people walk around, sort of trying to look at this fifteen degree angle below the horizon to not get eye contact. Not at these parties. At these parties, it's been pre-filtered, so everyone's looking around to see who they can talk to, who they want to meet, and it. It makes it like kind of crazy awesome. So you know, all of a sudden, you are talking to Topher Grace, and then there is Elijah Wood and Seth Green's asking if you minded that he did a Mythbusters about masturbation on the on Adult Swim. And I mean, it was very entertaining to watch my son slowly kind of get into the rhythm of being able to just approach people and say, " I really like your work." Oh, cool, thanks. What's your name? Oh, my name is. Let's take a picture. You know, it was.
+[00:18:26] Adam: Well, it's not only an invitation, but when people recognize you, and I can tell you, a semi-famous person, you can pick it up on your peripherals. You can tell, and frankly, if you've been in the room, if you've been in a restaurant with Richard Gere, it's hard to stop paying attention to the fact that Richard Gere is right over there, and when you're Richard Gere, you can yeah, he's genuinely lovely. When you're Richard Gere, you can genuinely feel it, even if you're not acknowledging it. Right. So famous people walk around, sort of trying to look at this 15 degree angle below the horizon to not get eye contact. Not at these parties. At these parties, it's been pre-filtered, so everyone's looking around to see who they can talk to, who they want to meet, and it. It makes it like kind of crazy awesome. So you know, all of a sudden, you are talking to Topher Grace, and then there is Elijah Wood and Seth Green's asking if you minded that he did a Mythbusters about masturbation on the on Adult Swim. And I mean, it was very entertaining to watch my son slowly kind of get into the rhythm of being able to just approach people and say, " I really like your work." Oh, cool, thanks. What's your name? Oh, my name is. Let's take a picture. You know, it was.
 
 [00:19:29] Frank: I have a couple selfies with your son.
 
@@ -546,7 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:21:02] Adam: I do.
 
-[00:21:02] Will: Because that’s my move. It’s like the the the sixty-degree hotel room.
+[00:21:02] Will: Because that’s my move. It’s like the the the 60-degree hotel room.
 
 [00:21:08] Adam: Yes, yes, yes,
 
@@ -1000,7 +1000,7 @@ Episode URL: https://www.youtube.com/watch?v=uVpUXbIXBAw
 
 [00:32:54] Frank: Why is that?
 
-[00:32:55] Will: If you wear the same pair of shoes two days in a row, then then and you're walking twenty thousand steps, you're going to hurt yourself. Yeah.
+[00:32:55] Will: If you wear the same pair of shoes two days in a row, then then and you're walking 20,000 steps, you're going to hurt yourself. Yeah.
 
 [00:33:00] Adam: Yeah, and pace yourself. I mean, really, you kind of try and pace yourself. So, like, you get back to the hotel room around four or five to chill for an hour before the afternoon festivities.
 
