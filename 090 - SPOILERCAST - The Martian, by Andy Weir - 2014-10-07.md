@@ -680,7 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:25:44] Adam: Danica, could you grab me one of the zero waters on my laser cutter? Oh, Frank, you stop putting shit on. Come on, we got to put some other stuff. You got to put some other stuff on your head. I'm kidding. You don't have to.
 
-[00:26:03] SPEAKER_03: There's nothing in arm's reach anymore. I was trying not to make noise.
+[00:26:03] Frank: There's nothing in arm's reach anymore. I was trying not to make noise.
 
 [00:26:06] Adam: I want that Hellboy to be wearable. Yeah,
 
@@ -688,7 +688,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:26:11] Adam: It’s a nice looking one. Yeah, his eyes need some trimming because they poke right into my eyes as they currently are. It's a nice looking mask, though.
 
-[00:26:19] SPEAKER_03: Make a better one.
+[00:26:19] Frank: Make a better one.
 
 [00:26:22] Norm: All right.
 
