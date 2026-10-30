@@ -27,3 +27,8 @@ This archive was created because Adam Savage's involvement in Industrial Light a
 12. Compare the completed draft against all three source transcriptions and revisit passages using nearby dialogue, recurring references across episodes, and additional research.
 15. Update the shared knowledge-base with names, aliases, terminology, episode context, corrections, and sources.
 16. Export final transcript with a standardized header.
+
+## Guides
+
+- [Cast](CAST.md): hosts and recurring guests, their backgrounds and episode appearances
+- [Lore](LORE.md): major developments across the series
