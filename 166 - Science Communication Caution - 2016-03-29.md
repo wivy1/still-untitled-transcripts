@@ -60,9 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:01:39] Adam: Trash panda.
 
-[00:01:38] Norm: So I don't know if I'll
-
-[00:01:41] Norm: be able to go to Shenzhen.
+[00:01:38] Norm: So I don't know if I'll be able to go to Shenzhen.
 
 [00:01:41] Adam: What's that?
 
@@ -288,9 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:08:54] Will: You don't want to get to the end of the internet.
 
-[00:08:54] Norm: Yeah.
-
-[00:08:56] Norm: The list is ever because they take things out, they put things back in,
+[00:08:54] Norm: Yeah. The list is ever because they take things out, they put things back in,
 
 [00:08:56] Adam: right?
 
@@ -448,13 +444,9 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:15:18] Norm: I the the the AI itself needs a human a person to move the pieces because they're playing.
 
-[00:15:18] Adam: Right,
+[00:15:18] Adam: Right, there's somebody who is. It's not a robot that moves the pieces. There's a person there
 
-[00:15:24] Adam: there's somebody who is. It's not a robot that moves the pieces. There's a person there
-
-[00:15:28] Norm: Lazy computers.
-
-[00:15:28] Norm: moving, and something that Jeremy brought up is that if you think of it in a way, that person whose job is to move the piece of the robot is the robot's avatar.
+[00:15:28] Norm: Lazy computers. moving, and something that Jeremy brought up is that if you think of it in a way, that person whose job is to move the piece of the robot is the robot's avatar.
 
 [00:15:39] Adam: Well, that that sorry, I just pulled out the mic. That is the best.
 
@@ -462,9 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:15:39] Adam: that's.
 
-[00:15:45] Will: I mean,
-
-[00:15:45] Will: is that this is a job that's existed for a while? Because in chess, computer chess playing games,
+[00:15:45] Will: I mean, is that this is a job that's existed for a while? Because in chess, computer chess playing games,
 
 [00:15:45] Adam: yeah, I mean,
 
@@ -516,9 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:18:33] Norm: [unclear: it is undisputed / it is in dispute]. Like that observable science is, you know, he's wrong there, but it's a thought he had and he tweeted it. But I think it brings about more.
 
-[00:18:42] Adam: He got it enough, so let me just state as as a tweeting science communicator,
-
-[00:18:50] Adam: he he got in trouble enough to make me nervous
+[00:18:42] Adam: He got it enough, so let me just state as as a tweeting science communicator, he he got in trouble enough to make me nervous
 
 [00:18:53] Will: about saying things on Twitter.
 
@@ -576,11 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:22:07] Norm: I think it speaks to the larger or larger culture's tendency with platforms like Twitter and and the immediacy from which we have a the time between we have a thought and then we can spread that thought to. Spread that thought in order to get attention to spread it in the form of a declarative.
 
-[00:22:23] Will: Well, these are this is the challenge of Twitter,
-
-[00:22:23] Will: right?
-
-[00:22:23] Will: Twitter gives us a unique way to have this one to many, but then also a reciprocal conversation with a massive number of people that's completely unfettered by any kind of bureaucracy or organization. I guess is better than bureaucracy,
+[00:22:23] Will: Well, these are this is the challenge of Twitter, right? Twitter gives us a unique way to have this one to many, but then also a reciprocal conversation with a massive number of people that's completely unfettered by any kind of bureaucracy or organization. I guess is better than bureaucracy,
 
 [00:22:40] Norm: right?
 
@@ -618,9 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=Tct9rk_TnzQ
 
 [00:24:42] Norm: is complex.
 
-[00:24:43] Adam: Yes,
-
-[00:24:44] Adam: thank you. That's probably much better.
+[00:24:43] Adam: Yes, thank you. That's probably much better.
 
 [00:24:45] Norm: And as a science communicator, I think a lot of it was that people maybe expected more of him, and which may be unfair.
 

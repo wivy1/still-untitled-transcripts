@@ -122,9 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:08:34] Norm: which is tough. I mean, that's exactly a workflow that is you commit to things and you have to have months in advance because you you can't go down a path and change. But they they can
 
-[00:08:43] Adam: because things go wrong at the last minute
-
-[00:08:44] Adam: all the time unless we're putting laser tag on World War One airplanes and then everything works the first time.
+[00:08:43] Adam: because things go wrong at the last minute all the time unless we're putting laser tag on World War One airplanes and then everything works the first time.
 
 [00:08:52] Zach: Oh man! Well, your first time. First times are all relative, aren't they?
 
@@ -374,9 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:24:18] Norm: Did you have that 150 yards to to line?
 
-[00:24:18] Adam: We did.
-
-[00:24:21] Adam: We did across the long diagonal of the hangar.
+[00:24:18] Adam: We did. We did across the long diagonal of the hangar.
 
 [00:24:23] Zach: We did exactly. We got we got them mostly lined up enough to again prove it to ourselves that like okay, this is you know a path forward. We're not like completely dead in the water.
 
@@ -460,9 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:31:46] Jeremy: And thank God, I finally got texts from Adam and Zach.
 
-[00:31:50] Adam: It was like 10 p.m. at night, your time, right? And
-
-[00:31:52] Adam: we're like, it works. And as many exclamation points as we feel like shoving in there.
+[00:31:50] Adam: It was like 10 p.m. at night, your time, right? And we're like, it works. And as many exclamation points as we feel like shoving in there.
 
 [00:31:52] Unknown speaker: Yeah.
 
@@ -470,11 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=uxT-7gwGIYQ
 
 [00:32:01] Zach: Oh yeah. Yeah. Now what a relief that everything just gonna just build.
 
-[00:32:04] Jeremy: I always said so. I always told Adam that if you ever want to build a laser. Gun toy, call me. But if you ever want to build a laser gun,
-
-[00:32:11] Jeremy: call Zach.
-
-[00:32:12] Jeremy: And then it actually happened.
+[00:32:04] Jeremy: I always said so. I always told Adam that if you ever want to build a laser. Gun toy, call me. But if you ever want to build a laser gun, call Zach. And then it actually happened.
 
 [00:32:14] Zach: Yeah,
 

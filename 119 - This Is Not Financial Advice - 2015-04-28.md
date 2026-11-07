@@ -6,9 +6,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:00:00] Adam: We ready?
 
-[00:00:00] Will: I think we are.
-
-[00:00:05] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
+[00:00:00] Will: I think we are. Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:08] Adam: I'm Adam,
 
@@ -84,9 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:01:50] Adam: Yeah, like
 
-[00:01:51] Will: yeah, I didn't realize that
-
-[00:01:51] Will: when I first moved here.
+[00:01:51] Will: yeah, I didn't realize that when I first moved here.
 
 [00:01:51] Norm: nestled like seven or eight of them or something in our seven by seven space. It's a little ridiculous.
 
@@ -224,9 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:06:52] Norm: accounting, personal accounting, and writing down. Here's things kids don't realize.
 
-[00:06:56] Adam: Kids don't understand predatory lending. They don't understand that your credit card will move your payment date in order to throw you off balance and
-
-[00:07:03] Adam: make you accidentally pay late. They don't know that your credit card company, that your bank will prioritize the checks it pays off in order to maximize the number of overdrafted checks to charge you overdraft fees for every single one. Do you know about that one?
+[00:06:56] Adam: Kids don't understand predatory lending. They don't understand that your credit card will move your payment date in order to throw you off balance and make you accidentally pay late. They don't know that your credit card company, that your bank will prioritize the checks it pays off in order to maximize the number of overdrafted checks to charge you overdraft fees for every single one. Do you know about that one?
 
 [00:07:16] Will: No. No. Explain that.
 
@@ -276,17 +270,11 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:09:10] Adam: I actually read it.
 
-[00:09:11] Will: Yeah,
-
-[00:09:11] Will: but but like home financing, the difference between a home loan and a a loan that's compounded monthly and annually and and whatever the other options are. There's only two I know about. I guess they probably the loan shark does daily, but I don't know.
+[00:09:11] Will: Yeah, but but like home financing, the difference between a home loan and a a loan that's compounded monthly and annually and and whatever the other options are. There's only two I know about. I guess they probably the loan shark does daily, but I don't know.
 
 [00:09:25] Adam: The vig,
 
-[00:09:25] Will: yeah, exactly. Well, you know, you got a real nice leg here. It'd be a pity if something happened to it.
-
-[00:09:32] Will: Yeah,
-
-[00:09:32] Will: it's. I mean, it's it's that stuff's never explained.
+[00:09:25] Will: yeah, exactly. Well, you know, you got a real nice leg here. It'd be a pity if something happened to it. Yeah, it's. I mean, it's it's that stuff's never explained.
 
 [00:09:35] Adam: No,
 
@@ -474,9 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:17:39] Will: You know, 5-10% of the car at minimum. Um, and usually if they get you into financing, you're going to be making you know that's that's not a great choice. generally.
 
-[00:17:47] Adam: That's true.
-
-[00:17:48] Adam: I grew up. My parents paid for every car in cash.
+[00:17:47] Adam: That's true. I grew up. My parents paid for every car in cash.
 
 [00:17:50] Will: I I paid for every car in cash up until this point. Which has been, you know, I I always buy cars that are two years old.
 
@@ -548,9 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:19:49] Will: Ooh, an SUV.
 
-[00:19:50] Norm: Yeah.
-
-[00:19:51] Norm: Small SUV.
+[00:19:50] Norm: Yeah. Small SUV.
 
 [00:19:52] Adam: Did you get in trouble with that? Did you almost tip it over?
 
@@ -566,11 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:20:06] Will: Oh.
 
-[00:20:06] Adam: Yes.
-
-[00:20:07] Adam: Yes. It was brown.
-
-[00:20:08] Adam: I was like, no, because I I can't believe we haven't talked about this on the podcast before, but yeah, I painted clouds all over it.
+[00:20:06] Adam: Yes. Yes. It was brown. I was like, no, because I I can't believe we haven't talked about this on the podcast before, but yeah, I painted clouds all over it.
 
 [00:20:16] Will: Oh.
 
@@ -630,8 +610,6 @@ Episode URL: https://www.youtube.com/watch?v=YZY_J_iEVzk
 
 [00:22:02] Unknown speaker: Thank you guys.
 
-[00:22:03] Adam: Premium Members.
-
-[00:22:04] Adam: Bye.
+[00:22:03] Adam: Premium Members. Bye.
 
 [00:22:04] Norm: Bye.

@@ -28,9 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:01:31] Norm: They need the reach. They need the length.
 
-[00:01:32] Adam: Yeah,
-
-[00:01:33] Adam: yeah.
+[00:01:32] Adam: Yeah, yeah.
 
 [00:01:33] Mary Roach: So, so this is a spatula for for the toilet.
 
@@ -52,9 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:02:57] Norm: They're live streaming. There's like there's like a dashcam, right?
 
-[00:02:59] Mary Roach: Yeah, right. But
-
-[00:03:00] Mary Roach: right, but it wasn't exactly the perspective I wanted. That you know, it comes. You know, I wanted it from off to the side, so you could see it actually taking off. Yeah, but now so it's on the so it's yeah on the way to Mars.
+[00:02:59] Mary Roach: Yeah, right. But right, but it wasn't exactly the perspective I wanted. That you know, it comes. You know, I wanted it from off to the side, so you could see it actually taking off. Yeah, but now so it's on the so it's yeah on the way to Mars.
 
 [00:03:15] Adam: But Mary, you like all of us have survived the last nine months or so in lockdown, and I'm just I'm curious I'm curious how how you've been coping, how it's all been going for you.
 
@@ -140,9 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:12:29] Mary Roach: yeah. And now it's shifted completely to aerosols. And I wondered about you know that work back in the day with the, uh, with on transmission. They even did someone else did this great study where they had a lecture theater and they were observing, um, people on a panel and they were counting the number of times. Oh no, it was the it was the people on the panel were watching people in the audience and counting the number of times they pick their nose, touch their eye, or pick their nose and picking. There's a tremendously high, surprisingly high unconscious nosepick rate. Like you're not really thinking about it; you're just kind of like, you know.
 
-[00:13:08] Adam: Oh no! I really think I savor every second.
-
-[00:13:15] Adam: I'm really glad the touching your face thing doesn't turn out to be important because I, I, it turns out, I’m completely incapable of not touching my face.
+[00:13:08] Adam: Oh no! I really think I savor every second. I'm really glad the touching your face thing doesn't turn out to be important because I, I, it turns out, I’m completely incapable of not touching my face.
 
 [00:13:21] Mary Roach: No, same. No, same here. And but the other thing about the touching your face that I never got. I mean, okay, don't touch your eye because it's a direct route into the nasal passages, and and obviously sticking it up the nose, same thing. But how, if you touch your fore, okay, your forehead, or I'm always like this, right? How how's the virus getting from here to how's it? My, it's not walking. They don't have legs. What? It's not. Is that just sort of keep out of the zone? I never understood that.
 
@@ -152,11 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:14:11] Adam: Because you lie down on your pillow and then you just start to smear it all over and then you're drooling and then you've got a liquid path.
 
-[00:14:17] Mary Roach: Oh, okay, right. The liquid path and the face smush. I overlooked both.
-
-[00:14:22] Mary Roach: The Homer Simpson.
-
-[00:14:22] Mary Roach: I overlooked both of those. Yeah. All right. Now I get it. Yeah. But anyway. Yeah. So.
+[00:14:17] Mary Roach: Oh, okay, right. The liquid path and the face smush. I overlooked both. The Homer Simpson. I overlooked both of those. Yeah. All right. Now I get it. Yeah. But anyway. Yeah. So.
 
 [00:14:27] Adam: Have there been any movies or television that has that's helped get you through?
 
@@ -182,9 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:16:34] Norm: Oh, um.
 
-[00:16:35] Adam: no,
-
-[00:16:35] Adam: it's yeah, it's just is it Joss Whedon or Ron Moore?
+[00:16:35] Adam: no, it's yeah, it's just is it Joss Whedon or Ron Moore?
 
 [00:16:38] Norm: Ron Ronald D Moore. Yes, where she goes to the past, and there's, uh, and oh my gosh, Outlander.
 
@@ -246,9 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:21:32] Norm: Oh, there are two Grants. and there's... Marianne Heller, I want to say? Yeah.
 
-[00:21:36] Mary Roach: Yeah. Yeah. Wonderful director. Yeah.
-
-[00:21:38] Mary Roach: Oh, okay. So, because she was as an actress, really interesting to me, because it was always a tension, of like because she's a little quirky, and she's a, and you're like, is she a good mother or a terrible mother? Ah, she's weird. Like, and I always think they're about to devolve into some horrible yelling match. But they had a, you know, they're both strange, damaged people, but they meshed in this really interesting way. And I think that actress, yes, she, however she decided to play that,
+[00:21:36] Mary Roach: Yeah. Yeah. Wonderful director. Yeah. Oh, okay. So, because she was as an actress, really interesting to me, because it was always a tension, of like because she's a little quirky, and she's a, and you're like, is she a good mother or a terrible mother? Ah, she's weird. Like, and I always think they're about to devolve into some horrible yelling match. But they had a, you know, they're both strange, damaged people, but they meshed in this really interesting way. And I think that actress, yes, she, however she decided to play that,
 
 [00:22:09] Adam: yeah,
 
@@ -440,9 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=xDvqlJGjh-w
 
 [00:40:19] Adam: Right.
 
-[00:40:20] Mary Roach: before they would see anyone. We're like two weeks in South Florida.
-
-[00:40:24] Mary Roach: Oh, oh.
+[00:40:20] Mary Roach: before they would see anyone. We're like two weeks in South Florida. Oh, oh.
 
 [00:40:24] Adam: Maybe not.
 

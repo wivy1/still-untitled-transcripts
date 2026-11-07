@@ -164,9 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:06:09] Mark Rober: Thank you. Thank you. Thank you. Yeah. So, uh, yeah, I mean, so I'm doing a show with Jimmy Kimmel, uh, called Revenge of the Nerd. That's the name of it. Which is that was Jimmy's idea. That's great, right? Because so the the point, the premise is we're pranking people who violate social norms. So people might have seen like my glitter bomb video, where yeah, someone stole a package off my porch that made me sad. So I was like, you know what? I'm an engineer. I could do something about this. So we get revenge on them when they steal the package. They open it. Four cameras recording them. Glitter, fart spray, the whole thing. So I told Jimmy, I was like, dude, because I've been on a show a few times. Like, let's prank one of your friends. Let me like come up with something. And he's like, man, our lawyers here suck. He's he's like, everything would be such a pain. Let's just make our own show together. So, uh, yeah, that was like a year ago, and it's just taken forever to like get things rolling. But it'll be on Discovery Channel, eight episodes launches probably this summer.
 
-[00:07:07] Adam: Amazing!
-
-[00:07:08] Adam: Congratulations!
+[00:07:07] Adam: Amazing! Congratulations!
 
 [00:07:09] Mark Rober: Thank you, thank you.
 
@@ -254,9 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:11:53] Norm: So while you're doing the show, you're still doing YouTube stuff too.
 
-[00:11:58] Mark Rober: Yeah, that's right.
-
-[00:11:59] Mark Rober: So my yeah, YouTube is still my first love, and I've pushed back on the TV thing like a lot. Because it's like you know, you have people when you have a channel that does well on YouTube. You have TV producers who come out of the woodwork.
+[00:11:58] Mark Rober: Yeah, that's right. So my yeah, YouTube is still my first love, and I've pushed back on the TV thing like a lot. Because it's like you know, you have people when you have a channel that does well on YouTube. You have TV producers who come out of the woodwork.
 
 [00:12:11] Adam: Yeah,
 
@@ -502,9 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:22:47] Mark Rober: And like the more adversarial they are, like the longer it drags on, the more they get paid. Like,
 
-[00:22:53] Adam: so on MythBusters, the legal team at Beyond Productions would sit and watch every single episode, like all six lawyers for Beyond, and they would look for any product names that were spottable within that they'd have to go then and blur, and they'd be like high fiving each other for spotting product. No, I know it drives
-
-[00:23:09] Adam: me crazy.
+[00:22:53] Adam: so on MythBusters, the legal team at Beyond Productions would sit and watch every single episode, like all six lawyers for Beyond, and they would look for any product names that were spottable within that they'd have to go then and blur, and they'd be like high fiving each other for spotting product. No, I know it drives me crazy.
 
 [00:23:09] Mark Rober: Drives me crazy, the worst. Yeah,
 
@@ -680,13 +674,9 @@ Episode URL: https://www.youtube.com/watch?v=immZHfuXIws
 
 [00:31:52] Norm: Now I care.
 
-[00:31:53] Mark Rober: Yeah, exactly.
+[00:31:53] Mark Rober: Yeah, exactly. Now you care.
 
-[00:31:54] Mark Rober: Now you care.
-
-[00:31:55] Adam: Exactly. Yeah, that's exactly.
-
-[00:31:58] Adam: So I'm assume you were on Kimmel recently.
+[00:31:55] Adam: Exactly. Yeah, that's exactly. So I'm assume you were on Kimmel recently.
 
 [00:32:00] Mark Rober: Mm-hmm. Yep, like two or three weeks ago. Yeah.
 

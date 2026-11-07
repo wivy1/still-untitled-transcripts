@@ -82,11 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:02:35] Adam: Yeah,
 
-[00:02:45] Norm: and we stayed close to the Sydney Opera House, which the thing I realize is it's not crowded at all.
-
-[00:02:52] Norm: Early
-
-[00:02:53] Norm: In the morning, you can walk, and it's like completely empty.
+[00:02:45] Norm: and we stayed close to the Sydney Opera House, which the thing I realize is it's not crowded at all. Early In the morning, you can walk, and it's like completely empty.
 
 [00:02:56] Adam: Well, because we had jet lag too, we're waking up at like four in the morning, and so you like by seven, and the sun is just coming up over Sydney Harbour. You're like, oh wow, Sydney Harbour wins in the postcard department.
 
@@ -378,17 +374,13 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:16:07] Norm: [unclear: hundred times / absent in the M whole-Will alternative].
 
-[00:16:07] Adam: [unclear: is enormous / absent in the M whole-Will alternative].
-
-[00:16:08] Adam: Yeah,
+[00:16:07] Adam: [unclear: is enormous / absent in the M whole-Will alternative]. Yeah,
 
 [00:16:09] Norm: yeah, three times. Yeah,
 
 [00:16:10] Adam: so so we saw. I wasn't able to get to the exhibit because the line was so long, but they had one of the figures in the shop that they were working on, and it's like every hair is punched. They use multiple grades depending on where it is on the face. Wow, the heads are giant. These figures, it's very disconcerting.
 
-[00:16:10] Norm: Yeah,
-
-[00:16:27] Norm: and it's hyper realistic and super realistic. This is
+[00:16:10] Norm: Yeah, and it's hyper realistic and super realistic. This is
 
 [00:16:30] Will: World War One as well.
 
@@ -424,9 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:17:54] Adam: And then I came back, and I'm furious. Like you guys can't see it, but the whole cave here is total horror show because I'm getting ready for a build at the Exploratorium.
 
-[00:18:04] Norm: Oh my
-
-[00:18:04] Norm: goodness!
+[00:18:04] Norm: Oh my goodness!
 
 [00:18:04] Adam: Well, it's next week for me now, but when this airs, it's today.
 
@@ -560,11 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:25:25] Will: What does the EDC relay do?
 
-[00:25:27] Adam: It is, I’m not exactly positive. It has
-
-[00:25:27] Adam: to do with
-
-[00:25:27] Adam: how. Yeah, it's.
+[00:25:27] Adam: It is, I’m not exactly positive. It has to do with how. Yeah, it's.
 
 [00:25:33] Will: Obviously, sir. It's for everyday carries.
 
@@ -626,9 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=-XE10AlRAq0
 
 [00:28:30] Adam: Absolutely. I think we've covered a lot.
 
-[00:28:32] Will: That’s a lot of
-
-[00:28:32] Will: ground.
+[00:28:32] Will: That’s a lot of ground.
 
 [00:28:33] Adam: It was a fat cast.
 

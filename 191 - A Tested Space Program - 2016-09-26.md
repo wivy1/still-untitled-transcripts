@@ -50,9 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:02:10] Adam: My apologies. My apologies. That's right. So it does feel spacious. It feels like the coolest clubhouse ever.
 
-[00:02:10] Will: Yeah,
-
-[00:02:19] Will: that's well, and Norm said, like, what Norm said is right. When you hit the door and see this, the scale is breathtaking.
+[00:02:10] Will: Yeah, that's well, and Norm said, like, what Norm said is right. When you hit the door and see this, the scale is breathtaking.
 
 [00:02:25] Adam: It's shockingly large
 
@@ -94,9 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:03:32] Adam: Well, and we will do separate coverage today, which will go up on tested of the interior of the lem and some key parts of this show. We're not going to spoil everything so that you can come and enjoy it yourself. And really, Tom's work. You know, Tom and I are are very close. We're very simpatico. We have similarly robust theories of shop ritual, although they they they vary quite widely. And I love his approach to toolage and space and executing ergonomically designed tool spaces. And this is exemplified in every nook and cranny of this. Of this place and of the whole show, so you know we've got like bottles of liquor down here. You've got the tools over there. You've got you know his zip guns, which are a classic element of his work for many years. Cameras everywhere because the interior of this can be monitored by mission control, which is in another room.
 
-[00:04:34] Will: And be and there's a trailer out in the outside even.
-
-[00:04:36] Will: There's
+[00:04:34] Will: And be and there's a trailer out in the outside even. There's
 
 [00:04:36] Adam: a quarantine trailer [unclear: with the spacesuits / with a spacesuit in it]. It's a quarantine trailer. Yeah. So to be clear, in case you don't know about this, Tom Sachs is an American sculptor who, in over the last 10 years, has implemented two other. This is the third large-scale space program. It's not a performance; it's a mission. And space program opened at YBC here, YBCA here last weekend with a Europa landing. So two female astronauts got in the quarantine trailer, got suited up, and the suits are spacesuits made out of Tyvek with full cooling suits and Like reciprocating diastolic pumps and bubble helmets.
 
@@ -200,25 +196,19 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:11:05] Adam: Yeah, and you know, again. Part of I think you know I I don't mean to speak for Tom but I think part of his aesthetic is the barely controlled chaos, right? It is trying to grab order out of chaos constantly, and the space program is a way of creating a system that is semi-chaotic that requires problem solving on the fly, and that was what it was exemplified times 100. It was really really thrilling to be a part of it.
 
-[00:11:36] Norm: That’s awesome.
-
-[00:11:36] Norm: Now in in the lead up to this mission, you also visited Tom in his studio in New York. You wrote a big feature story for Wired magazine
+[00:11:36] Norm: That’s awesome. Now in in the lead up to this mission, you also visited Tom in his studio in New York. You wrote a big feature story for Wired magazine
 
 [00:11:36] Adam: Yes, yeah.
 
 [00:11:36] Norm: about the building and planning about his work. How how much does he live in this environment? You know during construction, like you know if if a kid builds a playhouse or a treehouse, it is someplace they sleep in and [unclear: cocot / culke / colcate] themselves in, and embed themselves in.
 
-[00:11:57] Adam: He has he has he
-
-[00:11:58] Adam: has slept in here. He has he has lived himself in here for you know here and there. Um, this this lem uh is again giant. It's over 25 feet tall. Um, it is. Unique, except for the original lems, in that it is actually supported by its four landing pads. It has no cheater post in the middle, like most display lems around the world.
+[00:11:57] Adam: He has he has he has slept in here. He has he has lived himself in here for you know here and there. Um, this this lem uh is again giant. It's over 25 feet tall. Um, it is. Unique, except for the original lems, in that it is actually supported by its four landing pads. It has no cheater post in the middle, like most display lems around the world.
 
 [00:12:23] Norm: You're saying it could fall over at any minute?
 
 [00:12:24] Adam: No, I'm saying it has a massive welded steel infrastructure.
 
-[00:12:24] Norm: Yeah,
-
-[00:12:24] Norm: it feels tight.
+[00:12:24] Norm: Yeah, it feels tight.
 
 [00:12:24] Adam: and so it's in many parts. It's stored in a storage warehouse, and it comes out here in a bunch of trucks. It's a huge endeavor. So Tom and his team were here for more than a month in San Francisco, getting all these things in, getting them up, getting all the systems running. The amount of cabling for video throughout this whole gallery is gobsmacking. It's a massive endeavor.
 
@@ -234,11 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:12:52] Adam: And we, the YBCA, actually impromptu did a Facebook live stream of the landing of the mission on Saturday, and 65,000 people. Tuned in,
 
-[00:12:52] Norm: yeah,
-
-[00:13:12] Norm: and that's gonna be archived so you guys can watch that.
-
-[00:13:12] Norm: Amazing.
+[00:12:52] Norm: yeah, and that's gonna be archived so you guys can watch that. Amazing.
 
 [00:13:15] Adam: Absolutely, it's this is it's words can't really do it justice. We're sitting here, and all three of us came in and were just like, ah.
 
@@ -272,9 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:14:41] Unknown speaker: Oh, okay.
 
-[00:14:41] Adam: I guess one could relieve oneself in there, but there is in fact an incinerator
-
-[00:14:47] Adam: toilet down on the level below.
+[00:14:41] Adam: I guess one could relieve oneself in there, but there is in fact an incinerator toilet down on the level below.
 
 [00:14:49] Will: Oh, perfect. Okay.
 
@@ -286,9 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:15:31] Will: Okay. Like the catch, the scrap, the scrap pile.
 
-[00:15:31] Adam: Right,
-
-[00:15:36] Adam: which is it's both too valuable to throw away and not worth sorting.
+[00:15:31] Adam: Right, which is it's both too valuable to throw away and not worth sorting.
 
 [00:15:38] Will: Yeah.
 
@@ -342,9 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:19:43] Adam: It’s between [unclear: fourteen and thirty / fourteen and twenty-five] minutes between here and Europa.
 
-[00:19:43] Will: Yeah,
-
-[00:19:46] Will: Europa's around Jupiter, right? Yeah, it's a long time.
+[00:19:43] Will: Yeah, Europa's around Jupiter, right? Yeah, it's a long time.
 
 [00:19:48] Adam: Oh God, it's even longer. Right, right, right. Sorry. Yeah, it's a long time.
 
@@ -386,9 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:21:49] Will: Space lab two or three. I can't remember which one mutinied, and they basically said, " Look, we're not working for the next day or two."
 
-[00:21:49] Adam: Right.
-
-[00:21:57] Adam: Yes. Yeah.
+[00:21:49] Adam: Right. Yes. Yeah.
 
 [00:21:57] Will: Because you guys have been working us too too much.
 
@@ -524,11 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=cVBdOZ9Sw6s
 
 [00:30:07] Will: If we can talk about art. Yeah, no, no. It's what else? Anything else you want to get off your chest? Do you do you feel like the moon landings were a hoax?
 
-[00:30:15] Adam: So I,
-
-[00:30:16] Adam: you know, I
-
-[00:30:16] Adam: want to go back to one of the things I talked about in my TED talk this year was that I built a spaceship in my mom's closet when I was 10 years old, and how important that was in in the makeup of my play and how I created the realities that gave me succor as a lonely kid. And I'm here, and it feels like a culmination. You know, yeah, like this is the culmination of every kid playing in their closet and like sort of imagining other worlds and other realities.
+[00:30:15] Adam: So I, you know, I want to go back to one of the things I talked about in my TED talk this year was that I built a spaceship in my mom's closet when I was 10 years old, and how important that was in in the makeup of my play and how I created the realities that gave me succor as a lonely kid. And I'm here, and it feels like a culmination. You know, yeah, like this is the culmination of every kid playing in their closet and like sort of imagining other worlds and other realities.
 
 [00:30:47] Will: I want to go stand at the window with my arms on the armrests and and look out from the from the Buzz Buzz Aldrin side.
 

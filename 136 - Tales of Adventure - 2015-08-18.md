@@ -676,9 +676,7 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:29:20] Adam: He made this beautiful Snoopy cap. I'm so proud to have this in my collection. Yeah,
 
-[00:29:26] Will: it doesn't really fit over your other headphones, it turns out.
-
-[00:29:28] Will: You look a little derpy.
+[00:29:26] Will: it doesn't really fit over your other headphones, it turns out. You look a little derpy.
 
 [00:29:28] Adam: Derpy.
 
@@ -696,15 +694,11 @@ Episode URL: https://www.youtube.com/watch?v=ncZiLdsHVF8
 
 [00:30:44] Will: Right?
 
-[00:30:44] Adam: There's the Wright Brothers plane.
-
-[00:30:47] Adam: Holy shit!
+[00:30:44] Adam: There's the Wright Brothers plane. Holy shit!
 
 [00:30:47] Will: There's Chuck Yeager's Bell X-1. It's not the one from the Right Stuff. No, it's the one. Like, like. It's that stuff that's funny. I saw that as a kid. I understood what it was, but I didn't appreciate it. And I,
 
-[00:31:01] Adam: when you realize, you realize, that they're, yeah,
-
-[00:31:02] Adam: holding on to this heritage and keeping it. In one of my fantasies in my dotage, I'll be doing scale models for the Smithsonian.
+[00:31:01] Adam: when you realize, you realize, that they're, yeah, holding on to this heritage and keeping it. In one of my fantasies in my dotage, I'll be doing scale models for the Smithsonian.
 
 [00:31:10] Will: So this is the other thing that's amazing. So when I was a kid, I went to the Paul Garber facility, which was in Maryland. It's a. It was where they restored planes and spacecraft and artifacts before they put them on display in the museum. I don't know if that's still there. I assume it is. Now they're also doing restorations in a secondary hangar off of the spaceship hangar, and you could watch the people down there working. So there were people down there, yeah, like working on the planes. You could see all that stuff. It's incredible. It's like it was. It's it's it's so amazing to see that stuff working in and in process.
 

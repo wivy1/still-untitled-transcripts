@@ -78,9 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:04:59] Adam: Oh no, no, no, no,
 
-[00:05:01] Will: no, no, no!
-
-[00:05:01] Will: Don't make, don't make your, don't make Danica do that to you, Norm. It's a bad idea.
+[00:05:01] Will: no, no, no! Don't make, don't make your, don't make Danica do that to you, Norm. It's a bad idea.
 
 [00:05:05] Adam: No, because she'll enjoy messing you up. She's she she wants to learn
 
@@ -288,9 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:19:50] Adam: Well, I, let me get on with my story.
 
-[00:19:51] Will: Okay.
-
-[00:20:32] Will: Like, okay, just to be clear, from a from a, I'm not a doctor, not a medical professional. From first aid stuff that I've done over the years, that is the very, that is like 99% of people, I would say, yeah, you need to go to the doctor right now when you see that.
+[00:19:51] Will: Okay. Like, okay, just to be clear, from a from a, I'm not a doctor, not a medical professional. From first aid stuff that I've done over the years, that is the very, that is like 99% of people, I would say, yeah, you need to go to the doctor right now when you see that.
 
 [00:20:48] Adam: Oh no, no, that is so. In every injury in a shop, there is when you go to inspect the wound. The question you're asking isn't how bad is the wound. It's how much is this going to change my day, week, month. Right.
 
@@ -396,9 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:29:45] Adam: yeah. No, no, I'm not posting them. Um, I no,
 
-[00:29:48] Will: no, no. I mean, the people in chat in comments.
-
-[00:29:50] Will: Oh, they always do.
+[00:29:48] Will: no, no. I mean, the people in chat in comments. Oh, they always do.
 
 [00:29:50] Adam: Yeah. Thing one and thing two. Both the boys wanted to see pictures. My wife did not, although she did ask to take a look at it when I was redressing it, just to reassure herself, and it looks great.
 
@@ -566,9 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=Mwl-uXN-Gy4
 
 [00:42:32] Norm: Read some books. We should find some books to read. We should.
 
-[00:42:35] Adam: I can't read.
-
-[00:42:37] Adam: I can't read.
+[00:42:35] Adam: I can't read. I can't read.
 
 [00:42:38] Will: Why can't you?
 

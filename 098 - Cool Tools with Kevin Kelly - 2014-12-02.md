@@ -42,9 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:01:43] Adam: Wow.
 
-[00:01:47] Norm: The All Father of Trolls.
-
-[00:01:48] Norm: Wow.
+[00:01:47] Norm: The All Father of Trolls. Wow.
 
 [00:01:48] Kevin: Yes.
 
@@ -104,13 +102,9 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:06:59] Kevin: but I'm really big into renting tools. So you can rent, you know, a wet saw. You can rent a ditch witch. You can rent a hole auger. Just knowing that suddenly opens up all kinds of things that you didn't even think were possible before. And just seeing a a tool that oh yeah here's a tool that makes a small hole bigger. That's almost metaphorical. That's almost like profound.
 
-[00:06:59] Adam: Well, right.
+[00:06:59] Adam: Well, right. I like the ones that make the big hole smaller.
 
-[00:07:23] Adam: I like the ones that make the big hole smaller.
-
-[00:07:25] Will: Right. That's tricky.
-
-[00:07:25] Will: It's a little harder. I I mean I think so. I discovered that you could rent jackhammers and stuff like that when I was in college, and I had this house and it had concrete in places that I didn't want there to be concrete anymore. So I rented a jackhammer. It was both the best and one of the worst weekends of my life because I realized really quickly that A, jackhammering up concrete is unbelievably hard work. Yeah. And then B getting rid of the jackhammered up concrete is a much harder problem than jackhammering up the concrete. So I had to go rent a truck after I rented the jackhammer, and you know then it was hilarious.
+[00:07:25] Will: Right. That's tricky. It's a little harder. I I mean I think so. I discovered that you could rent jackhammers and stuff like that when I was in college, and I had this house and it had concrete in places that I didn't want there to be concrete anymore. So I rented a jackhammer. It was both the best and one of the worst weekends of my life because I realized really quickly that A, jackhammering up concrete is unbelievably hard work. Yeah. And then B getting rid of the jackhammered up concrete is a much harder problem than jackhammering up the concrete. So I had to go rent a truck after I rented the jackhammer, and you know then it was hilarious.
 
 [00:07:57] Adam: Yeah. Totally like that.
 
@@ -142,9 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:09:53] Adam: that's a hell of a thing to extrapolate.
 
-[00:09:53] Kevin: Yes, well,
-
-[00:09:56] Kevin: but and and and that's that set me on my course. It's like no, you can invent your life. You don't need to go to college. You don't need to work for corporation. There is this other parallel universe where you can make it up and do your own stuff. And I'm I'm hoping to some extent that that's part of this message of this book is that people will say, " Oh my gosh, I can I can hire people, I can hire freelancers to help me do anything I want on Elance. It's like it's amazing.
+[00:09:53] Kevin: Yes, well, but and and and that's that set me on my course. It's like no, you can invent your life. You don't need to go to college. You don't need to work for corporation. There is this other parallel universe where you can make it up and do your own stuff. And I'm I'm hoping to some extent that that's part of this message of this book is that people will say, " Oh my gosh, I can I can hire people, I can hire freelancers to help me do anything I want on Elance. It's like it's amazing.
 
 [00:10:28] Adam: Yeah, yeah.
 
@@ -180,9 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:11:31] Will: That's a year's worth of work, probably.
 
-[00:11:31] Kevin: Right,
-
-[00:11:33] Kevin: but for someone else in India or somebody, oh, this is this is this is a job.
+[00:11:31] Kevin: Right, but for someone else in India or somebody, oh, this is this is this is a job.
 
 [00:11:37] Will: Well, and they and they do it fast.
 
@@ -202,9 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:11:56] Will: Yeah, I know it's well. It's after Halloween, so that means it's time for Valentine's Day already.
 
-[00:11:56] Adam: I know. I
-
-[00:12:07] Adam: think I saw Chris. I think I've seen people dressed as Christmas trees on Halloween.
+[00:11:56] Adam: I know. I think I saw Chris. I think I've seen people dressed as Christmas trees on Halloween.
 
 [00:12:11] Will: Well, that might have been to Santacon, so I don't know.
 
@@ -212,9 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:12:15] Adam: Very efficient.
 
-[00:12:15] Norm: Yeah,
-
-[00:12:16] Norm: you take off the costume, put on the coat rack, and there's your tree.
+[00:12:15] Norm: Yeah, you take off the costume, put on the coat rack, and there's your tree.
 
 [00:12:18] Adam: It's a black Christmas tree, Black Friday, Black.
 
@@ -256,9 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:14:17] Will: Oh, so instead of squeezing, okay, I get it. So you’re squeezing in the back, you squeeze in the front.
 
-[00:14:19] Adam: I ran into trouble with one of those. I bought one of the first ones back in the '90s when it first came out. It was really awesome, and they're super powerful powerful enough that I was on a commercial shoot, and we were on a big sound stage with 20 foot ceilings and there were some helium balloons in the ceiling. And I found I could shoot the balloons out of the ceiling with the staple gun. So I thought this was a really cool trick, and there were some cute girls on set. So I was like, " Come here, check this out." And I held the staple gun up, and I fired, and nothing came out. And I couldn't figure out why. And then I realized it's because I had the staple gun backwards, and there was a staple up to its hilt in my pinky, really up to its hilt. And of course, because there's cute girls, I was like. Oh, okay. And I turned it around, and I shot the balloon out, and then I went around. I said, " I gotta go to the bathroom." And I went, oh.
-
-[00:15:04] Adam: I had a numb spot on the top of my pinky for like four years.
+[00:14:19] Adam: I ran into trouble with one of those. I bought one of the first ones back in the '90s when it first came out. It was really awesome, and they're super powerful powerful enough that I was on a commercial shoot, and we were on a big sound stage with 20 foot ceilings and there were some helium balloons in the ceiling. And I found I could shoot the balloons out of the ceiling with the staple gun. So I thought this was a really cool trick, and there were some cute girls on set. So I was like, " Come here, check this out." And I held the staple gun up, and I fired, and nothing came out. And I couldn't figure out why. And then I realized it's because I had the staple gun backwards, and there was a staple up to its hilt in my pinky, really up to its hilt. And of course, because there's cute girls, I was like. Oh, okay. And I turned it around, and I shot the balloon out, and then I went around. I said, " I gotta go to the bathroom." And I went, oh. I had a numb spot on the top of my pinky for like four years.
 
 [00:15:04] Kevin: Yeah,
 
@@ -432,9 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:24:34] Adam: I have dozens and dozens.
 
-[00:24:34] Kevin: Yeah,
-
-[00:24:35] Kevin: and then there's a version which you get in small size, which is magnetic.
+[00:24:34] Kevin: Yeah, and then there's a version which you get in small size, which is magnetic.
 
 [00:24:39] Will: Really?
 
@@ -476,9 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:26:47] Kevin: So if you are going to get a set of Allen wrenches, get a set of ball end.
 
-[00:26:47] Will: Yeah.
-
-[00:26:51] Will: Do you like the T top ones or do you have a preference?
+[00:26:47] Will: Yeah. Do you like the T top ones or do you have a preference?
 
 [00:26:53] Kevin: I have them both, but.
 
@@ -724,9 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:35:44] Will: One of the things my mom gave me when I bought a house was, I mean, she basically went out and bought a a box that was similar to that. It's not the same thing, but it's a vertical box with a bunch of trays. It's not the box isn't great. The thing that's in it is awesome. She went to the hardware store and went and got a bunch of sheetrock nails, sheetrock screws, you know, different size nails, and just assorted fastening hardware for everything from like hanging pictures to bolting things to other things, and even some great big lag bolts to hang stuff in the garage. And put it all in a box and said, " Look, this is this this isn't all going to be perfect for when you're going to need stuff, but but this is the stuff that we use the most at home and have for the last 20 years, and it was it is proven to be incredibly useful.
 
-[00:36:25] Kevin: Now that's a whole different challenge, which would be really cool.
-
-[00:36:27] Kevin: If you're going to give a 12 year old a box, what would you put in the sorting box?
+[00:36:25] Kevin: Now that's a whole different challenge, which would be really cool. If you're going to give a 12 year old a box, what would you put in the sorting box?
 
 [00:36:32] Adam: It's a fascinating. It's a wonderful exercise. Yeah, just thinking different types of people. The college student is definitely one. 12 year old, your mom.
 
@@ -756,9 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:37:42] Will: That I want to try that out.
 
-[00:37:43] Kevin: Yeah.
-
-[00:37:44] Kevin: Another one is cordless Dremel. We all know Dremels. Now that they're cordless, is like, why do why would you buy one that wasn't?
+[00:37:43] Kevin: Yeah. Another one is cordless Dremel. We all know Dremels. Now that they're cordless, is like, why do why would you buy one that wasn't?
 
 [00:37:52] Adam: I have I have a I have an issue with this one.
 
@@ -806,9 +782,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:39:32] Kevin: Yes,
 
-[00:39:32] Norm: oh, that's what we use. We
-
-[00:39:33] Norm: shatter car windows with the exact same thing.
+[00:39:32] Norm: oh, that's what we use. We shatter car windows with the exact same thing.
 
 [00:39:36] Adam: Um, I would be, I would love a recommendation for a never fail brand of those because I've been using those for 20 years, but I find that the springs wear out and that occasionally you'll they just they stop working. Okay, and I you know I've had that happen with with all of them that I've had over the years.
 
@@ -896,15 +870,11 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:44:06] Adam: This does not work.
 
-[00:44:06] Will: I
-
-[00:44:07] Will: can do that
+[00:44:06] Will: I can do that
 
 [00:44:07] Norm: no
 
-[00:44:08] Adam: it doesn't work for me.
-
-[00:44:09] Adam: well and also it's the what the six holes in a row
+[00:44:08] Adam: it doesn't work for me. well and also it's the what the six holes in a row
 
 [00:44:12] Kevin: yeah
 
@@ -1000,9 +970,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:46:45] Kevin: Beauty stores. Who knew?
 
-[00:46:45] Adam: Yep.
-
-[00:46:48] Adam: You can also buy Paris Hilton hair extensions.
+[00:46:45] Adam: Yep. You can also buy Paris Hilton hair extensions.
 
 [00:46:51] Will: Well, I know you've been using those for years. I liked it so much, I bought the company.
 
@@ -1036,9 +1004,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:47:52] Will: So my father always used to say that the easiest way to destroy a piece of farm equipment is to give a farmhand some vise grips.
 
-[00:47:58] Adam: Well, no, you're reminding me that there was this great great list that made its way around the web a couple years ago of tools and just to give you the example, they showed a crescent wrench and said this is great for softening the edges of a bolt, and then they showed vise grips.
-
-[00:48:13] Adam: This is perfect for making sure the bolt is useless because if you don't get it torqued enough, the vise grip can absolutely ruin your day.
+[00:47:58] Adam: Well, no, you're reminding me that there was this great great list that made its way around the web a couple years ago of tools and just to give you the example, they showed a crescent wrench and said this is great for softening the edges of a bolt, and then they showed vise grips. This is perfect for making sure the bolt is useless because if you don't get it torqued enough, the vise grip can absolutely ruin your day.
 
 [00:48:23] Will: I one time, one time we had a tractor that the steering wheel came off of, and yeah, my father just took the vise grips, clamped them onto the thing. It was like.
 
@@ -1046,9 +1012,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:48:37] Kevin: I think it's a perfectly valid use of of the tool.
 
-[00:48:41] Adam: Oh, there and neat. They make um, they make big ones. They make little tiny,
-
-[00:48:46] Adam: beautiful vise grips, needle nose vise grips. One of my favorite things.
+[00:48:41] Adam: Oh, there and neat. They make um, they make big ones. They make little tiny, beautiful vise grips, needle nose vise grips. One of my favorite things.
 
 [00:48:51] Will: You can round out anything with a pair needle nose vise grips.
 
@@ -1140,9 +1104,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:52:46] Adam: here. I'm just going to shine into my hand for a second.
 
-[00:52:46] Kevin: Oh my god.
-
-[00:52:50] Kevin: It's like a photo flash.
+[00:52:46] Kevin: Oh my god. It's like a photo flash.
 
 [00:52:52] Adam: Yeah, it is. Apparently, during the blackout in New York, they had some Google employees at blackened blacked out intersections using this to light for traffic, and this is genuinely a heat sink.
 
@@ -1180,9 +1142,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:53:45] Adam: They will find you, and they have a really good method for finding you.
 
-[00:53:45] Kevin: Yeah,
-
-[00:53:48] Kevin: yeah, yeah. Don't point at anything other than stars. Yeah. And I found the best source for these to be like in China and places because you can get 50 milliwatts instead of the legal five.
+[00:53:45] Kevin: Yeah, yeah, yeah. Don't point at anything other than stars. Yeah. And I found the best source for these to be like in China and places because you can get 50 milliwatts instead of the legal five.
 
 [00:54:02] Will: So 10x, 10x,
 
@@ -1236,9 +1196,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:56:08] Will: I should take that. No, I. Behind those plates.
 
-[00:56:13] Adam: I was most impressed when, no, these are hex hex. When the first Leatherman Wave came out, or maybe it was the Leatherman Charge, they put it together with five lobed Torx bits.
-
-[00:56:27] Adam: And when I went looking into it, I found out that it was the newest thing. It had a pin in the center, and it was called a pentalobe. And now they're all over Macs and everything, but back then you could only buy them if you were an OEM.
+[00:56:13] Adam: I was most impressed when, no, these are hex hex. When the first Leatherman Wave came out, or maybe it was the Leatherman Charge, they put it together with five lobed Torx bits. And when I went looking into it, I found out that it was the newest thing. It had a pin in the center, and it was called a pentalobe. And now they're all over Macs and everything, but back then you could only buy them if you were an OEM.
 
 [00:56:40] Kevin: Oh, really?
 
@@ -1264,9 +1222,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [00:57:36] Kevin: you can get those.
 
-[00:57:36] Will: Yeah,
-
-[00:57:40] Will: they're easy to get those now.
+[00:57:36] Will: Yeah, they're easy to get those now.
 
 [00:57:41] Adam: Yeah.
 
@@ -1388,9 +1344,7 @@ Episode URL: https://www.youtube.com/watch?v=RxII4cHg9pc
 
 [01:02:41] Will: All full circle.
 
-[01:02:43] Adam: We finally made it.
-
-[01:02:43] Adam: That's perfect.
+[01:02:43] Adam: We finally made it. That's perfect.
 
 [01:02:45] Will: Thank you so much for coming back, Kevin.
 

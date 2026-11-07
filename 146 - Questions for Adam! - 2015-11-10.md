@@ -24,9 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:01:26] Adam: Yeah, there's a whole thing going on. So I came across this thing recently, and I can't remember where it was. Whether it was off the Farallons or whether it was off of Guadalupe, but there was an orca attack on a great white.
 
-[00:01:41] Will: Oh, I saw
-
-[00:01:41] Will: this
+[00:01:41] Will: Oh, I saw this
 
 [00:01:41] Adam: and one of the great whites nearby was tagged, so they got to see its reaction to one of its compadres getting attacked by an orca. 
 
@@ -44,9 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:02:26] Norm: Wow. So let's keep them in a zoo and then use for more amusement.
 
-[00:02:26] Adam: Don't get me started on that crap.
-
-[00:02:29] Adam: But one of the great whites that was nearby that was tagged immediate immediately upon the attack, this great white that wasn't being attacked dropped to 70 meters and swam to Hawaii.
+[00:02:26] Adam: Don't get me started on that crap. But one of the great whites that was nearby that was tagged immediate immediately upon the attack, this great white that wasn't being attacked dropped to 70 meters and swam to Hawaii.
 
 [00:02:44] Will: Wait, what?
 
@@ -134,9 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:05:21] Adam: and it's coming in for a landing.
 
-[00:05:22] Norm: Yeah, right.
-
-[00:05:23] Norm: And it's two of them, and it's not like when they're about to land; they're clearly miles above the city.
+[00:05:22] Norm: Yeah, right. And it's two of them, and it's not like when they're about to land; they're clearly miles above the city.
 
 [00:05:29] Adam: So they must have jumped out of a
 
@@ -226,9 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:07:47] Norm: But.
 
-[00:07:47] Will: Incredibles
-
-[00:07:50] Will: is really good.
+[00:07:47] Will: Incredibles is really good.
 
 [00:07:51] Adam: Did you? Did you? Have you guys noticed my Ryan Nagata gloves here?
 
@@ -288,9 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:10:46] Adam: Yeah, it's I, I, I. There weren't any gloves when I was in, uh, when I was in Huntsville.
 
-[00:10:52] Will: Right.
-
-[00:10:53] Will: Just to be clear, it wasn't a flown space glove
+[00:10:52] Will: Right. Just to be clear, it wasn't a flown space glove
 
 [00:10:55] Adam: Oh, that's fine
 
@@ -346,13 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:13:57] Will: One of the things we always found on tested is that people respond best to the stuff that is the most real.
 
-[00:14:02] Adam: Yeah, right.
-
-[00:14:03] Adam: Absolutely. Um, and you know, it's difficult for it's difficult for, uh, it's difficult for an editor, uh, in another building to know what's genuine to me on the ground, and vice versa. Um, so you know, on MythBusters, there is always a lot of discussion between the producers who are writing the episodes back in Sydney, Australia, my co-executive producer Dan in Manchester, and on the ground in San Francisco. Um, what I like to imagine is what I what I hope is that as a producer, uh, I will be able because I love the whole process of the production of production, to really bridge that gap between what's going on on camera and how that's actually applying to the story that's being told. I know it's the most broad,
-
-[00:14:52] Adam: general,
-
-[00:14:52] Adam: possible answer, but
+[00:14:02] Adam: Yeah, right. Absolutely. Um, and you know, it's difficult for it's difficult for, uh, it's difficult for an editor, uh, in another building to know what's genuine to me on the ground, and vice versa. Um, so you know, on MythBusters, there is always a lot of discussion between the producers who are writing the episodes back in Sydney, Australia, my co-executive producer Dan in Manchester, and on the ground in San Francisco. Um, what I like to imagine is what I what I hope is that as a producer, uh, I will be able because I love the whole process of the production of production, to really bridge that gap between what's going on on camera and how that's actually applying to the story that's being told. I know it's the most broad, general, possible answer, but
 
 [00:14:54] Will: so you're saying you want to be involved.
 
@@ -520,9 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:27:39] Adam: Uh, and that also changes depending on the result we got. We might, you know,
 
-[00:27:46] Will: because you don't know what's going to happen. Most, I mean, you have a good idea.
-
-[00:27:49] Will: probably.
+[00:27:46] Will: because you don't know what's going to happen. Most, I mean, you have a good idea. probably.
 
 [00:27:49] Adam: so so you know sometimes, uh, there'll be a question as to well what happens if everything works beautifully?
 
@@ -534,9 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=H-JRANrWelM
 
 [00:28:04] Adam: But I I don't want to pad and do a dumb experiment just to make sure that we're covered. Um and pretty much almost every time something goes wrong anyway and there's this wonderful double edged sword where something goes wrong and we're like damn it something's gone wrong but it's like oh but it went wrong in a really cool way so now I know we're home we're home free today and sometimes that happens at eleven in the morning but sometimes it doesn't happen until three p.m. and like we've had days where we show up to do something and it worked perfectly on the first try and we're like oh. Crap! We we now don't have enough footage for the third act of the show.
 
-[00:28:38] Will: Yeah,
-
-[00:28:38] Will: you can't you can't do a a 36 minute episode of a 43 minute show. It turns out
+[00:28:38] Will: Yeah, you can't you can't do a a 36 minute episode of a 43 minute show. It turns out
 
 [00:28:42] Adam: exactly. Um, but that's rare. I mean, because we're covering everything as it's happening, it's really rare that we finish a day without enough.
 

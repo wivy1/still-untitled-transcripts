@@ -40,9 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:00:34] Norm: oh my god!
 
-[00:00:35] Adam: It was great.
-
-[00:00:36] Adam: It was 106 in Washington D.C.
+[00:00:35] Adam: It was great. It was 106 in Washington D.C.
 
 [00:00:38] Norm: and humid. I bet.
 
@@ -142,9 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:05:46] Adam: yeah, which is Okay. Okay. So. You know the Steinhart Aquarium has an incredible collection of specimens, over I think 1.5 million specimens going back to 1850.
 
-[00:06:01] Norm: That’s at
-
-[00:06:01] Norm: The California Academy of Sciences in San Francisco.
+[00:06:01] Norm: That’s at The California Academy of Sciences in San Francisco.
 
 [00:06:03] Adam: Yep, and that makes it, I think, the third largest collection of fish specimens in the world after the Museum of Natural History’s in New York and London for fish alone. The Museum of Natural History at the Smithsonian, somewhere around 140 million objects.
 
@@ -158,15 +154,11 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:06:50] Adam: or arrowheads or nails from a ship that got dug up. Yeah. Um, I I will say, uh, in getting to meet the Neil Armstrong suit before the museum opened. So the Neil Armstrong suit was revealed on Thursday, I believe, last week. Uh, and the public's appetite for seeing it was incredible. There was a line out the door every single day. Usually, like an hour to two hour wait to to get in to see it. I got to see it before the museum opened, so I decided to put on Ryan Nagata's spacesuit to see it. Yes. And the best part was, is that Ryan is good friends with Lisa Young, and she's every bit as enthusiastic and dedicated as you would hope her to be. And when she saw me wearing Ryan's suit, she was like, " Oh, come over here! I want to see it. I haven't seen Ryan's work up close." It was like that kind of wonderful collaborative relationship. Um, I wore Anthony Kovacs's checklist pocket on my leg and Tom Sachs's Mars Yard Moon boots.
 
-[00:07:45] Will: You could tell the sneakerheads in the in the in the Twitter replies on that thread. Oh, really? Right? Because they're like, " Those are moon. Those are those are Mars Yard Moon boots. "
-
-[00:07:52] Will: It's very good.
+[00:07:45] Will: You could tell the sneakerheads in the in the in the Twitter replies on that thread. Oh, really? Right? Because they're like, " Those are moon. Those are those are Mars Yard Moon boots. " It's very good.
 
 [00:07:54] Adam: I got. I wore Tom's Tom's regular Mars Yard shoes the whole week, and the two times people noticed it was like young men on the street, like, " Hey, man, nice sneaks."
 
-[00:08:05] Will: One of the things from the build was I heard somebody on on like in the crowd on mic going, " Hey, those are Tom Sachs' Mars Yards."
-
-[00:08:13] Will: It's it's it was it seemed like an incredible like just just how like how do you celebrate one of humanity's greatest achievements? Well, or if not humanity's greatest achievement,
+[00:08:05] Will: One of the things from the build was I heard somebody on on like in the crowd on mic going, " Hey, those are Tom Sachs' Mars Yards." It's it's it was it seemed like an incredible like just just how like how do you celebrate one of humanity's greatest achievements? Well, or if not humanity's greatest achievement,
 
 [00:08:23] Adam: and this was this was the Smithsonian was the one doing it right. This in conjunction with NASA, but it was the Smithsonian's party. They took over the whole mall. They had space themes exhibits across the mall all week. On Friday, I host helped host a NASA TV one hour program, which aired on the Science Channel as well about about all aspects of the 50th anniversary.
 
@@ -222,9 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:11:27] Will: Yeah, yeah.
 
-[00:11:28] Adam: I mean, it's a big, [unclear: not only / ∅] building.
-
-[00:11:28] Adam: What's that?
+[00:11:28] Adam: I mean, it's a big, [unclear: not only / ∅] building. What's that?
 
 [00:11:28] Will: It's it's it's wide. It's wide, but it's really it's wide, but it's also way longer than it is wide.
 
@@ -298,9 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:17:05] Norm: Egress. It was. It was. Thursday.
 
-[00:17:07] Adam: Was it Friday or Thursday? That was Thursday.
-
-[00:17:09] Adam: We did Project Egress. We assembled with a good team of some tested favorites: Kayte Sabicer, Sophie Wong, Mel Mel Ho, Jen Schachter, and Andrew Barth. All of us on stage assembling the 45 pieces of the command module hatch, and it was exactly the calico exquisite corpse construction that we were hoping it would be.
+[00:17:07] Adam: Was it Friday or Thursday? That was Thursday. We did Project Egress. We assembled with a good team of some tested favorites: Kayte Sabicer, Sophie Wong, Mel Mel Ho, Jen Schachter, and Andrew Barth. All of us on stage assembling the 45 pieces of the command module hatch, and it was exactly the calico exquisite corpse construction that we were hoping it would be.
 
 [00:17:34] Will: It was fascinating. Like I was sitting and watching.
 
@@ -370,11 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:22:48] Will: The end result was absolutely lovely. I
 
-[00:22:51] Adam: and it's out on the floor of the Smithsonian now.
-
-[00:22:53] Adam: It's out there in
-
-[00:22:54] Adam: one of the main yeah, one in in the main gallery.
+[00:22:51] Adam: and it's out on the floor of the Smithsonian now. It's out there in one of the main yeah, one in in the main gallery.
 
 [00:22:56] Will: That's so cool.
 
@@ -430,9 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:24:24] Adam: Exactly.
 
-[00:24:25] Will: Yeah, tickets available now.
-
-[00:24:27] Will: They’re not really available. Sorry.
+[00:24:25] Will: Yeah, tickets available now. They’re not really available. Sorry.
 
 [00:24:28] Adam: What okay? What else happened this? Oh right! So then on Saturday night, I hosted the the actual 50th anniversary celebration, coinciding with Neil Armstrong stepping onto the moon 50 years to the minute.
 
@@ -506,9 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:29:14] Norm: Once in a lifetime.
 
-[00:29:14] Adam: Yeah, right. Yeah, truly. Yeah.
-
-[00:29:17] Adam: Norm, how was Comic Con?
+[00:29:14] Adam: Yeah, right. Yeah, truly. Yeah. Norm, how was Comic Con?
 
 [00:29:20] Norm: Did you have time for this? Oh my gosh! I'll give you the the cliff notes. We were there for two days, repping for Tested.
 
@@ -602,9 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:32:33] Norm: they're out. I saw yesterday. I will give my thumbs up recommendation.
 
-[00:32:44] Adam: Really
-
-[00:32:44] Adam: excellent, excellent.
+[00:32:44] Adam: Really excellent, excellent.
 
 [00:32:45] Norm: Please, both you go watch yesterday. And there’s a movie that it's I think a limited release, but it's getting rave reviews. It's Awkwafina's new movie, The Farewell. I think it’s played at Kabuki. It's based on the New York New Yorker story about this this family and how they don't tell the grandmother, the matriarch of the family, that she's gonna die.
 
@@ -612,13 +590,9 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:33:06] Unknown speaker: 100%.
 
-[00:33:06] Adam: They just have a family.
+[00:33:06] Adam: They just have a family. They have a fake wedding to bring everyone.
 
-[00:33:07] Adam: They have a fake wedding to bring everyone.
-
-[00:33:09] Norm: They bring everyone together as a way to say farewell
-
-[00:33:13] Norm: without letting her in on.
+[00:33:09] Norm: They bring everyone together as a way to say farewell without letting her in on.
 
 [00:33:14] Adam: That's beautiful.
 
@@ -664,9 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:35:22] Norm: I mean, one of my favorite things. We got a little preview of it. The things that really from my childhood from the NASA Ames collection were these commissions of what would be like for humans to live on like ring worlds and space stations.
 
-[00:35:22] Adam: Yeah,
-
-[00:35:34] Adam: the paintings.
+[00:35:22] Adam: Yeah, the paintings.
 
 [00:35:35] Norm: Those exactly the paintings of the cross sections of what would farms like be if they were on these rings around planets. Yeah, those these are massive. The originals are there, and getting up close to see that that painted detail is just
 
@@ -690,9 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:36:21] Will: I think
 
-[00:36:22] Adam: that's a good place. There's so much
-
-[00:36:23] Adam: we could
+[00:36:22] Adam: that's a good place. There's so much we could
 
 [00:36:24] Unknown speaker: go on for hours and
 
@@ -760,9 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:39:27] Norm: and the song at the end.
 
-[00:39:27] Adam: Yeah,
-
-[00:39:29] Adam: yeah, it was really, really moving. So yeah, I watched that just before going out to do a bunch of coverage about it.
+[00:39:27] Adam: Yeah, yeah, it was really, really moving. So yeah, I watched that just before going out to do a bunch of coverage about it.
 
 [00:39:33] Will: Perfect way to do it.
 
@@ -778,6 +746,4 @@ Episode URL: https://www.youtube.com/watch?v=1h1RGi6UdxQ
 
 [00:39:41] Will: All right, Back to Earth.
 
-[00:39:42] Adam: back to earth. Thanks, guys.
-
-[00:39:43] Adam: Bye.
+[00:39:42] Adam: back to earth. Thanks, guys. Bye.

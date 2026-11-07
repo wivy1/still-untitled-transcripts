@@ -38,9 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:01:25] Will: It's. It does that. It's funny. I've noticed I've been a little deader lately.
 
-[00:01:29] Adam: Yeah.
-
-[00:01:30] Adam: My jokes aren't landing. I'm gonna need to take some cetirizine.
+[00:01:29] Adam: Yeah. My jokes aren't landing. I'm gonna need to take some cetirizine.
 
 [00:01:33] Will: Oh wait, this is Comic Con. Still,
 
@@ -192,9 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:08:48] Will: I know, I was just like, hey, he's like, are you okay? You were in there for a long time. I was like, I got an earplug,
 
-[00:08:54] Adam: and he was probably like, oh,
-
-[00:08:55] Adam: you put the earplug in too far. Yeah, that's problem 17.
+[00:08:54] Adam: and he was probably like, oh, you put the earplug in too far. Yeah, that's problem 17.
 
 [00:08:57] Will: Yeah, we, yeah. So he's like, one of the one of the girl, one of the waiter waitresses that probably has tweezers. We'll we'll just stay here.
 
@@ -314,11 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:14:39] Chris Hadfield: That's right.
 
-[00:14:40] Will: It's both your is it your first Comic Con and your first Comic Con in costume?
-
-[00:14:43] Will: Well,
-
-[00:14:44] Will: I got the you got the cracking voice there.
+[00:14:40] Will: It's both your is it your first Comic Con and your first Comic Con in costume? Well, I got the you got the cracking voice there.
 
 [00:14:46] Chris Hadfield: In fact, it's the other order. That's right. Yeah, yeah,
 
@@ -378,9 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=44jHz28kTzI
 
 [00:18:53] Will: It's it's the mesh shirt with the tubes running through it.
 
-[00:18:55] Chris Hadfield: Yeah, yeah, we wear them when we're training underwater. But those ones they're connected to an umbilical, so there's a big chiller outside that's pumping cold water around your body the whole time you're in there. And it's weird if you get a little hot, you say, could you turn down my suit? You just announce it to the world. Could someone please turn my temperature down?
-
-[00:19:13] Chris Hadfield: And you and you get a little cooler. It's kind of weird. But then on the space walking suit outside the space shuttle or the space station. There's a dial on your chest. The printing on it is backwards because you have to be able to read it in the mirror on your wrist, and it just chooses how much of that cooling water is going to go through the flash evaporator and how much is just going to keep recirculating around your bodies. It works works pretty well.
+[00:18:55] Chris Hadfield: Yeah, yeah, we wear them when we're training underwater. But those ones they're connected to an umbilical, so there's a big chiller outside that's pumping cold water around your body the whole time you're in there. And it's weird if you get a little hot, you say, could you turn down my suit? You just announce it to the world. Could someone please turn my temperature down? And you and you get a little cooler. It's kind of weird. But then on the space walking suit outside the space shuttle or the space station. There's a dial on your chest. The printing on it is backwards because you have to be able to read it in the mirror on your wrist, and it just chooses how much of that cooling water is going to go through the flash evaporator and how much is just going to keep recirculating around your bodies. It works works pretty well.
 
 [00:19:35] Adam: I I was I did a test in my house a couple of weeks ago.
 

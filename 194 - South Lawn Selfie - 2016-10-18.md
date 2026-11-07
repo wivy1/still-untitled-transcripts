@@ -348,9 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:18:47] Will: Um. And and so they were talking about how to get virtual reality and how to get you know home CNC type devices and how to build a a makerspace. In in one case. We we were talking about how to use a space that was about four feet by six feet. I think it was
 
-[00:19:01] Adam: right,
-
-[00:19:02] Adam: right,
+[00:19:01] Adam: right, right,
 
 [00:19:02] Will: A ti- a big closet.
 
@@ -460,9 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:22:20] Adam: Sure,
 
-[00:22:20] Will: and it's right under the it's in the same
-
-[00:22:23] Will: one World Trade one one World Trade Center, and it is the most gorgeous piece of modern architecture that I have ever seen in person.
+[00:22:20] Will: and it's right under the it's in the same one World Trade one one World Trade Center, and it is the most gorgeous piece of modern architecture that I have ever seen in person.
 
 [00:22:32] Norm: What? How big is it?
 
@@ -476,9 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:22:39] Will: It's deep. It's it's four stories deep in the ground as the floor when you walk in. So you so when you walk up to it outside, it looks like a whale skeleton, right? It's like it's like this. It's like this, um. These these, uh, arch spars that cross and then. Extend beyond the crossing point, and there's glass in between them, and it it just it literally looks like a like a giant skeleton of this of this building, and those go down into the ground. So you walk into a relatively small number of doors upstairs, because I think the idea is that most of the people who visit this this facility are coming in on one train and leaving on another train, probably never see the sun except for through the skylights and floor area, and the big central concourse area is a two story like shopping mall, of course, because it's America, but it's it's the spars all the way down, and there's glass, and when you stand on the floor, it it it simultaneously feels like a set from a science fiction movie, and like you're the smallest part of this incredible machine, like it's it's it's really it's a fascinating experience. You you when you walk in off the street, it's you, you're on a platform where you have this view of the entire thing. You can see all the people walking down below, but they're so far away that they look tiny.
 
-[00:23:51] Norm: Oh my gosh!
-
-[00:23:52] Norm: So does the Vegas thing where everything seems close. But it takes a long time to get to one end to another.
+[00:23:51] Norm: Oh my gosh! So does the Vegas thing where everything seems close. But it takes a long time to get to one end to another.
 
 [00:23:58] Will: It actually isn't that big, though. I think it take it took the like the walking path is a little bit long to get down because I intentionally I think they want to keep the tourists from going down onto the main floor.
 
@@ -508,11 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:24:40] Norm: Oh my god, that's massive!
 
-[00:24:41] Will: Right? It was. It was. My guess is that if you stand up on that ledge at morning rush hour and you watch the path trains come in, you'll see a surge of people, and they'll get onto the train, the subway station, because the path is on one end of the Oculus, and the subway station is on the other end, so they have to walk
-
-[00:24:55] Will: Right.
-
-[00:24:41] Will: through this big open area.
+[00:24:41] Will: Right? It was. It was. My guess is that if you stand up on that ledge at morning rush hour and you watch the path trains come in, you'll see a surge of people, and they'll get onto the train, the subway station, because the path is on one end of the Oculus, and the subway station is on the other end, so they have to walk Right. through this big open area.
 
 [00:24:56] Adam: Oh god, it sounds amazing!
 
@@ -656,9 +646,7 @@ Episode URL: https://www.youtube.com/watch?v=F0gwCt2YBbk
 
 [00:29:41] Will: Okay,
 
-[00:29:41] Norm: good policy.
-
-[00:29:41] Norm: Yeah. Okay, special lots of special things.
+[00:29:41] Norm: good policy. Yeah. Okay, special lots of special things.
 
 [00:29:44] Will: Okay, see you guys next week.
 

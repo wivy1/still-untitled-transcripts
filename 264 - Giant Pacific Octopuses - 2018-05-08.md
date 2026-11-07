@@ -90,11 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:02:16] Adam: I put it in a helmet up there on the set. I mean, we're not filming yet. We're in pre production, but it's definitely a key part of the set.
 
-[00:02:22] Norm: That's
-
-[00:02:22] Norm: awesome.
-
-[00:02:22] Norm: so those two suits and your interest in things like Gemini and even Shuttle not as much, but now.
+[00:02:22] Norm: That's awesome. so those two suits and your interest in things like Gemini and even Shuttle not as much, but now.
 
 [00:02:30] Adam: But now I'm like, like I said, I never know where the inspiration is going to come. But now that I've obtained Gemini suit there that's behind us, and I I bought that. It's probably off camera, but there's a NASA EMU over there that I've been working on. It actually came from NASA, not not a real suit, but it was built for NASA's education department back in the late '80s, from the best I can determine. And I've been accuratising it and altering it and having a lot of [unclear: fun].
 
@@ -204,9 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:07:55] Will: Look, look.
 
-[00:07:55] Norm: I might even be wrong. I might be 16 inches.
-
-[00:08:02] Norm: I had not a lot of sleep these past couple of days.
+[00:07:55] Norm: I might even be wrong. I might be 16 inches. I had not a lot of sleep these past couple of days.
 
 [00:08:05] Adam: I hear dozens of, I hear dozens of tested listeners yelling at their, at their device.
 
@@ -238,9 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:08:40] Adam: It's the length of your car. Yes, if you have a relatively short car.
 
-[00:08:40] Norm: Yes.
-
-[00:08:44] Norm: So that was out of a military base.
+[00:08:40] Norm: Yes. So that was out of a military base.
 
 [00:08:47] Adam: You were down there to see you. This is a launch.
 
@@ -432,9 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:14:14] Adam: That is awesome.
 
-[00:14:16] Norm: Yeah,
-
-[00:14:16] Norm: it was first first big rocket launch of any kind, and while you know everyone there, it's it's funny because they tell you the weather officer on the on the military base says we have a 20% chance of visibility,
+[00:14:16] Norm: Yeah, it was first first big rocket launch of any kind, and while you know everyone there, it's it's funny because they tell you the weather officer on the on the military base says we have a 20% chance of visibility,
 
 [00:14:16] Unknown speaker (Adam or Will): Mm-hmm.
 
@@ -484,13 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:16:37] Will: steam steam. He does
 
-[00:16:37] Adam: no no
-
-[00:16:39] Adam: he does no he does real rockets.
-
-[00:16:39] Adam: Okay.
-
-[00:16:39] Adam: The engines they're electrically powered, liquid oxygen pumped engines, and they're 3D printed in a day.
+[00:16:37] Adam: no no he does no he does real rockets. Okay. The engines they're electrically powered, liquid oxygen pumped engines, and they're 3D printed in a day.
 
 [00:16:51] Will: Oh wow!
 
@@ -554,9 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:18:57] Adam: She really likes her work.
 
-[00:18:58] Will: She likes murdering.
-
-[00:18:58] Will: for fun.
+[00:18:58] Will: She likes murdering. for fun.
 
 [00:18:59] Adam: She really she takes her job. So I consider her a serial killer in my head. The actress that plays that character is. Kind of mind-blowingly great.
 
@@ -660,9 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:23:12] Will: Amazon has a lot has a lot of movies right now that are very similar to mainstream big budget releases that maybe have one or two letters different in the title. They have a lot of good TV. Amazon.
 
-[00:23:25] Adam: [unclear speaker: Will or Adam carry] Do
-
-[00:23:25] Adam: they have the Turkish Star Wars movie?
+[00:23:25] Adam: [unclear speaker: Will or Adam carry] Do they have the Turkish Star Wars movie?
 
 [00:23:26] Will: No, I wish I would pay money for that. They do have a thing called Minuscule, which I hadn't seen. It's an animated kids movie. They did real world backgrounds and then did CGI bugs, and I think Richard Dreyfuss did the voices for the bugs, but they're not. They're just making squeaky noises. They're not. They're not making. There's no dialogue in the movie that I've seen.
 
@@ -692,9 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:24:10] Norm: Roll with it.
 
-[00:24:10] Will: Okay.
-
-[00:24:10] Will: No, it's it's the movie's really charming and the animation's amazing,
+[00:24:10] Will: Okay. No, it's it's the movie's really charming and the animation's amazing,
 
 [00:24:14] Adam: and it's called
 
@@ -728,9 +706,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:24:50] Will: Or the time you went to the UK and made a suit of armor. Yeah, I mean, but it was really cool that we got to go to Portland a couple of times. We tested when I was here. Thanks, guys.
 
-[00:25:00] Adam: You got to go take David David Chang to the worst
-
-[00:25:00] Adam: taco.
+[00:25:00] Adam: You got to go take David David Chang to the worst taco.
 
 [00:25:03] Will: to the worst restaurant he'd ever been to. Yeah, he liked the decor though. So yeah, I'll put that in the Yelp review.
 
@@ -774,9 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:27:20] Will: No, that sounds dirty.
 
-[00:27:22] Adam: Four or five giant Pacific octopuses at this point, and there, there, it's never not a remarkable experience. And I, I, I was reading this fascinating book as part of this called " Other Minds" about octopus cognition because, just as a point of example, if you take a a human and a bird, we have a common branch on the evolutionary tree. Well, our branch with the octopus is like another 150 million years or 200 million years
-
-[00:27:55] Adam: earlier than ours with birds, but cognition rose separately through these two branches.
+[00:27:22] Adam: Four or five giant Pacific octopuses at this point, and there, there, it's never not a remarkable experience. And I, I, I was reading this fascinating book as part of this called " Other Minds" about octopus cognition because, just as a point of example, if you take a a human and a bird, we have a common branch on the evolutionary tree. Well, our branch with the octopus is like another 150 million years or 200 million years earlier than ours with birds, but cognition rose separately through these two branches.
 
 [00:27:55] Will: Hmm.
 
@@ -868,9 +842,7 @@ Episode URL: https://www.youtube.com/watch?v=wM0RGtBSxp0
 
 [00:31:33] Norm: so Saturday and Sunday we're gonna be there. Adam's gonna be there on Sunday.
 
-[00:31:36] Adam: I'll be there on
-
-[00:31:36] Adam: Sunday.
+[00:31:36] Adam: I'll be there on Sunday.
 
 [00:31:37] Will: I'll be there all three days.
 

@@ -156,11 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:06:08] Adam: All right,
 
-[00:06:08] Will: but I went for breakfast on one morning. I can't remember Friday maybe. I went to a place called a Little Goat Diner with a friend, and it is by Stephanie Izard, I think, who was on Top Chef, like one of the early seasons.
-
-[00:06:26] Will: of
-
-[00:06:26] Will: Top Chef was the winner, and I had for breakfast a thing that had a biscuit. Um. Then on top of the biscuit was a slice of pork belly. Top of the pork belly was a poached egg, and then there was some kimchi and like a kale salad. And then there was this sauce, and it has a name, but I don't remember the name. That was like pureed salt cod and potatoes.
+[00:06:08] Will: but I went for breakfast on one morning. I can't remember Friday maybe. I went to a place called a Little Goat Diner with a friend, and it is by Stephanie Izard, I think, who was on Top Chef, like one of the early seasons. of Top Chef was the winner, and I had for breakfast a thing that had a biscuit. Um. Then on top of the biscuit was a slice of pork belly. Top of the pork belly was a poached egg, and then there was some kimchi and like a kale salad. And then there was this sauce, and it has a name, but I don't remember the name. That was like pureed salt cod and potatoes.
 
 [00:06:43] Adam: Wow.
 
@@ -224,9 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:09:16] Adam: might be a Lincoln, but you know.
 
-[00:09:18] Will: Okay.
-
-[00:09:19] Will: Well, no, it wouldn't have been a Lincoln.
+[00:09:18] Will: Okay. Well, no, it wouldn't have been a Lincoln.
 
 [00:09:20] Adam: [unclear: Yeah, yeah. Comments. / So I wish, I wish we’d show up in the comments.]
 
@@ -528,9 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:22:42] Adam: I'm going to have to spend a good portion of this week earning my earning my rest back. Oh, yeah, I'm feeling it too. I'm I'm feeling it. I'm feeling it.
 
-[00:22:50] Will: High points for for Austin meals,
-
-[00:22:53] Will: because it is like we had some of the best barbecue. We had fancy barbecue one night that was among the the the nicest. I can't remember the name of the place now.
+[00:22:50] Will: High points for for Austin meals, because it is like we had some of the best barbecue. We had fancy barbecue one night that was among the the the nicest. I can't remember the name of the place now.
 
 [00:23:03] Norm: It was really good.
 
@@ -610,9 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=yf7t2QaXaio
 
 [00:25:57] Will: yeah. So anyway,
 
-[00:25:58] Adam: yeah, that's that's
-
-[00:26:00] Adam: that is also true.
+[00:25:58] Adam: yeah, that's that's that is also true.
 
 [00:26:01] Will: Uh.
 

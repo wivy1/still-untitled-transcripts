@@ -92,9 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:03:03] Adam: Um. You know, Tarantino in the extra materials in the DVD, which is really worth watching, says. He wanted to make. He wanted to write a movie in which it felt like you were hanging out with the main characters. And I will say, having watched Jackie Brown four or five times over the years, it gets better every time I watch it. Ordell. Ordell.
 
-[00:03:23] Will: Ordell.
-
-[00:03:23] Will: Yeah.  Same.
+[00:03:23] Will: Ordell. Yeah.  Same.
 
 [00:03:25] Adam: Ordell. Sam Jackson's character is a terrifying villain who seems like a parody of himself, but Tarantino lets you know right away that this guy is a just a bad man. But you also are drawn to him because he's very charismatic and he's very smart. And there's this point where it's there's like a quadruple cross going on in this film.
 
@@ -212,9 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:09:43] Will: And so, use do you do use the family sharing stuff that they put in iOS 8? So if if you add your find my iPhone, no, no, you don't have to do any of that. If you do if you do families, then you can go to details on the text page, and it just shows you where your where your people are.
 
-[00:09:56] Adam: Okay, I'll have to take a look at that.
-
-[00:09:59] Adam: that's I did not know that
+[00:09:56] Adam: Okay, I'll have to take a look at that. that's I did not know that
 
 [00:10:00] Will: It's super super useful. It basically means that you no longer have to send. I mean. My wife and I have a very open relationship. We don't. We share our information.
 
@@ -242,9 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:10:53] Will: Well, you you are like Norm and I get a little tiny taste of this, especially if we go to cons and stuff like that where we're more recognizable. But but like it seems like the neighborhood that you live in is very Kind of generally accommodating, like oh yeah, yeah. People are just—it's just like you're part of the background fixture of the neighborhood now,
 
-[00:11:11] Adam: and I am, and people are really chill, and that's that—that's fine in this neighborhood. Look, I'm a fanboy myself, you know, and I—I almost and I've told this story too, but I—I remember almost every time I'm meeting someone to whom I'm very important, and they're telling me about it. Is I remember meeting Peter Gabriel when I was like 24, and there are he was so crazy important to me. I remember every second of like the 98 seconds we were talking, and you know I bought all of his albums, and that was that was that was an important interaction to me, and I'm interested in making the interaction good with a fan.
-
-[00:11:54] Adam: The thing I I want them they they I enjoy a very nice life because of the fans, and I this is the least I can do is is be nice. So there is sometimes an unspoken. Desire from the person you're meeting to achieve in the fastest way possible some kind of deep connection, and that becomes difficult to manage sometimes because it's not necessarily going to happen. But at the same time, you know, I really appreciate that the that the show we made has resonance, and it had resonance for for you. And you want to tell me about that. I definitely, I I really, really, genuinely appreciate hearing about that.
+[00:11:11] Adam: and I am, and people are really chill, and that's that—that's fine in this neighborhood. Look, I'm a fanboy myself, you know, and I—I almost and I've told this story too, but I—I remember almost every time I'm meeting someone to whom I'm very important, and they're telling me about it. Is I remember meeting Peter Gabriel when I was like 24, and there are he was so crazy important to me. I remember every second of like the 98 seconds we were talking, and you know I bought all of his albums, and that was that was that was an important interaction to me, and I'm interested in making the interaction good with a fan. The thing I I want them they they I enjoy a very nice life because of the fans, and I this is the least I can do is is be nice. So there is sometimes an unspoken. Desire from the person you're meeting to achieve in the fastest way possible some kind of deep connection, and that becomes difficult to manage sometimes because it's not necessarily going to happen. But at the same time, you know, I really appreciate that the that the show we made has resonance, and it had resonance for for you. And you want to tell me about that. I definitely, I I really, really, genuinely appreciate hearing about that.
 
 [00:12:33] Will: The the thing that I love well, two things you said a long time ago, I think on the podcast even about meeting somebody that you were really excited to meet, and then you started talking, and you realized that they were also equally excited to meet you, and all awkwardness melted away.
 
@@ -422,9 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:20:19] Adam: Thanks. I think is the response to that.
 
-[00:20:21] Will: Yeah, yeah. So he gave me he gave me the look, and then I was like, and then I think I said, " I have a podcast." And and he looked at me. He was like, " Well, I would next time I'm in San Francisco, send me a note to this address, and we'd love to." And I was, and I, I never did. So,
-
-[00:20:36] Will: this is that thing you can't back out.
+[00:20:21] Will: Yeah, yeah. So he gave me he gave me the look, and then I was like, and then I think I said, " I have a podcast." And and he looked at me. He was like, " Well, I would next time I'm in San Francisco, send me a note to this address, and we'd love to." And I was, and I, I never did. So, this is that thing you can't back out.
 
 [00:20:37] Adam: We were going to have Scalzi on here, but I screwed up the schedule.
 
@@ -494,9 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:22:03] Will: It's not that much cheaper.
 
-[00:22:05] Adam: Yeah, but you'd be closer to Wave."
-
-[00:22:05] Adam: Hi, Wave.
+[00:22:05] Adam: Yeah, but you'd be closer to Wave." Hi, Wave.
 
 [00:22:08] Will: Not a bad thing.
 
@@ -552,9 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:24:12] Will: Your, your, your Durac— Copper Top.
 
-[00:24:14] Adam: Yeah,
-
-[00:24:16] Adam: don't want to go to the Blade Runner world.
+[00:24:14] Adam: Yeah, don't want to go to the Blade Runner world.
 
 [00:24:18] Will: No,
 
@@ -612,9 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:25:32] Adam: Yeah, Linda Cardellini is actually a genius, and two years ago she lost the Emmy for guest slot in a TV series, and I thought that was a crying shame.
 
-[00:25:42] Will: Yeah.
-
-[00:25:42] Will: Oh, she was wonderful.
+[00:25:42] Will: Yeah. Oh, she was wonderful.
 
 [00:25:43] Adam: I think the acting that she did in Mad Men was actually some of the best acting on television that year. She not, I mean, her characterization was wonderful, but also her characterization of not only the person she was playing, but of the time. I think she was one of the most period actors on the show that season, and just in the way she moved, felt like it was 30, 40, 50 years old.
 
@@ -716,11 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=gld37FWDGP4
 
 [00:30:39] Will: We just fast forwarded. Yeah, we're watching it in the office.
 
-[00:30:41] Adam: So I happen to know some people who work on Billy Joel's touring crew, and we got tickets, and then we got backstage, and we just had we had a Billy Joel fantasy camp night on Saturday night. So we met up with my new friend Drew, who's a good friend of one of my road crew, and Drew took took us backstage, gave us just the really e-ticket tour. We got to meet Billy. I said, " You know, your music video was my was my first acting job, so you kind of started this." And he's like, " I've been watching your show." You know, and I'm like, " Oh, cool!" He's like, " That's some fun shit you do." And he says, " Is it true you were in one of my videos?" I was like, "
-
-[00:31:22] Adam: Yeah,
-
-[00:31:22] Adam: I was in You're Only Human." And he goes, " Ah, wait, were you the kid on the bridge?" And I'm like, " No, I'm the kid who drowns." And he goes, " Ah, yeah, it's terrible video." And I said, " Yes, it was." He goes, " I hated making those things." And I said, " I said, well, you were very nice. I drowned out there at Far Rockaway, and it was like November, and I got hypothermia. And you let me warm up in your trailer, and you gave me a cigarette. And he was like, 'Ah, corrupting youth.' We took a picture. I took a picture with him and the boys. They were beside themselves. Oh man! And then we got to watch the opening act turned out to be another musician I'm a huge fan of, Gavin DeGraw.
+[00:30:41] Adam: So I happen to know some people who work on Billy Joel's touring crew, and we got tickets, and then we got backstage, and we just had we had a Billy Joel fantasy camp night on Saturday night. So we met up with my new friend Drew, who's a good friend of one of my road crew, and Drew took took us backstage, gave us just the really e-ticket tour. We got to meet Billy. I said, " You know, your music video was my was my first acting job, so you kind of started this." And he's like, " I've been watching your show." You know, and I'm like, " Oh, cool!" He's like, " That's some fun shit you do." And he says, " Is it true you were in one of my videos?" I was like, " Yeah, I was in You're Only Human." And he goes, " Ah, wait, were you the kid on the bridge?" And I'm like, " No, I'm the kid who drowns." And he goes, " Ah, yeah, it's terrible video." And I said, " Yes, it was." He goes, " I hated making those things." And I said, " I said, well, you were very nice. I drowned out there at Far Rockaway, and it was like November, and I got hypothermia. And you let me warm up in your trailer, and you gave me a cigarette. And he was like, 'Ah, corrupting youth.' We took a picture. I took a picture with him and the boys. They were beside themselves. Oh man! And then we got to watch the opening act turned out to be another musician I'm a huge fan of, Gavin DeGraw.
 
 [00:32:03] Will: Oh, really?
 

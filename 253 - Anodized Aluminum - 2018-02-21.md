@@ -36,9 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:01:01] Will: It's. Look, there was a. I saw a little tiny bit of frost in my backyard this morning. Well,
 
-[00:01:04] Adam: you're down there, so
-
-[00:01:06] Adam: yeah,
+[00:01:04] Adam: you're down there, so yeah,
 
 [00:01:06] Will: it's colder even. I saw one of my friends in Chicago posted a picture of like 6 inches or 12 inches of snow on top of her car this morning.
 
@@ -98,9 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:03:22] Adam: In order to get a really like a deep blue that when it scratches doesn't start to look like something else.
 
-[00:03:22] Norm: Yeah.
-
-[00:03:35] Norm: So, what is the original connector part made of?
+[00:03:22] Norm: Yeah. So, what is the original connector part made of?
 
 [00:03:35] Adam: The real one?
 
@@ -176,9 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:08:21] Adam: You know, I lost a lot of time double and triple checking everything. Yeah. This is where just basic experience helps you run the disasters off at the pass. Where I was really nervous about running into disasters.
 
-[00:08:36] Will: So this one, this one's still not functional, right?
-
-[00:08:38] Will: This is just.
+[00:08:36] Will: So this one, this one's still not functional, right? This is just.
 
 [00:08:38] Adam: these don't function as actual couplers. So no, these these these parts aren't mechanically attached. I just JB welded them into there, and then these screws that are on the side are accurate, but they don't do anything on this one. The O ring also doesn't do anything. Yeah. But I have found some anodized auto industry racing connectors that look very similar to the blue anodized Apollo connectors.
 
@@ -252,9 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:11:00] Norm: like a new cassette tape player that's going to you know bring back analog or something. Like the things that people typically share are sometimes too. Too good to be true. Many, many times
 
-[00:11:10] Will: it turns out in this country we might have a problem with people and their understanding of media and their their critical analysis of media.
-
-[00:11:17] Will: Who knew?
+[00:11:10] Will: it turns out in this country we might have a problem with people and their understanding of media and their their critical analysis of media. Who knew?
 
 [00:11:17] Norm: Who knew? I was my immediate reaction was to be a little dismissive, but we looked it up and it turns out this guy Josh, he's local, which and then piqued our interest again in Emeryville. He is a product designer, industrial designer, and designed his own single person boat, a motorized boat,
 
@@ -344,9 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:15:00] Adam: And they're laser cutting these tiny little slits.
 
-[00:15:00] Will: First, wow.
-
-[00:15:03] Will: then they putty that up when it's done. Wow!
+[00:15:00] Will: First, wow. then they putty that up when it's done. Wow!
 
 [00:15:03] Norm: Yeah.
 
@@ -390,13 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:15:42] Will: You know, I'm going to tell you, spoilers aren't going to detract from your enjoyment of that film. So, you know, if you want, we can just drop everything right now.
 
-[00:15:48] Adam: Nope don't want to hear any. I haven't even seen a trailer for it.
-
-[00:15:48] Adam: Wow,
-
-[00:15:48] Adam: I’ve been, this is one
-
-[00:15:51] Adam: of the first times I've been that good.
+[00:15:48] Adam: Nope don't want to hear any. I haven't even seen a trailer for it. Wow, I’ve been, this is one of the first times I've been that good.
 
 [00:15:53] Norm: Did you see? You saw Civil War, though.
 
@@ -430,9 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:16:45] Norm: It delivers the promise of that scene.
 
-[00:16:47] Adam: yeah, but what I
-
-[00:16:49] Adam: What I wanted to point out was that I found a there was a story that that was making the rounds yesterday of Michael B. Jordan going to a sneaker shop in L. A. And going sneaker shopping as
+[00:16:47] Adam: yeah, but what I What I wanted to point out was that I found a there was a story that that was making the rounds yesterday of Michael B. Jordan going to a sneaker shop in L. A. And going sneaker shopping as
 
 [00:16:49] Norm: New York.
 
@@ -460,9 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:17:33] Norm: person. I was going to raffle or go through the space camp.
 
-[00:17:33] Will: Yes,
-
-[00:17:38] Will: yes, yes, yes.
+[00:17:33] Will: Yes, yes, yes, yes.
 
 [00:17:39] Adam: Yeah, I got a kick out of that.
 
@@ -478,9 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:17:54] Norm: It's just Queer Eye because it can be for anyone.
 
-[00:17:57] Will: Oh.
-
-[00:17:57] Will: is it still the same premise though? Like like people with good taste come in and and fashion you up.
+[00:17:57] Will: Oh. is it still the same premise though? Like like people with good taste come in and and fashion you up.
 
 [00:18:02] Adam: It is yes, it is that and the Fab Five, as they call themselves, are an excellent new mix of a large swath of of diverse talents and specialties and personalities, and they're great. I've watched episodes one, two, and three. Episode three involves a Trump voting cop.
 
@@ -516,11 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:20:05] Adam: To illustrate a point, but they are not just talking about the look; they're talking about the life, they're talking about the health, they're talking about the food, and they're talking about the rut, and they get into some really genuinely sophisticated psychological stuff. And the stuff they get to with each of these people is really impressive.
 
-[00:20:26] Will: Do they actually have a psychologist or or psychiatrist this go round?
-
-[00:20:26] Will: They don't.
-
-[00:20:26] Will: Like that was the thing I watched very much of the first the first pass. But my my feeling on a lot of those shows where they get where they're breaking people down and then building them back up again because that's essentially what this what the first one was at least.
+[00:20:26] Will: Do they actually have a psychologist or or psychiatrist this go round? They don't. Like that was the thing I watched very much of the first the first pass. But my my feeling on a lot of those shows where they get where they're breaking people down and then building them back up again because that's essentially what this what the first one was at least.
 
 [00:20:41] Adam: This is a little less breaking. Well, they also begin the very first episode saying, " Last time it was about tolerance. This time it's about acceptance." And that is actually a really lovely, like, flag in the ground of clearly what was their producing rubric, yeah, and about where it really goes. And it's when we. When they say acceptance, what they really mean is self acceptance. Of course, what these people are looking for is a way to kind of get out of a rut that has shielded them from the world or pushed away part of the world that they would like to bring to them. But really, that's what most of the discussions are about: about self acceptance and realizing. And
 
@@ -568,9 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:22:39] Adam: Am I allowed to say that?
 
-[00:22:39] Will: Yeah, I don't know. I don't know what the rules are in that.
-
-[00:22:39] Will: But you don’t need to look. You’re the special here.
+[00:22:39] Will: Yeah, I don't know. I don't know what the rules are in that. But you don’t need to look. You’re the special here.
 
 [00:22:48] Norm: Yeah,
 
@@ -606,11 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:23:50] Adam: light up.
 
-[00:23:51] Will: I like it.
-
-[00:23:51] Will: for audio, we'll just play a buzzing sound when spoilers are on. It's just like. The whole time,
-
-[00:23:57] Will: underneath the talking, yeah, that's good, that's great. Yeah,
+[00:23:51] Will: I like it. for audio, we'll just play a buzzing sound when spoilers are on. It's just like. The whole time, underneath the talking, yeah, that's good, that's great. Yeah,
 
 [00:24:01] Norm: four channel audio. Yeah,
 
@@ -624,9 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:24:26] Norm: Oh my gosh! I do also want to reiterate my affection for the show, The Marvelous Miss Maisel. Misses Maisel.
 
-[00:24:26] Adam: Oh,
-
-[00:24:32] Adam: the comedian, the '50s comedian.
+[00:24:26] Adam: Oh, the comedian, the '50s comedian.
 
 [00:24:34] Norm: Yes, it is. It's '50s, not like Mad Men at all.
 
@@ -678,9 +644,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:26:33] Adam: Wow!
 
-[00:26:33] Will: So I've been delving into the whole world of podcasts.
-
-[00:26:44] Will: that are for kids.
+[00:26:33] Will: So I've been delving into the whole world of podcasts. that are for kids.
 
 [00:26:44] Adam: Did you make her listen to S-Town?
 
@@ -692,9 +656,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:26:55] Norm: Spoiler alert!
 
-[00:26:56] Adam: That's that's that's not a spoiler.
-
-[00:26:58] Adam: I was and that's I'm quoting a line from S-Town.
+[00:26:56] Adam: That's that's that's not a spoiler. I was and that's I'm quoting a line from S-Town.
 
 [00:27:02] Will: Oh my god. Um, yeah. So after S Town, Science Friday does a kids show that's really good. I don't remember the name of it. Um, but the thing that she really hooked onto is like a episodic, serialized show that's done by WHYY, which is where where Fresh Air, Terry Gross, and like that
 
@@ -746,9 +708,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:28:20] Adam: Amazing, yeah. I can't wait to jump in. I am still reading the Silk Roads, a new book about the history of the world through the Silk Roads, which is a completely riveting. I just finished Mary Beard's SPQR, kind of an overall history of Rome from about 600 BC to 200 AD.
 
-[00:28:20] Will: Okay,
-
-[00:28:38] Will: so so like the time when the Roman Empire was the was the prime force in the world,
+[00:28:20] Will: Okay, so so like the time when the Roman Empire was the was the prime force in the world,
 
 [00:28:38] Adam: right?
 
@@ -772,9 +732,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:30:11] Adam: Yeah. Really, really. And recommendable.
 
-[00:30:14] Norm: Awesome. Oh, this week on Netflix, Duncan Jones' new film got picked up by Netflix.
-
-[00:30:14] Norm: Ooh,
+[00:30:14] Norm: Awesome. Oh, this week on Netflix, Duncan Jones' new film got picked up by Netflix. Ooh,
 
 [00:30:19] Will: really?
 
@@ -782,19 +740,11 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:30:20] Will: What's it called? That's on Netflix.
 
-[00:30:22] Adam: Mute.
-
-[00:30:22] Adam: Oh.
-
-[00:30:22] Adam: Yeah.
-
-[00:30:22] Adam: Is this in the same world as
+[00:30:22] Adam: Mute. Oh. Yeah. Is this in the same world as
 
 [00:30:26] Norm: Moon? Could be. We don't know.
 
-[00:30:28] Will: Wait, are all of his films in the same world?
-
-[00:30:28] Will: Yeah,
+[00:30:28] Will: Wait, are all of his films in the same world? Yeah,
 
 [00:30:30] Norm: I know. Warcraft.
 
@@ -864,11 +814,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:31:45] Will: Is it the the thing where he's dangling?
 
-[00:31:47] Norm: No, it's a jumping scene, and he hits the wall with his foot.
-
-[00:31:47] Norm: Wow.
-
-[00:31:47] Norm: From one building to another.
+[00:31:47] Norm: No, it's a jumping scene, and he hits the wall with his foot. Wow. From one building to another.
 
 [00:31:47] Unknown speaker (Adam or Norm): Wow!
 
@@ -894,9 +840,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:32:28] Norm: Smiles. So many smiles everywhere, and we have our last few videos from Aardman Animation.
 
-[00:32:28] Adam: Yay!
-
-[00:32:36] Adam: So much fun to go there.
+[00:32:28] Adam: Yay! So much fun to go there.
 
 [00:32:38] Norm: Please check those out, and I guess that's it.
 
@@ -914,9 +858,7 @@ Episode URL: https://www.youtube.com/watch?v=BYoEbHezjCc
 
 [00:33:32] Adam: right?
 
-[00:33:32] Will: Right?
-
-[00:33:32] Will: We want to sell enough copies of this game that we can keep doing this, and that this is the we don't have to go get straight jobs someplace else.
+[00:33:32] Will: Right? We want to sell enough copies of this game that we can keep doing this, and that this is the we don't have to go get straight jobs someplace else.
 
 [00:33:55] Norm: Six months—that is a good length of project time to wrap it up and not get lost in it, and still feel a sense of accomplishment. Completely arbitrary.
 

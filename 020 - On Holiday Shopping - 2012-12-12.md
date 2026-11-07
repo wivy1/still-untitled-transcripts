@@ -132,9 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:03:21] Norm: Avenue.
 
-[00:03:22] Will: Street.
-
-[00:03:23] Will: Yeah. Avenue.
+[00:03:22] Will: Street. Yeah. Avenue.
 
 [00:03:24] Adam: I've been here 22 years, and I know, I'm not sure. Um, is a store called Dandelion, and it's been there for decades.
 
@@ -228,9 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:06:27] Norm: Lorne Peterson's book.
 
-[00:06:28] Adam: My friend Lorne Peterson. I am in it.
-
-[00:06:29] Adam: Oh.
+[00:06:28] Adam: My friend Lorne Peterson. I am in it. Oh.
 
 [00:06:30] Norm: Yeah.
 
@@ -350,9 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDRfFlGrGwQ
 
 [00:10:38] Will: Yeah, you, like you, you went through and dug through the box to find it, just because the box wasn't at Hallmark doesn't mean your effort was worth, was not worthwhile.
 
-[00:10:45] Norm: I bought it three years ago for you.
-
-[00:10:46] Norm: Right.
+[00:10:45] Norm: I bought it three years ago for you. Right.
 
 [00:10:46] Will: Yes.
 

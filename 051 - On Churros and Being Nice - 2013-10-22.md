@@ -4,9 +4,7 @@
 **Duration:** 32m 36s  
 Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
-[00:00:00] Will: Eat the churros.
-
-[00:00:21] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
+[00:00:00] Will: Eat the churros. Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
 [00:00:24] Adam: I am Adam,
 
@@ -28,9 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:00:46] Adam: aside from the fact that it's slightly penis-shaped,
 
-[00:00:50] Will: whoa!
-
-[00:00:51] Will: I never noticed, but thanks.
+[00:00:50] Will: whoa! I never noticed, but thanks.
 
 [00:00:51] Norm: Churros are weird.
 
@@ -244,9 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:07:09] Adam: and it was a fake article.
 
-[00:07:09] Norm: Right.
-
-[00:07:17] Norm: And they and they, uh. They put two sets of comments in front of the subjects. One very pro, one very anti.
+[00:07:09] Norm: Right. And they and they, uh. They put two sets of comments in front of the subjects. One very pro, one very anti.
 
 [00:07:17] Adam: Right.
 
@@ -306,9 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:09:38] Norm: isn't that a manpower issue? If you start, if you have the policy that you are going to moderate, then you have you have to do it for everything.
 
-[00:09:44] Adam: So that's fine.
-
-[00:09:45] Adam: And I do think that's fine. And now I will give the counterpoint, which is the the my particular favorite home of balanced debate on the web, and I've said this before on this podcast is MetaFilter.
+[00:09:44] Adam: So that's fine. And I do think that's fine. And now I will give the counterpoint, which is the the my particular favorite home of balanced debate on the web, and I've said this before on this podcast is MetaFilter.
 
 [00:09:54] Will: I'm going to bleep this one too.
 
@@ -396,9 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:13:58] Norm: Oh, the car is a wonderful thing.
 
-[00:13:59] Adam: Right, and the car is an insulator. It's
-
-[00:14:01] Adam: a shell that you're in.
+[00:13:59] Adam: Right, and the car is an insulator. It's a shell that you're in.
 
 [00:14:02] Will: See, I try not to do it in the car because it makes it
 
@@ -500,9 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:18:51] Norm: people vetting again, it could be the mobs.
 
-[00:18:53] Adam: Totally could. It absolutely could. But Reddit,
-
-[00:18:57] Adam: while a very diverse community, the largest portion of the time seems to be properly vetted, as far as I've determined. I haven't done that kind of experiment.
+[00:18:53] Adam: Totally could. It absolutely could. But Reddit, while a very diverse community, the largest portion of the time seems to be properly vetted, as far as I've determined. I haven't done that kind of experiment.
 
 [00:19:05] Norm: That's because people have a stake in that.
 
@@ -608,9 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:23:51] Adam: I totally think it is. I think that I take personal umbrage at a network of people attempting to deny science.
 
-[00:24:00] Norm: well, yes, the the
-
-[00:24:02] Norm: that type of gaming. system.
+[00:24:00] Norm: well, yes, the the that type of gaming. system.
 
 [00:24:02] Adam: I think that is absolutely—gaming the system is absolutely something that is worth getting worked up over because yeah, it's worth getting worked over.
 
@@ -670,13 +656,9 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:27:17] Will: We have as much time as it's the internet.
 
-[00:27:18] Adam: Okay.
+[00:27:18] Adam: Okay. This is the other place where actually we've been discussing it from a civility standpoint, and you know, we might as well be standing in the library of the club with some cigars, because yes, being white men. Ish, we have every advantage.
 
-[00:27:19] Adam: This is the other place where actually we've been discussing it from a civility standpoint, and you know, we might as well be standing in the library of the club with some cigars, because yes, being white men. Ish, we have every advantage.
-
-[00:27:33] Will: Just men, at least men.
-
-[00:27:35] Will: Sorry, Norm.
+[00:27:33] Will: Just men, at least men. Sorry, Norm.
 
 [00:27:36] Adam: Sorry, we have what what my female friends go through on the web, uh, is something that I cannot understand. I mean, literally, I it is that is my privilege as as as a dude.
 
@@ -694,9 +676,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:28:35] Will: Well, it's it's the it's the thing when I when Google came out and said, " Hey, if you want to participate in YouTube comments, we would encourage you to attach your real name to it with your Google Plus profile." I don't like Google Plus very much. I don't use it very often. I think that that is a wonderful thing because I feel like when people have their actual name attached to something, then they behave a little bit differently.
 
-[00:28:54] Adam: Absolutely. Well,
-
-[00:28:54] Adam: this is one of the things I really liked about Twitter at the very beginning, and still do, is that because when I get very few super negative comments or even abusive comments on Twitter,
+[00:28:54] Adam: Absolutely. Well, this is one of the things I really liked about Twitter at the very beginning, and still do, is that because when I get very few super negative comments or even abusive comments on Twitter,
 
 [00:29:04] Will: and just to be clear, always welcome constructive criticism.
 
@@ -780,9 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=-PUN4kjq8RQ
 
 [00:32:01] Will: Um, we'll see you guys next time.
 
-[00:32:02] Adam: Bye, guys.
-
-[00:32:17] Adam: I say the hell with those places. By the way, let me just explain what every real chef in San Francisco knows: is that the only excellent, truly over-the-top burrito in San Francisco.
+[00:32:02] Adam: Bye, guys. I say the hell with those places. By the way, let me just explain what every real chef in San Francisco knows: is that the only excellent, truly over-the-top burrito in San Francisco.
 
 [00:32:28] Will: Hold on, I'm gonna have to bleep all this out because I don't want anybody to know.
 

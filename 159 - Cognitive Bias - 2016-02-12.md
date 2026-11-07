@@ -542,13 +542,9 @@ Episode URL: https://www.youtube.com/watch?v=psbNIyxgRQQ
 
 [00:21:12] Adam: Thanks, guys.
 
-[00:21:12] Will: Bye.
+[00:21:12] Will: Bye. You have the prima fartney.
 
-[00:21:19] Will: You have the prima fartney.
-
-[00:21:22] Norm: Mmm.
-
-[00:21:23] Norm: You have a fart nay?
+[00:21:22] Norm: Mmm. You have a fart nay?
 
 [00:21:24] Will: yeah, it's you know it’s like braveheart.
 

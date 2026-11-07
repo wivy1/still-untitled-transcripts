@@ -32,11 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:00:41] Adam: Ladies, if you've been listening, you don't know that we have a guest. But if you're watching, you can see our guest today is Joe DeRisi. Joe, welcome.
 
-[00:00:47] Joe: Hey.
-
-[00:00:47] Joe: How's it going?
-
-[00:00:47] Joe: Thanks for having me here.
+[00:00:47] Joe: Hey. How's it going? Thanks for having me here.
 
 [00:00:48] Adam: Very, very nice to have you here. Now, you and I met a few years ago because our kids both went to Synergy.
 
@@ -96,9 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:05:00] Unknown (Adam or Will): Yeah.
 
-[00:05:00] Joe: Well, first of all, how many times you get a letter in the mail?
-
-[00:05:02] Joe: I don't get letters anymore.
+[00:05:00] Joe: Well, first of all, how many times you get a letter in the mail? I don't get letters anymore.
 
 [00:05:03] Unknown (Adam or Will): A useful letter in the mail.
 
@@ -108,21 +102,15 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:05:32] Adam: IBD.
 
-[00:05:34] Joe: And I thought, okay, that's weird. I'm going to put it back in the envelope. But you know, that envelope stayed on my desk for a while, and then eventually, I opened the envelope back up. I called a veterinarian. Have you ever heard of like, you know, IBD? Is that inflammatory bowel disease of a reptile? I mean, that's weird.
-
-[00:05:49] Joe: Don't they eat just like once a year?
+[00:05:34] Joe: And I thought, okay, that's weird. I'm going to put it back in the envelope. But you know, that envelope stayed on my desk for a while, and then eventually, I opened the envelope back up. I called a veterinarian. Have you ever heard of like, you know, IBD? Is that inflammatory bowel disease of a reptile? I mean, that's weird. Don't they eat just like once a year?
 
 [00:05:49] Unknown (Adam or Will): Yeah.
 
-[00:05:49] Joe: I mean, and he said, no, it's a real thing. They there's a disease that spread from snake to snake. It makes them crazy.
-
-[00:05:59] Joe: And I said, what does crazy in a boa look like?
+[00:05:49] Joe: I mean, and he said, no, it's a real thing. They there's a disease that spread from snake to snake. It makes them crazy. And I said, what does crazy in a boa look like?
 
 [00:05:59] Unknown (Adam or Will): Yeah.
 
-[00:05:59] Joe: It turns out that they do this thing called stargazing, where they they they point their heads at the sky and
-
-[00:06:07] Joe: they wave gently back and forth
+[00:05:59] Joe: It turns out that they do this thing called stargazing, where they they they point their heads at the sky and they wave gently back and forth
 
 [00:06:07] Adam: Wow.
 
@@ -172,13 +160,9 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:07:05] Joe: that’s going to get you all kinds of—
 
-[00:07:05] Will: we don't want any IBD videos.
+[00:07:05] Will: we don't want any IBD videos. No.
 
-[00:07:06] Will: No.
-
-[00:07:07] Joe: That's going to get
-
-[00:07:07] Joe: you things that you probably don’t want to see.
+[00:07:07] Joe: That's going to get you things that you probably don’t want to see.
 
 [00:07:08] Unknown (Adam or Will): No, no, no. It’s like searching Snow White and seven dwarves with the safe search off.
 
@@ -206,9 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:08:12] Adam: Oh, there you go.
 
-[00:08:14] Joe: Because you know,
-
-[00:08:15] Joe: They eventually take them to the vet,
+[00:08:14] Joe: Because you know, They eventually take them to the vet,
 
 [00:08:15] Unknown (Joe or Will): Okay.
 
@@ -276,9 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:11:10] Adam: So when you're when you're crunching the sequencing,
 
-[00:11:13] Joe: Yeah.
-
-[00:11:13] Joe: How do you find out what's in there?
+[00:11:13] Joe: Yeah. How do you find out what's in there?
 
 [00:11:14] Adam: What marker do you look for to tell you it's a new organism?
 
@@ -324,9 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:12:58] Unknown (Adam or Joe): And the virus is still gonna stand out.
 
-[00:12:58] Joe: The match is a bit
-
-[00:12:59] Joe: fuzzy, yeah, because the virus shouldn't be in any genome; should have nothing in there.
+[00:12:58] Joe: The match is a bit fuzzy, yeah, because the virus shouldn't be in any genome; should have nothing in there.
 
 [00:13:03] Adam: Okay.
 
@@ -342,11 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:13:34] Adam: Okay.
 
-[00:13:35] Joe: Unless it's bad.
-
-[00:13:37] Joe: So. Yeah,
-
-[00:13:37] Joe: it's and we
+[00:13:35] Joe: Unless it's bad. So. Yeah, it's and we
 
 [00:13:38] Adam: [at the brain is fairly / the moment at the brain is very—wording uncertain].
 
@@ -430,9 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:16:24] Will: Pretty sure.
 
-[00:16:25] Joe: Yeah. Absolutely, you can recover the virus from a bat. That's never been true for Ebola virus.
-
-[00:16:31] Joe: Ebola virus from humans has never been isolated from a bat, even though everybody assumes it's a bat.
+[00:16:25] Joe: Yeah. Absolutely, you can recover the virus from a bat. That's never been true for Ebola virus. Ebola virus from humans has never been isolated from a bat, even though everybody assumes it's a bat.
 
 [00:16:36] Adam: So we don't know where we don't know what the carrier is necessarily.
 
@@ -518,9 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:20:18] Will: I mean, this is this is a yeah. How would you do it? We usually use something alive, right? So you get a live live matter
 
-[00:20:24] Joe: Let’s assume we’re at UCSF
-
-[00:20:25] Joe: and you cannot bring live boas into the facility.
+[00:20:24] Joe: Let’s assume we’re at UCSF and you cannot bring live boas into the facility.
 
 [00:20:28] Will: Oh, is that frowned upon?
 
@@ -586,13 +556,9 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:22:46] Will: I like—do you have to hit the CSF?
 
-[00:22:47] Joe: Not hypodermically.
+[00:22:47] Joe: Not hypodermically. Probably hasn’t come up on this podcast.
 
-[00:22:49] Joe: Probably hasn’t come up on this podcast.
-
-[00:22:51] Adam: No, No, this is absolutely the first time. Yeah,
-
-[00:22:52] Adam: we've been doing this for five years,
+[00:22:51] Adam: No, No, this is absolutely the first time. Yeah, we've been doing this for five years,
 
 [00:22:54] Will: Six, almost.
 
@@ -632,13 +598,9 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:23:48] Joe: They have giant, enormous numbers of teeth. They have four rows of teeth on the top.
 
-[00:23:52] Will: Yeah,
+[00:23:52] Will: Yeah, they're all designed to take whatever goes in and keep that from coming back out.
 
-[00:23:52] Will: they're all designed to take whatever goes in and keep that from coming back out.
-
-[00:23:55] Adam: Yeah,
-
-[00:23:55] Adam: it's a one-way road
+[00:23:55] Adam: Yeah, it's a one-way road
 
 [00:23:56] Will: Yeah, it’s a one-way path. The
 
@@ -768,11 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:27:37] Will: no, it's okay.
 
-[00:27:37] Adam: Aren't those both military call sign letters?
-
-[00:27:40] Adam: No, Kilo.
-
-[00:27:40] Adam: Juliet, Kilo.
+[00:27:37] Adam: Aren't those both military call sign letters? No, Kilo. Juliet, Kilo.
 
 [00:27:40] Will: No, Kilo. It's not Kidney. It's
 
@@ -820,15 +778,11 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:29:18] Will: Okay.
 
-[00:29:18] Joe: It doesn't need any changes whatsoever to infect a snake cell. And the fact that it doesn't kill the snake cell, which we call in the business cytopathic effect, there is no cytopathic effect, suggests that hey, look, if you were looking for reservoirs, it's going to be an animal that doesn't die from Ebola or get sick from it. Right.
-
-[00:29:36] Joe: Hmm.
+[00:29:18] Joe: It doesn't need any changes whatsoever to infect a snake cell. And the fact that it doesn't kill the snake cell, which we call in the business cytopathic effect, there is no cytopathic effect, suggests that hey, look, if you were looking for reservoirs, it's going to be an animal that doesn't die from Ebola or get sick from it. Right. Hmm.
 
 [00:29:37] Adam: Hmm.
 
-[00:29:38] Joe: Hmm.
-
-[00:29:38] Joe: All right. So then, the next crazy experiment idea was okay. Well, that worked. No, so this is the wacky proposal. So I said, " All right, USAMRIID friends, what would it take for you to actually infect a live python in the BSL four
+[00:29:38] Joe: Hmm. All right. So then, the next crazy experiment idea was okay. Well, that worked. No, so this is the wacky proposal. So I said, " All right, USAMRIID friends, what would it take for you to actually infect a live python in the BSL four
 
 [00:29:58] Will: With with with a real wild type?
 
@@ -888,9 +842,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:31:26] Will: Yeah, yeah.
 
-[00:31:26] Joe: And you have to get the sort of chain, you know, chainmail
-
-[00:31:31] Joe: gloves to go over your regular gloves. You are already in a spacesuit in there,
+[00:31:26] Joe: And you have to get the sort of chain, you know, chainmail gloves to go over your regular gloves. You are already in a spacesuit in there,
 
 [00:31:34] Adam: right?
 
@@ -924,9 +876,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:32:09] Will: Snakes in a BSL-4.
 
-[00:32:11] Joe: Who else has done that?
-
-[00:32:11] Joe: That was cool.
+[00:32:11] Joe: Who else has done that? That was cool.
 
 [00:32:12] Will: So Sam Jackson is the hero. He's the main scientist.
 
@@ -940,9 +890,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:32:26] Will: 40 years, Adam? That's way too long. Have you been paying attention?
 
-[00:32:29] Joe: Well, start to finish, it's more like
-
-[00:32:33] Joe: six years.
+[00:32:29] Joe: Well, start to finish, it's more like six years.
 
 [00:32:33] Unknown (Adam or Will): Okay.
 
@@ -972,9 +920,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:33:42] Joe: Like if you wanted to create a brand new hemorrhagic fever virus and do it from you know the raw materials, you don't have to have like a bioengineering lab. Just a snake breeding farm
 
-[00:33:51] Will: 10,000 snakes
-
-[00:33:53] Will: sounds really great.
+[00:33:51] Will: 10,000 snakes sounds really great.
 
 [00:33:55] Adam: Hey, so if you're a tested listener and you have snake breeding farm, stop it. I'm just gonna go on and say cut that shit out
 
@@ -1038,9 +984,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:36:05] Will: That's a pretty good size snake.
 
-[00:36:06] Joe: Yeah,
-
-[00:36:06] Joe: they get bigger, a lot bigger. Python's get even larger.
+[00:36:06] Joe: Yeah, they get bigger, a lot bigger. Python's get even larger.
 
 [00:36:10] Will: Yeah,
 
@@ -1114,9 +1058,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:41:54] Adam: They still haven’t isolated it.
 
-[00:41:55] Joe: Oh, wow.
-
-[00:41:56] Joe: Water, soil, no idea. She lives in Chinatown, an apartment. She didn't garden. She didn't go swimming. She didn't. Where did she get this?
+[00:41:55] Joe: Oh, wow. Water, soil, no idea. She lives in Chinatown, an apartment. She didn't garden. She didn't go swimming. She didn't. Where did she get this?
 
 [00:42:02] Will: A neti pot.
 
@@ -1130,9 +1072,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:42:13] Adam: Use water from a water fountain.
 
-[00:42:14] Joe: Oh, good.
-
-[00:42:16] Joe: Just your days are numbered.
+[00:42:14] Joe: Oh, good. Just your days are numbered.
 
 [00:42:16] Will: You have really good puddles here in the mission. They're all clean.
 
@@ -1168,9 +1108,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:43:05] Will: It's like perfectly bad luck on both sides of the of the.
 
-[00:43:09] Joe: Yeah.
-
-[00:43:09] Joe: How much more that 50% of unknown encephalitis though could be things like That they just don't have a test for it. I got another one coming up for you.
+[00:43:09] Joe: Yeah. How much more that 50% of unknown encephalitis though could be things like That they just don't have a test for it. I got another one coming up for you.
 
 [00:43:15] Will: Okay,
 
@@ -1200,9 +1138,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:43:39] Adam: Every episode.
 
-[00:43:41] Joe: So you ask where the science ends? Well, so in that's a case like, all right, well, we could just close the book there. It's Balamuthia. We can fold it up and go home. But but look, there is no medication for this. But what if there's something on the shelf, off the shelf today, like an approved drug? So we set up what's called a high throughput screen. You have basically grow balamuthium in the lab.
-
-[00:44:00] Joe: A lot of trepidation about
+[00:43:41] Joe: So you ask where the science ends? Well, so in that's a case like, all right, well, we could just close the book there. It's Balamuthia. We can fold it up and go home. But but look, there is no medication for this. But what if there's something on the shelf, off the shelf today, like an approved drug? So we set up what's called a high throughput screen. You have basically grow balamuthium in the lab. A lot of trepidation about
 
 [00:44:03] Will: that. Probably no clips on that one. Yeah,
 
@@ -1214,9 +1150,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:44:25] Will: Hmm.
 
-[00:44:25] Joe: not azithromycin,
-
-[00:44:25] Joe: another called nitroxoline, that actually kills Balamuthia really well.
+[00:44:25] Joe: not azithromycin, another called nitroxoline, that actually kills Balamuthia really well.
 
 [00:44:30] Will: So she'd gotten the other.
 
@@ -1328,9 +1262,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:49:09] Joe: Well, let's let's backtrack. How do you get a tapeworm, which everybody thinks about in their gut, in your brain? Do you know?
 
-[00:49:14] Will: Yeah.
-
-[00:49:16] Will: Yeah, you eat them, and then they get in your blood. They lay eggs in your bloodstream, or something, and then the the eggs attach to the wall of blood vessels, and they burrow through the blood vessels into the muscles.
+[00:49:14] Will: Yeah. Yeah, you eat them, and then they get in your blood. They lay eggs in your bloodstream, or something, and then the the eggs attach to the wall of blood vessels, and they burrow through the blood vessels into the muscles.
 
 [00:49:25] Joe: Wow.
 
@@ -1370,9 +1302,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:50:17] Will: Next time, next time, my daughter asks why she has to wash her hands before dinner, or why she shouldn't pick her nose. We're going to load up this episode of still untitled the Adam Savage project, and she's going to have an afternoon with Uncle Joe.
 
-[00:50:29] Joe: But this is really a great situation here because you've got good news. There's great drugs. Albendazole, and maybe not a great drug, but it's an
-
-[00:50:38] Joe: effective drug
+[00:50:29] Joe: But this is really a great situation here because you've got good news. There's great drugs. Albendazole, and maybe not a great drug, but it's an effective drug
 
 [00:50:38] Will: Yeah.
 
@@ -1420,9 +1350,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:52:15] Will: Yeah.
 
-[00:52:15] Joe: Wow.
-
-[00:52:15] Joe: And you know, $150,000 of antibiotics, none of which work against amoebas.
+[00:52:15] Joe: Wow. And you know, $150,000 of antibiotics, none of which work against amoebas.
 
 [00:52:20] Will: Mm hmm.
 
@@ -1430,9 +1358,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:52:25] Adam: So is there anyone that’s building this into a viable business model, 100 computer cores to devote to any one of these.
 
-[00:52:30] Joe: Yeah.
-
-[00:52:30] Joe: So it turns out UCSF is the only place in the country right now where you can actually any doctor can order this test, metagenomic sequencing for encephalitis meningitis. Your doctor can order it today.
+[00:52:30] Joe: Yeah. So it turns out UCSF is the only place in the country right now where you can actually any doctor can order this test, metagenomic sequencing for encephalitis meningitis. Your doctor can order it today.
 
 [00:52:42] Adam: Wow.
 
@@ -1492,9 +1418,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:54:40] Joe: Don't do that.
 
-[00:54:41] Adam: Okay.
-
-[00:54:42] Adam: This is actually one of the early Karl Pilkington podcasts with Ricky Gervais, where Karl Pilkington says, " I don't like to travel," and Ricky's like, " You're a stupid kid. Why? Why won't you travel?" And Karl Pilkington says, " Look, if I go to why would I go to a place where I need shots to go there? Otherwise, I'll die." And Ricky Gervais said. Actually, that's the most sensible thing I've ever heard. You're totally right. Just don't go there.
+[00:54:41] Adam: Okay. This is actually one of the early Karl Pilkington podcasts with Ricky Gervais, where Karl Pilkington says, " I don't like to travel," and Ricky's like, " You're a stupid kid. Why? Why won't you travel?" And Karl Pilkington says, " Look, if I go to why would I go to a place where I need shots to go there? Otherwise, I'll die." And Ricky Gervais said. Actually, that's the most sensible thing I've ever heard. You're totally right. Just don't go there.
 
 [00:55:08] Joe: Well, they're not for everybody.
 
@@ -1528,9 +1452,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:56:05] Will: Please, yeah. Let's let's finish the eyeball story.
 
-[00:56:08] Adam: Get a real body horror banger going here.
-
-[00:56:10] Adam: Happy Halloween, everybody!
+[00:56:08] Adam: Get a real body horror banger going here. Happy Halloween, everybody!
 
 [00:56:12] Joe: Then we'll finish with like the big vision.
 
@@ -1548,9 +1470,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:56:31] Will: It's really scary.
 
-[00:56:32] Joe: It's really scary.
-
-[00:56:33] Joe: And it turns out people really care about their vision.
+[00:56:32] Joe: It's really scary. And it turns out people really care about their vision.
 
 [00:56:35] Will: It's an important part of our lives.
 
@@ -1596,9 +1516,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:58:14] Will: Fungus yet? Bacteria.
 
-[00:58:15] Joe: We haven’t done a fungus.
-
-[00:58:16] Joe: We have good fungus stories too.
+[00:58:15] Joe: We haven’t done a fungus. We have good fungus stories too.
 
 [00:58:17] Will: I know. Look, I know you have good fungus stories. I have no doubt, Joe.
 
@@ -1618,9 +1536,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [00:58:40] Will: Oh, because it makes girls sterile, right?
 
-[00:58:41] Joe: Well, so—
-
-[00:58:43] Joe: congenital birth defects.
+[00:58:41] Joe: Well, so— congenital birth defects.
 
 [00:58:43] Will: Okay.
 
@@ -1680,9 +1596,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:00:33] Joe: That's right, and you know, you want to write a science fiction book about the virus that now nobody is immune to.
 
-[01:00:38] Will: Wow,
-
-[01:00:39] Will: Christoph Waltz weeps rubella.
+[01:00:38] Will: Wow, Christoph Waltz weeps rubella.
 
 [01:00:41] Adam: So I was I was talking to we were doing an episode on whips Indiana Jones's whips, and I called up Neal Stephenson. We were the science fiction author,
 
@@ -1850,9 +1764,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:09:23] Joe: I promise it's safe.
 
-[01:09:24] Will: I'm going to
-
-[01:09:24] Will: wear a mask.
+[01:09:24] Will: I'm going to wear a mask.
 
 [01:09:26] Adam: I’m gonna commit to come visit before the end of the year.
 
@@ -1870,9 +1782,7 @@ Episode URL: https://www.youtube.com/watch?v=MzzD2F73iGU
 
 [01:09:45] Adam: Yeah, somebody will take care of that.
 
-[01:09:46] Will: Probably Norm. I don't know. We'll see you guys next week. Thanks for thanks for coming by, Joe.
-
-[01:09:50] Will: Thanks for watching, everybody.
+[01:09:46] Will: Probably Norm. I don't know. We'll see you guys next week. Thanks for thanks for coming by, Joe. Thanks for watching, everybody.
 
 [01:09:50] Joe: Thanks for having me.
 

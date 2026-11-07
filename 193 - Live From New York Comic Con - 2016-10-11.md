@@ -110,9 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:04:13] Norm: Totoro is like a happy surprise.
 
-[00:04:13] John Scalzi: Right.
-
-[00:04:20] John Scalzi: Exactly.
+[00:04:13] John Scalzi: Right. Exactly.
 
 [00:04:21] Adam: I may I may someday try and make him smile, but I don't. I want him just to. I want it to happen. I want the animatronic of this.
 
@@ -134,9 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:04:33] Adam: So he actually shipped in a television box.
 
-[00:04:33] John Scalzi: Wow.
-
-[00:04:46] John Scalzi: I did have somebody ask me if you were going to cosplay as me on the floor, and I was like, No, I don't think that one's going to work very well. You'd have to you'd have to shave a tonsure up here for one thing.
+[00:04:33] John Scalzi: Wow. I did have somebody ask me if you were going to cosplay as me on the floor, and I was like, No, I don't think that one's going to work very well. You'd have to you'd have to shave a tonsure up here for one thing.
 
 [00:04:59] Adam: It's true.
 
@@ -188,9 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:06:58] John Scalzi: Bless his heart, yes.
 
-[00:06:58] Adam: Bless his heart.
-
-[00:07:05] Adam: which is How you say, go to hell in the South.
+[00:06:58] Adam: Bless his heart. which is How you say, go to hell in the South.
 
 [00:07:06] John Scalzi: Right. Right. Exactly. That's it's it's the most Polite way to say " screw you" that you you can possibly that you can possibly do.
 
@@ -200,9 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:07:14] Adam: but for a really concentrated amount of time. Like it's not just like we're in, we're out, like a Vegas thing. It's literally like three days. Everyone's hanging out, and there's lots of dinners. There's lots of
 
-[00:07:14] John Scalzi: right.
-
-[00:07:32] John Scalzi: Well, and that's the funny thing is, is that I tell people where I live because I live in rural Ohio in a town that has one, you know, hundredth of the population of the a number of people who are going to be here this weekend. Right. Right. I mean, it's literally, you know, a traffic jam is three cars behind an Amish buggy sort of town. [unclear reply: Yeah / Right]. And people are like, " Don't you ever feel isolated?" Or you know, and I'm like, " No, I go to conventions, and I will see I will see Wil Wheaton more often than I will see my literal next door neighbor."
+[00:07:14] John Scalzi: right. Well, and that's the funny thing is, is that I tell people where I live because I live in rural Ohio in a town that has one, you know, hundredth of the population of the a number of people who are going to be here this weekend. Right. Right. I mean, it's literally, you know, a traffic jam is three cars behind an Amish buggy sort of town. [unclear reply: Yeah / Right]. And people are like, " Don't you ever feel isolated?" Or you know, and I'm like, " No, I go to conventions, and I will see I will see Wil Wheaton more often than I will see my literal next door neighbor."
 
 [00:07:32] Adam: Yep.
 
@@ -318,9 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:13:04] Adam: But also, I know Scott Adsit, who did the voice of Baymax, who [unclear: would record / had recorded] some maybe custom things for me to say.
 
-[00:13:04] John Scalzi: Right.
-
-[00:13:20] John Scalzi: Right. Well, that would be the way you do it. And then I saw, as I was walking around, it's got a mecha of some sort or another.
+[00:13:04] John Scalzi: Right. Right. Well, that would be the way you do it. And then I saw, as I was walking around, it's got a mecha of some sort or another.
 
 [00:13:20] Adam: Yes.
 
@@ -344,13 +334,9 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:13:51] Adam: He was wearing Winona Ryder's wall.
 
-[00:13:52] Norm: Right.
+[00:13:52] Norm: Right. With letters.
 
-[00:13:52] Norm: With letters.
-
-[00:13:52] Adam: With letters
-
-[00:13:54] Adam: and Christmas lights on it.
+[00:13:52] Adam: With letters and Christmas lights on it.
 
 [00:13:55] John Scalzi: And there's, I do know, I did see a Winona Ryder around here with a phone. Right.
 
@@ -426,9 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=DN62s9PQrOc
 
 [00:16:17] Norm: But when they made the toy, then someone who at Kenner who made the toy had to write a name.
 
-[00:16:27] Adam: Well, this was a prop master.
-
-[00:16:29] Adam: They were like, prop master. He has to carry something. He was like assistant. Run to the nearest Sainsbury's and get me something that's white and this big.
+[00:16:27] Adam: Well, this was a prop master. They were like, prop master. He has to carry something. He was like assistant. Run to the nearest Sainsbury's and get me something that's white and this big.
 
 [00:16:38] Norm: And then so writing the novelization had to write. Okay, I guess that was must have been the computer core. Right,
 

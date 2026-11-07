@@ -32,9 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:00:48] Norm: I can neither confirm nor deny.
 
-[00:00:50] Rebecca: By the way, it is 8:00 AM.
-
-[00:00:51] Rebecca: It is 8:00 AM.
+[00:00:50] Rebecca: By the way, it is 8:00 AM. It is 8:00 AM.
 
 [00:00:53] Norm: Hence the coffee
 
@@ -178,9 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:05:13] Norm: Yes.
 
-[00:05:14] Adam: Uh, of the wedding. Um, and my friends Don and Angel. He is a really he's got he's an economist and he, uh, has a very dark and hilarious sense of humor. And he wanted me to open the ceremony by going, " Welcome, ladies and gentlemen, Don's family, Angel's family. You may recognize me from the television program Mythbusters." And I was like, " Don, I can't do this.
-
-[00:05:35] Adam: I get that this is hilarious, but I just can't do it. It's not about me.
+[00:05:14] Adam: Uh, of the wedding. Um, and my friends Don and Angel. He is a really he's got he's an economist and he, uh, has a very dark and hilarious sense of humor. And he wanted me to open the ceremony by going, " Welcome, ladies and gentlemen, Don's family, Angel's family. You may recognize me from the television program Mythbusters." And I was like, " Don, I can't do this. I get that this is hilarious, but I just can't do it. It's not about me.
 
 [00:05:39] Rebecca: " I've done I've I've done three weddings
 
@@ -362,11 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:13:11] Adam: I was actually convinced they weren't going to kill one of those two, and that they get one back. But the cliffhanger would be that there's still another. one.
 
-[00:13:18] Rebecca: Right. Okay.
-
-[00:13:18] Rebecca: Yeah.
-
-[00:13:18] Rebecca: But no. Yeah. She's She's pretty dead. Yeah.
+[00:13:18] Rebecca: Right. Okay. Yeah. But no. Yeah. She's She's pretty dead. Yeah.
 
 [00:13:22] Adam: That That That Um. I read a thing that was like, " Oh, the women in this are just as expendable as they were in the '80s," and I was like, " Actually, I mean, Nancy's pretty bold.
 
@@ -438,9 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:16:38] Unknown speaker: I like that band.
 
-[00:16:38] Adam: Nice.
-
-[00:16:38] Adam: But, but wait, what were we saying?
+[00:16:38] Adam: Nice. But, but wait, what were we saying?
 
 [00:16:44] Rebecca: The friendship. between the kids.
 
@@ -506,9 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:19:19] Unknown: Yep. Yep. Yep.
 
-[00:19:20] Rebecca: I screamed at that point, and I was actually really annoyed. It was like, "
-
-[00:19:24] Rebecca: Don't go in the tree vagina, Nancy! What are you doing? [unclear speaker: Get out of that vagina.]
+[00:19:20] Rebecca: I screamed at that point, and I was actually really annoyed. It was like, " Don't go in the tree vagina, Nancy! What are you doing? [unclear speaker: Get out of that vagina.]
 
 [00:19:26] Norm: " And then the way the tree closed.
 
@@ -636,9 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:25:01] Norm: Yeah, facts change all
 
-[00:25:01] Rebecca: the time.
-
-[00:25:01] Rebecca: I want to point out real quick that the monster design is in part like I like that they didn't just pull from you know there's a lot of stuff that they're pulling from, and my first thought when seeing the monster was The Last of Us, a
+[00:25:01] Rebecca: the time. I want to point out real quick that the monster design is in part like I like that they didn't just pull from you know there's a lot of stuff that they're pulling from, and my first thought when seeing the monster was The Last of Us, a
 
 [00:25:14] Norm: video game.
 
@@ -730,13 +716,9 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:29:02] Norm: Steve.
 
-[00:29:01] Rebecca: Okay.
+[00:29:01] Rebecca: Okay. Do you guys not watch Parks and Recreation?
 
-[00:29:02] Rebecca: Do you guys not watch Parks and Recreation?
-
-[00:29:05] Norm: No. No. Danica said the same thing. Show me a picture.
-
-[00:29:07] Norm: I'm like-
+[00:29:05] Norm: No. No. Danica said the same thing. Show me a picture. I'm like-
 
 [00:29:07] Rebecca: He looks exactly like Jean-Ralphio.
 
@@ -818,9 +800,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:31:25] Rebecca: You know, because of her uterus.
 
-[00:31:25] Adam: Yeah.
-
-[00:31:28] Adam: We're talking about the etymology of the word hysteria, which is based on
+[00:31:25] Adam: Yeah. We're talking about the etymology of the word hysteria, which is based on
 
 [00:31:32] Unknown speaker: yeah,
 
@@ -828,9 +808,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:31:33] Rebecca: and also is a dog whistle term a lot applied to women who are. Who's come across as being over the top, and so it was a nice. I, I, I thought it was it was a good part of that story where, yeah, they're they're going against this sort of sexist understanding of like the the mother who completely loses her shit,
 
-[00:31:51] Adam: right?
-
-[00:31:52] Adam: You know, and and I love that bit when Hop the sheriff turns around on a on a on a conceptual level and turns back to her and says, " You were right all along." That got me totally choked up. 
+[00:31:51] Adam: right? You know, and and I love that bit when Hop the sheriff turns around on a on a on a conceptual level and turns back to her and says, " You were right all along." That got me totally choked up. 
 
 [00:32:05] Rebecca: Oh, God! And like the last episode where Hop is, you know, trying doing the CPR,
 
@@ -954,9 +932,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:36:20] Norm: Same thing with like Fargo, where you, you know, the rules of the world, and it has a tone, but it's not necessarily the same cast or crew. Maybe some intersections,
 
-[00:36:29] Rebecca: and they were inspired a lot by True Detective. And I read an interview where they did consider doing a completely different thing each time. But yeah, with with the waffle at the end, I feel like we're going to see these same characters Right. continuing on, which. Yeah, I mean, it it raises the stakes. You know, they could they could ruin our childhood. And by our childhood, I mean
-
-[00:36:29] Rebecca: last month.
+[00:36:29] Rebecca: and they were inspired a lot by True Detective. And I read an interview where they did consider doing a completely different thing each time. But yeah, with with the waffle at the end, I feel like we're going to see these same characters Right. continuing on, which. Yeah, I mean, it it raises the stakes. You know, they could they could ruin our childhood. And by our childhood, I mean last month.
 
 [00:36:52] Norm: yeah, exactly. Right, they could ruin the summer, the great summer of 2016.
 
@@ -1034,11 +1010,7 @@ Episode URL: https://www.youtube.com/watch?v=f5_6cq_PEVw
 
 [00:40:00] Rebecca: Yeah,
 
-[00:40:00] Adam: and that was it's just it's just such an amazing love letter to '80s cinema and all of those wonderful tropes. Um, can't wait. Yeah,
-
-[00:40:08] Adam: Norm,
-
-[00:40:00] Adam: what's going on on tested this week?
+[00:40:00] Adam: and that was it's just it's just such an amazing love letter to '80s cinema and all of those wonderful tropes. Um, can't wait. Yeah, Norm, what's going on on tested this week?
 
 [00:40:09] Norm: Um, this week we have a new project from Sean Charlesworth. Um, we're unveiling on Wednesday, so please um keep a lookout for that. And then, um, next we'll have another podcast, but we're gonna try to gang record as many as we can because
 

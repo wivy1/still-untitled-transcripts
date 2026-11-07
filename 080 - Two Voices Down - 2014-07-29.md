@@ -216,9 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=9_rhqdcgRzc
 
 [00:10:06] Adam: his wife was Wilma Deering from Buck Rogers in the '30s.
 
-[00:10:10] Will: So good. She had such an awesome jetpack.
-
-[00:10:12] Will: No,
+[00:10:10] Will: So good. She had such an awesome jetpack. No,
 
 [00:10:12] Adam: I know it was fantastic. Anyway, Brian is is an amazing maker of replicas. He's got a full size Maria from
 

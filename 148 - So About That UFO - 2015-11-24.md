@@ -86,9 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:03:55] Norm: That's really good.
 
-[00:03:56] Adam: I know.
-
-[00:03:57] Adam: Oh, parents.
+[00:03:56] Adam: I know. Oh, parents.
 
 [00:03:58] Will: Okay, they just don't understand.
 
@@ -234,9 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:07:54] Norm: A coordinated stunt, you know, a coordinated stunt for some promotion thing, right?
 
-[00:07:59] Will: That's JJ Abrams must be involved.
-
-[00:07:59] Will: Hold on, that's a sad state of affairs when something amazing and miraculous happens. You are like, well, probably the marketing people at 20th Century Fox.
+[00:07:59] Will: That's JJ Abrams must be involved. Hold on, that's a sad state of affairs when something amazing and miraculous happens. You are like, well, probably the marketing people at 20th Century Fox.
 
 [00:08:08] Norm: It wasn't miraculous.
 
@@ -396,9 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:12:27] Will: Yes, we're all hopefully going to do it.
 
-[00:12:27] Adam: Yeah. I think we’re all going to do it.
-
-[00:12:28] Adam: We're all good. We're all going to do it. Um. Uh. But uh, Syfy is also about to come out with um Childhood's End.
+[00:12:27] Adam: Yeah. I think we’re all going to do it. We're all good. We're all going to do it. Um. Uh. But uh, Syfy is also about to come out with um Childhood's End.
 
 [00:12:36] Will: Ooh the Arthur Clarke book?
 
@@ -552,9 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:18:53] Norm: Yes.
 
-[00:18:54] Adam: Yes.
-
-[00:18:55] Adam: I thought some of the photos were so beautiful;
+[00:18:54] Adam: Yes. I thought some of the photos were so beautiful;
 
 [00:18:57] Will: it's gorgeous.
 
@@ -568,9 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=Wkr3lGm6BxQ
 
 [00:19:37] Norm: and that was the real government test.
 
-[00:19:41] Adam: There you go.
-
-[00:19:42] Adam: I think a good conspiracy theory is a way to end it. Next week, we find out that tinfoil hats help focus the government's mind control rays rather than eliminate them.
+[00:19:41] Adam: There you go. I think a good conspiracy theory is a way to end it. Next week, we find out that tinfoil hats help focus the government's mind control rays rather than eliminate them.
 
 [00:19:51] Will: All that folding for nothing.
 

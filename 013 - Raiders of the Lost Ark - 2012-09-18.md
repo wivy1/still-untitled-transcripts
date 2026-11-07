@@ -110,9 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:04:25] Adam: Absolutely. I even got to sit down with Terry Gilliam at DragonCon about three years ago and talk a lot about Brazil and about the making of and other movies that he liked. And—
 
-[00:04:36] Will: So, so the— like I think the only version of Brazil I've ever seen was that one that came out on the Criterion discs. That was the Terry Gilliam Ultimate Cut, whatever.
-
-[00:04:43] Will: Which is—
+[00:04:36] Will: So, so the— like I think the only version of Brazil I've ever seen was that one that came out on the Criterion discs. That was the Terry Gilliam Ultimate Cut, whatever. Which is—
 
 [00:04:44] Adam: Yes.
 
@@ -206,9 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:09:06] Adam: Right.
 
-[00:09:06] Will: He was sick.
-
-[00:09:07] Will: Yeah.
+[00:09:06] Will: He was sick. Yeah.
 
 [00:09:07] Adam: Yeah. Also, it's not the age; it's the mileage. I believe that was ad lib.
 
@@ -272,9 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=bI2MMkos1i8
 
 [00:12:01] Will: It's on, uh, we have it.
 
-[00:12:02] Adam: Oh, it's on.
-
-[00:12:03] Adam: It's on Tested. Right. Um, yeah. The the hat is a very is a beautiful object. I was just cleaning. I cleaned mine this weekend.
+[00:12:02] Adam: Oh, it's on. It's on Tested. Right. Um, yeah. The the hat is a very is a beautiful object. I was just cleaning. I cleaned mine this weekend.
 
 [00:12:10] Will: How do you clean a beaver felt hat?
 

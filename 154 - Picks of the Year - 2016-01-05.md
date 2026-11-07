@@ -56,9 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:02:03] Will: Yeah, it seems like now's the time to start.
 
-[00:02:04] Adam: Yeah, right.
-
-[00:02:06] Adam: I myself have been taking pictures. I've been i've I've built every day this year so far, and I know it's only the third day, fourth day,
+[00:02:04] Adam: Yeah, right. I myself have been taking pictures. I've been i've I've built every day this year so far, and I know it's only the third day, fourth day,
 
 [00:02:13] Will: fourth day,
 
@@ -138,9 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:05:57] Norm: Wow. Well, they're killing mosquitoes.
 
-[00:06:00] Adam: I watched them kill mosquitoes. They killed mosquitoes with lasers in front of me as a demo. It was great.
-
-[00:06:07] Adam: My friend Pablos Holman is is a project manager over there, and he gave me the grand tour. I met Nathan and saw the kitchen, and it was fun.
+[00:06:00] Adam: I watched them kill mosquitoes. They killed mosquitoes with lasers in front of me as a demo. It was great. My friend Pablos Holman is is a project manager over there, and he gave me the grand tour. I met Nathan and saw the kitchen, and it was fun.
 
 [00:06:15] Norm: Did you tell him that you had the casting?
 
@@ -264,9 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:10:55] Adam: Absolutely! Oh my gosh! So I didn't do my homework, and I don't have.
 
-[00:10:59] Norm: Yeah,
-
-[00:11:00] Norm: well, how about to make it easy? Come up as we talk. Yeah, let's go. Let's go in a circle.
+[00:10:59] Norm: Yeah, well, how about to make it easy? Come up as we talk. Yeah, let's go. Let's go in a circle.
 
 [00:11:03] Adam: I will tell you. Okay. I just finished. I just finished * River of Dreams*, which is Rebecca Solnit, who's a wonderful writer. Her book about Eadweard Muybridge. Eadweard Muybridge, you would know if you've seen the running cycles of people running against a grid. He is. She makes a very powerful case that he is absolutely the father of motion picture cinema. In terms of letting people understand what was possible with the camera, but also how a camera like the train caused what was popularly referred to back then as the annihilation of time and space. And it is a beautifully written book. It is not quite a auto. It's not quite a biography. It's not quite a history. It's a little bit of both, but it's also a social commentary. I found it riveting all the way through, and it's an amazing story. He's also a local San Franciscan,
 
@@ -274,9 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:11:59] Adam: She writes a lot about about San Francisco history, and Stanford was his benefactor for the longest time. It's an incredible story, and if you think you know about Muybridge, you really don't because it's a much deeper story than I had any idea.
 
-[00:12:13] Will: I can't wait to read that. That sounds fabulous.
-
-[00:12:16] Will: I I read a book called I'm actually almost done with it. It's called The Three Body Problem by I think it's [unclear: Shi Shen Lu / Shixian Lu / Shishen Liu] C I X I N. It's a science fiction book. It's originally a Chinese language book. It's set in the Cultural Revolution. It's about alien contact. I don't want to talk about it in any more depth than that, but it's it's in the same way that Murakami books
+[00:12:13] Will: I can't wait to read that. That sounds fabulous. I I read a book called I'm actually almost done with it. It's called The Three Body Problem by I think it's [unclear: Shi Shen Lu / Shixian Lu / Shishen Liu] C I X I N. It's a science fiction book. It's originally a Chinese language book. It's set in the Cultural Revolution. It's about alien contact. I don't want to talk about it in any more depth than that, but it's it's in the same way that Murakami books
 
 [00:12:41] Adam: Oh, nice.
 
@@ -286,9 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:12:49] Will: it's it's. I have the same kind of vibes. It's not at all the same kind of book as it's like a Murakami book.
 
-[00:12:54] Norm: Yeah.
-
-[00:12:54] Norm: Who does the localization?
+[00:12:54] Norm: Yeah. Who does the localization?
 
 [00:12:56] Will: I I don't know who did the translation. Actually,
 
@@ -300,11 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:13:11] Will: beautiful. Yeah, I don't know who did the translation. It's uh, it's actually. Yeah, it doesn't say he may have actually written. He may have done the translation himself. I, I don’t know.
 
-[00:13:18] Adam: You don’t know how it ends, though.
-
-[00:13:19] Adam: They could totally
-
-[00:13:20] Adam: screw the pooch.
+[00:13:18] Adam: You don’t know how it ends, though. They could totally screw the pooch.
 
 [00:13:21] Will: I based on the people who recommended this to me, I feel like I'm probably pretty good that it sticks the landing.
 
@@ -496,9 +482,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:20:24] Adam: The Big Short. Why are all the good movies based on the Michael Lewis film, based a Michael Lewis book?
 
-[00:20:29] Norm: [unclear: It’s the hot kind of thing / It’s because of the Oscars].
-
-[00:20:30] Norm: All the good movies come out at the end of the year, it seems.
+[00:20:29] Norm: [unclear: It’s the hot kind of thing / It’s because of the Oscars]. All the good movies come out at the end of the year, it seems.
 
 [00:20:32] Adam: Oh, and I saw Hateful Eight.
 
@@ -788,9 +772,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0vFKF_Gew
 
 [00:33:56] Norm: Every piece.
 
-[00:33:58] Adam: Yeah.
-
-[00:34:00] Adam: He's totally right, and you, we we we did the tested piece on the chessboard, and one of the things that's really hard to understand until you actually sit.
+[00:33:58] Adam: Yeah. He's totally right, and you, we we we did the tested piece on the chessboard, and one of the things that's really hard to understand until you actually sit.
 
 [00:34:10] Will: Excuse me, it's dejarik.
 

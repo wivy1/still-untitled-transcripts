@@ -64,9 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=M_XYZSHz6DI
 
 [00:02:35] Joey: Bill Burr. Yeah, kind of the entire team do do the the the William Friedkin Sorcerer move the truck with the with the full of the dynamite or whatever.
 
-[00:02:44] Adam: Yeah.
-
-[00:02:45] Adam: I loved that episode. I thought it was not only not only, uh, super exciting, but I was surprised how moving it was at the end.
+[00:02:44] Adam: Yeah. I loved that episode. I thought it was not only not only, uh, super exciting, but I was surprised how moving it was at the end.
 
 [00:02:53] Joey: Yeah, yeah. Bill Burr's like. I mean, we saw Bill Burr earlier in what last season?
 
@@ -74,11 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=M_XYZSHz6DI
 
 [00:02:59] Joey: Right, we kind of get a sense of of who he is a little bit, and he he just kind of. You know, we're not pretty quick, but this one, like, we get like three, almost like three main turns with him, right? He kind of trolls Mando a bit about his helmet, like just really like gets on him, kind of makes fun of him, and then in the inside the truck as they're driving, you kind of get that that that moral conversation that he has with him regarding like what is what you know we're all the same. What does it mean, uh, you know, have your helmet on or helmet off? And then, uh, and then we kind of and this is this is sort of a filmmaking technique that I I I think I've I'd like whether it's good or not, but it's understanding a character's past by bringing in another character to kind of explain what they've done, right? And they're inside the cafeteria and he's he's dealing with that general. Uh, but yeah, the Bill Burr stuff was all fantastic. This episode was was great. The camera work was awesome.
 
-[00:03:49] Norm: The chase scene, the the action, chase
-
-[00:03:51] Norm: scene, where the the the
-
-[00:03:51] Norm: pirates coming in after them, the Mando fighting them off, the pirates that was that was intense. I didn't know, like, you could tell when they're in the vehicle. That's very easy for them to do in the volume because they can move that the the the image in the background. Uh, but all the stuff on him on top, you know, even with the camera moves around that, it was really like it didn't look like it looked big.
+[00:03:49] Norm: The chase scene, the the action, chase scene, where the the the pirates coming in after them, the Mando fighting them off, the pirates that was that was intense. I didn't know, like, you could tell when they're in the vehicle. That's very easy for them to do in the volume because they can move that the the the image in the background. Uh, but all the stuff on him on top, you know, even with the camera moves around that, it was really like it didn't look like it looked big.
 
 [00:04:13] Adam: It looked no, it looked huge, and I kept on. Everyone always asks you both and me, um, are you guys able to suspend your disbelief for shows like this? And the answer is yes, yes, yes. If the plot's great, I'm not thinking about anything but what's going on. But I did keep on trying to look at master shots and thinking. See, I have this. I have this engineer's brain part of me that if I think if if if someone could wave a magic wand and I'm directing in the volume, and I had to plot sets of shots, I might be like, I could easily imagine. Um, pulling some of my punches because of what I knew the the volume could and couldn't do,
 
@@ -136,9 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=M_XYZSHz6DI
 
 [00:09:28] Adam: The name of the actor that plays Krennic in Rogue One, Mendelsohn, Ben Mendelsohn.
 
-[00:09:33] Norm: Yes,
-
-[00:09:33] Norm: yes.
+[00:09:33] Norm: Yes, yes.
 
 [00:09:33] Adam: I felt like the Imperial bastard in the Believer episode was modeling his performance slightly on Ben Mendelsohn's slow. Mendelsohn has a thing being he's an Aussie. Am I right about that?
 
@@ -640,9 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=M_XYZSHz6DI
 
 [00:46:32] Norm: They have the technology.
 
-[00:46:33] Adam: We're gonna meet. We're gonna meet impulsive Yoda. Had to work out
-
-[00:46:40] Adam: a lot. I did.
+[00:46:33] Adam: We're gonna meet. We're gonna meet impulsive Yoda. Had to work out a lot. I did.
 
 [00:46:44] Norm: Uh, fantastic season overall. Like, I don't think any of us expected not only where this season would go, but that it was laying the groundwork for so much more.
 

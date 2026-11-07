@@ -54,9 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:00:45] Norm: lift it up. No, no, no. No.
 
-[00:00:45] Will: I
-
-[00:00:50] Will: have leverage. My arms are slightly longer.
+[00:00:45] Will: I have leverage. My arms are slightly longer.
 
 [00:00:52] Adam: This is going to be terrible for people who are only listening.
 
@@ -74,9 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:01:12] Adam: it’s very direct.
 
-[00:01:12] Will: It’s pretty
-
-[00:01:13] Will: busy, and I noticed that you don’t see everybody standing on the side of the street there with their phone out.
+[00:01:12] Will: It’s pretty busy, and I noticed that you don’t see everybody standing on the side of the street there with their phone out.
 
 [00:01:13] Adam: Really?
 
@@ -86,9 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:01:50] Will: I've texted Gina from the couch when she was in the kitchen before. I mean, I'm not ashamed of that.
 
-[00:01:50] Adam: We’ve done that in the house. We have three
-
-[00:01:55] Adam: floors here.
+[00:01:50] Adam: We’ve done that in the house. We have three floors here.
 
 [00:01:55] Will: It’s true. It's like the baby's asleep in the living room. You don't want to say anything, so you know.
 
@@ -222,9 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:06:23] Will: that's insane. You could you could do telegrams in 1910 for less than that.
 
-[00:06:23] Adam: Yep.
-
-[00:06:30] Adam: Yeah, I am not kidding about the $0.10 a kilobyte. That's that's like that's a real
+[00:06:23] Adam: Yep. Yeah, I am not kidding about the $0.10 a kilobyte. That's that's like that's a real
 
 [00:06:34] Will: So, like two YouTube videos and you are at $1,000.
 
@@ -242,9 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:07:24] Adam: She said, " Uh, I said, what's the bill?" And she said, " $12,500." And I was like, "Good. What?" And then she said, " So I started the first right, the first stage of dealing with death with, was denial, right? I was like, okay, what can we do? Can we backdate it? Give me a give me an international plan, backdate it, right? Which has worked for me in the past for for bad charges. And then by the way, the cell phone companies will often, frequently backdate things that you got overcharged for and couch them under a policy you can pay much less for, like pennies on the dollar.
 
-[00:07:59] Will: How much do you pay?
-
-[00:08:00] Will: What do you think to get you to pay?
+[00:07:59] Will: How much do you pay? What do you think to get you to pay?
 
 [00:08:02] Adam: Right. So, I mean, I've had something like a $600 bill reduced to a $150 bill.
 
@@ -276,9 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:08:50] Adam: Because I, I at that point, I had 40,000 Twitter followers.
 
-[00:08:50] Will: Yeah.
-
-[00:08:54] Will: I, I have, I have, I'm in that neighborhood. So, like, powerful number of Twitter followers.
+[00:08:50] Will: Yeah. I, I have, I have, I'm in that neighborhood. So, like, powerful number of Twitter followers.
 
 [00:08:58] Adam: So I, I tweeted. I tweeted, uh, something along the lines of " The hell with AT&T." I just got a $12,000 bill for surfing in Canada. hashtag Something like " Screw AT&T."
 
@@ -304,11 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:09:56] Will: It's just the middle fingers straight at you from the man.
 
-[00:10:02] Adam: I completely agree with you, but at
-
-[00:10:04] Adam: least at
-
-[00:10:05] Adam: least I can use the platform.
+[00:10:02] Adam: I completely agree with you, but at least at least I can use the platform.
 
 [00:10:05] Will: That’s true.
 
@@ -350,9 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:10:55] Will: So, what do you do now? So,
 
-[00:10:57] Adam: So what I do now is here's what I said: No, we land in Australia, me, the boys, and Julia, and I'm like, everybody, phones in airplane mode until we leave
-
-[00:11:06] Adam: Australia. I swear to God, not
+[00:10:57] Adam: So what I do now is here's what I said: No, we land in Australia, me, the boys, and Julia, and I'm like, everybody, phones in airplane mode until we leave Australia. I swear to God, not
 
 [00:11:09] Will: even, not even
 
@@ -362,9 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:11:14] Adam: It now, I looked into this when we went to Scotland. I didn't look into it in Australia. It's complicated. It's complicated because of the different different cellular antennas within the phone.
 
-[00:11:14] Will: Yeah.
-
-[00:11:27] Will: You had 700 1900.
+[00:11:14] Will: Yeah. You had 700 1900.
 
 [00:11:28] Adam: Because I'm in Verizon, it's not so trivial, and you have to jailbreak your phone in order to make new SIM cards work.
 
@@ -458,9 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:14:13] Adam: Right. Or five hours behind, except it's tomorrow.
 
-[00:14:15] Will: Tomorrow,
-
-[00:14:16] Will: Yeah.
+[00:14:15] Will: Tomorrow, Yeah.
 
 [00:14:16] Adam: And in Australia, you're seven hours behind or nine hours behind, and I have to say, nine hours behind, which is where you are when you're in Perth on the west coast of Australia, is the most diabolical. Can't do anything to the United States with a nine-hour lag.
 
@@ -488,9 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:15:29] Adam: I appreciate that technology that's only good for one person in one place.
 
-[00:15:29] Will: Yeah.
-
-[00:15:32] Will: that's that's great, but the swatch internet time is that for everyone.
+[00:15:29] Will: Yeah. that's that's great, but the swatch internet time is that for everyone.
 
 [00:15:36] Adam: So at at at any rate, we we we it was it was weird not being able to look stuff up on the internet
 
@@ -678,9 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:24:32] Adam: You know—
 
-[00:24:32] Will: If
-
-[00:24:32] Will: you're insane,
+[00:24:32] Will: If you're insane,
 
 [00:24:33] Adam: that all sounds really. I mean, I don't have the desire to put myself in genuine like abiding physical danger, but I do love the idea of spending weeks out in the wilderness, feeling that clear headspace and
 
@@ -720,9 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:26:00] Will: I need more social interaction with human beings.
 
-[00:26:00] Adam: Yeah. Did
-
-[00:26:04] Adam: you run into anybody else?
+[00:26:00] Adam: Yeah. Did you run into anybody else?
 
 [00:26:05] Will: Oh, I met, met tons of fascinating people. Like I met, I met. Um, so I walked from. I grew up about four miles from the trail from the AT, and I just started, um, you know.
 
@@ -806,9 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:29:47] Adam: If you hike with somebody else, boy, does the weight become nicer distributed.
 
-[00:29:47] Will: Yeah.
-
-[00:29:52] Will: well, if you carry a tent, for sure.
+[00:29:47] Will: Yeah. well, if you carry a tent, for sure.
 
 [00:29:53] Adam: Right. Um, so I also read No Place to Hide by Glenn Greenwald about his interactions with Eds with Snowden, which is fantastic and really riveting. Greenwald, I know, is a polarizing figure, and that's exactly where he wants to be. And good on him. I think he's actually raising the right questions. But whatever you think about his politics, he's a phenomenal writer. He's a really, really good writer. Complex topics explained really clearly.
 
@@ -876,11 +846,7 @@ Episode URL: https://www.youtube.com/watch?v=sOzqxMBtu44
 
 [00:32:53] Adam: Lastly, I will say I read a book by a native New Zealander called Wulf W U L F. Oh, and I also just read The Luminaries, which is a book about the gold rush in New Zealand. It's a bestseller right now. Yeah, yeah. A lot of bookstores are putting it front and center. It's a lovely book. It's really, it's really riveting with some amazing characters. I'm not sure in the end if I think it's a truly great book because it's just it's a it's a big heavy book. I mean, it's like a lot goes. I sound like an idiot.
 
-[00:33:25] Will: There's a lot goes on in there.
-
-[00:33:26] Will: And there's a lot of
-
-[00:33:27] Will: shit happens.
+[00:33:25] Will: There's a lot goes on in there. And there's a lot of shit happens.
 
 [00:33:27] Adam: Plot, but it is incredibly plot heavy.
 

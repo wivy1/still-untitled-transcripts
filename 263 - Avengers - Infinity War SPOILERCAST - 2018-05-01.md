@@ -48,9 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:02:28] Norm: Oh, but we are in real time right now.
 
-[00:02:30] Adam: Yeah, we are in real time. Things are happening.
-
-[00:02:32] Adam: Real things are happening. Yeah. Um. So we're recording this on Monday. This goes up on Tuesday. Um. This morning, um. Our our great and good friend, and tested contributor and all around genius Simone Giertz, released a video on YouTube about having the fact that she is has a brain tumor.
+[00:02:30] Adam: Yeah, we are in real time. Things are happening. Real things are happening. Yeah. Um. So we're recording this on Monday. This goes up on Tuesday. Um. This morning, um. Our our great and good friend, and tested contributor and all around genius Simone Giertz, released a video on YouTube about having the fact that she is has a brain tumor.
 
 [00:02:51] Norm: Yeah. Yeah.
 
@@ -90,9 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:05:11] Will: yeah
 
-[00:05:12] Adam: yeah
-
-[00:05:13] Adam: but all of our support is for Simone and your good wishes are appreciated
+[00:05:12] Adam: yeah but all of our support is for Simone and your good wishes are appreciated
 
 [00:05:18] Norm: tumor humor she's looking for tumor humor
 
@@ -104,9 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:05:32] Will: yeah kindergarten cop.
 
-[00:05:32] Adam: kindergarten cop maybe it's a tumor it's not a tumor
-
-[00:05:36] Adam: get to the chopper
+[00:05:32] Adam: kindergarten cop maybe it's a tumor it's not a tumor get to the chopper
 
 [00:05:37] Will: but yeah check the video on her channel check her Patreon page she posted an update for Patreon backers that said a lot of the same stuff that was in the in the thing but but yeah I mean we hope that Simone's surgery goes well and she gets better soon
 
@@ -134,9 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:06:49] Will: 3D printed low cost.
 
-[00:06:50] Adam: Foam.
-
-[00:06:51] Adam: Following this a lot, I really I really dig it.
+[00:06:50] Adam: Foam. Following this a lot, I really I really dig it.
 
 [00:06:53] Will: Yeah, one of my parents' friends has a prosthetic arm, and she just. She doesn't like to wear it because it's uncomfortable and it sucks. And I see the new things that are coming out now, and yeah.
 
@@ -192,9 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:09:48] Norm: It's all led to this.
 
-[00:09:48] Will: I can't wait to see it.
-
-[00:09:49] Will: Yeah.
+[00:09:48] Will: I can't wait to see it. Yeah.
 
 [00:09:49] Norm: It's all led to this.
 
@@ -228,15 +218,11 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:11:02] Norm: Yes.
 
-[00:11:03] Will: Uh, the blockers thing.
-
-[00:11:07] Will: There's a chicken, and then there's blockers after. I don't know what that's supposed to mean.
+[00:11:03] Will: Uh, the blockers thing. There's a chicken, and then there's blockers after. I don't know what that's supposed to mean.
 
 [00:11:10] Adam: Yeah, I, I, uh,
 
-[00:11:12] Will: oh, oh,
-
-[00:11:13] Will: no, no, you're talking about the most ambitious crossover of all time.
+[00:11:12] Will: oh, oh, no, no, you're talking about the most ambitious crossover of all time.
 
 [00:11:16] Adam: Yes,
 
@@ -270,9 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:12:13] Norm: which for our audience, that's probably all of you.
 
-[00:12:17] Will: So all you guys have all seen it.
-
-[00:12:18] Will: Yeah, that's what Norm said.
+[00:12:17] Will: So all you guys have all seen it. Yeah, that's what Norm said.
 
 [00:12:19] Adam: I would like people who saw it twice this week to raise their hands. Norm,
 
@@ -404,9 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:16:58] Adam: I found the 3D not bad. I didn't find it incredibly necessary, but I never do, and it's real 3D, so I didn't find it quite as onerous on my eyes and the dimness.
 
-[00:17:08] Norm: Yeah.
-
-[00:17:08] Norm: So the IMAX showing will have additional content above and below what you'd see in the the 21 by 9 frame.
+[00:17:08] Norm: Yeah. So the IMAX showing will have additional content above and below what you'd see in the the 21 by 9 frame.
 
 [00:17:14] Will: See, I was thinking about. Gina hasn't been yet, so I was thinking about taking her to see the Dolby at the Metreon.
 
@@ -484,9 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:20:35] Adam: oh god why did you do this?
 
-[00:20:38] Will: Yeah.
-
-[00:20:38] Will: There were no obvious flaws here. I mean, there was one place that kind of the pacing and thematic elements weren't great, but the rest of it was really good. I thought
+[00:20:38] Will: Yeah. There were no obvious flaws here. I mean, there was one place that kind of the pacing and thematic elements weren't great, but the rest of it was really good. I thought
 
 [00:20:46] Norm: I would go so far to say that, like in the first Avengers movie, which was built up with two Iron Man films, a Thor film, and a Captain America film, there are many different styles and tones that different directors had put on those films, Kenneth Branagh and Thor, and Jon Favreau and Iron Man, Iron Man two that that Joss Whedon had to meld together with either audio cues or visual elements that still made a cohesive film. Age of Ultron didn't have to do that, and this is the first film because of so many new characters that never met each other and never been in the same film before. The Russo brothers had to do that, and I think they still retained a lot of like the tone and the humor and the visual styles of different directors in one cohesive story, and that's an accomplishment.
 
@@ -590,9 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:25:48] Will: that's it, right?
 
-[00:25:50] Norm: Yeah,
-
-[00:25:50] Norm: it's entire Guardians, and what's interesting.
+[00:25:50] Norm: Yeah, it's entire Guardians, and what's interesting.
 
 [00:25:51] Will: Well, and Rocket survives.
 
@@ -660,9 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:27:20] Norm: Now you didn't have the Max Landis, you know, death is not real in comics feel. We're like, okay, now like eight people have died. There, that means it's not real.
 
-[00:27:29] Adam: No, no, no.
-
-[00:27:30] Adam: Actually, I will tell you as as the as the. I didn't buy. I didn't take any of the. I didn't really take any of the deaths on the chin. Not even Loki's. And
+[00:27:29] Adam: No, no, no. Actually, I will tell you as as the as the. I didn't buy. I didn't take any of the. I didn't really take any of the deaths on the chin. Not even Loki's. And
 
 [00:27:41] Will: Loki's Loki's was the hard Loki's and Gamora's were both rough, I thought.
 
@@ -686,9 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:27:59] Adam: Really rough.
 
-[00:28:00] Norm: He died twice.
-
-[00:28:01] Norm: His beloved killed him, and then he was brought back to have some his stone torn out of his head. And when he turned to black and white, oh, his eyes went blank. That was unnerving.
+[00:28:00] Norm: He died twice. His beloved killed him, and then he was brought back to have some his stone torn out of his head. And when he turned to black and white, oh, his eyes went blank. That was unnerving.
 
 [00:28:11] Adam: Yeah. Um. And and and and Vision and the and the Scarlet Witch are, you know. So I did go back and watch Civil War. I didn't watch Age of Ultron. I watched Winter Soldier again, and I watched a bunch of the Avengers.
 
@@ -724,9 +698,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:29:17] Will: Yeah, and and this is the first time not only that they have one good villain, they had five really strong villains here.
 
-[00:29:22] Adam: Five good villains and five great non non human facial structures.
-
-[00:29:26] Adam: I mean, just
+[00:29:22] Adam: Five good villains and five great non non human facial structures. I mean, just
 
 [00:29:28] Norm: Ebony Maw with his like his preaching.
 
@@ -736,11 +708,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:29:37] Will: She had the horns with blue, blue.
 
-[00:29:38] Norm: from the leftovers
-
-[00:29:39] Norm: Nora
-
-[00:29:40] Norm: from the leftovers, who's amazing, just
+[00:29:38] Norm: from the leftovers Nora from the leftovers, who's amazing, just
 
 [00:29:42] Adam: incredible.
 
@@ -792,9 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:31:59] Adam: Also, I, you know, for some reason, the the one of my all time favorite Marvel moments is Hulk and Thor post fight in Ragnarok, where Hulk is like, " Yeah, but you don't like fire like Hulk like Hulk like real fire,
 
-[00:32:14] Norm: yeah,
-
-[00:32:14] Norm: real personality.
+[00:32:14] Norm: yeah, real personality.
 
 [00:32:16] Adam: You totally.
 
@@ -866,9 +832,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:34:44] Norm: and you see that their their bitter relationship. Being an abusive one from their father, that coming to fulfillment with Thanos,
 
-[00:34:52] Will: yeah,
-
-[00:34:53] Will: and it makes both Thanos more scary and Gamora more compelling character. So that when when they kill her off midway through the movie, it's also much more effective
+[00:34:52] Will: yeah, and it makes both Thanos more scary and Gamora more compelling character. So that when when they kill her off midway through the movie, it's also much more effective
 
 [00:34:59] Adam: Red Skull shows up.
 
@@ -940,11 +904,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:38:18] Will: Oh yeah,
 
-[00:38:18] Adam: but that's another one.
-
-[00:38:18] Adam: That's another one of the of the hey
-
-[00:38:21] Adam: the meta. And actually, going back to Civil War, where Tom Holland goes, you know that Shield doesn't obey any of the laws of physics.
+[00:38:18] Adam: but that's another one. That's another one of the of the hey the meta. And actually, going back to Civil War, where Tom Holland goes, you know that Shield doesn't obey any of the laws of physics.
 
 [00:38:29] Will: Oh yes. Well, I mean, the number of seeds that were planted through the last 10 or 12 movies to make this movie land
 
@@ -1008,9 +968,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:40:35] Norm: Yes.
 
-[00:40:35] Adam: You'll. You'll.
-
-[00:40:36] Adam: I love it when Loki's like, "Yeah, but I'm okay, boop," and he's Loki's gone.
+[00:40:35] Adam: You'll. You'll. I love it when Loki's like, "Yeah, but I'm okay, boop," and he's Loki's gone.
 
 [00:40:40] Will: I've been falling for 30 minutes. Such a good like that movie. So much of that movie lands so well, and the like that I don't drink like that whole. Yeah, that's a really fantastic. sequence.
 
@@ -1074,11 +1032,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:43:22] Will: But but but they don't. They did a good job escalating. Like if they had started that fight with Hulk and Thor there, it would have been a really tedious action sequence akin to any of the ones, any of the bad ones in Ultron, right? But without Without those two characters, you have essentially humans facing this supernatural threat, and then and then it escalates, and all of a sudden Thor warps in from the Bifrost or whatever, and
 
-[00:43:45] Adam: actually also I loved Thanos hurling around Hulk, that was intense, and like what can
-
-[00:43:53] Adam: not I know
-
-[00:43:53] Adam: Hulk can't be killed, but wow you can knock him out it turns out, and I was reading that oral history of Avengers and Whedon was talking about how I think if I remember correctly he was talking it was tough to sell the studio, on the ragdoll Loki
+[00:43:45] Adam: actually also I loved Thanos hurling around Hulk, that was intense, and like what can not I know Hulk can't be killed, but wow you can knock him out it turns out, and I was reading that oral history of Avengers and Whedon was talking about how I think if I remember correctly he was talking it was tough to sell the studio, on the ragdoll Loki
 
 [00:44:08] Norm: yeah
 
@@ -1088,9 +1042,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:44:26] Will: Oh, it landed better than anything else in that movie
 
-[00:44:29] Adam: totally
-
-[00:44:29] Adam: puny god
+[00:44:29] Adam: totally puny god
 
 [00:44:31] Will: the the That in the and the Thor, I mean, the callback to that. This is again, seeds. These seeds are planted for years. The callback to that in Thor, when Loki starts cheering, when Thor gets gets the the rag doll done to him.
 
@@ -1206,9 +1158,7 @@ Episode URL: https://www.youtube.com/watch?v=y3MWzbBm7XY
 
 [00:50:17] Adam: Do you want pastrami?
 
-[00:50:20] Will: Exactly.
-
-[00:50:21] Will: It's it's a I don't know it's a it's a stupendous film.
+[00:50:20] Will: Exactly. It's it's a I don't know it's a it's a stupendous film.
 
 [00:50:24] Adam: What do you think? I'm curious what Josh Brolin wears for the mocap sessions. Is he wearing Thanos armor? Is he in like a onesie?
 

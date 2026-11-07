@@ -140,9 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:08:03] Will: Also, the restaurant supply places are mostly selling direct to consumer now too.
 
-[00:08:07] Adam: Ah, that's right.
-
-[00:08:09] Adam: I mean, I have an account at one.
+[00:08:07] Adam: Ah, that's right. I mean, I have an account at one.
 
 [00:08:10] Will: Well, yeah, and then and then you have the, but then you do have the problem of like, okay, I've got a 30 pound bag of flour. How do I store this once I take the three cups out I need for my bread today or whatever it is? So
 
@@ -394,9 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=BDM_sI8g6nQ
 
 [00:30:53] Adam: a Norm suggestion a couple weeks ago.
 
-[00:30:55] Will: Okay.
-
-[00:30:57] Will: Um, oh shit! I didn't do my homework. Also, I'm not wearing pants. This is horrible.
+[00:30:55] Will: Okay. Um, oh shit! I didn't do my homework. Also, I'm not wearing pants. This is horrible.
 
 [00:31:02] Norm: We don't. We don't have to agree on everything. Uh, I did a North by Northwest again, and still love it. Still holds up.
 

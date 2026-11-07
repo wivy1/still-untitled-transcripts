@@ -16,9 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:00:44] Norm: Hello.
 
-[00:00:44] Will: Are you too hot, Norm? You want me to turn you down?
-
-[00:00:46] Will: You're good?
+[00:00:44] Will: Are you too hot, Norm? You want me to turn you down? You're good?
 
 [00:00:46] Norm: I think I sound good.
 
@@ -86,9 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:02:19] Adam: Really?
 
-[00:02:20] Will: Yeah.
-
-[00:02:20] Will: Like there was a couple of days, maybe two weeks ago, where we just started having alarms that we didn't set off going off at two two o'clock in the morning, 2:20 in the morning, 2:45 in the morning. Then I unplugged it, so I don't know how much longer it would have gone. And then last night I was laying in bed getting ready to go to sleep, and it was just like the time is 12:22. I was like, " Well, I didn't ask you what the time was. Why are you talking to me?" So I'm I went from I've done the other I yeah I rebooted it. It seems to it seems to help temporarily. I don't know what's going on with it. It's weird.
+[00:02:20] Will: Yeah. Like there was a couple of days, maybe two weeks ago, where we just started having alarms that we didn't set off going off at two two o'clock in the morning, 2:20 in the morning, 2:45 in the morning. Then I unplugged it, so I don't know how much longer it would have gone. And then last night I was laying in bed getting ready to go to sleep, and it was just like the time is 12:22. I was like, " Well, I didn't ask you what the time was. Why are you talking to me?" So I'm I went from I've done the other I yeah I rebooted it. It seems to it seems to help temporarily. I don't know what's going on with it. It's weird.
 
 [00:02:48] Adam: Here's the thing: I had a lovely dinner with the CTO of a large Fortune 500 company, and he has like five of these in his house. And it's controlling over 100 smart devices in his life, and as far as he was concerned, like it was all a net awesome. Oh, right. Like, and I so that made me like, yeah, okay, let's give this a shot.
 
@@ -132,9 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:04:27] Will: oh my my
 
-[00:04:28] Adam: It's so it's the most delightful video to watch
-
-[00:04:30] Adam: We watched a couple times I'll admit
+[00:04:28] Adam: It's so it's the most delightful video to watch We watched a couple times I'll admit
 
 [00:04:32] Will: my my daughter will like she plays she knows all the tricks for the Alexa she'll be like Alexa you know what's what's happening today and it goes through and like Alexa, sing me a song
 
@@ -218,9 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:07:35] Will: Spirited Away,
 
-[00:07:35] Adam: regular Totoro,
-
-[00:07:37] Adam: yeah,
+[00:07:35] Adam: regular Totoro, yeah,
 
 [00:07:37] Will: Inside Out. Like all the Giacchino to Pixar soundtracks are great. Just, just don't let them know that there's any. Yeah, don't let them know there's any music that exists outside of film. Like when when my daughter heard the new Jack White album, she's like, " Dad, what movie is this from?"
 
@@ -308,9 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:09:32] Will: I can't go out in the sun that long.
 
-[00:09:33] Adam: Oh, that's totally understandable.
-
-[00:09:33] Adam: I had a big hat on.
+[00:09:33] Adam: Oh, that's totally understandable. I had a big hat on.
 
 [00:09:38] Norm: Yeah, I was down in L.A. for a WonderCon.
 
@@ -326,9 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:09:56] Norm: and you know, I love conventions less so for the show floor these days and what's on the floor, and more for just seeing people and seeing
 
-[00:10:08] Adam: people you know, people that you like,
-
-[00:10:09] Adam: people that you admire
+[00:10:08] Adam: people you know, people that you like, people that you admire
 
 [00:10:10] Norm: exactly. And and and whether they're droid builders or cosplayers or just people who I've met at conventions, that ends up being most of what I do at these conventions because the floor, honestly, it's a lot of the same stuff, and I'm really interested to see as people are organizing conventions how they're going to shift from you know just a lot of the the Funko toys or these mystery loot boxes that people are selling and. And what? When do we hit peak convention? I don't know what that what that what it is. Yeah,
 
@@ -426,9 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:15:11] Will: Who made the movies? 20th Century Fox.
 
-[00:15:12] Norm: W. B. Warner Brothers is distributing this one,
-
-[00:15:15] Norm: so it it does that
+[00:15:12] Norm: W. B. Warner Brothers is distributing this one, so it it does that
 
 [00:15:18] Adam: They refuse to shave off Henry Cavill's mustache.
 
@@ -520,9 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=wHKu51vG_i8
 
 [00:19:05] Adam: That international is gonna be huge, yeah.
 
-[00:19:06] Norm: exactly.
-
-[00:19:06] Norm: It's going to be huge, and actually, I saw Pacific Rim too, and much of that film—it's not a spoiler to say—much of that film is actually in Chinese with subtitles, and I like that. I like that, you know.
+[00:19:06] Norm: exactly. It's going to be huge, and actually, I saw Pacific Rim too, and much of that film—it's not a spoiler to say—much of that film is actually in Chinese with subtitles, and I like that. I like that, you know.
 
 [00:19:17] Will: That's cool.
 

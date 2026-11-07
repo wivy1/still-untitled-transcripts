@@ -4,9 +4,7 @@
 **Duration:** 25m 38s  
 Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
-[00:00:23] Adam: Welcome
-
-[00:00:27] Adam: to Still Untitled, the Adam Savage Project. I'm Adam,
+[00:00:23] Adam: Welcome to Still Untitled, the Adam Savage Project. I'm Adam,
 
 [00:00:30] Norm: and I'm Norm,
 
@@ -114,9 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:03:36] Rebecca: I just love, because, like Adam's great realizations that hipsters are people.
 
-[00:03:41] Adam: No, no, no, no.
-
-[00:03:42] Adam: The realization isn't that hipsters are people. The realization that is that hipster isn't a thing. It's not a person. It's a construct in our head.
+[00:03:41] Adam: No, no, no, no. The realization isn't that hipsters are people. The realization that is that hipster isn't a thing. It's not a person. It's a construct in our head.
 
 [00:03:42] Unknown speaker: It's a construct in our head.
 
@@ -208,9 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:06:40] Rebecca: Yeah, and and I I think of myself as someone who is very open and and allied and you know supportive of Black Lives Matter and and things like that, but. Yeah, they were. He he put things into a context that I hadn't considered before. You know, even even even me, the pinnacle of liberal.
 
-[00:07:03] Adam: right, no
-
-[00:07:04] Adam: We think that we're liberal until we really read a worldview that's radically the the construct. And we talked about this on the podcast last week about the my feeling the microaggression of the TSA agent. Yeah, stop right there. It was that book that helped me understand that microaggression because at one point in the book he has an altercation with a woman in a mall where it goes bad, and I think it's a woman. She's the person he has the altercation with. Says I could call the cops, and Ta-Nehisi says what they meant was I can have control of your body anytime I want.
+[00:07:03] Adam: right, no We think that we're liberal until we really read a worldview that's radically the the construct. And we talked about this on the podcast last week about the my feeling the microaggression of the TSA agent. Yeah, stop right there. It was that book that helped me understand that microaggression because at one point in the book he has an altercation with a woman in a mall where it goes bad, and I think it's a woman. She's the person he has the altercation with. Says I could call the cops, and Ta-Nehisi says what they meant was I can have control of your body anytime I want.
 
 [00:07:39] Rebecca: Yeah,
 
@@ -440,9 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:13:59] Norm: But you've heard this story, Rebecca, from from the other Adam about we wanted to go to Aaron Douglas's party.
 
-[00:14:06] Adam: Oh yeah.
-
-[00:14:07] Adam: And Aaron Douglas always throws this epic party at DragonCon,
+[00:14:06] Adam: Oh yeah. And Aaron Douglas always throws this epic party at DragonCon,
 
 [00:14:10] Rebecca: and he is the nicest guy.
 
@@ -500,9 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:16:54] Adam: I seem to remember. Yeah, I know. And that's a cast also that is very close.
 
-[00:16:59] Rebecca: Yeah.
-
-[00:17:01] Rebecca: I haven't met them yet. I haven't checked those off my list.
+[00:16:59] Rebecca: Yeah. I haven't met them yet. I haven't checked those off my list.
 
 [00:17:03] Adam: You haven't met Nathan?
 
@@ -588,11 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:19:22] Rebecca: Mm-hmm.
 
-[00:19:17] Adam: Maybe Adam or somebody's in the room because there's always a lot of activity happening in my room. There's planning, so she's she knocks on the door and she's like,
-
-[00:19:31] Adam: Knock, knock, knock.
-
-[00:19:17] Adam: like this, " Fucking come on, somebody just come to the door! " And then the door opens and it's Jeff Bridges, and he's eating like a tortilla chip.
+[00:19:17] Adam: Maybe Adam or somebody's in the room because there's always a lot of activity happening in my room. There's planning, so she's she knocks on the door and she's like, Knock, knock, knock. like this, " Fucking come on, somebody just come to the door! " And then the door opens and it's Jeff Bridges, and he's eating like a tortilla chip.
 
 [00:19:42] Unknown speaker: [unclear: The dude].
 
@@ -642,15 +628,11 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:20:43] Rebecca: Mm.
 
-[00:20:35] Adam: It used to be like for your panel, you'd get to the green room early because like,
-
-[00:20:35] Adam: the whole cast of heroes would walk in.
+[00:20:35] Adam: It used to be like for your panel, you'd get to the green room early because like, the whole cast of heroes would walk in.
 
 [00:20:49] Rebecca: Right.
 
-[00:20:50] Adam: And I’d just go, Whoa,
-
-[00:20:51] Adam: you know,
+[00:20:50] Adam: And I’d just go, Whoa, you know,
 
 [00:20:52] Rebecca: who are they?
 
@@ -722,9 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=ExmvLikDYbE
 
 [00:23:24] Adam: Nice.
 
-[00:23:24] Rebecca: So they walk in, Ken, Terry Gilliam, and Trace Beaulieu, and I see them, and I run up to them. I'm like, " Hey, I didn't know Terry. I didn't know what he looked like because I have face blindness, but I did recognize Ken and Trace. " And I was like, " Guys, hey! " And I give them hugs, and I accidentally got fake blood on Trace, and Ken just looks. Like horrified that I look the way I look, and he's standing there with Terry Gilliam trying to get to breakfast. I was like, " Who are you? Hi, I'm Rebecca. I'm dressed as a Bruce."
-
-[00:24:00] Rebecca: And he's like, " Oh, oh yeah." And there's other Bruces. I was like, " Yeah, we got a Bruce Banner."
+[00:23:24] Rebecca: So they walk in, Ken, Terry Gilliam, and Trace Beaulieu, and I see them, and I run up to them. I'm like, " Hey, I didn't know Terry. I didn't know what he looked like because I have face blindness, but I did recognize Ken and Trace. " And I was like, " Guys, hey! " And I give them hugs, and I accidentally got fake blood on Trace, and Ken just looks. Like horrified that I look the way I look, and he's standing there with Terry Gilliam trying to get to breakfast. I was like, " Who are you? Hi, I'm Rebecca. I'm dressed as a Bruce." And he's like, " Oh, oh yeah." And there's other Bruces. I was like, " Yeah, we got a Bruce Banner."
 
 [00:24:04] Adam: Was there a shark? Did anyone dress up as a shark?
 

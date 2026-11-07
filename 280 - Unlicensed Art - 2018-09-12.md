@@ -20,9 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:00:15] Adam: Then you're not working hard enough.
 
-[00:00:15] Will: Yeah, exactly.
-
-[00:00:18] Will: How are your lads doing today?
+[00:00:15] Will: Yeah, exactly. How are your lads doing today?
 
 [00:00:19] Adam: Very good, very good. It is my 14th wedding anniversary today.
 
@@ -142,9 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:06:11] Will: 11 million.
 
-[00:06:12] Adam: There are traditions.
-
-[00:06:13] Adam: 0.5 billion.
+[00:06:12] Adam: There are traditions. 0.5 billion.
 
 [00:06:14] Will: 1 million seconds in a day in 11 days, right?
 
@@ -392,9 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:20:18] Adam: How unique is it?
 
-[00:20:19] Will: Yeah.
-
-[00:20:19] Will: is it something? Is it something that once you establish a market, then nobody else will be able to come in and take from you? Or if Facebook comes and does the same thing, are they going to immediately decimate you and and and just because of their sense of scale?
+[00:20:19] Will: Yeah. is it something? Is it something that once you establish a market, then nobody else will be able to come in and take from you? Or if Facebook comes and does the same thing, are they going to immediately decimate you and and and just because of their sense of scale?
 
 [00:20:29] Adam: Right.
 
@@ -420,9 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:21:45] Adam: whatever. But they were doing it for. Look, I mean, all all prop collecting. When you're collecting replicas, unless it's from NECA or you know any one of those other places that has licenses to do this stuff, you know, half of these helmets are somebody having custom sculpted somebody else's IP, and I bought a casting of that.
 
-[00:22:01] Will: Yeah,
-
-[00:22:01] Will: it's all all stolen goods, Adam.
+[00:22:01] Will: Yeah, it's all all stolen goods, Adam.
 
 [00:22:04] Adam: I believe all the parent companies have gotten their pound of flesh from me over the years.
 
@@ -520,11 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=Y-xcqyg_JmM
 
 [00:25:06] Adam: Yeah, it's it's an. This is maybe the the the most impressive collection I've ever seen being auctioned at once.
 
-[00:25:11] Will: Sell my house and buy an Indiana Jones hat, Adam.
-
-[00:25:13] Will: What's that?
-
-[00:25:13] Will: Sell my house and buy an Indiana Jones. Kid, I got good news for you.
+[00:25:11] Will: Sell my house and buy an Indiana Jones hat, Adam. What's that? Sell my house and buy an Indiana Jones. Kid, I got good news for you.
 
 [00:25:17] Adam: I got good news and bad news. Yes, the good news is I own Indiana Jones' hat.
 

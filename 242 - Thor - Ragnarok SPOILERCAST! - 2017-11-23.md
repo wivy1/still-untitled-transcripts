@@ -128,9 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=aT8qF-nF2HA
 
 [00:09:46] Norm: Hemsworth from Westworld?
 
-[00:09:47] Adam: Is that the Hemsworth
-
-[00:09:48] Adam: from Westworld? Okay. Cool.
+[00:09:47] Adam: Is that the Hemsworth from Westworld? Okay. Cool.
 
 [00:09:50] Unknown speaker (Norm or Will): Yes.
 
@@ -144,9 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=aT8qF-nF2HA
 
 [00:10:51] Norm: and nothing against. Yeah, nothing against Alan Taylor who directed Thor two. Like we got a really cool Lord of the Rings esque Thor movie in the second one. You know, big capes, sharp swords, elves. But it was the same Earth in peril, right? London, you know, like it was the world was going to end, and it didn't make sense because when you have a shared universe of all these heavy hitters, you can't have the world ending with every movie.
 
-[00:11:16] Adam: Well, how great was also the Doctor Strange cameo?
-
-[00:11:16] Adam: Like, I totally didn’t expect that. That blew my mind.
+[00:11:16] Adam: Well, how great was also the Doctor Strange cameo? Like, I totally didn’t expect that. That blew my mind.
 
 [00:11:23] Will: Well, and it makes total sense, right? Like Doctor Strange is in charge of protecting us from magic stuff. Guess what? Loki's magic stuff, and he's bad news. He's on the list. Of course, he's on the list.
 
@@ -156,9 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=aT8qF-nF2HA
 
 [00:11:52] Norm: I don't think he'll ever do it. Who’s Kyle Hill from the from Nerdist?
 
-[00:11:56] Adam: From Nerdist,
-
-[00:11:57] Adam: my friend from Nerdist, who hosted.
+[00:11:56] Adam: From Nerdist, my friend from Nerdist, who hosted.
 
 [00:11:58] Norm: He has he has the long Thor hair
 
@@ -166,11 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=aT8qF-nF2HA
 
 [00:12:08] Adam: Did you see someone tweeted recently that the that the man bun is the mullet of today?
 
-[00:12:15] Will: I I walked out of I walked out of the movie theater behind a guy with a man bun last night
-
-[00:12:15] Will: It was a man bun. It was—
-
-[00:12:15] Will: at midnight, and I was like, oh yeah, this is going to be a thing in a few years that we're going to make fun of. Okay, so back to Thor. We had some technical difficulties there. Look, the bit with Loki in the beginning replacing Odin. Like, I wondered how they were going to write themselves out of that hole. When I saw I rewatched Dark World the other day, which isn't a it's not definitely not my favorite Marvel movie, but it's it's entertaining enough, I guess. This this takes the threads left by that and makes a, a, a thing of joy. The interactions between Thor and the Hulk and Thor and Banner are everything I wanted out of a Planet Hulk storyline, without any of the other bullshit that I didn't need, like Hulk getting married and all that stuff that would have messed up the relationships with with with the Black Widow and Tasha. Um, like it's it's it's fabulous. It explains where Banner's been during the events of Civil War and all those things. Like it, it I I don't know. And and watching watching Thor just have a conversation, like playing both sides off of the middle with Banner and the Hulk, where he's like, " Look, I'm your friend, Hulk. You're the you're the strong one." You know, they go through the whole thing, and then he does the exact same thing with with Banner as the smart one in the in the Quinjet. It's it's fabulous. It's really good. So
+[00:12:15] Will: I I walked out of I walked out of the movie theater behind a guy with a man bun last night It was a man bun. It was— at midnight, and I was like, oh yeah, this is going to be a thing in a few years that we're going to make fun of. Okay, so back to Thor. We had some technical difficulties there. Look, the bit with Loki in the beginning replacing Odin. Like, I wondered how they were going to write themselves out of that hole. When I saw I rewatched Dark World the other day, which isn't a it's not definitely not my favorite Marvel movie, but it's it's entertaining enough, I guess. This this takes the threads left by that and makes a, a, a thing of joy. The interactions between Thor and the Hulk and Thor and Banner are everything I wanted out of a Planet Hulk storyline, without any of the other bullshit that I didn't need, like Hulk getting married and all that stuff that would have messed up the relationships with with with the Black Widow and Tasha. Um, like it's it's it's fabulous. It explains where Banner's been during the events of Civil War and all those things. Like it, it I I don't know. And and watching watching Thor just have a conversation, like playing both sides off of the middle with Banner and the Hulk, where he's like, " Look, I'm your friend, Hulk. You're the you're the strong one." You know, they go through the whole thing, and then he does the exact same thing with with Banner as the smart one in the in the Quinjet. It's it's fabulous. It's really good. So
 
 [00:13:35] Adam: good.
 
@@ -200,9 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=aT8qF-nF2HA
 
 [00:15:19] Adam: she's a Māori who is in Hunt for the Wilderpeople, and she's brilliant in both.
 
-[00:15:29] Norm: She, it’s,
-
-[00:15:29] Norm: it's almost the same character, the enforcer role, who takes her job too seriously and plays off Goldblum so well. And Goldblum can be Goldblum. He’s fine as Goldblum.
+[00:15:29] Norm: She, it’s, it's almost the same character, the enforcer role, who takes her job too seriously and plays off Goldblum so well. And Goldblum can be Goldblum. He’s fine as Goldblum.
 
 [00:15:38] Will: Goldblum is peak Goldblum in this movie. Like he's he is Jurassic Park um um um um um awkward Goldblum in a delightful, wonderful way. The the like what like the fact that he plays that character so self aware and he and is is aware of the fact that he's ridiculous. He knows he's ridiculous. Like like just just the pauses. The the one that the one that hit me last night was when. When he he says, " Look, I could have been. Time works weird here. I could have been here for millions of years. Uh, I, I, you know, anywhere else, I'd be millions of years old, but here I'm." And then just leaves it hanging, like leaves the how old is Jeff Goldblum in this role hanging? It's just such a dumb, like. I was the only person in the theater laughing. It was such a dumb Goldblum thing. Like I, I don't know. I, I love Jeff Goldblum, and and he was fabulous in this movie.
 
@@ -242,9 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=aT8qF-nF2HA
 
 [00:19:28] Adam: So, go ahead.
 
-[00:19:29] Will: I was going to say, Idris Elba also has been in that in that role of the gatekeeper for two movies now, three movies. I think he's showed up in one of the Avengers movies too, and I was really excited to see him actually get to do something this go round in in a good way. So that was that was pretty good
-
-[00:19:29] Will: too. Real solid. Real solid.
+[00:19:29] Will: I was going to say, Idris Elba also has been in that in that role of the gatekeeper for two movies now, three movies. I think he's showed up in one of the Avengers movies too, and I was really excited to see him actually get to do something this go round in in a good way. So that was that was pretty good too. Real solid. Real solid.
 
 [00:19:48] Adam: Can I change the subject?
 
@@ -308,9 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=aT8qF-nF2HA
 
 [00:28:44] Adam: I could be a one hit wonder. You never know. Listen, if this ends up being the only thing I ever like sell a reasonable number of, that's fine. This is this it's it's been a lovely journey and. The the going through all the interstices, even down to like making sure I've worked up a privacy policy that I want to adhere to. I get to now write those things like we're not going to use your email for anything other than emailing you about these, and if you unsubscribe, we will forget you in the best way, in the right way, in the way you've asked us to forget you.
 
-[00:28:44] Norm: So, Adam,
-
-[00:29:19] Norm: you're
+[00:28:44] Norm: So, Adam, you're
 
 [00:29:20] Will: oh, go ahead, Norm.
 

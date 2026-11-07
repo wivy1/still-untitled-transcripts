@@ -68,15 +68,9 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:02:11] Will: I.
 
-[00:02:11] Adam: San Francisco is getting warmer, and in 50 years, San Francisco will have the weather of LA. Is the latest forecast I saw.
+[00:02:11] Adam: San Francisco is getting warmer, and in 50 years, San Francisco will have the weather of LA. Is the latest forecast I saw. And if that's the case, AC is going to be in—completely vital.
 
-[00:02:17] Adam: And
-
-[00:02:17] Adam: if that's the case, AC is going to be in—completely vital.
-
-[00:02:19] Will: You'll have to.
-
-[00:02:20] Will: Yeah. Well, you have a central furnace, right?
+[00:02:19] Will: You'll have to. Yeah. Well, you have a central furnace, right?
 
 [00:02:22] Adam: We do. I don't actually in my house. There's only one floor that needs AC.
 
@@ -108,9 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:03:12] Will: Well, the Nest the Nest doesn't understand houses without air conditioning.
 
-[00:03:16] Norm: Yeah.
-
-[00:03:16] Norm: Oh really?
+[00:03:16] Norm: Yeah. Oh really?
 
 [00:03:16] Will: It seems like it gets confused.
 
@@ -132,13 +124,9 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:03:36] Adam: It's not.
 
-[00:03:36] Will: Okay. I was going to say this is the most awkward
+[00:03:36] Will: Okay. I was going to say this is the most awkward plug I've ever heard.
 
-[00:03:39] Will: plug I've ever heard.
-
-[00:03:40] Adam: Yeah.
-
-[00:03:41] Adam: I back in the early '90s when I first moved out to San Francisco, my roommate and I at the time got very into chess.
+[00:03:40] Adam: Yeah. I back in the early '90s when I first moved out to San Francisco, my roommate and I at the time got very into chess.
 
 [00:03:51] Will: Okay.
 
@@ -208,9 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:08:18] Norm: I love doing that too, right?
 
-[00:08:19] Adam: Sometimes
-
-[00:08:19] Adam: I'm pausing to look at pictures of who who the players are, also, and doing other research about this game of the century, that game of the century.
+[00:08:19] Adam: Sometimes I'm pausing to look at pictures of who who the players are, also, and doing other research about this game of the century, that game of the century.
 
 [00:08:27] Will: Well, it's funny because this is this is the place that like watching sports fails. Like the sports commentators, it's it's funny because the folks that make a video game called Dota do this big international tournament every few years, and they run multiple commentary streams. They run one for people who don't understand the game at all, and then they run others for people who like have played the game and understand basic strategy and stuff like that. And it's it's like that's the kind of thing that I think you miss on physical sports a lot of times. Like baseball commentators shoot for the median, right? Like they don't they don't explain the strategy of pulling the pitcher at this point.
 
@@ -220,9 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:09:30] Adam: That's it.
 
-[00:09:30] Norm: Yeah.
-
-[00:09:30] Norm: and it happens in sports basketball especially, because all the footage is digital now, so they can find the people are uploading entire games, easy for you to rip. And there is some great literal play-by-play commentary where they're taking 15 seconds of a 48 minute game, and you watch a 10-minute video about the decisions of all 10 players on the court
+[00:09:30] Norm: Yeah. and it happens in sports basketball especially, because all the footage is digital now, so they can find the people are uploading entire games, easy for you to rip. And there is some great literal play-by-play commentary where they're taking 15 seconds of a 48 minute game, and you watch a 10-minute video about the decisions of all 10 players on the court
 
 [00:09:51] Adam: Yeah.
 
@@ -624,9 +608,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:27:11] Norm: Sure.
 
-[00:27:11] Adam: Yeah.
-
-[00:27:11] Adam: Oh yeah, you're absolutely right about that.
+[00:27:11] Adam: Yeah. Oh yeah, you're absolutely right about that.
 
 [00:27:13] Norm: Except in this case, it's true.
 
@@ -670,9 +652,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:28:37] Adam: What do they call those bottle episodes? Not a bottle episode in the bunch.
 
-[00:28:41] Will: I like a you know.
-
-[00:28:42] Will: I don't mind them. I don't mind a bottle episode.
+[00:28:41] Will: I like a you know. I don't mind them. I don't mind a bottle episode.
 
 [00:28:44] Adam: But you know, I got to the end of the first season of Westworld, and I was like, I just watched 10 hours, and I feel like I watched four and a half hours.
 
@@ -686,9 +666,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:28:57] Will: Oh, the first season might have been short, but the every season after that was 20, 20 something episodes.
 
-[00:29:01] Norm: Really?
-
-[00:29:01] Norm: No, no, West Westworld.
+[00:29:01] Norm: Really? No, no, West Westworld.
 
 [00:29:03] Will: Oh, Westworld. I thought West Wing. Sorry, I thought you were talking about what I heard West Wing, and you said Westworld.
 
@@ -710,9 +688,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:30:16] Norm: Yeah, Jack Quaid plays Hughie. Yeah,
 
-[00:30:17] Adam: Jack Quaid.
-
-[00:30:18] Adam: there's a point at which he's about to date this girl, a superhero called Starlight. What is the name of the actress?
+[00:30:17] Adam: Jack Quaid. there's a point at which he's about to date this girl, a superhero called Starlight. What is the name of the actress?
 
 [00:30:25] Norm: It is Erin Moriarty.
 
@@ -868,9 +844,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:35:42] Adam: And she in prepping for the audition. She not only goes through audition processes and tapes and stuff, but she also like patrols her town and stops crimes.
 
-[00:35:49] Will: Yeah,
-
-[00:35:49] Will: Does she already have powers at this point?
+[00:35:49] Will: Yeah, Does she already have powers at this point?
 
 [00:35:51] Adam: she already has powers. Yeah,
 
@@ -916,9 +890,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:37:20] Norm: Yeah, his girlfriend.
 
-[00:37:20] Adam: His girlfriend. You meet him and his girlfriend, and this is one of those examples of terrific writing where they're funny together. You find them funny. You you see the love they have for each other. You get why they're together, and you like them. And he's standing on the street corner, holding her hands when the equivalent of the Flash. Runs by
-
-[00:37:43] Adam: and through her,
+[00:37:20] Adam: His girlfriend. You meet him and his girlfriend, and this is one of those examples of terrific writing where they're funny together. You find them funny. You you see the love they have for each other. You get why they're together, and you like them. And he's standing on the street corner, holding her hands when the equivalent of the Flash. Runs by and through her,
 
 [00:37:45] Norm: and she pulverizes.
 
@@ -970,15 +942,11 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:38:58] Norm: He's at one of those [unclear: perfect] plane conventions, signing autographs with Billy Zane,
 
-[00:39:02] Adam: right? Billy Zane playing himself.
-
-[00:39:05] Adam: And there's a couple of other actors also in there,
+[00:39:02] Adam: right? Billy Zane playing himself. And there's a couple of other actors also in there,
 
 [00:39:06] Will: like ex-old superhero actors.
 
-[00:39:08] Adam: Yeah.
-
-[00:39:09] Adam: Billy Zane.
+[00:39:08] Adam: Yeah. Billy Zane.
 
 [00:39:09] Will: Oh man,
 
@@ -1008,9 +976,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:40:49] Norm: Hughie in the comic looks more like Simon Pegg, who's also in the show.
 
-[00:40:53] Adam: Simon Pegg.
-
-[00:40:54] Adam: Simon Pegg plays a dad. Yeah, you know that felt like a key moment for me. It's like when Tate Donovan played a dad. I was like, wow, I'm old, and now Simon Pegg is playing a dad.
+[00:40:53] Adam: Simon Pegg. Simon Pegg plays a dad. Yeah, you know that felt like a key moment for me. It's like when Tate Donovan played a dad. I was like, wow, I'm old, and now Simon Pegg is playing a dad.
 
 [00:41:05] Will: Oh man,
 
@@ -1094,9 +1060,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:43:28] Adam: exactly.
 
-[00:43:29] Will: Okay,
-
-[00:43:30] Will: all right. That'll do it for us. I guess.
+[00:43:29] Will: Okay, all right. That'll do it for us. I guess.
 
 [00:43:31] Adam: I think so.
 
@@ -1142,9 +1106,7 @@ Episode URL: https://www.youtube.com/watch?v=nX9JBY-0YRg
 
 [00:46:05] Norm: Yes.
 
-[00:46:07] Adam: All right.
-
-[00:46:08] Adam: I pushed the pop culture. That's everyone wants to know what pop culture sounds like. That's it.
+[00:46:07] Adam: All right. I pushed the pop culture. That's everyone wants to know what pop culture sounds like. That's it.
 
 [00:46:13] Norm: All right. Thanks.
 

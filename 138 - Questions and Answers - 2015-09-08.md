@@ -94,11 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:06:02] Will: Any port in the storm, man.
 
-[00:06:03] Adam: And so I was like, oh, so I went to thing one and I said. Were there boobs around last weekend? And he was like, " No." And I went to thing two, and I was like, " Were there boobs around last weekend?" And he was like, "
-
-[00:06:14] Adam: Oh yeah."
-
-[00:06:18] Adam: Hold on, just a second. Here comes.
+[00:06:03] Adam: And so I was like, oh, so I went to thing one and I said. Were there boobs around last weekend? And he was like, " No." And I went to thing two, and I was like, " Were there boobs around last weekend?" And he was like, " Oh yeah." Hold on, just a second. Here comes.
 
 [00:06:20] Will: Oh, thank you, sir.
 
@@ -124,9 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:07:01] Adam: Well, I must have said this on the podcast back when RadioShacks RadioShack is no longer
 
-[00:07:08] Will: right.
-
-[00:07:08] Will: No, they're all gone now.
+[00:07:08] Will: right. No, they're all gone now.
 
 [00:07:09] Adam: So back when.
 
@@ -270,9 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:14:39] Adam: Yes, well, they asked it on the website.
 
-[00:14:41] Will: Okay.
-
-[00:14:42] Will: [unclear: Don / Don’t]
+[00:14:41] Will: Okay. [unclear: Don / Don’t]
 
 [00:14:43] Adam: reading comments. How messed up is that?
 
@@ -282,9 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:14:49] Will: That's true.
 
-[00:14:50] Adam: I'm sure now someone's going to take it on themselves
-
-[00:14:52] Adam: to subvert that.
+[00:14:50] Adam: I'm sure now someone's going to take it on themselves to subvert that.
 
 [00:14:53] Will: Well, the YouTube comments. I have to say, the YouTube comments have gotten.
 
@@ -320,9 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:15:43] Will: There’s reasons for that. If you've seen [unclear: Captain again],
 
-[00:15:44] Adam: yes, there's
-
-[00:15:45] Adam: totally reasons. And he goes, " Was there any part you couldn't find?" And I was like, " I couldn't get the stripes for the shirt." And he went, and he gave me his shirt.
+[00:15:44] Adam: yes, there's totally reasons. And he goes, " Was there any part you couldn't find?" And I was like, " I couldn't get the stripes for the shirt." And he went, and he gave me his shirt.
 
 [00:15:54] Will: That's awesome!
 
@@ -460,9 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:24:09] Adam: Um, you've seen Let the Right One In, right?
 
-[00:24:11] Will: I haven't.
-
-[00:24:12] Will: I don't. This is a secret. I don't like horror movies very much.
+[00:24:11] Will: I haven't. I don't. This is a secret. I don't like horror movies very much.
 
 [00:24:16] Adam: Let the Right One In is worth your time.
 
@@ -526,9 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:26:48] Will: the Nicole Kidman movie.
 
-[00:26:49] Adam: Oh, what's that?
-
-[00:26:51] Adam: To die for.
+[00:26:49] Adam: Oh, what's that? To die for.
 
 [00:26:52] Will: To die for. Right. There's a there's this this ice skating scene that goes over the entire end credits, like 10 minutes long.
 
@@ -548,9 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=3JiDXbTvll8
 
 [00:27:55] Will: There, there’s a language of film. This is the thing I was I was going to say is that there’s a language of film. Part of it is just you watch a ton of movies, but part of it is once you understand that a Dutch angle means that there should be some tension in the scene,
 
-[00:28:07] Adam: right?
-
-[00:28:08] Adam: Yeah, that was a recent one.
+[00:28:07] Adam: right? Yeah, that was a recent one.
 
 [00:28:08] Will: It was a good one. Yeah, yeah. Then you start looking at you start looking at things completely differently, and you understand the the authorial intent more or directorial intent more. I guess the the other like I want a book that's basically like film school 101, like the stuff that you should learn in the first year of film school. That that because if once you know that Chekhov's gun is a is a concept for screenwriters, right?
 

@@ -26,9 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:00:27] Will: It was a Friends joke.
 
-[00:00:27] Adam: We were on a break.
-
-[00:00:34] Adam: That's my Ross impression.
+[00:00:27] Adam: We were on a break. That's my Ross impression.
 
 [00:00:35] Will: The unresolved sexual tension is my. I think we've talked. Have we talked about this before? It is my least favorite thing in the world as a TV trope.
 
@@ -314,9 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:14:14] Adam: and I never went.
 
-[00:14:15] Will: Wow.
-
-[00:14:16] Will: Tuesday night was quarter tacos.
+[00:14:15] Will: Wow. Tuesday night was quarter tacos.
 
 [00:14:18] Adam: Exactly, I was like 19 and a total asshole. What did I know?
 
@@ -478,11 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:24:03] Adam: absolutely, totally.
 
-[00:24:04] Will: And that meant that when Jamie called, he knew you.
-
-[00:24:04] Will: Well, I mean, this was after that, but yeah,
-
-[00:24:04] Will: yeah, people knew you
+[00:24:04] Will: And that meant that when Jamie called, he knew you. Well, I mean, this was after that, but yeah, yeah, people knew you
 
 [00:24:09] Adam: absolutely, and that was invaluable.
 
@@ -514,9 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:25:10] Adam: Absolutely.
 
-[00:25:11] Norm: Absolutely. And
-
-[00:25:11] Norm: I don't think it's ever too late.
+[00:25:11] Norm: Absolutely. And I don't think it's ever too late.
 
 [00:25:13] Will: No, it's never too late.
 
@@ -550,15 +540,11 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:25:43] Adam: But you had a good bank account.
 
-[00:25:43] Norm: but but it was a great great learning experience.
-
-[00:26:00] Norm: But yeah,
+[00:25:43] Norm: but but it was a great great learning experience. But yeah,
 
 [00:26:00] Will: but you all, and then your first your first 20,000.
 
-[00:26:04] Norm: Yep,
-
-[00:26:05] Norm: and it was yeah, it was yeah, yeah, a tower of UPS boxes. We can get free boxes and packages from USPS. Oh yeah!
+[00:26:04] Norm: Yep, and it was yeah, it was yeah, yeah, a tower of UPS boxes. We can get free boxes and packages from USPS. Oh yeah!
 
 [00:26:12] Will: Wow! I'm totally amazed when when you applied for the internship at PC Gamer.
 
@@ -648,17 +634,13 @@ Episode URL: https://www.youtube.com/watch?v=tWNe4Y0WEqg
 
 [00:29:43] Will: Yeah.
 
-[00:29:43] Adam: After I left ILM, when after I stopped working in IATSE, there's a certain period of time after which your health insurance lapses. There was a lag, and actually, we we it was just about the time I met my wife, my current wife. And we just got a little bit of float insurance to carry us through that, and now I've been with the same carrier ever since. But boy, yeah, I was fast and fancy free back then.
-
-[00:29:43] Adam: Yeah, health insurance was ridiculous.
+[00:29:43] Adam: After I left ILM, when after I stopped working in IATSE, there's a certain period of time after which your health insurance lapses. There was a lag, and actually, we we it was just about the time I met my wife, my current wife. And we just got a little bit of float insurance to carry us through that, and now I've been with the same carrier ever since. But boy, yeah, I was fast and fancy free back then. Yeah, health insurance was ridiculous.
 
 [00:30:16] Will: It was, yeah, I did things that were scary.
 
 [00:30:22] Norm: When you are immortal, you can do anything,
 
-[00:30:22] Adam: right? God,
-
-[00:30:25] Adam: don't you? It's, I mean, it's particularly the thing with me and my my kids being 15. It's like I know you feel like you are immortal. I know you feel like there's just like endless things.
+[00:30:22] Adam: right? God, don't you? It's, I mean, it's particularly the thing with me and my my kids being 15. It's like I know you feel like you are immortal. I know you feel like there's just like endless things.
 
 [00:30:35] Will: You need to teach them what real pain is. It's the only way to be make them safe. So it's it's the the Paul Muad'Dib thing where you put the hand in the pain box. This is this is what.
 

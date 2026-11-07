@@ -10,9 +10,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:00:44] Max: Oh, I'm Max.
 
-[00:00:45] Adam: Hey.
-
-[00:00:46] Adam: Hello, Max.
+[00:00:45] Adam: Hey. Hello, Max.
 
 [00:00:47] Max: Hi.
 
@@ -152,9 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:07:37] Adam: dude
 
-[00:07:37] Will: like you see there's a level of preparation. Like I I worked on the Hill for two summers when I was in college, right?
-
-[00:07:44] Will: I I went to a lot of committee hearings,
+[00:07:37] Will: like you see there's a level of preparation. Like I I worked on the Hill for two summers when I was in college, right? I I went to a lot of committee hearings,
 
 [00:07:44] Adam: right?
 
@@ -176,9 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:08:46] Will: if you're beefing with the rock you're always beefing with the Rock.
 
-[00:08:49] Max: Yeah, yeah
-
-[00:08:49] Max: yeah no I appreciate
+[00:08:49] Max: Yeah, yeah yeah no I appreciate
 
 [00:08:49] Adam: I I I will say that Max Landis turned me around on all of this to to love the whole idea of it wrestling is fake right you’ve seen his video
 
@@ -238,9 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:11:37] Adam: Well, we're we’re
 
-[00:11:38] Will: while I'm going to the bathroom.
-
-[00:11:39] Will: I mean,
+[00:11:38] Will: while I'm going to the bathroom. I mean,
 
 [00:11:40] Max: we're very broken. We're very broken that we are drinking from the fire.
 
@@ -388,19 +380,13 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:18:37] Adam: Yeah, but go ahead.
 
-[00:18:38] Will: That book, the the the climax of that book is us getting to a point where we've destroyed every single one billionth and of
-
-[00:18:45] Will: the population of the world,
+[00:18:38] Will: That book, the the the climax of that book is us getting to a point where we've destroyed every single one billionth and of the population of the world,
 
 [00:18:46] Adam: and we somehow pull it out of the fire.
 
-[00:18:49] Max: But I'm not. But I'm not. I mean, I I
+[00:18:49] Max: But I'm not. But I'm not. I mean, I I I like
 
-[00:18:51] Max: I like
-
-[00:18:51] Adam: Cixin Liu.
-
-[00:18:51] Adam: I've just read Ball Lightning, the the Three Body Problem trilogy.
+[00:18:51] Adam: Cixin Liu. I've just read Ball Lightning, the the Three Body Problem trilogy.
 
 [00:18:55] Max: Oh yeah, yeah,
 
@@ -632,9 +618,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:26:58] Max: There's a lot of content to watch now.
 
-[00:26:59] Will: Oh my god,
-
-[00:26:59] Will: a lot of content.
+[00:26:59] Will: Oh my god, a lot of content.
 
 [00:27:00] Adam: You love content, Max.
 
@@ -666,9 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:27:56] Adam: So you want to be your own Jack White concert in your house?
 
-[00:28:00] Will: Yeah,
-
-[00:28:00] Will: look, there are worse things to be than a Jack White concert.
+[00:28:00] Will: Yeah, look, there are worse things to be than a Jack White concert.
 
 [00:28:02] Adam: Scalzi says that he wrote three robots.
 
@@ -734,9 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:31:12] Will: Well, it's like running a website about.
 
-[00:31:14] Max: So I totally know what you mean.
-
-[00:31:15] Max: Maybe that's the maybe that's the answer. But I mean, you just have a higher output. You come up with cool things to do, and you do them, and then you finish them, right? There are not. I do not see. 75 half-finished projects out.
+[00:31:14] Max: So I totally know what you mean. Maybe that's the maybe that's the answer. But I mean, you just have a higher output. You come up with cool things to do, and you do them, and then you finish them, right? There are not. I do not see. 75 half-finished projects out.
 
 [00:31:28] Adam: Well, I'll show you because on the rack above my table saw is 75 unfinished projects, and I literally put them one level deep on a set of shelves so that they were always looking at me.
 
@@ -762,9 +742,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:32:42] Will: I mean, I think so. In the early days of us working with you at Tested, I think the first maybe two years, a lot of the projects were things that you'd been working on for like five plus years.
 
-[00:32:51] Adam: Right,
-
-[00:32:53] Adam: We were filming the tail end of the long term.
+[00:32:51] Adam: Right, We were filming the tail end of the long term.
 
 [00:32:53] Will: We did ZF1, the the Mechahand from Hellboy. There were a lot of projects that had been kind of stewing for you for a really long time. In some cases, that then we caught up on it. And the thing that's been fascinating for me to watch from the outside now is over the last two or three years, you've been doing more kind of start to finish projects that have been things that you wanted to do clearly for a really long time, and then kind of had never had an excuse. Like I think in a lot of ways, Tested is a good excuse for you to do some of this stuff.
 
@@ -812,9 +790,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:37:50] Unknown (Max or Will): yeah.
 
-[00:37:50] Adam: 12 films. At some point, I was like, " Oh my god, I'm such an idiot.
-
-[00:37:54] Adam: Why do I even do this?"
+[00:37:50] Adam: 12 films. At some point, I was like, " Oh my god, I'm such an idiot. Why do I even do this?"
 
 [00:37:55] Will: I'm going to go Google how do I become less self-aware.
 
@@ -928,9 +904,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:42:59] Adam: Yeah. So yeah, I basically use Bridge and I make new folders.
 
-[00:43:03] Max: Can you get that on your phone if you need?
-
-[00:43:05] Max: If you're out and about or you know whatever.
+[00:43:03] Max: Can you get that on your phone if you need? If you're out and about or you know whatever.
 
 [00:43:07] Adam: No,
 
@@ -1002,9 +976,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:46:45] Unknown (Adam or Will): Yeah.
 
-[00:46:47] Max: What's funny also is that even
-
-[00:46:48] Max: like a library stand with the brass light or like the green light on it, and you can see all the.
+[00:46:47] Max: What's funny also is that even like a library stand with the brass light or like the green light on it, and you can see all the.
 
 [00:46:52] Adam: And even though I have all this stuff digitally, when I'm actually working on a project, I have to print everything out in hard copy to help me build.
 
@@ -1072,9 +1044,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:50:28] Will: It's on their fantastic shirts. It looks like you just drew that on there with a white white marker.
 
-[00:50:31] Adam: I did.
-
-[00:50:32] Adam: I drew this with a whiteout marker.
+[00:50:31] Adam: I did. I drew this with a whiteout marker.
 
 [00:50:33] Will: You did that for all of them?
 
@@ -1144,9 +1114,7 @@ Episode URL: https://www.youtube.com/watch?v=RgQDhmpQI1c
 
 [00:53:22] Unknown (Adam, Max or Will): Thank you for being on.
 
-[00:53:20] Max: Buy a t-shirt. Buy a t-shirt.
-
-[00:53:23] Max: Thanks for having me.
+[00:53:20] Max: Buy a t-shirt. Buy a t-shirt. Thanks for having me.
 
 [00:53:24] Unknown (Adam or Will): Absolutely.
 

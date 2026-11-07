@@ -60,9 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:02:08] Will: Nokia,
 
-[00:02:08] Norm: at the Lowe's,
-
-[00:02:10] Norm: the big one,
+[00:02:08] Norm: at the Lowe's, the big one,
 
 [00:02:11] Adam: yeah,
 
@@ -292,9 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:11:15] Adam: You wanted to watch the cruelty of nature play itself out for your enjoyment.
 
-[00:11:18] Will: Like I, I used to be kind of okay. I used to think seals were really cute and and and had problems with you know orcas or whatever was was would polar bears whatever would eat seals. And then I watched March of the Penguins and realized that the seals just camp the penguin hole in the ice, and the penguins are way cuter than the seals. So you know,
-
-[00:11:36] Will: seals get what they deserve.
+[00:11:18] Will: Like I, I used to be kind of okay. I used to think seals were really cute and and and had problems with you know orcas or whatever was was would polar bears whatever would eat seals. And then I watched March of the Penguins and realized that the seals just camp the penguin hole in the ice, and the penguins are way cuter than the seals. So you know, seals get what they deserve.
 
 [00:11:37] Norm: And then the polar bears just camp the seal holes in the ice,
 
@@ -558,9 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:18:43] Will: Mm-hmm.
 
-[00:18:36] Norm: but the rooms were converted. We had like fancy meals,
-
-[00:18:46] Norm: not buffets, but like we had like you know we had fish or lamb and duck, you know, and and
+[00:18:36] Norm: but the rooms were converted. We had like fancy meals, not buffets, but like we had like you know we had fish or lamb and duck, you know, and and
 
 [00:18:52] Adam: Amazing.
 
@@ -772,9 +766,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:24:23] Will: What um, what I I have to imagine for somebody like you who is, you are traditionally the most connected person I know.
 
-[00:24:31] Norm: Yeah.
-
-[00:24:31] Norm: It took a time. It took it took a while.
+[00:24:31] Norm: Yeah. It took a time. It took it took a while.
 
 [00:24:33] Will: You were a little broken.
 
@@ -798,9 +790,7 @@ Episode URL: https://www.youtube.com/watch?v=z1ho-wMBiLQ
 
 [00:25:08] Adam: Mm-hmm.
 
-[00:25:03] Norm: so musicians and and amazing photographers and videographers, some some YouTubers who just do incredible work, and to watch them work was really really inspiring. It's really like a kick in the pants, like like get stuff done. Late at night, one of the guys there, a musician named Danny Michel, a friend of Chris's, they would bring out their guitars just at like eleven p.m.
-
-[00:25:32] Norm: and a bottle of whiskey, and you know play guitar in the lounge.
+[00:25:03] Norm: so musicians and and amazing photographers and videographers, some some YouTubers who just do incredible work, and to watch them work was really really inspiring. It's really like a kick in the pants, like like get stuff done. Late at night, one of the guys there, a musician named Danny Michel, a friend of Chris's, they would bring out their guitars just at like eleven p.m. and a bottle of whiskey, and you know play guitar in the lounge.
 
 [00:25:36] Adam: I love the dedicated musician Chris really is. That's awesome,
 

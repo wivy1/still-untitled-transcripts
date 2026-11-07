@@ -360,9 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ky7Qz9Mt_o
 
 [00:13:08] Unknown speaker: Yeah.
 
-[00:13:08] Adam: a little more robust
-
-[00:13:08] Adam: because I think
+[00:13:08] Adam: a little more robust because I think
 
 [00:13:08] Will: it's a good topic.
 
@@ -428,9 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ky7Qz9Mt_o
 
 [00:18:11] Adam: I love doing that. That's that's that's how I wrote the Maltese Falcon talk was something like 175 slides in 10 minutes.
 
-[00:18:18] Will: Well, and you just it's just it's just it's interesting because you can be talking about one thing, and it's the thing, uh, I took a class in college called Pop Pop Culture and American Politics, which basically was a comparison of Ronald Reagan and John Wayne, because the the the guy's whole point was all the lessons. You know, Ronald Reagan wanted American voters to think that he was John Wayne; that he was going to come in and save them from the communists. Anytime there was bad news, he would go to the ranch in California and ride a horse, so that the footage they would have of him from the day was him riding a Ron Reagan riding a horse, and the terrible economy news would hit. But you think, oh, Ronnie's riding a horse; everything's fine. Wow. Um,
-
-[00:18:18] Will: and and that that
+[00:18:18] Will: Well, and you just it's just it's just it's interesting because you can be talking about one thing, and it's the thing, uh, I took a class in college called Pop Pop Culture and American Politics, which basically was a comparison of Ronald Reagan and John Wayne, because the the the guy's whole point was all the lessons. You know, Ronald Reagan wanted American voters to think that he was John Wayne; that he was going to come in and save them from the communists. Anytime there was bad news, he would go to the ranch in California and ride a horse, so that the footage they would have of him from the day was him riding a Ron Reagan riding a horse, and the terrible economy news would hit. But you think, oh, Ronnie's riding a horse; everything's fine. Wow. Um, and and that that
 
 [00:18:18] Adam: particular kind of genius.
 
@@ -530,9 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ky7Qz9Mt_o
 
 [00:24:23] Adam: Maybe. We’re, we’re, tickets go on sale soon. We're going to do Australia, New Zealand this summer, and then we're going to do. We're looking towards another North American, uh, tour, uh, in the late fall, November, December. Um, so, yeah, I guess it would be the, uh, the third and fourth leg of, of an ongoing tour.
 
-[00:24:39] Will: Yeah. So, so will you? I mean, at some point, do you just say, " Okay, we're we're going to start start from the ground up, and maybe bring back one or two old favorites"?
-
-[00:24:48] Will: Um, there is some serious honking going on out there.
+[00:24:39] Will: Yeah. So, so will you? I mean, at some point, do you just say, " Okay, we're we're going to start start from the ground up, and maybe bring back one or two old favorites"? Um, there is some serious honking going on out there.
 
 [00:24:48] Adam: What is going on out there?
 

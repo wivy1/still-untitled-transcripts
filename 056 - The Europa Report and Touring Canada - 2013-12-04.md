@@ -144,11 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:10:44] Will: It's found footage.
 
-[00:10:31] Adam: the documentary. Yeah, it's a found footage film. Um, and it's
-
-[00:10:50] Adam: it's good.
-
-[00:10:51] Adam: It it it's it's low budget is clearly visible in a bunch of ways.
+[00:10:31] Adam: the documentary. Yeah, it's a found footage film. Um, and it's it's good. It it it's it's low budget is clearly visible in a bunch of ways.
 
 [00:10:56] Will: Like in a bad way or an okay way?
 
@@ -160,9 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:11:34] Will: oh, go ahead.
 
-[00:11:35] Adam: It's like an 18 month 18 month trip, so you bounce back and forth in time a bit. Testimonials from the astronauts, right to a camera, footage from all over the space station from fixed cameras, each one labeled every time you cut to it, and it it is really well constructed. It's a sophisticated and and well constructed film. Like I said, some of its budget shows up in some of the CG shots of the exterior of the capsule. I think they're CG, even if there’s even if they're model shots, they're still pretty low res. Like
-
-[00:12:09] Adam: the model making isn't. Isn't as tight as I would have expected.
+[00:11:35] Adam: It's like an 18 month 18 month trip, so you bounce back and forth in time a bit. Testimonials from the astronauts, right to a camera, footage from all over the space station from fixed cameras, each one labeled every time you cut to it, and it it is really well constructed. It's a sophisticated and and well constructed film. Like I said, some of its budget shows up in some of the CG shots of the exterior of the capsule. I think they're CG, even if there’s even if they're model shots, they're still pretty low res. Like the model making isn't. Isn't as tight as I would have expected.
 
 [00:12:14] Norm: That's really funny that when you talk about it being low budget, you know, it's not about the the actors; it's about the special effects and the model making and the things that catch your eye.
 
@@ -192,9 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:14:35] Norm: exactly. So they didn't have to have zero gravity for the whole movie, right? And and you said it was a documentary at the beginning. It is kind of documentary because the whole movie is framed from a looking back at the mission and looking back at the found footage with commentary from people on Earth, which is a cool perspective of you know how do you communicate with people on an 18-month mission.
 
-[00:14:55] Adam: Exactly. Exactly. I I will say that having just read,
-
-[00:15:02] Adam: it has a dramatist's idea of what space exploration is like and what astronauts are like. And having just spent some time with Commander Chris Hadfield and having read his book, " An Astronaut's Guide to Life on Earth," I happen to know. That astronauts are nothing like the characters portrayed in this movie. You know, at one point something goes beep, and someone in the crew goes, " What the hell was that?" And the fact is, is at NASA they have such a culture of training for every possible worst case scenario. That's all they do is train and make mistakes and go over those mistakes until when they're actually in space, everything that happens is expected, even the things they didn't expect. And you don't get to be an astronaut unless you respond coolly to large pressures. They learned early on with some of the Mercury and early Apollo flights that there were specific personality types that turned out did not make great astronauts. So by this point in the future, the idea that people would be like, " Shut up! What's going on?" You know, in the middle of a landing, it just wouldn't ever happen.
+[00:14:55] Adam: Exactly. Exactly. I I will say that having just read, it has a dramatist's idea of what space exploration is like and what astronauts are like. And having just spent some time with Commander Chris Hadfield and having read his book, " An Astronaut's Guide to Life on Earth," I happen to know. That astronauts are nothing like the characters portrayed in this movie. You know, at one point something goes beep, and someone in the crew goes, " What the hell was that?" And the fact is, is at NASA they have such a culture of training for every possible worst case scenario. That's all they do is train and make mistakes and go over those mistakes until when they're actually in space, everything that happens is expected, even the things they didn't expect. And you don't get to be an astronaut unless you respond coolly to large pressures. They learned early on with some of the Mercury and early Apollo flights that there were specific personality types that turned out did not make great astronauts. So by this point in the future, the idea that people would be like, " Shut up! What's going on?" You know, in the middle of a landing, it just wouldn't ever happen.
 
 [00:16:08] Will: Calm people live, right?
 
@@ -292,9 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:19:39] Adam: No, that's no more accident than the Buggles Video Killed the Radio Star, bringing the first video on MTV.
 
-[00:19:43] Norm: Right.
-
-[00:19:44] Norm: Um, did you see the thing with Michael Cera and his long text conversation with a a random person?
+[00:19:43] Norm: Right. Um, did you see the thing with Michael Cera and his long text conversation with a a random person?
 
 [00:19:50] Adam: I did, but that's manufactured. He wrote that.
 
@@ -302,9 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:19:53] Adam: Yeah, I, I'm pretty sure I'm under. I'm clear that that he totally wrote that.
 
-[00:19:58] Norm: Um,
-
-[00:19:59] Norm: it's pretty good as a piece of writing.
+[00:19:58] Norm: Um, it's pretty good as a piece of writing.
 
 [00:20:01] Adam: Yeah, I guess I I found it kind of uh I found it kind of weird.
 
@@ -358,9 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:21:18] Norm: And you think about movies like 2001. You know, the third act of that, it's it's just one on one mostly.
 
-[00:21:23] Will: Yeah,
-
-[00:21:23] Will: even a movie like
+[00:21:23] Will: Yeah, even a movie like
 
 [00:21:25] Norm: Solaris, it's mostly one on one. And a movie like Moon, it is one on one, but he's playing both roles.
 
@@ -420,9 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:22:40] Will: I'm not sure. I just know.
 
-[00:22:42] Adam: That's just that's funny.
-
-[00:22:43] Adam: Brad Pitt's in that too, right?
+[00:22:42] Adam: That's just that's funny. Brad Pitt's in that too, right?
 
 [00:22:44] Will: Yeah.
 
@@ -448,9 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=srOzqKp3lug
 
 [00:23:36] Will: The The Joaquin Phoenix.
 
-[00:23:38] Norm: Oh.
-
-[00:23:39] Norm: Well, there goes your your whole circle.
+[00:23:38] Norm: Oh. Well, there goes your your whole circle.
 
 [00:23:39] Will: It all wrapped back in on itself.
 

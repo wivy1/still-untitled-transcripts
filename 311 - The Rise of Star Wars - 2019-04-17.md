@@ -170,9 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:04:56] Norm: a Goblin King from Labyrinth, because our baby was dressed up as Toby, the baby.
 
-[00:05:24] Will: Toby, the baby.
-
-[00:05:24] Will: from I've never seen Labyrinth. Norm,
+[00:05:24] Will: Toby, the baby. from I've never seen Labyrinth. Norm,
 
 [00:05:26] Jeremy: did anybody get that?
 
@@ -396,9 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:11:26] Norm: So, how do we want to talk about this?
 
-[00:11:32] Will: Can we— okay,
-
-[00:11:32] Will: well, we're going to spoil stuff from the previous two movies.
+[00:11:32] Will: Can we— okay, well, we're going to spoil stuff from the previous two movies.
 
 [00:11:35] Norm: Yes,
 
@@ -452,15 +448,11 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:12:50] Will: No, no, the 20 years of nothing was the dark times.
 
-[00:12:52] Norm: Oh, sure.
-
-[00:12:52] Norm: which culminated in the special editions, which were
+[00:12:52] Norm: Oh, sure. which culminated in the special editions, which were
 
 [00:12:55] Will: it was like. Look, as a as a as a as a 20 year old who had never been able to see Star Wars or Empire Strikes Back in the theater, and who saw Return of the Jedi in like a Twin Plex that was that I have a TV larger than now, it was cool to get to see the re releases. Yeah, and then I went and watched the first special edition. Didn't go for the other two.
 
-[00:13:15] Jeremy: Okay.
-
-[00:13:15] Jeremy: You didn't even see them.
+[00:13:15] Jeremy: Okay. You didn't even see them.
 
 [00:13:16] Will: I mean, I watched them eventually because it was like I got them on video. But yeah, I never saw them in theater.
 
@@ -548,9 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:15:19] Will: Jedi against a fighter.
 
-[00:15:21] Jeremy: I have not watched that.
-
-[00:15:21] Jeremy: People
+[00:15:21] Jeremy: I have not watched that. People
 
 [00:15:21] Unknown (Will or Norm): God, it’s so good.
 
@@ -760,9 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:21:12] Norm: Yeah, you have Poe Dameron
 
-[00:21:14] Will: Not to be—
-
-[00:21:14] Will: taken lightly.
+[00:21:14] Will: Not to be— taken lightly.
 
 [00:21:15] Norm: Now also he is a full on Nathan Drake with a scarf. That's
 
@@ -846,9 +834,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:22:49] Jeremy: That it doesn't surprise me at all that he's doing something else. He's putting his helmet back together.
 
-[00:22:49] Will: Yeah.
-
-[00:23:05] Will: His plan maybe didn't work out.
+[00:22:49] Will: Yeah. His plan maybe didn't work out.
 
 [00:23:06] Jeremy: He's evil now. Yeah. You know he's not getting along with Ren anymore.
 
@@ -882,9 +868,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:23:50] Will: I'm going to go ahead and tell you.
 
-[00:23:51] Norm: Leia is also in this film.
-
-[00:23:51] Norm: [unclear: D.W. / BDW].
+[00:23:51] Norm: Leia is also in this film. [unclear: D.W. / BDW].
 
 [00:23:53] Will: Presumably,
 
@@ -942,9 +926,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:26:03] Jeremy: It's interesting that they visit. I feel
 
-[00:26:05] Will: like that's canonical, isn't that? I
-
-[00:26:05] Will: What Mitch said?
+[00:26:05] Will: like that's canonical, isn't that? I What Mitch said?
 
 [00:26:06] Norm: think it is, but they're also not mutually exclusive.
 
@@ -1030,9 +1012,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:29:02] Will: that's how gravity works,
 
-[00:29:03] Norm: Star Wars, and specifically this teaser is in contrast to Disney's other big franchise, the Marvel films, like Infinity War. This being a space epic, you go to different planets, and it actually feels like real locations. Desert planets feel like desert planets. These this wheat wheat field filled whatever moon of Endor that they may be on, feels like a real location, as opposed to in Avengers Infinity War when they're on Titan and it just looks like they're in some
-
-[00:29:33] Norm: soundstage with green screens.
+[00:29:03] Norm: Star Wars, and specifically this teaser is in contrast to Disney's other big franchise, the Marvel films, like Infinity War. This being a space epic, you go to different planets, and it actually feels like real locations. Desert planets feel like desert planets. These this wheat wheat field filled whatever moon of Endor that they may be on, feels like a real location, as opposed to in Avengers Infinity War when they're on Titan and it just looks like they're in some soundstage with green screens.
 
 [00:29:35] Will: I mean, I feel like Marvel has done a mixed job with that. Like if you look at Asgard and Knowhere and some of the other planets, they
 
@@ -1242,9 +1222,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:34:52] Jeremy: Me too. It looks good. Is it first person or third? Third. It's going to be third.
 
-[00:34:55] Norm: Third person, wall running. Yeah,
-
-[00:34:58] Norm: And then the other—
+[00:34:55] Norm: Third person, wall running. Yeah, And then the other—
 
 [00:34:59] Will: The Jedi does wall run.
 
@@ -1480,9 +1458,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:42:32] Will: Oculus Studios
 
-[00:42:33] Norm: Quest and Rift.
-
-[00:42:33] Norm: Right.
+[00:42:33] Norm: Quest and Rift. Right.
 
 [00:42:33] Will: Okay.
 
@@ -1498,9 +1474,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:42:51] Jeremy: That'd be interesting.
 
-[00:42:52] Norm: Yeah.
-
-[00:42:55] Norm: The Rise of Skywalker, folks.
+[00:42:52] Norm: Yeah. The Rise of Skywalker, folks.
 
 [00:42:56] Will: Did they say how long the hiatus is going to be?
 
@@ -1508,9 +1482,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:42:59] Will: Couple of years is what the word was, kind of.
 
-[00:43:00] Norm: in past
-
-[00:43:01] Norm: Interviews they've said that the things that they have announced are still going on. Rian Johnson is still working on his new trilogy. That's not a Skywalker saga. So presumably that will be a couple years. I don't think it's going to be 10 years before we see another Star Wars movie.
+[00:43:00] Norm: in past Interviews they've said that the things that they have announced are still going on. Rian Johnson is still working on his new trilogy. That's not a Skywalker saga. So presumably that will be a couple years. I don't think it's going to be 10 years before we see another Star Wars movie.
 
 [00:43:14] Jeremy: What do they need to figure out exactly? I mean, what do they do? They need to figure out how to make a Star Wars film as good as the first three that we grew up with. It's a totally different era now.
 
@@ -1558,9 +1530,7 @@ Episode URL: https://www.youtube.com/watch?v=qaXZ6iTnaeg
 
 [00:45:23] Norm: 2019. If you were at Celebration, or if there were things that you heard from at Celebration that we did not talk about, let us know in the comments so we can let that percolate. But that does it for this week. For Still Untitled, Adam will be back next week.
 
-[00:45:39] Jeremy: I hope with his opinions on the Star Wars teaser. Yeah. Yeah.
-
-[00:45:41] Jeremy: I hope you can fit that in next week.
+[00:45:39] Jeremy: I hope with his opinions on the Star Wars teaser. Yeah. Yeah. I hope you can fit that in next week.
 
 [00:45:43] Norm: I think we'll try.
 

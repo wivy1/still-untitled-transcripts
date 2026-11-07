@@ -370,11 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=G0QcXwXZ-G4
 
 [00:28:12] Norm: Logistics.
 
-[00:28:12] Adam: costumes, pieces, logistics, materials to take with us to make sure this build goes smoothly. I'm sorry for the clicking. I can't stop playing with this magnet. I apologize. It's all my fault.
-
-[00:28:24] Adam: There we go.
-
-[00:28:26] Adam: Magnet gone.
+[00:28:12] Adam: costumes, pieces, logistics, materials to take with us to make sure this build goes smoothly. I'm sorry for the clicking. I can't stop playing with this magnet. I apologize. It's all my fault. There we go. Magnet gone.
 
 [00:28:27] Norm: And we have camera crews going to DC. We have camera crews going to San Diego with me, so we're gonna have a ton of this content rolling out on the site. Like I am, I'm envious of all of us. Everything we're doing next week.
 

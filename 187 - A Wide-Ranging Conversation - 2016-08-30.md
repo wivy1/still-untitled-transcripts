@@ -88,9 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=nHAUfyQf7jU
 
 [00:08:26] Will: Boondoggle.
 
-[00:08:26] Tom: yeah,
-
-[00:08:26] Tom: um, um, a tautological cycle, right? It didn't really flying toilet.
+[00:08:26] Tom: yeah, um, um, a tautological cycle, right? It didn't really flying toilet.
 
 [00:08:58] Simone: Would you go to space if you had the opportunity to?
 
@@ -166,9 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=nHAUfyQf7jU
 
 [00:12:03] Simone: how how are you feeling about the exhibit? Are you are you excited about it? Are you nervous about it? Are you?
 
-[00:12:10] Tom: I'm really excited. We have the best installation crew, Tessa Freeman, director of installation, has been kicking ass for months. Dorothy Davila, the curator, has been leading an amazing, amazing team of people. We've got dozens of people working over at YBCA right now. We've got mission control section being set up on Wednesday. We have a historical section of earlier Sachs works with a timeline. We even have Logjam Cafe, where you can come buy a cup of coffee that we collaborated with. With we've got Lofted Coffee from Bushwick, Brooklyn, because we're bringing up representing East Coast.
-
-[00:12:53] Tom: And
+[00:12:10] Tom: I'm really excited. We have the best installation crew, Tessa Freeman, director of installation, has been kicking ass for months. Dorothy Davila, the curator, has been leading an amazing, amazing team of people. We've got dozens of people working over at YBCA right now. We've got mission control section being set up on Wednesday. We have a historical section of earlier Sachs works with a timeline. We even have Logjam Cafe, where you can come buy a cup of coffee that we collaborated with. With we've got Lofted Coffee from Bushwick, Brooklyn, because we're bringing up representing East Coast. And
 
 [00:12:54] Will: no gang signs, please, Tom.
 
@@ -416,9 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=nHAUfyQf7jU
 
 [00:28:40] Will: So he's drawing the thing he sees in his head.
 
-[00:28:40] Tom: He's building it,
-
-[00:28:43] Tom: building it, but he's building like a 12 foot high model in his house, and he's destroyed his entire house and his entire family for his art. He doesn't give a shit about anything. He's pure. He's pure artist's psycho vision of build why, he didn’t know, doesn't know why he's building this thing, but he's compelled to. And the moment that he has the answer, which is he sees a stupid news story, he just walks straight out of the house and leaves it behind because he's on a vision, and the vision is. To leave Earth and to go be with the extraterrestrials.
+[00:28:40] Tom: He's building it, building it, but he's building like a 12 foot high model in his house, and he's destroyed his entire house and his entire family for his art. He doesn't give a shit about anything. He's pure. He's pure artist's psycho vision of build why, he didn’t know, doesn't know why he's building this thing, but he's compelled to. And the moment that he has the answer, which is he sees a stupid news story, he just walks straight out of the house and leaves it behind because he's on a vision, and the vision is. To leave Earth and to go be with the extraterrestrials.
 
 [00:29:10] Will: I need to watch Close Encounters again.
 

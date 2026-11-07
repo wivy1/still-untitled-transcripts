@@ -78,9 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:02:09] Adam: Bob Dylan, and fucking David Bowie. I, you know, when you when I go every time I hear something like " Changes" or " Space Oddity," I'm gobsmacked by both how innovative it is, how poppy it is, how [unclear: curt, vile / Kurt Vile; possible Kurt Weill], and theatrical it is, and how important it is. Every single one of these just feels completely. Every single one of his songs, whenever I hear them, feels completely current.
 
-[00:02:37] Norm: Yeah,
-
-[00:02:37] Norm: he was like a hallway full of doors because he changed. He never rested.
+[00:02:37] Norm: Yeah, he was like a hallway full of doors because he changed. He never rested.
 
 [00:02:37] Adam: Yeah,
 
@@ -146,9 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:07:22] Adam: It was. It was just theater, and there was nothing personal really about it. There was nothing. There was no cultural connection about it. It it upset me.
 
-[00:07:22] Norm: Hmm,
-
-[00:08:24] Norm: Speaking. Oh, sorry. What did you say?
+[00:07:22] Norm: Hmm, Speaking. Oh, sorry. What did you say?
 
 [00:08:25] Rebecca: I, I just wanted to offer a brief, wimpy defense of Lady Gaga, only in that I I enjoy her music as pop, and I enjoy her her outward presence. Like I enjoy the theatricality that she brings to things, and her. I like her particular viewpoint. On, on women, and on being, you know, thin, and on being a central character, you know, that she has to do. But you know, I agree with you, on that I agree with you, but I also think that it's tough to live up to any comparison to somebody like David Bowie.
 
@@ -172,9 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:09:48] Rebecca: Really?
 
-[00:09:48] Adam: [unclear: Because] Well, Golden Globes.
-
-[00:09:58] Adam: Here's the thing: just if you're going to be cynical about the math, I'm sorry to interrupt you, but if you're going to be cynical about the math, The Martian was never going to win against The Revenant,
+[00:09:48] Adam: [unclear: Because] Well, Golden Globes. Here's the thing: just if you're going to be cynical about the math, I'm sorry to interrupt you, but if you're going to be cynical about the math, The Martian was never going to win against The Revenant,
 
 [00:10:08] Rebecca: right?
 
@@ -208,9 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:11:11] Adam: So what you should do if you want to watch this is watch Jim Carrey.
 
-[00:11:11] Rebecca: Oh,
-
-[00:11:15] Rebecca: I heard he had something good to say.
+[00:11:11] Rebecca: Oh, I heard he had something good to say.
 
 [00:11:17] Adam: Wonderful, and Jim Carrey awards speech is a YouTube hole you can go down because he's lambasted the MTV awards for like, hey, tell call someone up, tell them they're gonna win so you can blackmail them into coming. That's what he said as he accepted an award on stage.
 
@@ -230,9 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:11:53] Adam: You know, maybe he's maybe he’s commiserating with Bill Maher. You never know.
 
-[00:11:53] Rebecca: Yeah.
-
-[00:11:58] Rebecca: Come back to us, Jim Carrey. Come back.
+[00:11:53] Rebecca: Yeah. Come back to us, Jim Carrey. Come back.
 
 [00:12:00] Norm: Well, the Golden Globes only recognizes film, but also television, and that's where Lady Gaga won for her performance in American Horror Story. But a lot of great TV shows last year and last week. Rebecca, Adam, Will, and I discussed our favorite movies and shows in the past year. But one show that we did not get a chance to discuss that we all, everyone here, has seen was Jessica Jones.
 
@@ -266,9 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:13:20] Norm: Do we want to just roll into a spoiler cast discussion of the show? if you remember?
 
-[00:13:25] Adam: [unclear onset: Oh] By all means,
-
-[00:13:26] Adam: absolutely.
+[00:13:25] Adam: [unclear onset: Oh] By all means, absolutely.
 
 [00:13:26] Norm: Yeah, so if you haven't seen the show yet, now is the time to pause, go watch all 13 episodes, and then come back as we'll be talking about it.
 
@@ -394,9 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:26:45] Rebecca: But I know that slight spoiler. I saw that he is going to be paired with. The nurse from what's the actress's name?
 
-[00:26:54] Adam: Rosario Dawson.
-
-[00:26:55] Adam: Right. Who was also in Daredevil. Yeah. She makes an appearance towards the end of this.
+[00:26:54] Adam: Rosario Dawson. Right. Who was also in Daredevil. Yeah. She makes an appearance towards the end of this.
 
 [00:26:55] Rebecca: Great.
 
@@ -414,9 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:27:31] Norm: So they both go up on stage and they said, " I'm, I'm America Ferrera. I'm Eva Longoria, not Eva Mendes, and we're both not Rosario Dawson."
 
-[00:27:31] Adam: Yes.
-
-[00:27:40] Adam: And then one of them was like, " Well done, Selma."
+[00:27:31] Adam: Yes. And then one of them was like, " Well done, Selma."
 
 [00:27:42] Norm: Yeah, that’s right.
 
@@ -558,9 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=gnfswOWezy4
 
 [00:34:51] Norm: All right, awesome. Well, thank you so much, Rebecca, for joining us.
 
-[00:34:54] Rebecca: Thank you for having me.
-
-[00:34:54] Rebecca: This is fun.
+[00:34:54] Rebecca: Thank you for having me. This is fun.
 
 [00:34:55] Norm: Let’s have you back
 

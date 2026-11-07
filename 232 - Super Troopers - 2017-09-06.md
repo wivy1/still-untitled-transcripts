@@ -32,9 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:00:42] Norm: sure. But you guys work together also on MythBusters.
 
-[00:00:46] Ryan Kiser: Yeah, yeah.
-
-[00:00:47] Ryan Kiser: it's a lot of fun.
+[00:00:46] Ryan Kiser: Yeah, yeah. it's a lot of fun.
 
 [00:00:48] Adam: You did about the same thing on MythBusters.
 
@@ -112,9 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:05:19] Norm: Our infrastructure is not made for it. Our constitution, yeah, is not made for it. I saw you you treated Maggie your dog to some relief.
 
-[00:05:28] Adam: I took
-
-[00:05:29] Adam: So Maggie, my wired border terrier, is about 25 pounds, and she's real hairy and like she's not soft. I've talked about this. I love her to death. She's not soft. Well, I made her soft this weekend. I brought. I looked up a couple of YouTube videos grooming your wired terrier, right? Because I wanted to know one how hard it was to groom a dog. Like what could I expect? So I watched a couple of videos of dogs. I saw the arrangement, which is like you know a leash just kind of going up. That's really key. It doesn't have to be taut. But a leash so that they can't quite sit down, and if the leash is going up, the dog is like, " Oh, the leash is there, so I'm just hanging."
+[00:05:28] Adam: I took So Maggie, my wired border terrier, is about 25 pounds, and she's real hairy and like she's not soft. I've talked about this. I love her to death. She's not soft. Well, I made her soft this weekend. I brought. I looked up a couple of YouTube videos grooming your wired terrier, right? Because I wanted to know one how hard it was to groom a dog. Like what could I expect? So I watched a couple of videos of dogs. I saw the arrangement, which is like you know a leash just kind of going up. That's really key. It doesn't have to be taut. But a leash so that they can't quite sit down, and if the leash is going up, the dog is like, " Oh, the leash is there, so I'm just hanging."
 
 [00:05:29] Norm: Oh.
 
@@ -122,9 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:06:09] Norm: sounds like some torture device.
 
-[00:06:10] Adam: No, no, no, no, no, no, no, no, no, no.
-
-[00:06:11] Adam: To be clear, she's wearing a collar and the leash is loose.
+[00:06:10] Adam: No, no, no, no, no, no, no, no, no, no. To be clear, she's wearing a collar and the leash is loose.
 
 [00:06:11] Norm: Ah. Okay.
 
@@ -164,9 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:07:31] Norm: Sure.
 
-[00:07:31] Adam: and that a nerd is
-
-[00:07:32] Adam: interested in science fiction films specifically. And here is where
+[00:07:31] Adam: and that a nerd is interested in science fiction films specifically. And here is where
 
 [00:07:36] Norm: or had or had you know or or can do the math or something. Ryan,
 
@@ -192,9 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:08:16] Adam: He Ryan explains it.
 
-[00:08:17] Ryan Kiser: Ryan explains it.
-
-[00:08:19] Ryan Kiser: I actually, is a great story that I always tell people. It actually happened on MythBusters. Is Eric, one of our producers, I came in and Adam used to have you had this. I'm going to say it correctly. Stormtrooper, yeah, that's not bad of you guys. Stormtrooper outfit, and I walked in, and I was like, oh, I was like, I love super troopers, and I was not allowed in that office like an entire day. I was not allowed to come in.
+[00:08:17] Ryan Kiser: Ryan explains it. I actually, is a great story that I always tell people. It actually happened on MythBusters. Is Eric, one of our producers, I came in and Adam used to have you had this. I'm going to say it correctly. Stormtrooper, yeah, that's not bad of you guys. Stormtrooper outfit, and I walked in, and I was like, oh, I was like, I love super troopers, and I was not allowed in that office like an entire day. I was not allowed to come in.
 
 [00:08:46] Norm: That's amazing.
 
@@ -266,9 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:12:08] Adam: But as everyone came in, a bunch of the folks who came over hadn't been to the house before, and so they walk in. The first thing you see is Totoro in my foyer, and they're just like, " Ah, Totoro!" Like people are so so happy.
 
-[00:12:08] Ryan Kiser: Just so happy. Just so happy.
-
-[00:12:23] Ryan Kiser: I just even yeah.
+[00:12:08] Ryan Kiser: Just so happy. Just so happy. I just even yeah.
 
 [00:12:25] Norm: I think the only two things that we've exposed to that have that elicited that type of reaction it's Totoro and Wall-E, both those all ages hugs. People like they they are real, manifest in life size.
 
@@ -308,9 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:13:07] Norm: Full on. I think I saw him online. He he got he ordered like cheeseburgers and handed them out late at night on on the cheeseburger platform.
 
-[00:13:17] Adam: That is that is like how to build your army.
-
-[00:13:20] Adam: Honestly, that's DragonCon because those folks will follow you forever for that kind of gracious generosity.
+[00:13:17] Adam: That is that is like how to build your army. Honestly, that's DragonCon because those folks will follow you forever for that kind of gracious generosity.
 
 [00:13:26] Ryan Kiser: That's how you get that loyalty.
 
@@ -338,9 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:14:30] Adam: that's your intersection. Do you know about the carpet?
 
-[00:14:33] Ryan Kiser: I have no idea.
-
-[00:14:33] Ryan Kiser: Tell, tell."
+[00:14:33] Ryan Kiser: I have no idea. Tell, tell."
 
 [00:14:34] Norm: Yeah, so DragonCon's been in downtown Atlanta, and it is like three or four different of their major hotels connected. It's the the Hilton and the Marriott.
 
@@ -446,9 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:20:04] Adam: Sorry, that's what our friend Angus MacLane said. It was lovely. He goes, the whole thing about being a director is your movie wants to be bad. It's trying to be bad. It needs to be bad, and your goal is to subvert that. You got to make it good in spite of itself.
 
-[00:20:20] Norm: Everything again.
-
-[00:20:21] Norm: Did you see that film, Kong Skull Island?
+[00:20:20] Norm: Everything again. Did you see that film, Kong Skull Island?
 
 [00:20:23] Adam: I did. I very much enjoyed it.
 
@@ -466,9 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:20:35] Ryan Kiser: came out just in the last few months, right?
 
-[00:20:36] Norm: Yeah, a couple.
-
-[00:20:36] Norm: yeah, yeah, yeah. I thought it was great. It's
+[00:20:36] Norm: Yeah, a couple. yeah, yeah, yeah. I thought it was great. It's
 
 [00:20:39] Adam: also starring Marc Evan Jackson. In case anyone didn't know that,
 
@@ -486,11 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:21:35] Norm: You’re watching a movie.
 
-[00:21:36] Adam: About a 150-foot gorilla, and you have problems with the helicopters. It's amazing. I don't mean to scream,
-
-[00:21:42] Adam: but no, seriously. Yeah,
-
-[00:21:47] Adam: this is,
+[00:21:36] Adam: About a 150-foot gorilla, and you have problems with the helicopters. It's amazing. I don't mean to scream, but no, seriously. Yeah, this is,
 
 [00:21:47] Norm: and we're all guilty of this to some extent, right?
 
@@ -500,19 +476,13 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:22:05] Adam: So, who did Jordan Vogt Roberts have a problem with?
 
-[00:22:07] Norm: Oh God, what is it? I
-
-[00:22:11] Norm: forget. I forget
-
-[00:22:13] Norm: the name of the channel.
+[00:22:07] Norm: Oh God, what is it? I forget. I forget the name of the channel.
 
 [00:22:13] Adam: What's that?
 
 [00:22:14] Norm: I forget the name of the YouTube channel. It's it's one of those, another one of those like it's not honest trailers, but it's it's like them. It's like Cinema Sins.
 
-[00:22:14] Adam: Cinema Sins.
-
-[00:22:22] Adam: There you go. And he felt like they were they were filling space with criticisms where they didn't have genuine criticisms, and I actually think that's a that's a a nice subtle note to give because look, we are we are as aware as anybody else of the tyranny of producing content, of of needing to produce X minutes of content for a thing, and making sure that you are fully buttoned down, even though it seems like you know. were a bit of a shoestring operation, and by some metrics, we are. You still have to get all your camera angles. Your sound has to be good. Your editor needs all this stuff. There's a lot of support. There's titles. There's graphics. All of that has to be done. And a small place like Cinema Sins probably has the same. They've got all sorts of demands. They've got advertisers. They've got clients.
+[00:22:14] Adam: Cinema Sins. There you go. And he felt like they were they were filling space with criticisms where they didn't have genuine criticisms, and I actually think that's a that's a a nice subtle note to give because look, we are we are as aware as anybody else of the tyranny of producing content, of of needing to produce X minutes of content for a thing, and making sure that you are fully buttoned down, even though it seems like you know. were a bit of a shoestring operation, and by some metrics, we are. You still have to get all your camera angles. Your sound has to be good. Your editor needs all this stuff. There's a lot of support. There's titles. There's graphics. All of that has to be done. And a small place like Cinema Sins probably has the same. They've got all sorts of demands. They've got advertisers. They've got clients.
 
 [00:23:10] Norm: Well, I also think that you know they can they can make the argument that they're they're cheap shots. If that's what they were, there were there was less criticism than it was satire, comedy, right?
 
@@ -532,11 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:24:05] Ryan Kiser: Okay,
 
-[00:24:06] Adam: because you will just one
-
-[00:24:07] Adam:  after the boom and boom and
-
-[00:24:07] Adam: yeah.
+[00:24:06] Adam: because you will just one after the boom and boom and yeah.
 
 [00:24:07] Ryan Kiser: Okay,
 
@@ -548,9 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:24:36] Adam: And I like that. I like the fact that he's making it clear. Oh, I'm not above criticism at all. I'm even happy to participate.
 
-[00:24:42] Ryan Kiser: Yeah, just
-
-[00:24:43] Ryan Kiser: don’t be lazy.
+[00:24:42] Ryan Kiser: Yeah, just don’t be lazy.
 
 [00:24:44] Norm: Yeah, yes, and he knows what film he's making.
 
@@ -614,13 +578,9 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:28:02] Norm: Oh,
 
-[00:28:03] Adam: can I tell you? I have a specific
+[00:28:03] Adam: can I tell you? I have a specific pet peeve: is when your supervisor goes, " Oh, yeah, I know we're supposed to work till seven, but now it looks like we'll get out of here at 4:30." And you're like, " Oh my god! [unclear: Wow, that’s us / Wow, that sucks]" And then at like four, it's like, " Nope, we’re staying"
 
-[00:28:05] Adam: pet peeve: is when your supervisor goes, " Oh, yeah, I know we're supposed to work till seven, but now it looks like we'll get out of here at 4:30." And you're like, " Oh my god! [unclear: Wow, that’s us / Wow, that sucks]" And then at like four, it's like, " Nope, we’re staying"
-
-[00:28:18] Ryan Kiser: Oh, why would you do that?
-
-[00:28:20] Ryan Kiser: That's harsh. That’s right.
+[00:28:18] Ryan Kiser: Oh, why would you do that? That's harsh. That’s right.
 
 [00:28:21] Adam: Oh, this the really this just it is the worst thing in the world.
 
@@ -636,9 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:28:45] Adam: Yes, we are. So we just did a video where we were lathing some wooden bowls with a wonderful maker in the East Bay, and that will go up on Tested. I am finishing. I lathe half of a bowl in in in on that video. I'm finishing that, so I pulled my wood lathe out. This is hilarious because everyone in the tested crews has come by the shop today and gone. I didn't know you had a wood lathe.
 
-[00:29:09] Norm: Yeah, no, it's a tool you have not used.
-
-[00:29:09] Norm: yet.
+[00:29:09] Norm: Yeah, no, it's a tool you have not used. yet.
 
 [00:29:12] Adam: You guys have no idea what I have shoved into the corners of this place. Ryan says, " Do you have a laminator?" And I said, " Do you need a little one, or do you want like a whole sheet one?"
 
@@ -688,9 +646,7 @@ Episode URL: https://www.youtube.com/watch?v=v2SP9YvEBsE
 
 [00:32:26] Norm: Yes, foiling the foam sword. That's going to be on the site.
 
-[00:32:26] Adam: Wait,
-
-[00:32:43] Adam: wait, wait! Foiling the LARP sword.
+[00:32:26] Adam: Wait, wait, wait! Foiling the LARP sword.
 
 [00:32:44] Norm: The LARP sword. Yes.
 

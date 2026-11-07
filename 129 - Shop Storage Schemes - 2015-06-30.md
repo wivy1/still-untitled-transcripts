@@ -30,9 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:01:51] Will: I feel like maybe he doesn't need as much help. It's not a first novel.
 
-[00:01:53] Adam: No, I don't.
-
-[00:01:55] Adam: No, I'm not saying. I'm not saying that this is. You know, it's just that I want to trumpet to the world how great this book is.
+[00:01:53] Adam: No, I don't. No, I'm not saying. I'm not saying that this is. You know, it's just that I want to trumpet to the world how great this book is.
 
 [00:02:03] Norm: Well, his books are a little less accessible than The Martian.
 
@@ -192,9 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:11:02] Adam: Really?
 
-[00:11:03] Will: Oh, hey, can you can you blot out that thing? And yeah, as long as we catch it before,
-
-[00:11:08] Will: It's good.
+[00:11:03] Will: Oh, hey, can you can you blot out that thing? And yeah, as long as we catch it before, It's good.
 
 [00:11:11] Adam: So I don't want to do that type of storage. So I started thinking about about my concept of first order retrievability, which a lot of listeners know is how I organized my toolboxes when I was at ILM. The idea is no tool needs to be moved out of the way to obtain any other tool. And I looked at the tools I would have at my disposal, and I realized I could dedicate a rolling stand for these, and get rid of. It turned out I got rid of an entire five foot high toolbox. Five foot high toolbox.
 
@@ -524,9 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:30:15] Will: Lazy Susans up there.
 
-[00:30:16] Adam: That's really, really that—that is absolutely the expendables tall shelf. And those are also airplane food containers. They're just the shorter ones that are about 14 inches high by 12 inches wide by about 16 inches deep. I found those in a dumpster.
-
-[00:30:33] Adam: 25 years ago.
+[00:30:16] Adam: That's really, really that—that is absolutely the expendables tall shelf. And those are also airplane food containers. They're just the shorter ones that are about 14 inches high by 12 inches wide by about 16 inches deep. I found those in a dumpster. 25 years ago.
 
 [00:30:34] Will: Is this in your dumpster diving days?
 
@@ -534,9 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=NZUoblbXpk0
 
 [00:30:40] Will: I don't think that we’ve talked about dumpster diving on the podcast a long, long time ago. I don't think that dumpster diving in Silicon Valley is quite the same as it used to be. Why not?
 
-[00:30:47] Adam: It was so good 20, 25 years ago, man. I can't even tell you. We would find so much incredible crap. It was great. I have. I'll tell you, we'd be dumpster diving in Silicon Valley industrial parks at like two and three in the morning. And we'd run into the guys from Survival Research Laboratories. We were doing the same circuit.
-
-[00:31:07] Adam: Another time, we got pulled over by the cops, and the cops were, you know, checking us out, stuff because it's two in the morning in Sunny Sunnyvale.
+[00:30:47] Adam: It was so good 20, 25 years ago, man. I can't even tell you. We would find so much incredible crap. It was great. I have. I'll tell you, we'd be dumpster diving in Silicon Valley industrial parks at like two and three in the morning. And we'd run into the guys from Survival Research Laboratories. We were doing the same circuit. Another time, we got pulled over by the cops, and the cops were, you know, checking us out, stuff because it's two in the morning in Sunny Sunnyvale.
 
 [00:31:07] Will: Yeah.
 

@@ -36,9 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:01:46] Will: Well, so yeah, I had a really good interaction with with one of the people who's working my Safeway because like
 
-[00:01:46] Adam: yeah,
-
-[00:01:51] Adam: you always need something.
+[00:01:46] Adam: yeah, you always need something.
 
 [00:01:52] Will: Having the grocery store open on Safeway on Thanksgiving saved Thanksgiving multiple times for us. And I was like, " Hey, I'm I'm sorry you have to work here today, but thank you so much for being here." I was like, " Hey, man, don't." Don't you don't have to apologize to me because I am getting paid for like three days' worth of work for being here.
 
@@ -134,9 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:05:58] Norm: because they're flat.
 
-[00:05:59] Adam: They're flat
-
-[00:06:00] Adam: and they have a hole in the middle, and they can't suction them. There's no way they can pick up a washer.
+[00:05:59] Adam: They're flat and they have a hole in the middle, and they can't suction them. There's no way they can pick up a washer.
 
 [00:06:00] Unknown speaker (Adam or Will): That’s really funny.
 
@@ -256,9 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:10:16] Will: You know.
 
-[00:10:18] Adam: Well, welcome, sir.
-
-[00:10:18] Adam: Yeah, welcome to parents.
+[00:10:18] Adam: Well, welcome, sir. Yeah, welcome to parents.
 
 [00:10:20] Norm: Thank you for the parent, parental insight.
 
@@ -348,9 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:12:20] Norm: Yeah. 15 feet deep, and it has a seismometer for detecting earthquakes, and it's Basically, it's a robot geologist. But the two satellites were experiments; they these weren't mission critical. MarCO A and B, and they are these
 
-[00:12:33] Adam: miniaturized CubeSats.
-
-[00:12:35] Adam: They're the size of the old tape deck.
+[00:12:33] Adam: miniaturized CubeSats. They're the size of the old tape deck.
 
 [00:12:36] Will: Oh, so they're they're bigger than the ones that we're firing out of the ISS now, but smaller.
 
@@ -384,15 +376,11 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:14:11] Norm: Oh, awesome! Yeah. Uh, who did the the jump, the world record breaking? Um, so we watched this via streaming, and I think NASA does a fantastic job with their mixing of produce or their video production of Communicating what's going on in this event because a lot of the awareness for this and they had over 0.5 million people watching is in those like few days right like most of people don't know didn't know what insight was or maybe they followed it a couple months ago but like now they're getting reinvigorated and they did a fantastic job with the commentary with building up the anticipation and I was really curious what it was like did they have that commentary in the same room you were in
 
-[00:14:11] Adam: yes
-
-[00:14:49] Adam: so so we were getting that same feed and then above the control room they had the you can see here they had the list of things that it was doing and a timeline moving past them that was intensely accurate
+[00:14:11] Adam: yes so so we were getting that same feed and then above the control room they had the you can see here they had the list of things that it was doing and a timeline moving past them that was intensely accurate
 
 [00:15:01] Will: oh it's like all the graphics they were cutting between
 
-[00:15:01] Adam: Mm-hmm.
-
-[00:15:03] Adam: and then they had a CG model of the insight lander as it was hitting the atmosphere as it was entering it wasn't perfectly timed to the launch as you could imagine that's difficult to nail but it still was super instructive
+[00:15:01] Adam: Mm-hmm. and then they had a CG model of the insight lander as it was hitting the atmosphere as it was entering it wasn't perfectly timed to the launch as you could imagine that's difficult to nail but it still was super instructive
 
 [00:15:16] Will: the JPL mission control looks so much cooler than the ones in Houston dude like they had the purple lights it looks like a movie set LA movie magic
 
@@ -428,9 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:17:52] Adam: for the first photo
 
-[00:17:53] Will: the lens cap
-
-[00:17:53] Will: on one.
+[00:17:53] Will: the lens cap on one.
 
 [00:17:53] Adam: So everyone's everyone's you know there's jocularity and hugging, and then the photo's starting to come in. So now everyone gathers around a computer.
 
@@ -504,17 +490,13 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:20:16] Norm: The best of us.
 
-[00:20:17] Adam: The best of us.
-
-[00:21:31] Adam: Um. Hey, speaking of the opposite of the best of us, I can't stop watching The Americans.
+[00:20:17] Adam: The best of us. Um. Hey, speaking of the opposite of the best of us, I can't stop watching The Americans.
 
 [00:21:35] Will: That's a very good TV show.
 
 [00:21:37] Adam: Um, we, we, we. When I first told you I was watching it, you said suitcase, and I didn't know what you meant. Yeah, and uh, I got to. I think it's the second or third episode in the third season.
 
-[00:21:37] Will: Yeah,
-
-[00:21:51] Will: and I should probably say they're going to be spoilers here.
+[00:21:37] Will: Yeah, and I should probably say they're going to be spoilers here.
 
 [00:21:52] Adam: Yeah. Okay,
 
@@ -584,19 +566,13 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:24:36] Adam: No, it's so so not glamorous. But at a certain point in this romantic entanglement with the person that Keri Russell's character is running, she becomes emotionally moved, and she's able in the love scene with the person to show you that she's moved past the point. So she's showing you, like, she's able to show you this puppet show and then pull the curtains a little bit so you can see her real personality in the middle
 
-[00:25:01] Will: of this. There's the performance for the character that she plays. There's the performance for the person that she's playing, and then there's the performance for us watching at home. It's and it's it is
-
-[00:25:12] Will: a tour de force.
-
-[00:25:13] Will: I assume this show has won a bunch of awards. I don't know. Okay, good. That makes me feel better.
+[00:25:01] Will: of this. There's the performance for the character that she plays. There's the performance for the person that she's playing, and then there's the performance for us watching at home. It's and it's it is a tour de force. I assume this show has won a bunch of awards. I don't know. Okay, good. That makes me feel better.
 
 [00:25:17] Norm: It stuck [unclear: to landing / the landing] from what I've read. So that was I was waiting for it to.
 
 [00:25:21] Will: This is done now, right?
 
-[00:25:22] Adam: Rhys has won an Emmy, and she has not. Oh, Keri Russell's not won an Emmy for this, as far as I know.
-
-[00:25:28] Adam: So, so, and she really deserves it.
+[00:25:22] Adam: Rhys has won an Emmy, and she has not. Oh, Keri Russell's not won an Emmy for this, as far as I know. So, so, and she really deserves it.
 
 [00:25:31] Will: Um, I, I, I haven't finished the whole thing. I got to where you are now, and was like, I've got to take a break for a while, and that was maybe six months or a year.
 
@@ -616,9 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:26:07] Norm: And this this scene alone, if you haven't watched it, will sell you on the show. So we'll set it up a little bit. They are they have a mark in a hotel that they need to get information out of, and so they plant it so it looks like he killed someone, or he does kill someone.
 
-[00:26:19] Adam: Oh, no, he.
-
-[00:26:19] Adam: They've been running an agent that's getting information from him, and that agent goes a little rogue, and she falls in love with her mark, and she reveals to him that she is working for someone else, and he immediately kills her.
+[00:26:19] Adam: Oh, no, he. They've been running an agent that's getting information from him, and that agent goes a little rogue, and she falls in love with her mark, and she reveals to him that she is working for someone else, and he immediately kills her.
 
 [00:26:19] Norm: Right.
 
@@ -772,9 +746,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:34:17] Norm: Well, when you finish that, you should watch the Fargo TV series.
 
-[00:34:20] Adam: I so like on my
-
-[00:34:21] Adam: list is Fargo. I want. I have still not seen Deadwood. I know I'm an asshole.
+[00:34:20] Adam: I so like on my list is Fargo. I want. I have still not seen Deadwood. I know I'm an asshole.
 
 [00:34:26] Will: Deadwood's really good.
 
@@ -836,9 +808,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:36:45] Norm: It's a film. They they you could watch. It's in select theaters around the country. So it's really they're pitching it as a film, and
 
-[00:36:45] Adam: it's really good.
-
-[00:36:55] Adam: I remember going to my parents. I was probably seven. My sister was four, five, and we were trying to get them to take us to a movie. What would it have been? It would have been like the early '70s. It's like Chitty Chitty Bang Bang or something like. No, that's late '60s, right?
+[00:36:45] Adam: it's really good. I remember going to my parents. I was probably seven. My sister was four, five, and we were trying to get them to take us to a movie. What would it have been? It would have been like the early '70s. It's like Chitty Chitty Bang Bang or something like. No, that's late '60s, right?
 
 [00:37:10] Will: Late '60s, or like Bedknobs and Broomsticks, maybe. Yeah,
 
@@ -944,9 +914,7 @@ Episode URL: https://www.youtube.com/watch?v=AhwH4T3HoYE
 
 [00:40:59] Adam: just to take a look at.
 
-[00:41:00] Norm: Yeah,
-
-[00:41:00] Norm: this collection's from this guy named James Comisar.
+[00:41:00] Norm: Yeah, this collection's from this guy named James Comisar.
 
 [00:41:03] Adam: Yeah,
 

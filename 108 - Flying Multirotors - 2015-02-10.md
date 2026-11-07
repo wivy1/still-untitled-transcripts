@@ -16,15 +16,11 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:01:18] Adam: Nope.
 
-[00:01:18] Will: Okay.
-
-[00:01:19] Will: Norm's microphone's down low, but we're good now.
+[00:01:18] Will: Okay. Norm's microphone's down low, but we're good now.
 
 [00:01:21] Adam: I've been I've been woodworking all morning.
 
-[00:01:21] Will: Uh huh.
-
-[00:01:25] Will: So proper eye protection, I'm sure.
+[00:01:21] Will: Uh huh. So proper eye protection, I'm sure.
 
 [00:01:26] Adam: Um. Well, there's just dust everywhere.
 
@@ -178,9 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:06:22] Norm: Is it kind of like Monty Python?
 
-[00:06:22] Adam: Right.
-
-[00:06:23] Adam: You you wonder what it's going to be like to get them all in the same room.
+[00:06:22] Adam: Right. You you wonder what it's going to be like to get them all in the same room.
 
 [00:06:26] Will: Well, and and the the added layer that there's that they're a rock band, they're a faux rock band, so they could come out and just decide to be dicks during the interview with you because that's the thing that rock bands do.
 
@@ -206,9 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:07:55] Adam: Harry Shearer, in addition to doing dozens of voices on The Simpsons for the last 25 years, also hosts one of my favorite Sunday radio shows, Le Show, out of Los Angeles. Actually, now out of New Orleans, where he lives. I've been listening to that for over 20 years. So, like, independently. All three of these guys have really infused me and my perception of our culture, my politics, my sense of humor, and I was not disappointed at all. They—they just dinner was lovely. The interview was lovely. It was very, very funny, and I actually got a laugh from Chris on stage.
 
-[00:07:55] Will: Ooh.
-
-[00:08:31] Will: So, what did everybody order? Do you remember?
+[00:07:55] Will: Ooh. So, what did everybody order? Do you remember?
 
 [00:08:37] Adam: Michael had the Michael had the cod. Was it the cod?
 
@@ -240,9 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:09:31] Adam: they off. You have to consider that they'll often take their middle name after having changed their name post divorce. That that has happened.
 
-[00:09:43] Will: That'd be an awesome last name. Hi, I'm
-
-[00:09:43] Will: Ruth Eleven.
+[00:09:43] Will: That'd be an awesome last name. Hi, I'm Ruth Eleven.
 
 [00:09:43] Adam: Ruth Eleven.
 
@@ -342,9 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:13:28] Adam: Yeah, I like to. I don't. My back hurts, and I'm older, and you know, I want to be sitting upright. I'm actually putting camping chairs on the list of gear to go out with every single time now.
 
-[00:13:28] Will: Okay.
-
-[00:13:39] Will: Next is the cooler and the barbecue.
+[00:13:28] Will: Okay. Next is the cooler and the barbecue.
 
 [00:13:40] Norm: You're treating it like a piece of your equipment that you're going to train with.
 
@@ -396,17 +384,13 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:15:49] Adam: Yeah. Yeah. You don't want that sitting in your.
 
-[00:16:17] Will: You mean the battery stays on?
-
-[00:16:17] Will: Not the quad.
+[00:16:17] Will: You mean the battery stays on? Not the quad.
 
 [00:16:19] Adam: The battery stays on, right? So turn the battery off, swap it out, put it. Back, make sure your signal's good. Hover in front of you for 30 seconds. Make sure the controls work the way you think, and then take off. Those, this is to me like using a table saw. Every time I approach it, I'm going to expect that this thing could fly into something and be a really bad situation.
 
 [00:16:38] Norm: You're always aware of what it's over, and you're always preparing your mind for the worst possible consequence. You, you mentioned something like one of the reasons that airplanes and airlines are so statistically safe is because they have the pre flight checklist that they go over, no matter what.
 
-[00:16:53] Adam: No matter what, no. I mean, 99% of the time, most of the things on that checklist are are are have no need to be checked.
-
-[00:17:02] Adam: I have. They never don't do it.
+[00:16:53] Adam: No matter what, no. I mean, 99% of the time, most of the things on that checklist are are are have no need to be checked. I have. They never don't do it.
 
 [00:17:03] Will: The the other thing you said, the constant spatial awareness and situational awareness is really important. I have a friend who, um, flies little small airplanes. He fly. He owns a small Cessna, and had an engine failure while he was flying in the mountains in northeast Tennessee.
 
@@ -446,9 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:18:46] Will: Wow.
 
-[00:18:46] Adam: I hit the branch and somehow did not lose the Inspire.
-
-[00:19:00] Adam: Now it really wouldn't have gotten super damaged. This is a steep hillside with lots of lots of you know bushes and everything.
+[00:18:46] Adam: I hit the branch and somehow did not lose the Inspire. Now it really wouldn't have gotten super damaged. This is a steep hillside with lots of lots of you know bushes and everything.
 
 [00:19:07] Norm: You're not that high up.
 
@@ -478,9 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:19:26] Adam: Right.
 
-[00:19:26] Will: And that if you do something that makes it fall from the sky, it's going to be really scary. And I think I don't know if you've crashed anything yet, Norm.
-
-[00:19:46] Will: Have you?
+[00:19:26] Will: And that if you do something that makes it fall from the sky, it's going to be really scary. And I think I don't know if you've crashed anything yet, Norm. Have you?
 
 [00:19:46] Norm: I've not crashed it.
 
@@ -490,9 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:19:47] Will: But we were still probably four or five feet off the ground when the second one shot off. And and I mean, there's nothing. There's literally nothing you can do. So so you always have to be aware. That's why you shouldn't fly over crowds, even with multiple redundancies and all that stuff. Don't fly when there's where there's other people. Don't fly where you can hurt someone or interfere with somebody. You know, follow follow the rules. There there are good rules posted.
 
-[00:20:33] Adam: And let me put it even further: the the the drone hobby, which is now becoming so much more than a hobby, is fantastic and includes some really breathtaking technology being developed by some incredibly bright companies. I mean, I'm just gobsmacked by how complete the system for the Inspire really is in terms of all the ways it unifies these myriad systems that people have been bolting together. Like really clever people have been bolting together in kit form for so long, they make it a one stop shop. But it is still a nascent hobby, and if we people who enjoy this hobby, and I'm a new one, want to enjoy it fully, it is up to every single one of us to realize we represent the hobby. So. Anybody out there with a quad who's not flying it safely can potentially drunkenly drop it on the White House lawn, and all of a sudden Congress wants to pass some really stupid legislation about it because of one incident.
-
-[00:21:36] Adam: Well, that's very dangerous.
+[00:20:33] Adam: And let me put it even further: the the the drone hobby, which is now becoming so much more than a hobby, is fantastic and includes some really breathtaking technology being developed by some incredibly bright companies. I mean, I'm just gobsmacked by how complete the system for the Inspire really is in terms of all the ways it unifies these myriad systems that people have been bolting together. Like really clever people have been bolting together in kit form for so long, they make it a one stop shop. But it is still a nascent hobby, and if we people who enjoy this hobby, and I'm a new one, want to enjoy it fully, it is up to every single one of us to realize we represent the hobby. So. Anybody out there with a quad who's not flying it safely can potentially drunkenly drop it on the White House lawn, and all of a sudden Congress wants to pass some really stupid legislation about it because of one incident. Well, that's very dangerous.
 
 [00:21:38] Will: And by passing, right? Everybody's the representative of their hobby, which is something that the that the amateur airplane flyers and helicopter flyers have understood really, really well for a long time.
 
@@ -558,9 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=0RvHI79CyqQ
 
 [00:25:51] Will: The other thing is.
 
-[00:25:51] Norm: What could possibly go wrong?
-
-[00:25:52] Norm: Def Con. Yeah,
+[00:25:51] Norm: What could possibly go wrong? Def Con. Yeah,
 
 [00:25:54] Will: don't fly your quad at Def Con.
 

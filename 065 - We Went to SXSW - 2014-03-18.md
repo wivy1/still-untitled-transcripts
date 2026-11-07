@@ -38,9 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:01:07] Norm: No, is it lower lip?
 
-[00:01:08] Will: Oh, maybe
-
-[00:01:08] Will: it's lower lip. Yeah, lower lip.
+[00:01:08] Will: Oh, maybe it's lower lip. Yeah, lower lip.
 
 [00:01:10] Norm: I thought it was a Bill Cosby line.
 
@@ -110,13 +108,9 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:03:09] Norm: But it is a hybrid system.
 
-[00:03:09] Adam: Yes.
+[00:03:09] Adam: Yes. I do think it's a hybrid.
 
-[00:03:11] Adam: I do think it's a hybrid.
-
-[00:03:11] Will: Cyborgs?
-
-[00:03:13] Will: I I love like that's the kind of job.
+[00:03:11] Will: Cyborgs? I I love like that's the kind of job.
 
 [00:03:15] Adam: Samantha Morton sitting there
 
@@ -148,15 +142,11 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:04:17] Will: Well, could the monster live in there?
 
-[00:04:18] Adam: Yeah.
-
-[00:04:19] Adam: But I was thinking, where where could we make? Where could we find an analog for trash compactor? Maybe we could try and escape from a garbage truck that's actively attempting to crush us.
+[00:04:18] Adam: Yeah. But I was thinking, where where could we make? Where could we find an analog for trash compactor? Maybe we could try and escape from a garbage truck that's actively attempting to crush us.
 
 [00:04:27] Norm: Now there have been movies, like Bond movies.
 
-[00:04:27] Will: Yeah,
-
-[00:04:29] Will: that's been in movies.
+[00:04:27] Will: Yeah, that's been in movies.
 
 [00:04:29] Norm: And Superman, he did that, I guess.
 
@@ -336,9 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:09:02] Adam: Oh, really?
 
-[00:09:02] Will: Yeah, I'm not. It wasn't my thing. But I also didn't like The West Wing very much, and I'm apparently the only person in North America that didn't like The West Wing.
-
-[00:09:11] Will: The West Wing.
+[00:09:02] Will: Yeah, I'm not. It wasn't my thing. But I also didn't like The West Wing very much, and I'm apparently the only person in North America that didn't like The West Wing. The West Wing.
 
 [00:09:12] Adam: Oh, West Wing. The West Wing was a a deep liberal fantasy. That's what it's like porn for for the liberal political mind.
 
@@ -350,9 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:09:22] Will: No, I live in San Francisco. Even our conservatives are Democrats. Our liberals are Greens or Libertarians, or they just burn things down.
 
-[00:09:22] Adam: Right.
-
-[00:09:31] Adam: We had a Republican governor, and he was the best Democratic governor we've had in 20 years.
+[00:09:22] Adam: Right. We had a Republican governor, and he was the best Democratic governor we've had in 20 years.
 
 [00:09:34] Will: Yeah, he was amazing.
 
@@ -636,9 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:20:20] Adam: Nite Owl, and he was also he was one of the leads in the Angels in America on HBO.
 
-[00:20:24] Will: Oh, right, right, right.
-
-[00:20:25] Will: Okay.
+[00:20:24] Will: Oh, right, right, right. Okay.
 
 [00:20:25] Norm: He's he's a perfect every man.
 
@@ -646,9 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:20:25] Norm: Um, Liv Tyler, is it Matt Bomer from White Collar? He's that USA show. I'm not sure where—
 
-[00:20:34] Will: Oh, okay, I know him.
-
-[00:20:35] Will: Hold on, is that the one where they're standing with their arms crossed and their backs to each other with a blue sky background?
+[00:20:34] Will: Oh, okay, I know him. Hold on, is that the one where they're standing with their arms crossed and their backs to each other with a blue sky background?
 
 [00:20:40] Norm: All I e all USA shows. This is great. Did you know the USA Network? If you look at all their shows, Psych, White Collar, Suits,
 
@@ -778,9 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:24:06] Adam: And that's the one with the glowing face?
 
-[00:24:08] Norm: Right? Yeah,
-
-[00:24:09] Norm: yeah. And he just did that in a weekend and sent to the studio, and that is one of the most iconic movie posters.
+[00:24:08] Norm: Right? Yeah, yeah. And he just did that in a weekend and sent to the studio, and that is one of the most iconic movie posters.
 
 [00:24:14] Adam: He's amazing. Yeah, it's really, really. I'm just I'm in awe of his line,
 
@@ -828,9 +808,7 @@ Episode URL: https://www.youtube.com/watch?v=xYQydVwzEbU
 
 [00:25:15] Will: Oh, that’s fantastic.
 
-[00:25:15] Norm: Yes. Um,
-
-[00:25:17] Norm: it's a red book.
+[00:25:15] Norm: Yes. Um, it's a red book.
 
 [00:25:18] Adam: There we go. I talked about something which I can't show during the podcast. So everyone go to hell.
 

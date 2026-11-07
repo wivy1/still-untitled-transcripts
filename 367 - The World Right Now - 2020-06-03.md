@@ -34,9 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=4fu9C719cHw
 
 [00:03:09] Adam: who lives in a fundamentally who lives in a fundamentally different America.
 
-[00:03:14] Norm: Yeah,
-
-[00:03:14] Norm: and I think
+[00:03:14] Norm: Yeah, and I think
 
 [00:03:15] Adam: Where the rules are completely different. Yeah,
 
@@ -240,11 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=4fu9C719cHw
 
 [00:26:22] Adam: well, and people keep thinking that privilege means that they have a leg up, right? So, like Scalzi's wonderful analogy, that white privilege doesn't mean that you get to win automatically; it just means that you get to play this game on the easy setting. But what that also means is that people of color are playing a vastly more difficult game than you are playing. The settings on their game will would look completely alien to you because you don't live in the same space that they do. You
 
-[00:26:55] Norm: and the easy
-
-[00:26:56] Norm: setting doesn't
-
-[00:26:56] Norm: always feel easy. Yeah.
+[00:26:55] Norm: and the easy setting doesn't always feel easy. Yeah.
 
 [00:26:58] Adam: Right. No. Not at all.
 
@@ -274,11 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=4fu9C719cHw
 
 [00:28:13] Adam: that's not their job to teach you how to do that.
 
-[00:28:16] Norm: And if you think we're wrong, right, and I'm I'm sure there are some listeners out there who don't agree. And if you don't agree, and you've listened your way through the entire podcast, thank you, right? Like at least you just didn't turn it off. You know, then you're the person that we want to have a conversation with, right? You're not just a
-
-[00:28:35] Norm: troll. A
-
-[00:28:36] Norm: few, I'm not going to listen, but we do want to have a conversation.
+[00:28:16] Norm: And if you think we're wrong, right, and I'm I'm sure there are some listeners out there who don't agree. And if you don't agree, and you've listened your way through the entire podcast, thank you, right? Like at least you just didn't turn it off. You know, then you're the person that we want to have a conversation with, right? You're not just a troll. A few, I'm not going to listen, but we do want to have a conversation.
 
 [00:28:40] Adam: Yeah. And you know, yeah, look, I I I try to assume that all of us, even when we vastly disagree, that for the most part, we are all trying to do the same thing: protect our families and our friends and our loved ones and our communities, and afford the best life for. Each of those groups, that is certainly what informs my politics, which is, you know, which is why I value inclusivity and equanimity. I think of a town with 100 people in it and how they take care of each other, and that is the value that I ascribe to even a place as big as the United States. I, I, I, the only way we're going to get through this is by listening to each other, right? Like to really understand what another person's experience is, instead of just deny, deny, deny, and the status quo.
 
@@ -304,9 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=4fu9C719cHw
 
 [00:31:43] Will: all of us uncomfortable. Yeah,
 
-[00:31:45] Norm: yeah,
-
-[00:31:45] Norm: we are all uncomfortable.
+[00:31:45] Norm: yeah, we are all uncomfortable.
 
 [00:31:46] Adam: Completely, completely.
 

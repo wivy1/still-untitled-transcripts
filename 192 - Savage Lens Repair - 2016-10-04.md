@@ -34,9 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:01:49] Adam: bruschetta is the way people mispronounce it. Bruschetta is the correct pronunciation.
 
-[00:01:54] Norm: Really? Oh, there you
-
-[00:01:54] Norm: go.
+[00:01:54] Norm: Really? Oh, there you go.
 
 [00:01:55] Will: That's an Anglo versus Italian thing, right? So, like, if you read,
 
@@ -60,9 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:02:47] Will: This is you might not know this. I just found it out recently.
 
-[00:02:51] Adam: And also, pick your battles. Choose your
-
-[00:02:53] Adam: moments,
+[00:02:51] Adam: And also, pick your battles. Choose your moments,
 
 [00:02:53] Norm: Yes. Right.
 
@@ -82,19 +78,13 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:03:32] Norm: Yeah,
 
-[00:03:33] Will: [speaker unclear: Will / Norm] [unclear: that’s the that’s / that’s],
-
-[00:03:33] Will: the long the short version of the story.
+[00:03:33] Will: [speaker unclear: Will / Norm] [unclear: that’s the that’s / that’s], the long the short version of the story.
 
 [00:03:36] Adam: Ben Acker said Neil deGrasse Tyson is the physical embodiment of the word " actually." [unclear: Right / onset absent in Q/M].
 
 [00:03:42] Norm: And what you were referencing to Adam earlier was one of the first comments you read that now stuck in your head is that people said you kept on using the word " actually," and and not intending to be a dick. It's just
 
-[00:03:53] Adam: I am not intending to be a dick. [unclear: I— / cutoff absent in Q/M].
-
-[00:03:55] Adam: It was a complaint that
-
-[00:03:56] Adam: I said it too much on MythBusters, and it's true I did,
+[00:03:53] Adam: I am not intending to be a dick. [unclear: I— / cutoff absent in Q/M]. It was a complaint that I said it too much on MythBusters, and it's true I did,
 
 [00:04:00] Norm: or you were cut to say it too much.
 
@@ -102,9 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:04:12] Norm: to
 
-[00:04:12] Adam: [speaker unclear: Norm / Adam] get
-
-[00:04:12] Adam: my way there. I have a. Poetic bent. I want to get something right out of it, and actually shows up as one of those. Look, there's a bunch of words that are the words you say when you're thinking about the next thing to say. I'm one of those people who visualizes what they're about to say, so I think in paragraphs and I scroll to the next one and I use some filler words to get there.
+[00:04:12] Adam: [speaker unclear: Norm / Adam] get my way there. I have a. Poetic bent. I want to get something right out of it, and actually shows up as one of those. Look, there's a bunch of words that are the words you say when you're thinking about the next thing to say. I'm one of those people who visualizes what they're about to say, so I think in paragraphs and I scroll to the next one and I use some filler words to get there.
 
 [00:04:34] Will: Actually,
 
@@ -164,9 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:07:18] Will: What's the worst thing that can happen?
 
-[00:07:18] Adam: Or my fly
-
-[00:07:18] Adam: is down. That's where I was going to go.
+[00:07:18] Adam: Or my fly is down. That's where I was going to go.
 
 [00:07:21] Will: I would be fine having no pants at all on, right? As long as there is still asses in the seats when I take the goggles off. Like I think, I think public nudity is way, way, way less bad than 800 people were bored and left.
 
@@ -184,9 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:08:02] Adam: it's incomprehensible. Yes, we did a wave that started at the front and took something like 65 seconds to reach the back of the mall, a mile away. And back to the stage.
 
-[00:08:12] Will: And you were at the Washington Memorial or the
-
-[00:08:14] Will: Lincoln Memorial?
+[00:08:12] Will: And you were at the Washington Memorial or the Lincoln Memorial?
 
 [00:08:14] Adam: Yeah. Your guess is as good as mine.
 
@@ -196,9 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:08:24] Will: Yeah,
 
-[00:08:25] Adam: [speaker unclear: Will / Adam] and the
-
-[00:08:25] Adam: teleprompter didn’t work.
+[00:08:25] Adam: [speaker unclear: Will / Adam] and the teleprompter didn’t work.
 
 [00:08:26] Will: Fuck.
 
@@ -232,9 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:09:18] Norm: Someone they mis scrolled the teleprompter. Went too fast.
 
-[00:09:22] Adam: Oh, and that’s all? He didn't. He didn't just say, " Hey, could you scroll back a little"
-
-[00:09:22] Adam: [speaker unclear: Norm / Adam] bit?
+[00:09:22] Adam: Oh, and that’s all? He didn't. He didn't just say, " Hey, could you scroll back a little" [speaker unclear: Norm / Adam] bit?
 
 [00:09:25] Norm: No, no, and he went. I gotta go and turned around, left, walked off.
 
@@ -324,9 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:12:56] Unknown: [speaker unclear: Adam / Norm / Will] [unclear: filter / completion absent in the M threads alternative].
 
-[00:12:57] Norm: Bent it,
-
-[00:12:57] Norm: so the threads are stuck. It was almost impossible to twist it off. No one could do it.
+[00:12:57] Norm: Bent it, so the threads are stuck. It was almost impossible to twist it off. No one could do it.
 
 [00:13:01] Adam: Both of us had tried. Yeah. Past the point of your like. I'm gonna hurt something.
 
@@ -426,9 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:15:42] Adam: Yeah,
 
-[00:15:42] Will: and not you can't just squeeze it in and pull
-
-[00:15:42] Will: [speaker unclear: Adam / Will] it out.
+[00:15:42] Will: and not you can't just squeeze it in and pull [speaker unclear: Adam / Will] it out.
 
 [00:15:44] Adam: Hard brass too, as I determined when I took it to the bandsaw and I cut a notch out of either side. [unclear: No, just / Now just]
 
@@ -458,15 +434,11 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:16:51] Unknown: [speaker unclear: Will / Adam] Wow.
 
-[00:16:51] Adam: But it took all my strength with both hands to do it. No other method would have done it, and As I approached the bandsaw with the lens, I did one of these. I'm like, okay, I'm going to cut it. Hold on a second. Let's just make sure, because my body was responding like I was standing on the edge of a building. My body was responding to the adrenaline of bandsaw meeting $1,000
-
-[00:16:51] Adam: [speaker unclear: Will / Adam] lens.
+[00:16:51] Adam: But it took all my strength with both hands to do it. No other method would have done it, and As I approached the bandsaw with the lens, I did one of these. I'm like, okay, I'm going to cut it. Hold on a second. Let's just make sure, because my body was responding like I was standing on the edge of a building. My body was responding to the adrenaline of bandsaw meeting $1,000 [speaker unclear: Will / Adam] lens.
 
 [00:17:15] Will: Oh,
 
-[00:17:15] Norm: [speaker unclear: Will / Norm] you
-
-[00:17:15] Norm: just wanted to feel alive.
+[00:17:15] Norm: [speaker unclear: Will / Norm] you just wanted to feel alive.
 
 [00:17:16] Will: So, so I, I, those moments when you when you have the thing that is precious to someone. We were at a meeting one time, and Margie poured water in her laptop.
 
@@ -488,9 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:17:49] Norm: because that's an unconventional problem solving that you're doing. You're thinking as you're doing. it.
 
-[00:17:54] Will: Now the thing I'm looking forward to is the people in the comments that do camera repair who've undoubtedly encountered this problem before. Like, oh yeah, you just got to get the 9 by 12 [unclear: Rasmuskiator / Rasmus skeeter / RAS mosquito] to whip that bad boy out, and it'll pop right
-
-[00:17:54] Will: [speaker unclear: Norm / Will] out.
+[00:17:54] Will: Now the thing I'm looking forward to is the people in the comments that do camera repair who've undoubtedly encountered this problem before. Like, oh yeah, you just got to get the 9 by 12 [unclear: Rasmuskiator / Rasmus skeeter / RAS mosquito] to whip that bad boy out, and it'll pop right [speaker unclear: Norm / Will] out.
 
 [00:18:06] Norm: And it turns out, you know, even if the front element, that front top layer of glass, was shattered, that's the cheapest part to replace.
 
@@ -498,9 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:18:14] Adam: And I, I will submit actually that the bandsaw for a brute force way to cut that notch. And people might say, why didn't you use a Dremel? You have more control. Uh, no. Actually, the bandsaw gives me both hands on the lens, and the blade isn't moving. Dremel. My whole life with Dremels is spent doing this, and having to rebuild something from scratch.
 
-[00:18:37] Will: Well, I guess. Anyway, thanks, Dremel, for.
-
-[00:18:50] Will: no, but it's it is the problem. Like when I got one of those, one of those pen, the flexible shaft attachments, you can hold it like a pen. 
+[00:18:37] Will: Well, I guess. Anyway, thanks, Dremel, for. no, but it's it is the problem. Like when I got one of those, one of those pen, the flexible shaft attachments, you can hold it like a pen. 
 
 [00:18:50] Adam: Yeah,
 
@@ -510,9 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:18:57] Will: Yeah.
 
-[00:18:58] Adam: [speaker unclear: Will / Adam] So
-
-[00:18:58] Adam: you were a really good sport about it, but I was glad that you weren't there to witness me.
+[00:18:58] Adam: [speaker unclear: Will / Adam] So you were a really good sport about it, but I was glad that you weren't there to witness me.
 
 [00:19:03] Norm: Yeah.
 
@@ -540,15 +506,11 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:19:47] Norm: Oh, yeah, there are a couple in San Francisco. There are a couple. Big
 
-[00:19:50] Adam: West Portal. Does that one still
-
-[00:19:50] Adam: [speaker unclear: Norm / Adam] [unclear: do? / completion absent in M].
+[00:19:50] Adam: West Portal. Does that one still [speaker unclear: Norm / Adam] [unclear: do? / completion absent in M].
 
 [00:19:52] Norm: No, action cameras. Not. I don't think that they're there anymore.
 
-[00:19:54] Will: The place out in Taraval is still
-
-[00:19:54] Will: [speaker unclear: Norm / Will] there.
+[00:19:54] Will: The place out in Taraval is still [speaker unclear: Norm / Will] there.
 
 [00:19:56] Norm: That's action cameras. Is there? Okay.
 
@@ -590,17 +552,11 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:20:56] Will: the the that the the it's the Leading up to the, it's when they murdered. It's when they killed the guy on the on the on the the the Middle Eastern diplomat slash terrorist funder. Anyway, it's super good. But I usually don't watch scripted TV shows after watching The West Wing because they're a little dull in comparison.
 
-[00:21:16] Adam: Mostly,
+[00:21:16] Adam: Mostly, it's true.
 
-[00:21:17] Adam: it's true.
+[00:21:18] Will: Walk with me, but yeah. So, so yeah. When when when when they cut from the shot of Lily Tomlin and then you see you see Toby and CJ walking down the hall, you are like, oh, okay, this is a pretty amazing show. But I watched Atlanta, which is Donald Glover's, I guess, newish thing on FX. I don't know how new it is.
 
-[00:21:18] Will: Walk with me,
-
-[00:21:18] Will: but yeah. So, so yeah. When when when when they cut from the shot of Lily Tomlin and then you see you see Toby and CJ walking down the hall, you are like, oh, okay, this is a pretty amazing show. But I watched Atlanta, which is Donald Glover's, I guess, newish thing on FX. I don't know how new it is.
-
-[00:21:35] Adam: Very new. Okay, it's only like a month old. [unclear: The / They, the] episodes are still 
-
-[00:21:35] Adam: [speaker unclear: Will / Adam] airing every week.
+[00:21:35] Adam: Very new. Okay, it's only like a month old. [unclear: The / They, the] episodes are still  [speaker unclear: Will / Adam] airing every week.
 
 [00:21:38] Will: Okay, so I am still.
 
@@ -626,9 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:22:03] Will: It's it's really, really delightfully written. It is incredibly intense and poignant and funny, all in the space of like 30 seconds. Sometimes, and the first, the first, I guess, the first episode ends. I don't want. I don't want to talk about plot at all.
 
-[00:22:19] Adam: [unclear: Yeah / onset absent in Q/M]. Let’s not talk about
-
-[00:22:19] Adam: [speaker unclear: Will / Adam] plot.
+[00:22:19] Adam: [unclear: Yeah / onset absent in Q/M]. Let’s not talk about [speaker unclear: Will / Adam] plot.
 
 [00:22:19] Will: But Donald Glover, if you don't know, is Childish Gambino, and then also played Rich Parnell on The Martian.
 
@@ -666,11 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:24:49] Will: yeah,
 
-[00:24:49] Adam: because they're not drawing attention to themselves, just doing the scene. And Glover, in his own show, he's a very interesting, conflicted character. He's a ne’er-do-well. He's trying to do right by his baby mama and his kid and his friends and his relatives and
-
-[00:25:06] Adam: [speaker unclear: Will / Adam] His
-
-[00:25:06] Adam: parents, his relationship with his parents, totally fascinating.
+[00:24:49] Adam: because they're not drawing attention to themselves, just doing the scene. And Glover, in his own show, he's a very interesting, conflicted character. He's a ne’er-do-well. He's trying to do right by his baby mama and his kid and his friends and his relatives and [speaker unclear: Will / Adam] His parents, his relationship with his parents, totally fascinating.
 
 [00:25:09] Will: Oh yeah,
 
@@ -678,13 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:25:21] Will: well. It's it's not the stereotype that you expect from that from that.  show.
 
-[00:25:25] Adam: [speaker unclear: Will / Adam] There’s
-
-[00:25:25] Adam: no there's no like all expectations are off. It feels like watching Louie for the first time, right? Like 
-
-[00:25:25] Adam: [speaker unclear: Will / Adam] remember
-
-[00:25:25] Adam: how so Louie to me the first season didn't hit its didn't hit its stride. It's still freaking amazing, but the episode in the first season that made me catch my breath was the bully, the first season of Louie.
+[00:25:25] Adam: [speaker unclear: Will / Adam] There’s no there's no like all expectations are off. It feels like watching Louie for the first time, right? Like  [speaker unclear: Will / Adam] remember how so Louie to me the first season didn't hit its didn't hit its stride. It's still freaking amazing, but the episode in the first season that made me catch my breath was the bully, the first season of Louie.
 
 [00:25:44] Will: Okay.
 
@@ -692,9 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:26:04] Will: I mean, it it feels. Honest, like his performance is really honest, right? You see, you see this very multifaceted character. He has a complex relationship with the with the mom of his his daughter. He has a conflicted relationship with his daughter. You kind of anticipate him doing some sort of horrible. If it was a film, he would have made a horrible mistake already,
 
-[00:26:24] Adam: Right, yeah.
-
-[00:26:25] Adam: totally. Well, because you got to get to the point in 20 minutes.
+[00:26:24] Adam: Right, yeah. totally. Well, because you got to get to the point in 20 minutes.
 
 [00:26:27] Will: Yeah, but but in this, it's just kind of here's here's the story of this guy
 
@@ -708,11 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:26:48] Norm: Comedians are almost they're the most honest.
 
-[00:26:52] Adam: [unclear: I— / cutoff absent in Q/W]. You know, 
-
-[00:26:52] Adam: [speaker unclear: Norm / Adam] I think
-
-[00:26:52] Adam: exactly the same thing, Norm. I think you're totally right.
+[00:26:52] Adam: [unclear: I— / cutoff absent in Q/W]. You know,  [speaker unclear: Norm / Adam] I think exactly the same thing, Norm. I think you're totally right.
 
 [00:26:55] Norm: And it's you know, Master of None and Louie, like this show I want to watch.
 
@@ -746,17 +684,9 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:28:25] Norm: and the fact that he
 
-[00:28:25] Adam: [unclear: Adam: “didn’t let us” / Will: “didn’t”—unnamed speaker: “And he didn’t let us”—Adam: “Yeah”]—that’s the thing. And look, I'm not going to, I'm not going to go on and on and on. I mean, you know, the the the hagiography of Washington is a national pastime. And [unclear: Chernow wrote this book / Chernow wrote. He wrote a book] to humanize him and really look through his letters. And there's been great scholarship over the last over the last couple of hundred years, chronicling all of his letters and people's letters to him to really unpack a very complex and amazing man. The book is astounding when you realize what he achieved, what he did, handing over the army to the Continental Congress, reluctantly coming and taking the presidency twice, leaving the leaving the office of president, even though he was terrified of the of the Republicans. An amazing page turning, thrilling book.
+[00:28:25] Adam: [unclear: Adam: “didn’t let us” / Will: “didn’t”—unnamed speaker: “And he didn’t let us”—Adam: “Yeah”]—that’s the thing. And look, I'm not going to, I'm not going to go on and on and on. I mean, you know, the the the hagiography of Washington is a national pastime. And [unclear: Chernow wrote this book / Chernow wrote. He wrote a book] to humanize him and really look through his letters. And there's been great scholarship over the last over the last couple of hundred years, chronicling all of his letters and people's letters to him to really unpack a very complex and amazing man. The book is astounding when you realize what he achieved, what he did, handing over the army to the Continental Congress, reluctantly coming and taking the presidency twice, leaving the leaving the office of president, even though he was terrified of the of the Republicans. An amazing page turning, thrilling book. [speaker unclear: Will / Adam] [unclear: I highly / So highly] recommend.
 
-[00:29:15] Adam: [speaker unclear: Will / Adam] [unclear: I highly / So highly]
-
-[00:29:15] Adam: recommend.
-
-[00:29:16] Will: [speaker unclear: Adam / Will] I’m
-
-[00:29:16] Will: gonna add
-
-[00:29:16] Will: [speaker unclear: Adam / Will] it.
+[00:29:16] Will: [speaker unclear: Adam / Will] I’m gonna add [speaker unclear: Adam / Will] it.
 
 [00:29:16] Adam: Would read again.
 
@@ -764,19 +694,13 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:29:20] Adam: Oh God, yeah.
 
-[00:29:20] Will: I the new one just came out. The third one just came
-
-[00:29:20] Will: [speaker unclear: Norm / Will] out.
+[00:29:20] Will: I the new one just came out. The third one just came [speaker unclear: Norm / Will] out.
 
 [00:29:24] Norm: Translate, English translation.
 
 [00:29:26] Will: The English translation.
 
-[00:29:26] Adam: Yeah.
-
-[00:29:27] Adam: Dying to read
-
-[00:29:27] Adam: [speaker unclear: Will / Adam] it.
+[00:29:26] Adam: Yeah. Dying to read [speaker unclear: Will / Adam] it.
 
 [00:29:28] Will: Um, I think I think we need to give it a little bit of time between, maybe. But we were still gonna talk about Dark Forest.
 
@@ -802,9 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:30:00] Norm: Yeah.
 
-[00:30:00] Will: Oh, he's [unclear: in a work / an orc / going to work]. Kill
-
-[00:30:00] Will: [speaker unclear: Adam / Will] him.
+[00:30:00] Will: Oh, he's [unclear: in a work / an orc / going to work]. Kill [speaker unclear: Adam / Will] him.
 
 [00:30:02] Unknown speaker: Oh.
 
@@ -812,9 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:30:06] Norm: Um, and I know that we need to talk about Star Trek, but the other movie I may still be in theaters, but. Please watch Kubo and the Two Strings.
 
-[00:30:11] Adam: Oh, Kubo and the Two 
-
-[00:30:11] Adam: [speaker unclear: Will / Adam] Strings.
+[00:30:11] Adam: Oh, Kubo and the Two  [speaker unclear: Will / Adam] Strings.
 
 [00:30:12] Will: Have you seen it?
 
@@ -826,9 +746,7 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:30:19] Will: Can I take my daughter? Is it four year old?
 
-[00:30:21] Norm: That’s a
-
-[00:30:21] Norm: [speaker unclear: Will / Norm] really good question.
+[00:30:21] Norm: That’s a [speaker unclear: Will / Norm] really good question.
 
 [00:30:21] Will: I know people said there's a little violence at the beginning.
 
@@ -876,13 +794,9 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:31:42] Adam: We just we just completed my costume for New York Comic Con.
 
-[00:31:44] Norm: You just completed your 
+[00:31:44] Norm: You just completed your  [speaker unclear: Will / Norm] costume.
 
-[00:31:44] Norm: [speaker unclear: Will / Norm] costume.
-
-[00:31:45] Will: [speaker unclear: Norm / Will] It
-
-[00:31:45] Will: is so good.
+[00:31:45] Will: [speaker unclear: Norm / Will] It is so good.
 
 [00:31:46] Adam: Yeah, Will freaked out.
 
@@ -894,15 +808,9 @@ Episode URL: https://www.youtube.com/watch?v=sesS15z-bCs
 
 [00:32:01] Norm: So yep, tickets are on sale now. October 29th is a Saturday. It's at the Castro Theatre. It's gonna be awesome.
 
-[00:32:07] Adam: We will 
+[00:32:07] Adam: We will  [speaker unclear: Norm / Adam] see you there,
 
-[00:32:07] Adam: [speaker unclear: Norm / Adam] see
-
-[00:32:07] Adam: you there,
-
-[00:32:07] Norm: [speaker unclear: Adam / Norm] and
-
-[00:32:07] Norm: hopefully, we'll see you there. Tickets are on sale now. There'll be a link in the description. Um, and I guess that's it.
+[00:32:07] Norm: [speaker unclear: Adam / Norm] and hopefully, we'll see you there. Tickets are on sale now. There'll be a link in the description. Um, and I guess that's it.
 
 [00:32:14] Adam: That's it. Let's get started with our day.
 

@@ -106,9 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:03:50] Adam: I know. I mean that that saturated blue. They really nailed it.
 
-[00:03:54] Will: I the thing that so I've never been to Dragon Con. I've always wanted to go, but not enough to go
-
-[00:04:00] Will: to Atlanta and Labor Day. But it seems like it's the place that, like, the hardcore cosplay community goes to really show off.
+[00:03:54] Will: I the thing that so I've never been to Dragon Con. I've always wanted to go, but not enough to go to Atlanta and Labor Day. But it seems like it's the place that, like, the hardcore cosplay community goes to really show off.
 
 [00:04:07] Adam: Oh, yeah, yeah, no, it's it's San Diego is
 
@@ -134,11 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:05:37] Will: That's right. I think um the the Galaxy's Edge stuff opened in Florida,
 
-[00:05:41] Norm: Florida.
-
-[00:05:42] Norm: This week.
-
-[00:05:42] Norm: that's right. Oh, and with the hurricanes too. So there’s a big hurricane, of course coming off the coast.
+[00:05:41] Norm: Florida. This week. that's right. Oh, and with the hurricanes too. So there’s a big hurricane, of course coming off the coast.
 
 [00:05:46] Adam: Did Kissimmee County get get battered?
 
@@ -192,9 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:07:32] Norm: It is a carousel.
 
-[00:07:34] Adam: Yeah, carousel of cockpits.
-
-[00:07:35] Adam: So every group of six feels like they're walking into an empty Millennium Falcon.
+[00:07:34] Adam: Yeah, carousel of cockpits. So every group of six feels like they're walking into an empty Millennium Falcon.
 
 [00:07:38] Norm: Yeah, and and how how could they do that with the throughput?
 
@@ -222,9 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:09:53] Norm: It's like a Star Tours ride. It's a motion simulator, right? But you're fully. It's a it's a video game where you know you're there are two pilots. One person controls yaw. One person controls. Pitch. One pilot gets to pull the hyperdrive lever.
 
-[00:10:07] Will: Oh, yeah. Whoa. Yeah.
-
-[00:10:08] Will: Did you did you load? Did you have the pad app on your phone so you could do the stuff there?
+[00:10:07] Will: Oh, yeah. Whoa. Yeah. Did you did you load? Did you have the pad app on your phone so you could do the stuff there?
 
 [00:10:11] Norm: I didn't do that.
 
@@ -248,9 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:10:50] Adam: But so there's no fine line in my Wookiee costumes.
 
-[00:10:52] Will: No, your Wookiee costume would be frowned upon.
-
-[00:10:54] Will: Ah, yeah. But like, but like, you could wear your Han Solo jacket.
+[00:10:52] Will: No, your Wookiee costume would be frowned upon. Ah, yeah. But like, but like, you could wear your Han Solo jacket.
 
 [00:10:57] Norm: It's a casual cosplay that you could do, and it becomes a whole thing where people try to push that boundary.
 
@@ -294,9 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:11:54] Will: Kyle Chandler, he's one of the main characters.
 
-[00:11:56] Adam: Yeah,
-
-[00:11:56] Adam: Ron Livingston, Ron Livingston, and Damian Lewis are the two main actors. I also watched. I also watched the the Rock's movie Rampage.
+[00:11:56] Adam: Yeah, Ron Livingston, Ron Livingston, and Damian Lewis are the two main actors. I also watched. I also watched the the Rock's movie Rampage.
 
 [00:12:04] Will: Oh, that's a based on the hit 1988 video game Rampage.
 
@@ -384,9 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:14:59] Adam: Oh, you think they're like the New York Times, where the first ones?
 
-[00:15:01] Will: Yeah,
-
-[00:15:02] Will: Mondays. Mondays easy and Sundays hard. Okay. Saturdays hard.
+[00:15:01] Will: Yeah, Mondays. Mondays easy and Sundays hard. Okay. Saturdays hard.
 
 [00:15:04] Adam: Yeah. That's I. I haven't yet logged enough granularity to ascertain that, but that sounds right.
 
@@ -414,9 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:16:27] Norm: It really is a killer app for you.
 
-[00:16:29] Adam: Oh, so I really, really enjoy it.
-
-[00:17:47] Adam: This week was an sorry, we've been talking about the small stuff, but this week was an intense week. I will tell you on we we lost a MythBusters co host this week. Jessi Combs. She she was killed trying to break her own land speed record in a four wheeled vehicle. Jessi did the incredible and difficult task of when I met her of stepping into Kari Byron's gigantic shoes while Kari took a leave of absence to have her baby Stella. And Jessi not only stepped into that role with all the incredible enthusiasm, but became a fan a fan favorite. Our fans are so MythBuster fans are intense, and there was a point at Comic Con once I made a joke about replacing the narrator because we had some we had a very funny narration, and just making the joke I lost the audience and had to win them back because they were so upset at the idea we were changing something about the brand that they loved. So for Jessi to step into Kari's shoes and become so well loved by the fans for the season that she was on is no small thing and a real testament to her incredible work ethic. Her incredible build, prowess, her ability to be herself on camera, and it is a great loss in my heart. Our hearts go out to her family and her loved ones. I can't imagine how difficult their week was.
+[00:16:29] Adam: Oh, so I really, really enjoy it. This week was an sorry, we've been talking about the small stuff, but this week was an intense week. I will tell you on we we lost a MythBusters co host this week. Jessi Combs. She she was killed trying to break her own land speed record in a four wheeled vehicle. Jessi did the incredible and difficult task of when I met her of stepping into Kari Byron's gigantic shoes while Kari took a leave of absence to have her baby Stella. And Jessi not only stepped into that role with all the incredible enthusiasm, but became a fan a fan favorite. Our fans are so MythBuster fans are intense, and there was a point at Comic Con once I made a joke about replacing the narrator because we had some we had a very funny narration, and just making the joke I lost the audience and had to win them back because they were so upset at the idea we were changing something about the brand that they loved. So for Jessi to step into Kari's shoes and become so well loved by the fans for the season that she was on is no small thing and a real testament to her incredible work ethic. Her incredible build, prowess, her ability to be herself on camera, and it is a great loss in my heart. Our hearts go out to her family and her loved ones. I can't imagine how difficult their week was.
 
 [00:19:11] Will: Yeah, yeah.
 
@@ -430,9 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:19:26] Adam: Yes.
 
-[00:19:27] Will: Oh.
-
-[00:19:28] Will: And I was like, " Oh God, this is a horrifying thought from the future,
+[00:19:27] Will: Oh. And I was like, " Oh God, this is a horrifying thought from the future,
 
 [00:19:31] Adam: right?
 
@@ -572,9 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:24:40] Adam: And it's constantly moving.
 
-[00:24:41] Norm: Yeah.
-
-[00:24:42] Norm: Wow. But they do things with the sets here. There's a big library with this, and they do a lot of like the director pushed the the puppeteers to do longer shots, so it's not just within the frame of you know two puppets talking to each other. They do oners.
+[00:24:41] Norm: Yeah. Wow. But they do things with the sets here. There's a big library with this, and they do a lot of like the director pushed the the puppeteers to do longer shots, so it's not just within the frame of you know two puppets talking to each other. They do oners.
 
 [00:24:57] Adam: Oh wow! Right. Wow.
 
@@ -702,9 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=_2W1QLz3G9A
 
 [00:27:49] Adam: Yeah.
 
-[00:27:49] Will: On
-
-[00:27:49] Will: the audio.
+[00:27:49] Will: On the audio.
 
 [00:27:50] Adam: Yes.
 

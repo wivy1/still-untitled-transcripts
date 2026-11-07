@@ -90,9 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:02:46] Will: Just strengthen that thing up.
 
-[00:02:47] Norm: So like compression actually works like those the clothes that wear that tighten it up and yeah all your joints and
-
-[00:02:47] Norm: muscles.
+[00:02:47] Norm: So like compression actually works like those the clothes that wear that tighten it up and yeah all your joints and muscles.
 
 [00:02:52] Adam: so what she said was it's that that curly cued tip of your radius that wraps around this holds it in orientation so it's not like
 
@@ -106,15 +104,11 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:03:08] Norm: Yeah. How how do they diagnose it? Like, what did you tell them? you do to, to.
 
-[00:03:13] Adam: They asked some hilarious questions, like, " Have you fallen in the past couple years?"
-
-[00:03:17] Adam: And I was like, " Sure."
+[00:03:13] Adam: They asked some hilarious questions, like, " Have you fallen in the past couple years?" And I was like, " Sure."
 
 [00:03:18] Norm: In your head was like a montage. Like, cue the montage. Press the button. It's like.
 
-[00:03:24] Adam: Exactly.
-
-[00:03:25] Adam: She's like, What do you do? Are are what do you do on a day to day basis? And I was like, oh man. I was like, I am very physically active.
+[00:03:24] Adam: Exactly. She's like, What do you do? Are are what do you do on a day to day basis? And I was like, oh man. I was like, I am very physically active.
 
 [00:03:32] Will: Do you know who you're dealing with?
 
@@ -166,9 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:05:07] Adam: I have to do that. Like on MythBusters.
 
-[00:05:09] Norm: Of course, of
-
-[00:05:09] Norm: course, it makes sense. Yeah.
+[00:05:09] Norm: Of course, of course, it makes sense. Yeah.
 
 [00:05:09] Adam: On MythBusters, because of the production schedule, I had four root canals in one day.
 
@@ -180,9 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:05:23] Will: Four plus hours. Yeah. They got tennis elbow.
 
-[00:05:23] Adam: Yeah.
-
-[00:05:25] Adam: He was beat.
+[00:05:23] Adam: Yeah. He was beat.
 
 [00:05:26] Will: So you you you you know this, Norm? You probably haven't experienced this yet. There's a moment when you're in your like let's say mid 30s when you go to the doctor and you say, you know some you you describe some pain that is new to you, and the doctor is like, well, yep, that's a thing that happens.
 
@@ -258,9 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:08:52] Will: Sorry, Antarctica.
 
-[00:08:54] Adam: Yeah.
-
-[00:08:54] Adam: McMurdo just couldn't cough it up.
+[00:08:54] Adam: Yeah. McMurdo just couldn't cough it up.
 
 [00:08:57] Will: What a bunch of slackers down there!
 
@@ -308,9 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:10:36] Will: Oh, people just used whatever filament they had.
 
-[00:10:37] Adam: no, no,
-
-[00:10:38] Adam: Well, actually, the there was a specific thing, and it was this. Send it to us in a skin tone.
+[00:10:37] Adam: no, no, Well, actually, the there was a specific thing, and it was this. Send it to us in a skin tone.
 
 [00:10:45] Will: Oh, that's super smart. That's so good.
 
@@ -420,9 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:15:49] Norm: and then this year for San Diego it's gonna it's gonna be Star Wars themed
 
-[00:15:54] Adam: ooh yeah yeah and we are helping
-
-[00:15:54] Adam: test as part of this.
+[00:15:54] Adam: ooh yeah yeah and we are helping test as part of this.
 
 [00:15:57] Norm: yes yes
 
@@ -544,9 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:22:29] Will: Did they do multiple? Like was that at a time when they would have had a stunt version for when people are handling it and one that goes on a pedestal, or is it
 
-[00:22:35] Adam: so it's all one?
-
-[00:22:36] Adam: It's pretty much known that there were at least two lead castings made for the film, and that in the scene when they're spinning it around at the end, when Peter Lorre cuts into it and finds out that it's lead, that that is an actual lead bird that weighed 50 some odd pounds.
+[00:22:35] Adam: so it's all one? It's pretty much known that there were at least two lead castings made for the film, and that in the scene when they're spinning it around at the end, when Peter Lorre cuts into it and finds out that it's lead, that that is an actual lead bird that weighed 50 some odd pounds.
 
 [00:22:51] Will: I was going to say it had to be incredibly heavy.
 
@@ -796,9 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:30:25] Adam: Yeah.
 
-[00:30:25] Will: The whole movie is worth it for for that scene.
-
-[00:30:28] Will: Um.
+[00:30:25] Will: The whole movie is worth it for for that scene. Um.
 
 [00:30:25] Adam: Yeah.
 
@@ -890,9 +870,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:32:29] Adam: I haven't, and I'm shocked that it is, if anything, twice as good as I remember.
 
-[00:32:29] Will: Oh,
-
-[00:32:37] Will: the the first few seasons are like the all time great TV seasons.
+[00:32:29] Will: Oh, the the first few seasons are like the all time great TV seasons.
 
 [00:32:42] Adam: We're in the middle of season four. We just dealt with Don just won the Clio and then went drunkenly pitched the the Life cereal company.
 
@@ -978,9 +956,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:35:59] Will: Well, and and the the kind of casual desperation that that he leads on his day to day in that show.
 
-[00:36:05] Adam: Harry Crane.
-
-[00:36:05] Adam: Yeah. Right.
+[00:36:05] Adam: Harry Crane. Yeah. Right.
 
 [00:36:06] Will: Right. Like
 
@@ -1010,9 +986,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:36:58] Will: Sorry, I was just like,
 
-[00:37:01] Adam: I
-
-[00:37:02] Adam: was the compliment singular pleasure rose up to me, and then I realized how could it be singular if I'm watching it the second time?
+[00:37:01] Adam: I was the compliment singular pleasure rose up to me, and then I realized how could it be singular if I'm watching it the second time?
 
 [00:37:07] Norm: That's right. The encore.
 
@@ -1032,9 +1006,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:37:23] Adam: Oh, oh, the Sinatra,
 
-[00:37:23] Will: The one with Sinatra.
-
-[00:37:23] Will: yes,
+[00:37:23] Will: The one with Sinatra. yes,
 
 [00:37:25] Norm: that's the original.
 
@@ -1070,9 +1042,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:38:24] Will: people should go see Incredibles Two.
 
-[00:38:25] Adam: I'm dying to see Ocean's Eight. My friend Sasha just saw it and told me it was amazing. I can't wait to see it. Um, I reminded of the Onion headline for Ocean's Eight, which is " Man Watching Trailer for Ocean's Eight, Still Wondering Who the Protagonist Is."
-
-[00:38:41] Adam: Oh, Onion! Every now and then you can get in a headline that doesn't happen for real.
+[00:38:25] Adam: I'm dying to see Ocean's Eight. My friend Sasha just saw it and told me it was amazing. I can't wait to see it. Um, I reminded of the Onion headline for Ocean's Eight, which is " Man Watching Trailer for Ocean's Eight, Still Wondering Who the Protagonist Is." Oh, Onion! Every now and then you can get in a headline that doesn't happen for real.
 
 [00:38:47] Will: I feel like the Onion writers, like they've they've gone from being writers to editors in the last two years.
 
@@ -1198,13 +1168,7 @@ Episode URL: https://www.youtube.com/watch?v=Li9uopkpAL4
 
 [00:43:15] Will: You can use your phone now while you're while you're riding, right?
 
-[00:43:17] Adam: Yeah, I'm just surfing, surfing Reddit. I'm surfing Reddit
-
-[00:43:21] Adam: while bombing downhills.
-
-[00:43:22] Adam: Anyway, the XR is incredible, and I love it. And the video went up this
-
-[00:43:27] Adam: morning.
+[00:43:17] Adam: Yeah, I'm just surfing, surfing Reddit. I'm surfing Reddit while bombing downhills. Anyway, the XR is incredible, and I love it. And the video went up this morning.
 
 [00:43:27] Norm: Yeah, this morning. Yeah, cool. Check that out. Yeah, and I think that does it.
 

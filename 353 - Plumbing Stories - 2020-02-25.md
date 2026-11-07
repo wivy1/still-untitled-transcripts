@@ -70,9 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:01:49] Will: They used to be real cheeky.
 
-[00:01:51] Norm: That sounds like a
-
-[00:01:52] Norm: Fight Club thing.
+[00:01:51] Norm: That sounds like a Fight Club thing.
 
 [00:01:53] Adam: It used to be very funny, and then somebody complained, and Southwest had to stop being funny in their safety videos because people didn't think that that was funny.
 
@@ -82,9 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:02:17] Will: The New Zealand
 
-[00:02:18] Adam: New Zealand
-
-[00:02:18] Adam: Air Safety video. Uh, I have written to the New Zealand Air people and told them it's my lifelong dream to be in or to produce a safety video for them or anyone else who's listening.
+[00:02:18] Adam: New Zealand Air Safety video. Uh, I have written to the New Zealand Air people and told them it's my lifelong dream to be in or to produce a safety video for them or anyone else who's listening.
 
 [00:02:31] Will: Any airline?
 
@@ -108,9 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:03:13] Norm: Yeah, so the Star Trek stuff, the Klingons aren't there anymore. They do have skinny Penn and Teller.
 
-[00:03:18] Adam: At any rate, we just got back from New Zealand.
-
-[00:03:21] Adam: New Zealand was amazing.
+[00:03:18] Adam: At any rate, we just got back from New Zealand. New Zealand was amazing.
 
 [00:03:22] Will: Were your arms tired?
 
@@ -134,9 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:03:49] Will: You're paying your way in the completely new way.
 
-[00:03:52] Adam: No, just completely fulfilling
-
-[00:03:52] Adam: every expectation about what it's like to hang out with me.
+[00:03:52] Adam: No, just completely fulfilling every expectation about what it's like to hang out with me.
 
 [00:03:54] Will: Yeah,
 
@@ -328,9 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:11:27] Adam: Adam Brody,
 
-[00:11:27] Will: Adam, not Adrien Brody
-
-[00:11:28] Will: from the OC, from the OC, yeah, the OC guy.
+[00:11:27] Will: Adam, not Adrien Brody from the OC, from the OC, yeah, the OC guy.
 
 [00:11:31] Adam: I have never watched it.
 
@@ -342,9 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:11:35] Will: no, no. The the, the, brother-in-law.
 
-[00:11:36] Adam: brother, the brother,
-
-[00:11:38] Adam: the kind of the bearded brother.
+[00:11:36] Adam: brother, the brother, the kind of the bearded brother.
 
 [00:11:39] Will: No, the other one, the the younger, the attractive, dark haired, dark curly hair.
 
@@ -392,17 +380,11 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:12:42] Will: like um, it's not like.
 
-[00:12:44] Adam: But if you want fun gory, watch Free Fire. That's the
-
-[00:12:47] Adam: movie to
-
-[00:12:48] Adam: watch.
+[00:12:44] Adam: But if you want fun gory, watch Free Fire. That's the movie to watch.
 
 [00:12:48] Norm: We've talked, yeah,
 
-[00:12:49] Adam: we talked about it. Cillian Murphy,
-
-[00:12:50] Adam: Sharlto Copley, Brie Larson, and Armie Hammer in a one-room shoot 'em up.
+[00:12:49] Adam: we talked about it. Cillian Murphy, Sharlto Copley, Brie Larson, and Armie Hammer in a one-room shoot 'em up.
 
 [00:12:55] Will: Oh, that sounds great.
 
@@ -488,9 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:14:14] Norm: And they have a system where they can not only do a PA announcement for everyone, but they can also do pop-ups. And so there was a pop-up that came on that says, " Sorry, the Wi-Fi is down." And I was like, " Oh my god, I I prepared for this flight with the assumption that Wi-Fi is going to be up. I need my Wikipedia while I'm watching these movies. I need to go to my deep dives. How am I going to pass 11 hours of time? But turns out they can. The pop-ups are they can whoever is running them can type into a keyboard. And so two hours into the flight, when everyone was asleep after the supper service, pop-up. I fix all caps. I fixed the Wi-Fi exclamation exclamation mark. Please be gentle exclamation mark. I was like, I need to grab my phone and take a picture of this because because I could tweet it.
 
-[00:14:58] Will: Oh yeah, that's so good.
-
-[00:14:59] Will: Did it go away?
+[00:14:58] Will: Oh yeah, that's so good. Did it go away?
 
 [00:14:59] Norm: It went away. It popped away.
 
@@ -518,9 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:15:40] Will: Oh, you didn't have them?
 
-[00:15:41] Norm: I had a
-
-[00:15:41] Norm: burger.
+[00:15:41] Norm: I had a burger.
 
 [00:15:41] Adam: They were stunning. I actually was eating them so assiduously that it didn't occur to me to tell Norm they were amazing until I was done, and then I was like, " Norm, these were amazing, and I should have given him one." It just didn't even occur to me because I was just plowing them into my face.
 
@@ -638,9 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:20:45] Will: lime peels are
 
-[00:20:45] Adam: lime peels are
-
-[00:20:46] Adam: crazy fibrous.
+[00:20:45] Adam: lime peels are crazy fibrous.
 
 [00:20:48] Will: So the number one tip that I have about plumbing is don't ever use an effing garbage disposal because they're bad for the environment. They're bad for the septic system.
 
@@ -822,9 +798,7 @@ Episode URL: https://www.youtube.com/watch?v=fRFSe9GsaiE
 
 [00:27:31] Will: yeah,
 
-[00:27:31] Adam: that's a specific type of paper, and they burned tons
-
-[00:27:34] Adam: and tons of different paper,
+[00:27:31] Adam: that's a specific type of paper, and they burned tons and tons of different paper,
 
 [00:27:35] Norm: because they know for duration of burn the song how how much they could burn because the the actress has to be holding it. It's the one piece that actually lights on fire on the show.
 

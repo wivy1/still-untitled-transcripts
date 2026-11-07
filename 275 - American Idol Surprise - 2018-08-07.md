@@ -24,9 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:00:14] Adam: This is all part of the cut. Let's try again.
 
-[00:00:17] Will: Norm's the producer and the editor, so it's all on him.
-
-[00:00:17] Will: Welcome to Still Untitled, the Adam Savage—
+[00:00:17] Will: Norm's the producer and the editor, so it's all on him. Welcome to Still Untitled, the Adam Savage—
 
 [00:00:17] Norm: Now it has to go in.
 
@@ -82,9 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:01:22] Adam: yeah, the plow. And so when it came time to do it again, I was like, " Well, so you've got the files, right?" And he's like, " No, I threw them out."
 
-[00:02:21] Will: I wish I could be that. I wish I could do that.
-
-[00:02:23] Will: Like 80 k
+[00:02:21] Will: I wish I could be that. I wish I could do that. Like 80 k
 
 [00:02:24] Adam: of a drawing, and he's like, "
 
@@ -212,9 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:07:10] Norm: [unclear: All your PDF / All your TPH] downloads.
 
-[00:07:10] Will: Hey, mm hmm. Yeah.
-
-[00:07:12] Will: no, I didn't do that special folder, Norm. But yeah, it's it's it's amazing because it Google Photos pulls the EXIF data,
+[00:07:10] Will: Hey, mm hmm. Yeah. no, I didn't do that special folder, Norm. But yeah, it's it's it's amazing because it Google Photos pulls the EXIF data,
 
 [00:07:12] Adam: right?
 
@@ -240,9 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:07:57] Will: Yeah,
 
-[00:07:58] Norm: you were there
-
-[00:07:58] Norm: Thursday, Friday.
+[00:07:58] Norm: you were there Thursday, Friday.
 
 [00:07:59] Adam: I went down there to to participate in the TCA's Television Critics Association. So in April in New York is the upfronts. That's where networks trot out their their upcoming stuff to the advertisers. And in July, in the mid in mid year, in Los Angeles, and maybe it's in other places, but there's a TCA where we do it for the television critics. And so the young, the six young MythBusters, and I traveled down to L. A. And did the dog and pony show for MythBusters Junior. But this was the first unveiling of them to the world.
 
@@ -254,9 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:08:57] Adam: No.
 
-[00:08:57] Will: Okay.
-
-[00:08:59] Will: No, you can't win them all.
+[00:08:57] Will: Okay. No, you can't win them all.
 
 [00:09:01] Adam: But so we get to the also the Beverly Hilton is one of my favorite hotels. Yeah. Great old Hollywood. Yeah, it’s not quite cool. Just I love that hotel.
 
@@ -398,15 +388,11 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:15:42] Adam: I I I got to. There was a season. With Kristen Bowersox, the American Idol season with the Kristen Bowersox was one was the season that my kids and my wife and I all watched religiously, and I managed to get tickets to the finale.
 
-[00:15:42] Will: Oh, nice!
-
-[00:16:04] Will: You went to a finale of an American Idol.
+[00:15:42] Will: Oh, nice! You went to a finale of an American Idol.
 
 [00:16:04] Norm: Yeah, wow.
 
-[00:16:04] Will: We're learning new things.
-
-[00:16:08] Will: Look, Norm, you might have been too young to realize because you were in college when American Idol was on.
+[00:16:04] Will: We're learning new things. Look, Norm, you might have been too young to realize because you were in college when American Idol was on.
 
 [00:16:13] Norm: I was primed. I was there. Yeah, first season of American Idol, Justin Kelly. [unclear: I was Luke Selvion / bluecellvision].
 
@@ -418,9 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:16:23] Norm: 50 million people watched
 
-[00:16:25] Adam: Lee DeWyze is
-
-[00:16:25] Adam: the name of the guy who won that year. I'm remembering Kristen Bowersox because I think I they were both amazing. Yeah, and I slightly preferred her, but he won because teenage girls.
+[00:16:25] Adam: Lee DeWyze is the name of the guy who won that year. I'm remembering Kristen Bowersox because I think I they were both amazing. Yeah, and I slightly preferred her, but he won because teenage girls.
 
 [00:16:35] Will: Well, so the thing the thing about the thing about American Idol back then I don't think American Idol's even on anymore. But the thing about American Idol back then
 
@@ -456,9 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:17:51] Adam: I can't remember.
 
-[00:17:52] Norm: Multiple nights, wasn't it?
-
-[00:17:53] Norm: Thursday.
+[00:17:52] Norm: Multiple nights, wasn't it? Thursday.
 
 [00:17:54] Will: No, it was multiple nights
 
@@ -474,9 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:18:28] Adam: So we go down to the Biltmore, which is classic old Hollywood hotel, amazing hallways. You feel like you're in a Chandler novel.
 
-[00:18:36] Will: Nokia?
-
-[00:18:36] Will: What's that? Is it at the Nokia Theater?
+[00:18:36] Will: Nokia? What's that? Is it at the Nokia Theater?
 
 [00:18:36] Adam: Yeah.
 
@@ -568,9 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:21:28] Norm: It's such a good—
 
-[00:21:28] Adam: People yelling, screaming,
-
-[00:21:28] Adam: and wondering—
+[00:21:28] Adam: People yelling, screaming, and wondering—
 
 [00:21:31] Norm: Would that be fun for people to watch?
 
@@ -618,9 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:22:40] Adam: That was that was the loveliest thing about becoming friends with Hodgman was I remember him and my wife and I eating at a restaurant, and towards the end of the meal, all three of us were like, " It's delightful to to spend time with someone who takes television as seriously as we do."
 
-[00:22:55] Will: Wow. Well, so then you also need somebody who's willing to [unclear: start the pop / 13 years ago]
-
-[00:23:00] Will: You need somebody who's going to be kind of a pain in the ass and who's going to make the the principal decision. Yeah,
+[00:22:55] Will: Wow. Well, so then you also need somebody who's willing to [unclear: start the pop / 13 years ago] You need somebody who's going to be kind of a pain in the ass and who's going to make the the principal decision. Yeah,
 
 [00:23:05] Adam: you you need a couple of you. I I think you'd want a couple of like really professional critics.
 
@@ -640,11 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:23:26] Adam: Oh yeah, yeah, yeah. Oh my gosh! This is this is this is this is a nifty idea. I want to pitch this
 
-[00:23:33] Will: patent pending.
-
-[00:23:34] Will: You know, do something. Nobody else
-
-[00:23:36] Will: can steal this idea.
+[00:23:33] Will: patent pending. You know, do something. Nobody else can steal this idea.
 
 [00:23:37] Adam: Okay, so okay, what's the list?
 
@@ -660,9 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:23:53] Norm: Well, you want to anticipation.
 
-[00:23:54] Will: Well, we don't start with 250 if we were doing a list of 100, and then we would just cut the bottom 150.
-
-[00:23:54] Will: Right, because like you need to like yeah.
+[00:23:54] Will: Well, we don't start with 250 if we were doing a list of 100, and then we would just cut the bottom 150. Right, because like you need to like yeah.
 
 [00:24:01] Norm: Number 10 is from Breaking Bad. It's Ozymandias.
 
@@ -780,11 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:26:53] Adam: I love that series finale.
 
-[00:26:54] Norm: Well, and it’s
-
-[00:26:55] Norm: divisive, right? Just like the
-
-[00:26:56] Norm: Sopranos one is divisive.
+[00:26:54] Norm: Well, and it’s divisive, right? Just like the Sopranos one is divisive.
 
 [00:26:56] Adam: Oh, it's great,
 
@@ -804,9 +770,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:27:28] Will: it's it's it's super hard sci-fi.
 
-[00:27:30] Adam: Glad he's got a new one because I went through all
-
-[00:27:32] Adam: of his. Everything a couple summers ago.
+[00:27:30] Adam: Glad he's got a new one because I went through all of his. Everything a couple summers ago.
 
 [00:27:34] Norm: I think he'll be in town in a couple weeks for WorldCon.
 
@@ -820,11 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:27:50] Adam: Yeah, fascinating. Yeah. Oh, when is it?
 
-[00:27:53] Norm: I think in like a
-
-[00:27:54] Norm: month or something. Two months. September.
-
-[00:27:57] Norm: Late August.
+[00:27:53] Norm: I think in like a month or something. Two months. September. Late August.
 
 [00:27:57] Adam: Late August.
 
@@ -848,9 +808,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:28:13] Will: and his his nemesis, that woman, the woman who was the truck driver.
 
-[00:28:16] Norm: I'm sorry. Right. But Sue. Sue.
-
-[00:28:18] Norm: So they have—
+[00:28:16] Norm: I'm sorry. Right. But Sue. Sue. So they have—
 
 [00:28:18] Adam: Didn't Sue and Richard double cross someone who, in that finale, said, " I wouldn't cross the street to piss on you if you were on fire.
 
@@ -870,9 +828,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:28:58] Will: it's so like that show has has drafted on that moment for 20 years,
 
-[00:29:03] Adam: and you know that if you want some Schadenfreude, do you remember that he got in huge trouble for not paying taxes on that $1 million?
-
-[00:29:09] Adam: And his response was his response. Way back when Steve Martin was a stand-up comedian before he's a movie star, and he had a monologue: " You can get $1 million and never pay taxes. You can have $1 million and never pay taxes. First, get $1 million, then."
+[00:29:03] Adam: and you know that if you want some Schadenfreude, do you remember that he got in huge trouble for not paying taxes on that $1 million? And his response was his response. Way back when Steve Martin was a stand-up comedian before he's a movie star, and he had a monologue: " You can get $1 million and never pay taxes. You can have $1 million and never pay taxes. First, get $1 million, then."
 
 [00:29:25] Will: Yeah.
 
@@ -894,15 +850,11 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:29:49] Norm: number six, The Wire. The episode is Middle Ground, and I don't know if either of you watch The Wire, but this is.
 
-[00:29:55] Will: I've been meaning to.
-
-[00:29:58] Will: I heard it's pretty good.
+[00:29:55] Will: I've been meaning to. I heard it's pretty good.
 
 [00:29:59] Norm: You're not a good white person, Will.
 
-[00:30:00] Will: I know.
-
-[00:30:02] Will: I know.
+[00:30:00] Will: I know. I know.
 
 [00:30:02] Norm: It's it's the big stringer bell moment. Is all I'll say. I won't spoil it for you. This Idris Elba, one of his most iconic roles, a stringer bell, the drug dealer in The Wire, and it's him coming to confrontation with Omar, who's the other big character.
 
@@ -930,9 +882,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:30:32] Adam: completely,
 
-[00:30:32] Norm: and the right moment in time, and
-
-[00:30:38] Norm: with internet,
+[00:30:32] Norm: and the right moment in time, and with internet,
 
 [00:30:39] Adam: when the the last time we saw him do stand up, he was like, " Man, that sketch has just ruined my life." He's like, " I walk down the street with my kids, and people keep calling. Maybe you could refrain from calling me bitch in front of my kids."
 
@@ -976,9 +926,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:32:05] Norm: and they do the long shot as they're running away from the house, and they like do the and I think the Steadicam onto the lift over the fence and the whole thing. It's one. It's astounding.
 
-[00:32:05] Will: Right, right.
-
-[00:32:20] Will: This is divisive. Like number four, best episode of television, fourth best episode of television of all time
+[00:32:05] Will: Right, right. This is divisive. Like number four, best episode of television, fourth best episode of television of all time
 
 [00:32:20] Adam: in history.
 
@@ -1028,9 +976,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:33:30] Adam: Red Wedding, I was going to say.
 
-[00:33:30] Will: I was going to say red wedding. I haven't even watched Game of Thrones.
-
-[00:33:33] Will: Like having watched people on Twitter watch Game of Thrones, having read the books and knowing what was coming, I was
+[00:33:30] Will: I was going to say red wedding. I haven't even watched Game of Thrones. Like having watched people on Twitter watch Game of Thrones, having read the books and knowing what was coming, I was
 
 [00:33:39] Norm: like, " Is this
 
@@ -1090,9 +1036,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:35:13] Norm: Okay.
 
-[00:35:13] Adam: And my wife and I, we just love that line. You never thank me. That's what the money's for. So apparently, it wasn't written that way. Apparently, it was written not to be highly
-
-[00:35:33] Adam: activated.
+[00:35:13] Adam: And my wife and I, we just love that line. You never thank me. That's what the money's for. So apparently, it wasn't written that way. Apparently, it was written not to be highly activated.
 
 [00:35:33] Norm: Oh wow!
 
@@ -1176,9 +1120,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:37:51] Adam: Topher Grace
 
-[00:37:52] Norm: did
-
-[00:37:53] Norm: both Star Wars and just recently The Hobbit
+[00:37:52] Norm: did both Star Wars and just recently The Hobbit
 
 [00:37:56] Will: and The Matrix too, right? He did the back two Matrix movies and Oh, did he really? Are
 
@@ -1404,9 +1346,7 @@ Episode URL: https://www.youtube.com/watch?v=eyilT_IUi_g
 
 [00:44:46] Adam: I think this is a good place to leave.
 
-[00:44:48] Will: See you guys next week. Hey,
-
-[00:44:48] Will: I have a plug this week for once.
+[00:44:48] Will: See you guys next week. Hey, I have a plug this week for once.
 
 [00:44:48] Adam: Yeah, please.
 

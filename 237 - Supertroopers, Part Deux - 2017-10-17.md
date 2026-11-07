@@ -100,13 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:04:52] Norm: I bet the smell of foam latex.
 
-[00:04:54] Adam: She was like, " You don't even know.
-
-[00:04:56] Adam: Don't even go near the makeup."
-
-[00:04:57] Adam: And the sad part was, was that the people running the event were really, really awesome. But I did not get the chance to actually buy.
-
-[00:04:57] Adam: Anything.
+[00:04:54] Adam: She was like, " You don't even know. Don't even go near the makeup." And the sad part was, was that the people running the event were really, really awesome. But I did not get the chance to actually buy. Anything.
 
 [00:05:04] Norm: Oh, oh! What would you have wanted from that? Do you think?
 
@@ -122,13 +116,9 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:06:06] Adam: Not my jam,
 
-[00:06:06] Ryan: Not my jam.
+[00:06:06] Ryan: Not my jam. but I definitely actually I remember going to uh to that a couple times actually because whenever people came in town,
 
-[00:06:06] Ryan: but I definitely actually I remember going to uh to that a couple times actually because whenever people came in town,
-
-[00:06:06] Adam: yeah,
-
-[00:06:17] Adam: someone to take them to.
+[00:06:06] Adam: yeah, someone to take them to.
 
 [00:06:18] Ryan: Oh yeah, had to go. Yeah, had to go. But I never realized that there was two actual bridges.
 
@@ -166,9 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:07:09] Ryan: the American version, right?
 
-[00:07:09] Norm: Yeah.
-
-[00:07:11] Norm: Okay.
+[00:07:09] Norm: Yeah. Okay.
 
 [00:07:12] Adam: Well, I said, I didn't realize there were
 
@@ -190,11 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:08:22] Norm: And they tell each other stories about their life.
 
-[00:08:22] Adam: Holy cow,
-
-[00:08:22] Adam: It’s so tight.
-
-[00:08:22] Adam: the way in which Black Mirror takes an idea and dives really deeply into all the aspects of it that could be messed up is amazing.
+[00:08:22] Adam: Holy cow, It’s so tight. the way in which Black Mirror takes an idea and dives really deeply into all the aspects of it that could be messed up is amazing.
 
 [00:08:34] Norm: Which is why I like the original first two seasons a little more. I know it's it's trite to say than the U.S. one because the U.S. one they release like all these episodes at once, and I think the U.S. one is a little more like what? Hey, the story is what if cell phones, but too much. Like, I give me a little more depth, and I think the U.K. ones took some of those ideas a little further. There is one episode I think it was Emmy Award winning. That speaking of Blade Runner, Mackenzie Davis was in San Junipero. So that's the one I would recommend watching from the Netflix U.S. run.
 
@@ -206,11 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:09:09] Norm: And that is beautiful, beautiful episode.
 
-[00:09:11] Adam: Wow. Okay.
-
-[00:09:12] Adam: And I will
-
-[00:09:12] Adam: totally look it up.
+[00:09:11] Adam: Wow. Okay. And I will totally look it up.
 
 [00:09:13] Norm: Recently won an Emmy for best like short like film series.
 
@@ -314,9 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:16:32] Norm: Visually, thematically,
 
-[00:16:34] Adam: Oh, my gosh,
-
-[00:16:34] Adam: that's a really great question.
+[00:16:34] Adam: Oh, my gosh, that's a really great question.
 
 [00:16:37] Norm: Like, if you like this type of Pixar film, because some people like they like Incredibles because of its action adventure, and yes, there's family there, but they or they like or you know, Inside Out was wonderful because it's a movie you can really watch with a child growing up.
 
@@ -350,9 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:19:02] Adam: Yeah,
 
-[00:19:02] Ryan: totally awesome.
-
-[00:19:03] Ryan: I'm super excited.
+[00:19:02] Ryan: totally awesome. I'm super excited.
 
 [00:19:05] Norm: Visually, so in terms of the the Disney World, somebody did over the weekend. I was a quick shout out. We have in San Francisco the Walt Disney Family Museum, which is I think it's a hidden gem,
 
@@ -362,9 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=NOmztGywX9c
 
 [00:20:08] Adam: Is it really?
 
-[00:20:08] Norm: It's
-
-[00:20:08] Norm: amazing. Some of the original cel back. It's not matte paintings, but I guess they're just the cel backgrounds for the layered multiplane camera for Sleeping Beauty are on display, and it's it's. Wonderful!
+[00:20:08] Norm: It's amazing. Some of the original cel back. It's not matte paintings, but I guess they're just the cel backgrounds for the layered multiplane camera for Sleeping Beauty are on display, and it's it's. Wonderful!
 
 [00:20:19] Adam: Awesome!
 

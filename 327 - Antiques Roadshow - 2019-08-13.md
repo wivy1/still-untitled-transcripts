@@ -34,15 +34,11 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:00:34] Sam Farrell: That's a battlefield promotion. I'm actually senior producer. I just want to make sure everybody understands that, but that's okay.
 
-[00:00:40] Adam: Okay. And
-
-[00:00:42] Adam: so we met the first year that I lost. I think it was your. You've lost way more Emmys than I have.
+[00:00:40] Adam: Okay. And so we met the first year that I lost. I think it was your. You've lost way more Emmys than I have.
 
 [00:00:49] Sam Farrell: We're we're coming up for number 17.
 
-[00:00:51] Adam: 17. That's
-
-[00:00:52] Adam: Susan Lucci territory.
+[00:00:51] Adam: 17. That's Susan Lucci territory.
 
 [00:00:54] Sam Farrell: It is. She lost at 19, I believe. Oh, sorry, won the first one at 19, and with the 17th coming up, I was looking at an article the other day that showed us. Who is likely to win, and who is who should win, and the deserves to win? That put us in third place, and who is likely to win? They put us at sixth place. So I'm not doing anything except crossing my fingers.
 
@@ -66,9 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:01:51] Adam: undercover boss, my Life on the D-List.
 
-[00:01:53] Sam Farrell: Diners, Drive-Ins and Dives.
-
-[00:01:54] Sam Farrell: Yeah.
+[00:01:53] Sam Farrell: Diners, Drive-Ins and Dives. Yeah.
 
 [00:01:55] Adam: Basically, it's like five different genres of television in one category. Okay, because while reality is half of television, it is literally like three categories of the Emmys.
 
@@ -182,9 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:07:36] Sam Farrell: And so here we are in Sacramento. You you have no right to believe it's going to show up in Sacramento or anywhere else. And and this thing shows up and it looks a bit like a sort of and you're a class A sculptor and model maker. And the person who put this together had put some care in it, but since it was going to be burnt as the prototype to see how we're going to make this shot work and how we're going to do this, it had it had no back. It was black on the inside and it had some sort of Little ornament to it, but it doesn't really look exactly like the actual Ark in the movie.
 
-[00:08:11] Adam: Wow! But like
-
-[00:08:12] Adam: a camera test version.
+[00:08:11] Adam: Wow! But like a camera test version.
 
 [00:08:12] Sam Farrell: Camera test version, yes.
 
@@ -322,9 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:20:09] Will: Yeah, with three, three people, three teams shooting?
 
-[00:20:12] Sam Farrell: No, we have, well, we now have four teams shooting and
-
-[00:20:11] Sam Farrell: we have a B roll set up and we have a digital team and So there's there's six, and then we have the feedback booth as well. Catch a bit of stuff.
+[00:20:12] Sam Farrell: No, we have, well, we now have four teams shooting and we have a B roll set up and we have a digital team and So there's there's six, and then we have the feedback booth as well. Catch a bit of stuff.
 
 [00:21:57] Adam: I'm really curious about the crazies. I am sure that you have had to deal with people who are desperate to get on the show and keep maybe gaming their arrival with objects they think will entice you.
 
@@ -408,11 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:29:05] Sam Farrell: Well, so I happen to know that one of the things that went viral was a Rolex watch, and I think it had 5 million hits.
 
-[00:29:14] Adam: That's the one.
-
-[00:29:14] Adam: that came with all of
-
-[00:29:15] Adam: its original paperwork that the guy bought at the PX.
+[00:29:14] Adam: That's the one. that came with all of its original paperwork that the guy bought at the PX.
 
 [00:29:18] Sam Farrell: In Germany, yeah.
 
@@ -438,9 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:31:09] Norm: yeah, oh,
 
-[00:31:10] Sam Farrell: yeah, yeah, cloth cape,
-
-[00:31:11] Sam Farrell: the vinyl cape. I mean, you know, the difference, and we discovered that this year. So there are little bits and pieces, but that can be faked, and so an expert can say, " Well, I can tell the fake because it's got it doesn't have the."
+[00:31:10] Sam Farrell: yeah, yeah, cloth cape, the vinyl cape. I mean, you know, the difference, and we discovered that this year. So there are little bits and pieces, but that can be faked, and so an expert can say, " Well, I can tell the fake because it's got it doesn't have the."
 
 [00:31:22] Will: The the shiny threads, the cloth or whatever.
 
@@ -484,9 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:36:59] Sam Farrell: Well.
 
-[00:36:59] Adam: I seem to remember.
-
-[00:37:00] Adam: It was it was a it was an 18th century piece of furniture, if I remember correctly.
+[00:36:59] Adam: I seem to remember. It was it was a it was an 18th century piece of furniture, if I remember correctly.
 
 [00:37:04] Will: Adam, did you just on episode C 31 part two?
 
@@ -598,17 +580,13 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:43:16] Sam Farrell: You have to walk a long way in an antique mall to find something good.
 
-[00:43:20] Adam: That you do. Yeah,
-
-[00:43:21] Adam: I'm usually looking for tools which aren't very collectible, and I mean, I have a piece. A little folding ruler, a little folding Stanley ruler that a gentleman might keep in their pocket, and this one's silver plate and ivory. And I think I picked it up for $40 somewhere. You know, these tools are aren't being looked at a lot.
+[00:43:20] Adam: That you do. Yeah, I'm usually looking for tools which aren't very collectible, and I mean, I have a piece. A little folding ruler, a little folding Stanley ruler that a gentleman might keep in their pocket, and this one's silver plate and ivory. And I think I picked it up for $40 somewhere. You know, these tools are aren't being looked at a lot.
 
 [00:43:42] Sam Farrell: And unsalable in California.
 
 [00:43:45] Adam: Oh, probably. Oh, right. Yeah, I have a couple. I have actually a piece of ivory my grandfather gave me in here. Oh, actually, this is a lovely piece. Hold on,
 
-[00:43:53] Will: headphones. He's going to ask for an appraisal. It's going to
-
-[00:43:58] Will: be very awkward.
+[00:43:53] Will: headphones. He's going to ask for an appraisal. It's going to be very awkward.
 
 [00:43:59] Norm: Adam just went to the bookshelves. He's grabbing something.
 
@@ -626,9 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=0yhMSy_xTfU
 
 [00:44:10] Will: Tested dot com does not endorse this sale by any means.
 
-[00:44:11] Adam: Okay, so what I'm holding in my hand
-
-[00:44:12] Adam: is a what looks like a sort of a divan or lounge that's miniature, on which lies a woman carved in ivory. If you look closely at her face, she seems to be of Asian descent, at least from that side of the Pacific, and she's sitting on a, inside a little plastic vitrine. Do you do you know what this is, Sam? Do you have an idea?
+[00:44:11] Adam: Okay, so what I'm holding in my hand is a what looks like a sort of a divan or lounge that's miniature, on which lies a woman carved in ivory. If you look closely at her face, she seems to be of Asian descent, at least from that side of the Pacific, and she's sitting on a, inside a little plastic vitrine. Do you do you know what this is, Sam? Do you have an idea?
 
 [00:44:37] Will: There are children present, Adam.
 

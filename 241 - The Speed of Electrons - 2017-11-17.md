@@ -84,17 +84,13 @@ Episode URL: https://www.youtube.com/watch?v=Nmy3uFU-7t4
 
 [00:06:04] Norm: That's the fun stuff. Right?
 
-[00:06:07] Will: Yeah.
-
-[00:06:08] Will: That's the business people stuff, right?
+[00:06:07] Will: Yeah. That's the business people stuff, right?
 
 [00:06:11] Adam: Well, it's actually really lovely, right? Because I am an avid consumer, and so I really get to put my money where my mouth is in terms of the customer experience that I value and how I'm going to give that to the people that are going to purchase a product from me.
 
 [00:06:26] Will: You need to go back to Twitter and look through the whole... The whole history of things you've bitched about companies doing to you, and you got to make sure you don't do any of them because somebody's going to find out if you do.
 
-[00:06:35] Adam: Exactly.
-
-[00:06:36] Adam: It's
+[00:06:35] Adam: Exactly. It's
 
 [00:06:36] Will: that's so cool.
 
@@ -120,15 +116,11 @@ Episode URL: https://www.youtube.com/watch?v=Nmy3uFU-7t4
 
 [00:07:39] Adam: No, I'm not going to bully people into arbitration.
 
-[00:07:42] Will: Okay, who? Okay, that's good. That's 
-
-[00:07:42] Will: good.
+[00:07:42] Will: Okay, who? Okay, that's good. That's  good.
 
 [00:07:45] Adam: No.
 
-[00:07:46] Norm: So
-
-[00:07:47] Norm: you you were traveling, Adam. This you started tour a couple days ago. We're later in the week now, but this past weekend we hung a little bit. We went down to to Prop Store.
+[00:07:46] Norm: So you you were traveling, Adam. This you started tour a couple days ago. We're later in the week now, but this past weekend we hung a little bit. We went down to to Prop Store.
 
 [00:07:59] Adam: Yes. Ooh. That was really really fun. I have never been. I know Brandon and and Stephen Lane from Prop Store very well, but I have never been to one of their warehouses, and that was absolutely thrilling.
 
@@ -160,9 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=Nmy3uFU-7t4
 
 [00:12:53] Norm: yeah,
 
-[00:12:54] Will: But but it oh,
-
-[00:12:54] Will: go ahead, Norm.
+[00:12:54] Will: But but it oh, go ahead, Norm.
 
 [00:12:57] Norm: No, I’m, I completely agree that I mean it's we try to think of films as purely art pieces and collaborative pieces between creative people, but it's also collaboration between the business people too, and that's that's the producers and their jobs is to keep it on schedule, on budget, and those are you know the constraints of money and time are very real things for any type of creative endeavor.
 

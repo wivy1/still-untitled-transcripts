@@ -132,9 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:04:55] Norm: which exactly. So the point is that you know it makes sense for a mission on Mars to have different suits that you would have for EVA mission. And that you would have for on, on the land mission, mobility is different because you have different pressures, different atmosphere, different gravity. You actually have gravity,
 
-[00:05:12] Adam: and you actually have a minor atmosphere, which means you are, I believe, more protected from micrometeorites,
-
-[00:05:19] Adam: which is one of the reasons for all the layers, many, many, many layers of beta cloth on the EMU suit.
+[00:05:12] Adam: and you actually have a minor atmosphere, which means you are, I believe, more protected from micrometeorites, which is one of the reasons for all the layers, many, many, many layers of beta cloth on the EMU suit.
 
 [00:05:25] Norm: Right. And so, something that even wasn't even addressed in the book, but the production took into account, is to have two different suits: one for when you're on this in, in the Hermes and EVA, and taking up the the the MAV, but also one for which is the majority of film, the beautiful orange space suit, which is the Ares mission suit.
 
@@ -188,9 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:10:27] Will: The Blair Witch.
 
-[00:10:30] Norm: right?
-
-[00:10:30] Norm: And and that like the scenes where he's just like hearing outside of Mars and the environment,
+[00:10:30] Norm: right? And and that like the scenes where he's just like hearing outside of Mars and the environment,
 
 [00:10:36] Adam: Right?
 
@@ -228,9 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:11:31] Adam: Don Glover's characterization of Rick Purcell,
 
-[00:11:31] Norm: Purcell,
-
-[00:11:34] Norm: Rich, Rich Purcell,
+[00:11:31] Norm: Purcell, Rich, Rich Purcell,
 
 [00:11:35] Will: Rich Purcell
 
@@ -392,9 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:19:53] Adam: It was totally. And what's hilarious about them calling the secret? So this is Rich Purcell figuring out the gravity assist sling on his own, and when he gathers people to talk about it, he calls it Project Elrond because it's a it's a nod to Fellowship of the Ring, in which they decide to sort of—. And the joke is, is that one of the actors who plays the mission commander is Sean Bean.
 
-[00:19:53] Norm: Oh,
-
-[00:20:16] Norm: oh, that's that's the joke. Oh, I didn't realize that. That's great.
+[00:19:53] Norm: Oh, oh, that's that's the joke. Oh, I didn't realize that. That's great.
 
 [00:20:20] Will: Didn't even occur to me.
 
@@ -830,9 +822,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:39:02] Adam: And yes, the spacesuits completely completely obsess me. I want to make one. I need to make one.
 
-[00:39:02] Norm: Yeah,
-
-[00:39:09] Norm: get that fancy new GoPro.
+[00:39:02] Norm: Yeah, get that fancy new GoPro.
 
 [00:39:11] Adam: I got to get that. GoPro must be very pleased with their treatment in that film.
 
@@ -844,9 +834,7 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:39:22] Adam: Future's so bright. We have to wear shades.
 
-[00:39:22] Will: Yeah.
-
-[00:39:25] Will: That'll do it for us. I think this is probably. I think the last time we'll probably talk about the Martian on the podcast.
+[00:39:22] Will: Yeah. That'll do it for us. I think this is probably. I think the last time we'll probably talk about the Martian on the podcast.
 
 [00:39:32] Adam: Oh my gosh.
 
@@ -930,6 +918,4 @@ Episode URL: https://www.youtube.com/watch?v=7p2lEOFtEqw
 
 [00:43:40] Norm: [unclear: That front / not fun]. And so right, right, right. But in Riley, the main character, little girl, it's it's a mix. So what is that? Is that Pixar's way of saying that it's she's still developing?
 
-[00:43:40] Adam: I think so.
-
-[00:43:50] Adam: I think that's a really lovely way of saying that.
+[00:43:40] Adam: I think so. I think that's a really lovely way of saying that.

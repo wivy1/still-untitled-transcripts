@@ -20,9 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:00:36] Adam: it's a it's going to be a right. It's going to be a for me an intense couple of days because last night we we we're not going to talk about this until next week.
 
-[00:00:45] Norm: Yeah,
-
-[00:00:45] Norm: next week.
+[00:00:45] Norm: Yeah, next week.
 
 [00:00:46] Adam: Till next week, but we went and saw a preview screening of * The Martian* last night.
 
@@ -128,9 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:03:45] Norm: And then the Marriott changed the carpet on like the first floor, so it doesn't even match up now. But people still wore their costumes to to commemorate it. And then the best they changed the carpet like weeks before DragonCon. Not why? Because the day after or the
 
-[00:03:59] Will: the Monday after,
-
-[00:04:00] Will: Your machinations don’t stop.
+[00:03:59] Will: the Monday after, Your machinations don’t stop.
 
 [00:04:01] Norm: you just walk through like, oh, this new carpet, which is ugly.
 
@@ -188,9 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:05:35] Norm: Yes. The, the shirt to the bloodier shirt to the the gun on his back,
 
-[00:05:39] Adam: tape to his back
-
-[00:05:40] Adam: with Christmas wrapping.
+[00:05:39] Adam: tape to his back with Christmas wrapping.
 
 [00:05:41] Norm: Yes, to finding another person who had the the who he could put the Santa hat on and put the ho ho ho. Now I have a machine gun.
 
@@ -198,9 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:05:49] Norm: Throughout the evening,
 
-[00:05:50] Adam: Oh, that’s so good.
-
-[00:05:51] Adam: He was walking around going " Yippee ki yay, mofo,"
+[00:05:50] Adam: Oh, that’s so good. He was walking around going " Yippee ki yay, mofo,"
 
 [00:05:53] Norm: and you could run, and if you didn't know,
 
@@ -230,9 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:07:41] Norm: and bonded. And it was something that made me think about the difference of how I feel about the Star Trek movie. You have Star Trek's 50th anniversary coming up, and they've been filming the new movie. And if you think about all the Star Trek shows, something that like you know Patrick Stewart and and you know LeVar Burton, the Next Generation era, and even the original cast talk about when you're filming for five years or seven years on this show that is a cultural touchstone and has an intense fan base. There's a bond you get that we actually don't get. When you just have the movie reboots, and I'm sure the cast of Star Trek and Into Darkness and the new one and Beyond are close, but it's not the same.
 
-[00:08:20] Adam: Yeah,
-
-[00:08:21] Adam: no. A few years ago at DragonCon again, we went up to the top floor. Is it the Marriott that the top floor is Yuri's Bar?
+[00:08:20] Adam: Yeah, no. A few years ago at DragonCon again, we went up to the top floor. Is it the Marriott that the top floor is Yuri's Bar?
 
 [00:08:28] Norm: The Hill, the Hill, the I believe the the one, the Hilton, the other one.
 
@@ -318,9 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:13:27] Will: What if feelings had feelings?
 
-[00:13:28] Adam: What if feelings had feelings?
-
-[00:13:29] Adam: Yeah.
+[00:13:28] Adam: What if feelings had feelings? Yeah.
 
 [00:13:30] Will: Yo, dog! I heard you like feelings. So, yeah, you you get into the movie, and you know she's small children that age get full zombie mode when you put them in front of a TV of any kind. But you know, she watched all the trailers, and she was scared during the Transylvania trailer. She was excited during this. She loves the short before the movie, which I think is probably it's really high on my list of favorite Pixar shorts. The Lava one, it's it's like right up there with Presto and For the Birds, from where I said.
 
@@ -394,9 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:17:14] Norm: At that age, are the kids getting plot, or is it more just empathy and like, you know, mimicking the characters on screen and feeling what the characters are supposed to feel?
 
-[00:17:24] Will: So, so Totoro was the first thing we let her watch, and she watched Totoro a lot.
-
-[00:17:31] Will: She
+[00:17:24] Will: So, so Totoro was the first thing we let her watch, and she watched Totoro a lot. She
 
 [00:17:31] Adam: is so beautiful.
 
@@ -424,9 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:19:20] Adam: Have you watched Babe?
 
-[00:19:21] Will: No.
-
-[00:19:22] Will: Oh, that's a good one.
+[00:19:21] Will: No. Oh, that's a good one.
 
 [00:19:23] Adam: My kids don't remember ever having watched Babe because that was something they watched when they were two and three, and I've been wanting to watch it again because it's such a masterpiece.
 
@@ -490,9 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:22:57] Adam: oh that's a great choice Charlie Day I love Charlie but not so much
 
-[00:23:01] Will: I mean he could be a he could be a certain type of King Arthur I pulled the sword out
-
-[00:23:06] Will: Green Man
+[00:23:01] Will: I mean he could be a he could be a certain type of King Arthur I pulled the sword out Green Man
 
 [00:23:07] Adam: Charlie sorry. Oh, also, I know I'm now tangenting. That's
 
@@ -640,9 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=rI-jpUn4_a4
 
 [00:26:44] Will: Okay.
 
-[00:26:44] Adam: The ducks might arrive.
-
-[00:26:47] Adam: And I'll get them in a row to be sure. Thanks, everybody.
+[00:26:44] Adam: The ducks might arrive. And I'll get them in a row to be sure. Thanks, everybody.
 
 [00:26:54] Will: Yeah, we'll be back next week with another show. As always, if you like us, like us on iTunes. That's the best way that you can let more people know about Still Untitled, and we will see you next week.
 

@@ -14,9 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:00:07] Adam: We are. It's been a while.
 
-[00:00:09] Will: It's, well, I mean, I feel like we just did this a minute or two ago, but it has been a while.
-
-[00:00:13] Will: You've been traveling.
+[00:00:09] Will: It's, well, I mean, I feel like we just did this a minute or two ago, but it has been a while. You've been traveling.
 
 [00:00:14] Adam: I've been traveling. There's been a lot of flying around the country.
 
@@ -116,9 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:03:40] Will: That's not Russia. So we—before they're in Russia, they go to Houston, Texas, Johnson Space Center—
 
-[00:03:41] Adam: Right.
-
-[00:03:46] Adam: Yes.
+[00:03:41] Adam: Right. Yes.
 
 [00:03:46] Will: Home of Mission Control, among other things.
 
@@ -248,9 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:08:05] Adam: Serious?
 
-[00:08:05] Will: That's what he said. He said, literally, there is a, some places where there's a river that they shut the doors.
-
-[00:08:10] Will: They make a pool indoors, but he's, they don't think, the NASA guys don't think that counts because they don't filter it.
+[00:08:05] Will: That's what he said. He said, literally, there is a, some places where there's a river that they shut the doors. They make a pool indoors, but he's, they don't think, the NASA guys don't think that counts because they don't filter it.
 
 [00:08:15] Adam: I don't think that counts.
 
@@ -266,11 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:08:47] Adam: Right.
 
-[00:08:48] Will: Like it's that, it's kind of super clear.
-
-[00:08:50] Will: Um, so we talked to him about, about what it's like to dive in the pool because they have a whole team, support team with astronauts when they're training for ISS.
-
-[00:08:56] Will: Um, what else do we do?
+[00:08:48] Will: Like it's that, it's kind of super clear. Um, so we talked to him about, about what it's like to dive in the pool because they have a whole team, support team with astronauts when they're training for ISS. Um, what else do we do?
 
 [00:08:57] Adam: They have special spacesuits that they wear for those.
 
@@ -278,9 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:09:00] Adam: Same spacesuits.
 
-[00:09:01] Norm: Really?
-
-[00:09:01] Norm: But it is just because—
+[00:09:01] Norm: Really? But it is just because—
 
 [00:09:03] Adam: Oh right, because they're custom made for each of them, so you might as well be wearing your.
 
@@ -452,13 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:13:40] Will: The flight test.
 
-[00:13:41] Norm: The flight test, and never went to space. But you get to get, you know, 10 feet close to it, but you don't get to actually go inside.
-
-[00:13:46] Norm: And the director of the museum there, at the Intrepid in New York, said that he had brought astronauts inside, because who had actually flown into space.
-
-[00:13:53] Norm: And so like, you know, it's, it's a very short list.
-
-[00:13:57] Norm: Um, here we got to go in, and two decks of the space shuttle. So it is a very, very cramped space, and I can't believe they at one point had eight people in there.
+[00:13:41] Norm: The flight test, and never went to space. But you get to get, you know, 10 feet close to it, but you don't get to actually go inside. And the director of the museum there, at the Intrepid in New York, said that he had brought astronauts inside, because who had actually flown into space. And so like, you know, it's, it's a very short list. Um, here we got to go in, and two decks of the space shuttle. So it is a very, very cramped space, and I can't believe they at one point had eight people in there.
 
 [00:14:04] Will: Yeah, it's, it's, it's, um, so, you know, you—you've probably seen like an Apollo capsule at museums and stuff over the years. It seems like it's maybe three times the interior volume of that.
 
@@ -512,15 +494,11 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:15:44] Will: So.
 
-[00:15:45] Norm: Wow, you want to bottle that up?
-
-[00:15:46] Norm: Essence of cabin.
+[00:15:45] Norm: Wow, you want to bottle that up? Essence of cabin.
 
 [00:15:47] Will: Sell it at Spencer's. Yeah.
 
-[00:15:50] Adam: You could choose your favorite sports team while they're flying between.
-
-[00:15:52] Adam: Oh God,
+[00:15:50] Adam: You could choose your favorite sports team while they're flying between. Oh God,
 
 [00:15:55] Will: That's horrible.
 
@@ -562,9 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:16:46] Adam: She's a friend.
 
-[00:16:47] Will: Yeah, she's a friend.
-
-[00:16:49] Will: To maybe help make space food a little tastier.
+[00:16:47] Will: Yeah, she's a friend. To maybe help make space food a little tastier.
 
 [00:16:52] Adam: It's that when that first came across, I don't even remember who thought of it. It just was such a great idea to get some of the best chefs in the world to take some of the renowned, not-so-awesome food. And I know that NASA's worked hard on it, but it's still hard to make really tasty stuff—
 
@@ -668,9 +644,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:21:36] Adam: Really?
 
-[00:21:37] Will: So there was this, it wasn't jerky because they have to watch sodium, they have to, so they have what I think was freeze-dried slices of roast beef.
-
-[00:21:47] Will: That was one of the worst things I've ever tasted in my life. Like it was.
+[00:21:37] Will: So there was this, it wasn't jerky because they have to watch sodium, they have to, so they have what I think was freeze-dried slices of roast beef. That was one of the worst things I've ever tasted in my life. Like it was.
 
 [00:21:51] Norm: It's just bloody.
 
@@ -710,9 +684,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:22:59] Adam: So the freeze-dried shrimp was truly—
 
-[00:23:02] Will: Well, it's a, the freeze dried shrimp is an experience. I, I kind of want to get some and give them to people as a, as a trap food.
-
-[00:23:08] Will: You, you put it in your mouth, and at first you're like, "Oh, it's not so bad. It tastes like shrimp." It's maybe a little hint of like a fish flake, like a—
+[00:23:02] Will: Well, it's a, the freeze dried shrimp is an experience. I, I kind of want to get some and give them to people as a, as a trap food. You, you put it in your mouth, and at first you're like, "Oh, it's not so bad. It tastes like shrimp." It's maybe a little hint of like a fish flake, like a—
 
 [00:23:14] Norm: Fish food. This is—we ate it freeze-dried. We didn't infuse it with water.
 
@@ -748,9 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:24:51] Will: It was pretty bad. I can't imagine why you would want to eat that. And whether—I guess in space where you can't go order in for pizza—
 
-[00:24:57] Adam: They're just trying all sorts of.
-
-[00:24:58] Adam: Well, someone works at NASA. They're trying all sorts of different things.
+[00:24:57] Adam: They're just trying all sorts of. Well, someone works at NASA. They're trying all sorts of different things.
 
 [00:25:01] Will: Well, and and as as the director of the of the space food services lab, is that right? Maybe not
 
@@ -776,9 +746,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:25:49] Will: All the way up to like weird srirachas and stuff like that, that come in the pouches.
 
-[00:25:51] Adam: Oh, nice.
-
-[00:25:52] Adam: I figured. I knew sriracha had to be up there.
+[00:25:51] Adam: Oh, nice. I figured. I knew sriracha had to be up there.
 
 [00:25:54] Will: I don't know that—she didn't know that sriracha was.
 
@@ -804,9 +772,7 @@ Episode URL: https://www.youtube.com/watch?v=dDZzUHXxUhU
 
 [00:26:18] Adam: Twinkies?
 
-[00:26:18] Will: I don't think they actually had Twinkies in space.
-
-[00:26:21] Will: The thing that we learned was that the thing that they get most excited about is fresh food. So when resupply missions come, the, the, like the Progress or the Dragon, space—SpaceX Dragon, or, or whatever, they'll load a relatively small amount, like one, one basically bag worth seven or eight kilos of apples and oranges and maybe, maybe sometimes like blueberries and stuff like that.
+[00:26:18] Will: I don't think they actually had Twinkies in space. The thing that we learned was that the thing that they get most excited about is fresh food. So when resupply missions come, the, the, like the Progress or the Dragon, space—SpaceX Dragon, or, or whatever, they'll load a relatively small amount, like one, one basically bag worth seven or eight kilos of apples and oranges and maybe, maybe sometimes like blueberries and stuff like that.
 
 [00:26:45] Adam: They just go nuts for it.
 

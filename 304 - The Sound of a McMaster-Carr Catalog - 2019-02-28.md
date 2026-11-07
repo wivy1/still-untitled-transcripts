@@ -110,11 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:05:52] Norm: he's super nerdy." That show, I'm really the first two seasons. I felt like I had a natural like. Arc to it, and with all its twists and turns, third season to me felt like they were exploring a little bit the weirdness, a little bit, and there wasn't like every the the plot changed, the direction of the show felt like it changed every two episodes.
 
-[00:06:14] Adam: The whole pace changes.
-
-[00:06:14] Adam: Yeah,
-
-[00:06:14] Adam: and I I really appreciate that. I imagine, I mean, I know I I know some of the performers on the show. I'm a big fan of several of the writers in the writers' room. I imagine that that also keeps it interesting for them.
+[00:06:14] Adam: The whole pace changes. Yeah, and I I really appreciate that. I imagine, I mean, I know I I know some of the performers on the show. I'm a big fan of several of the writers in the writers' room. I imagine that that also keeps it interesting for them.
 
 [00:06:30] Norm: Yeah,
 
@@ -240,9 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:12:42] Norm: traditionally happened,
 
-[00:12:42] Adam: right?
-
-[00:12:43] Adam: Like shot of the person who didn't win looking sour, right? Like those sort of, you know,
+[00:12:42] Adam: right? Like shot of the person who didn't win looking sour, right? Like those sort of, you know,
 
 [00:12:48] Norm: a quick cut to the teleprompter in the background so you can track ahead.
 
@@ -276,9 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=RbMEbgJe1jg
 
 [00:14:13] Joey: We almost didn't have what cinematography, editing. Yeah,
 
-[00:14:13] Adam: right. Ah,
-
-[00:14:18] Adam: I loved watching all the filmmakers. Like Guillermo was like, " These arts are cinema itself.
+[00:14:13] Adam: right. Ah, I loved watching all the filmmakers. Like Guillermo was like, " These arts are cinema itself.
 
 [00:14:24] Joey: This is he said. This is unique to cinema. Like this is not coming from theater, coming from anything else."
 

@@ -100,9 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:03:50] Will: How many? It's like what 3,000 or 4,000 Academy voters or something.
 
-[00:03:53] Adam: I don't know.
-
-[00:03:54] Adam: I mean,
+[00:03:53] Adam: I don't know. I mean,
 
 [00:03:54] Norm: as an institution, it is just—I don't think any more valid than you know the SAG Awards or Independent Spirit Awards. It's just the one that's the most well-known.
 
@@ -140,9 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:05:08] Adam: I believe the building in which we cover Deborah Nadoolman Landis's costume exhibit.
 
-[00:05:13] Will: Awesome,
-
-[00:05:13] Will: that's right.
+[00:05:13] Will: Awesome, that's right.
 
 [00:05:14] Adam: Is the site of the new Academy of Motion Picture Arts and Sciences museum.
 
@@ -194,9 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:06:31] Norm: Inclusion riders.
 
-[00:06:32] Adam: Inclusion riders.
-
-[00:06:31] Adam: Also, my I think my favorite moment last night was Best Picture. They, Faye Dunaway and and Maureen Beatty announced that it is a Shape of Water. And Guillermo comes up on stage, gets the envelope, and holds it, looks at it, and turns to the camera and goes, " It is Shape of Water."
+[00:06:32] Adam: Inclusion riders. Also, my I think my favorite moment last night was Best Picture. They, Faye Dunaway and and Maureen Beatty announced that it is a Shape of Water. And Guillermo comes up on stage, gets the envelope, and holds it, looks at it, and turns to the camera and goes, " It is Shape of Water."
 
 [00:06:50] Will: Somebody, I want to say Laura Hall on my Twitter feed, who's a game designer in Portland, had tweeted a picture of the envelope and was like, " Look, they fixed the graphic design problem that made that. Like, there were multiple things that compounded the mistake last year."
 
@@ -248,9 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:08:39] Will: Oh, they go actor's choice.
 
-[00:08:40] Adam: I don't know.
-
-[00:08:40] Adam: I have no idea.
+[00:08:40] Adam: I don't know. I have no idea.
 
 [00:08:41] Norm: Yeah, it's all interesting behind the scenes on the production of this you know four hour broadcast that that makes it fascinating.
 
@@ -270,19 +262,13 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:09:23] Will: So typically, a second unit does like exterior shots and stuff without the kind of main actors.
 
-[00:09:27] Adam: Yeah,
-
-[00:09:28] Adam: when you see the plane taking off at the airport, that's a separate team that got up really early to go get that shot.
+[00:09:27] Adam: Yeah, when you see the plane taking off at the airport, that's a separate team that got up really early to go get that shot.
 
 [00:09:32] Will: Yeah, I mean,
 
 [00:09:33] Adam: on Lord of the Rings, they had I think four and sometimes five units, and I know that Andy Serkis for the Hobbit films directed a lot of the ancillary film crews.
 
-[00:09:44] Will: Huh.
-
-[00:09:45] Will: I mean,
-
-[00:09:46] Will: part of me says, yeah, that's awesome that he's like watches the whole thing. The other part of me says, hey, that's a valuable spot for people who are coming up to like get get time on camera.
+[00:09:44] Will: Huh. I mean, part of me says, yeah, that's awesome that he's like watches the whole thing. The other part of me says, hey, that's a valuable spot for people who are coming up to like get get time on camera.
 
 [00:09:55] Adam: Yeah, totally. No, I mean that was that was the thing. Those I can't remember if we talked about this on the podcast, but we've talked about it personally so much is that on the behind the scenes of Lord of the Rings, you can watch them having to watch. Two hours plus of dailies every single day from all the multiple camera departments, and the only one who could seem to stay awake till the end of every single session was Peter.
 
@@ -302,11 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:11:03] Will: I think it's my favorite Pixar.
 
-[00:11:05] Adam: Hard to see through the last 20 minutes through the tears.
-
-[00:11:08] Adam: But when he sings to his grandmother.
-
-[00:11:09] Adam: The movie goes. Here's what's going to happen. I'm showing you the inside of the envelope. I'm revealing everything as we go, and you get there, and you're like, " I'm still surprised and moved way past what I expected."
+[00:11:05] Adam: Hard to see through the last 20 minutes through the tears. But when he sings to his grandmother. The movie goes. Here's what's going to happen. I'm showing you the inside of the envelope. I'm revealing everything as we go, and you get there, and you're like, " I'm still surprised and moved way past what I expected."
 
 [00:11:21] Will: Well, there was a little bit of a twist in there.
 
@@ -322,11 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:11:52] Will: What'd you think? Was it good or you know,
 
-[00:11:55] Adam: yeah, unbelievable?
-
-[00:11:56] Adam: I love this shit out of it.
-
-[00:11:59] Adam: What's that?
+[00:11:55] Adam: yeah, unbelievable? I love this shit out of it. What's that?
 
 [00:11:59] Norm: You had gone into it relatively cold.
 
@@ -408,9 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=nfjS1_-AQgo
 
 [00:16:32] Norm: Let's do it.
 
-[00:16:32] Adam: Yeah,
-
-[00:16:33] Adam: let's get into spoilers. Okay, spoilers are happening
+[00:16:32] Adam: Yeah, let's get into spoilers. Okay, spoilers are happening
 
 [00:16:35] Will: now. So the moment that they fly through the force field and see like Wakanda City, I don't know what it's called.
 

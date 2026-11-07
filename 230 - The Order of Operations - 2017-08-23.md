@@ -18,9 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:00:29] Adam: I'm not positive about that.
 
-[00:00:31] Norm: I've hung out with him off camera.
-
-[00:00:32] Norm: and...
+[00:00:31] Norm: I've hung out with him off camera. and...
 
 [00:00:32] Adam: I mean, I have hung out, but not enough to analyze his voice. But don't you think he pours the sugar on just a little bit more for the
 
@@ -44,9 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:01:12] Adam: Yes. No. I totally. I I can tell what it feels like coming out of me.
 
-[00:01:16] Norm: Oh, a little
-
-[00:01:17] Norm: more reverb, a little more in the throat?
+[00:01:16] Norm: Oh, a little more reverb, a little more in the throat?
 
 [00:01:17] Adam: Yeah. No, I can. I can. I can sense when the mansplaining is rising in me and coming out. I'm.
 
@@ -80,9 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:02:25] Norm: Nice.
 
-[00:02:25] Adam: And we
-
-[00:02:25] Adam: Tweeted it wearing the welding masks, and then I rode back to the shop with all the welding helmets. And lo, as I pull up on the Onewheel, the whole tested crew is out front looking at the thing. So I handed out I handed out welding helmets, and Danica said that is maybe the most Adam Savage moment I've ever experienced.
+[00:02:25] Adam: And we Tweeted it wearing the welding masks, and then I rode back to the shop with all the welding helmets. And lo, as I pull up on the Onewheel, the whole tested crew is out front looking at the thing. So I handed out I handed out welding helmets, and Danica said that is maybe the most Adam Savage moment I've ever experienced.
 
 [00:02:50] Jeremy Williams: Yeah, sounds about right. So, does a welding helmet look the same as the glasses that you got?
 
@@ -92,9 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:02:58] Adam: You had a much better field of view. So the the welding helmets I have are all auto darkening, and it's I if we had done this before the the the podcast before the eclipse, I would have. Explain this. It's really important to set them to the highest possible setting, which is 13 or 14.
 
-[00:02:58] Norm: Yes, and 12
-
-[00:03:15] Norm: plus is what you need.
+[00:02:58] Norm: Yes, and 12 plus is what you need.
 
 [00:03:16] Adam: 12 plus, and that's sufficient. In fact, a 13, which one of my helmets goes to, is a little bit, just a little bit, not quite enough when there's no cloud in front. But luckily, in San Francisco, classically, we had clouds in front of our eclipse.
 
@@ -110,9 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:04:05] Jeremy Williams: Exactly.
 
-[00:04:06] Norm: Yeah,
-
-[00:04:06] Norm: so you're anywhere outside of that path, and then you know you're still seeing a significant portion of the sun. I think here in San Francisco, it was at most 75% or so, 70-80%.
+[00:04:06] Norm: Yeah, so you're anywhere outside of that path, and then you know you're still seeing a significant portion of the sun. I think here in San Francisco, it was at most 75% or so, 70-80%.
 
 [00:04:16] Adam: 75% occlusion,
 
@@ -170,9 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:06:41] Jeremy Williams: Right.
 
-[00:06:41] Norm: Oh, that's like.
-
-[00:06:41] Norm: Oh wow.
+[00:06:41] Norm: Oh, that's like. Oh wow.
 
 [00:06:41] Adam: Oh right. No, you'd have these
 
@@ -350,17 +338,13 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:17:12] Jeremy Williams: You’re kidding.
 
-[00:17:12] Norm: I am not.
-
-[00:17:30] Norm: These are the people who sell the gold-plated $50 audio home AV cables.
+[00:17:12] Norm: I am not. These are the people who sell the gold-plated $50 audio home AV cables.
 
 [00:17:35] Jeremy Williams: That’s our word.
 
 [00:17:35] Adam: Yeah. So and they sell vaporware, and they sell like, oh, it's gold, you know, whatever, plated stereo cables, and all that bullshit. And yet, if you read the story about how Beats got taken to school by Iovine, you are like, Iovine’s negotiating tactics makes Beats the underdog. Sorry, makes makes Monster Cable the underdog in the story. You feel sorry for them.
 
-[00:17:35] Norm: Yeah,
-
-[00:17:59] Norm: Having gone to CES
+[00:17:35] Norm: Yeah, Having gone to CES
 
 [00:17:59] Adam: It's just amazing
 
@@ -388,9 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:19:00] Adam: I I watched. Ozark, the first episode of Ozark.
 
-[00:19:00] Norm: Ah,
-
-[00:19:08] Norm: I've heard good things about this.
+[00:19:00] Norm: Ah, I've heard good things about this.
 
 [00:19:10] Adam: Jason Bateman,
 
@@ -414,9 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=XUWK4J6MWXw
 
 [00:19:31] Adam: Well, it's wonderfully directed. The script is a little all over the place. The the like I I ended the first episode not being sure who to care about, but we're going to give it another few episodes because I tend to stop on the first episode if I'm not immediately drawn in, and I'm missing apparently some good stuff.
 
-[00:19:49] Norm: I hear it's very good.
-
-[00:19:49] Norm: It’s, yeah, there's so much on on Netflix right now that it's just on the list.
+[00:19:49] Norm: I hear it's very good. It’s, yeah, there's so much on on Netflix right now that it's just on the list.
 
 [00:19:54] Adam: Yeah,
 

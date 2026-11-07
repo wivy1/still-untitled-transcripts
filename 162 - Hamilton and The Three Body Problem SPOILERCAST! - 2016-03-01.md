@@ -402,9 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:21:29] Norm: so it's an alien civilization that they are doomed civilization because they live in a system with three suns they are doomed in the sense that they technologically progress very linearly which matches the storytelling of the video game and they now have this opportunity to communicate with Earth and that's where The first the the first interactions between that civilization and Cultural Revolution in China
 
-[00:21:56] Adam: on both sides
-
-[00:21:56] Adam: shocking that interaction absolutely blew my mind. So she writes back, "
+[00:21:56] Adam: on both sides shocking that interaction absolutely blew my mind. So she writes back, "
 
 [00:22:02] Will: Come come destroy us."
 
@@ -652,8 +650,6 @@ Episode URL: https://www.youtube.com/watch?v=aTbZSauXUTM
 
 [00:30:42] Will: See you next week.
 
-[00:30:42] Adam: Thanks, guys.
-
-[00:30:42] Adam: Bye.
+[00:30:42] Adam: Thanks, guys. Bye.
 
 [00:30:50] Norm: And we'll see you next week. Bye.

@@ -32,11 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:00:42] Norm: Wow.
 
-[00:00:42] Adam: Yeah, it's not even that I feel specifically tired, but I notice that on tour that there are times when I'll just be like, "
-
-[00:00:42] Adam: Hmm,
-
-[00:00:42] Adam: That word that's supposed to be here isn't there," and it's going to take me another second to call it up. But again, we had a but we had a fantastic audience last night. Where were we exactly? We were in Jacksonville, Florida.
+[00:00:42] Adam: Yeah, it's not even that I feel specifically tired, but I notice that on tour that there are times when I'll just be like, " Hmm, That word that's supposed to be here isn't there," and it's going to take me another second to call it up. But again, we had a but we had a fantastic audience last night. Where were we exactly? We were in Jacksonville, Florida.
 
 [00:00:42] Will: Ah,
 
@@ -200,9 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:13:04] Will: Well, and it's especially tough for particle physicists because the the a lot of what they're talking about is intangible and and incredibly difficult to comprehend if you don't have like at least a bachelor in science, bachelor's degree in science.
 
-[00:13:04] Adam: Right, right,
-
-[00:13:18] Adam: right.
+[00:13:04] Adam: Right, right, right.
 
 [00:13:18] Norm: Yeah. So we we ran a workshop where we actually brought some of the the physicists there up to the front of the class, and I did mock interviews with them at one or two minutes a piece, and we recorded the interviews.
 
@@ -346,9 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:19:09] Adam: It’s a little bit less thrilling than the high speed train.
 
-[00:19:12] Will: I mean, it is an electric skateboard, Adam. It's that's I mean, pretty cool. It's not the most complex machine made by man.
-
-[00:19:19] Will: Back to the Phantom Zone for you, sir.
+[00:19:12] Will: I mean, it is an electric skateboard, Adam. It's that's I mean, pretty cool. It's not the most complex machine made by man. Back to the Phantom Zone for you, sir.
 
 [00:19:23] Adam: Back, sorry.
 
@@ -406,9 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:23:33] Adam: I not only went in the big building, I went on the big building. We got a tour of the. We got a tour all the way up to and including the roof, where we got to see a 360 view of Canaveral and all of the launch pads.
 
-[00:23:33] Will: Oh my God.
-
-[00:23:47] Will: I bet you can see Disney from there.
+[00:23:33] Will: Oh my God. I bet you can see Disney from there.
 
 [00:23:49] Adam: Dude, it was incredible. So, just for scale, the VAB is a 550-foot-tall building that's open on the inside, so you can assemble a full Saturn V rocket in there
 
@@ -444,9 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:27:42] Adam: it was very special access in fact it's it was a very apparently a very rare. Rare treat, but
 
-[00:27:42] Norm: wow!
-
-[00:27:50] Norm: Scale is absolutely one of those things where it's so tough to to experience that. Even if you have a 360 panorama,
+[00:27:42] Norm: wow! Scale is absolutely one of those things where it's so tough to to experience that. Even if you have a 360 panorama,
 
 [00:27:56] Will: yeah, nothing captures it.
 
@@ -480,9 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=MXghgQo7uMU
 
 [00:29:26] Norm: is it also Atlas Obscura?
 
-[00:29:26] Adam: Yeah,
-
-[00:29:28] Adam: yeah. No, they they covered that as well. In fact, Michael Stevens is also a fan of Atlas Obscura. And a couple of different times, we've arrived in the city, and I would say, you know, they've got a blah blah blah here, and he goes, Yeah, I looked it up this morning.
+[00:29:26] Adam: Yeah, yeah. No, they they covered that as well. In fact, Michael Stevens is also a fan of Atlas Obscura. And a couple of different times, we've arrived in the city, and I would say, you know, they've got a blah blah blah here, and he goes, Yeah, I looked it up this morning.
 
 [00:29:41] Will: I I um. I spending time on Atlas Obscura has let me know that I'm really excited about tunnels. I didn't realize it, but like the article about the old Texas Super Collider, the tunnels there was is really good. The one about the tunnels that go under the Capitol Building, which are you know the staff house, House and Senate staff used to get around, also really interesting. Tunnel tunnels are always good. It turns out
 

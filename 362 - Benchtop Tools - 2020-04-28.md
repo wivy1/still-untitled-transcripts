@@ -22,9 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:00:12] Will: It's the bridge of the Enterprise. I've been watching Voyager again, so it was front of mind.
 
-[00:00:17] Norm: Wow.
-
-[00:00:18] Norm: Wow.
+[00:00:17] Norm: Wow. Wow.
 
 [00:00:20] Adam: Who is it? I think somebody last night tweeted something hilarious, mixing and mashing the two, and they were like, " Don't at me. I am really good at Star Trek."
 
@@ -132,11 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:07:27] Will: No,
 
-[00:07:27] Adam: And apparently it's amazing.
-
-[00:07:29] Adam: Oh, I know
-
-[00:07:30] Adam: The look on your face tells us exactly what's the look on my face as I was reading it, but I kind of wonder if I should try it. I don't have a waffle iron currently.
+[00:07:27] Adam: And apparently it's amazing. Oh, I know The look on your face tells us exactly what's the look on my face as I was reading it, but I kind of wonder if I should try it. I don't have a waffle iron currently.
 
 [00:07:37] Will: I have a waffle iron. I'll, I'll report back.
 
@@ -144,13 +138,9 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:07:42] Will: so the the my waffle iron nightmare food is if you buy canned biscuit dough or canned cinnamon rolls, you can take those. I think you taught me. Maybe your maybe Danica taught me this, Norm. I feel it was this came from your household, but you put them flat. You put just put the cinnamon rolls out on the waffle iron and mash it down, and you get. Cinnamon roll flavored waffles, that are just wow!
 
-[00:08:06] Adam: Oh
+[00:08:06] Adam: Oh yeah, yeah. No, I've that was another that there and then. Then there was a whole set of reviews. I think someone on someone somewhere did a review of like all the waffle techniques.
 
-[00:08:06] Adam: yeah, yeah. No, I've that was another that there and then. Then there was a whole set of reviews. I think someone on someone somewhere did a review of like all the waffle techniques.
-
-[00:08:15] Norm: One simple trick.
-
-[00:08:19] Norm: Yeah, yeah.
+[00:08:15] Norm: One simple trick. Yeah, yeah.
 
 [00:08:20] Will: I I did do the Dalgona coffee, the Instagram coffee, the the with the with the with the you use a um espresso powder or instant coffee powder, equal parts coffee powder, like two tablespoons of each coffee powder, sugar, and water, and then you beat it with like a a hand mixer, a stick blender, whip it for four or five minutes, and it with it froths up like whipped cream almost. Yeah, and then you put that on top of either steamed milk if you want it warm or iced milk if you want it cold, and it kind of does something. But I I feel like maybe my instant coffee had had... Look, I use the instant coffee when I make one particular chocolate cake, so it hasn't been touched in probably three years. And it was—it was—I would describe it as prettier than it tasted.
 
@@ -186,11 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:10:56] Norm: because it's perpendicular. But is it also analog, where like a like a sewing machine, you can Or is it a fixed fixed rate? Uh,
 
-[00:11:04] Adam: yeah, no, and so I have a variable speed. I bought a little Sherline lathe motor speed control for like $100. Uh, put a belt, made a little gear pulley for that, and it runs beautifully. And I mean, I this project idled for like 18 months, maybe even longer in the shop. Metal Lathe Accessories is the shop that sells this kit. They sell you a bunch of raw cast iron castings, and then you cut your reference surfaces, and then you slowly make this whole machine. And it's a beautiful design because it's very forgiving. It gives there's a lot of latitude to kind of screw up and still make it work, which is good for me because this is let machining big bores at like one thousandth precision is not my specialty, and it's been a real learning curve.
-
-[00:11:49] Adam: Yeah.
-
-[00:11:53] Adam: But in the last couple of days, I've made I made this little vise. Uh, and I'm like so in love, Norm. You'll be happy. I've been shooting everything, lots of like close-up machine porn of this thing. And the thing is, I was thinking, oh, I got to get some chunks of machinable cast iron. And I came across this video of a guy who made a lathe indexer using an old cast iron barbell. And I was like, oh, you could use cast iron you have around. So I have this whole bin full of old machine tool parts. And I grabbed this. Um, It's a keeper for the bottom of a steady rest, uh, that I no longer have. And the keeper was, you know, about probably 600 thousandths thick. And I was able to machine, uh, like a solid billet, and out of that billet, I made this, uh, this little tracking, uh, vise, which will be part of a one day build of another tool mod that I'm currently working on.
+[00:11:04] Adam: yeah, no, and so I have a variable speed. I bought a little Sherline lathe motor speed control for like $100. Uh, put a belt, made a little gear pulley for that, and it runs beautifully. And I mean, I this project idled for like 18 months, maybe even longer in the shop. Metal Lathe Accessories is the shop that sells this kit. They sell you a bunch of raw cast iron castings, and then you cut your reference surfaces, and then you slowly make this whole machine. And it's a beautiful design because it's very forgiving. It gives there's a lot of latitude to kind of screw up and still make it work, which is good for me because this is let machining big bores at like one thousandth precision is not my specialty, and it's been a real learning curve. Yeah. But in the last couple of days, I've made I made this little vise. Uh, and I'm like so in love, Norm. You'll be happy. I've been shooting everything, lots of like close-up machine porn of this thing. And the thing is, I was thinking, oh, I got to get some chunks of machinable cast iron. And I came across this video of a guy who made a lathe indexer using an old cast iron barbell. And I was like, oh, you could use cast iron you have around. So I have this whole bin full of old machine tool parts. And I grabbed this. Um, It's a keeper for the bottom of a steady rest, uh, that I no longer have. And the keeper was, you know, about probably 600 thousandths thick. And I was able to machine, uh, like a solid billet, and out of that billet, I made this, uh, this little tracking, uh, vise, which will be part of a one day build of another tool mod that I'm currently working on.
 
 [00:12:54] Will: That's lovely.
 
@@ -212,9 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:15:29] Adam: So Sherline is probably about like this long, like 18 inches. This one is more like probably 26 inches, and with the with the mill combo, it's you know good two feet high, but still it's very desk friendly.
 
-[00:15:42] Norm: Yeah,
-
-[00:15:42] Norm: does that fall into the whole category of like these tabletop, benchtop, desktop,
+[00:15:42] Norm: Yeah, does that fall into the whole category of like these tabletop, benchtop, desktop,
 
 [00:15:46] Adam: Exactly.
 
@@ -272,9 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:18:56] Adam: Absolutely, absolutely. In fact, I did all the gunsmithing that I did for the Blade Runner gun was done on the Emco lathe mill combo. Um, I think Pierre, my friend Pierre, and I were working on our R2-D2s at the same time, and I think that I had a set an extra set of castings that I. How did that work? I can't remember. I I don't know who has my old mill and lathe. It might not be Pierre. I can't quite remember.
 
-[00:19:28] Will: Yeah,
-
-[00:19:28] Will: if you know where Adam's old mill and lathe,
+[00:19:28] Will: Yeah, if you know where Adam's old mill and lathe,
 
 [00:19:30] Adam: Glad everyone stuck around for that mental exercise. You're welcome, everybody.
 
@@ -366,9 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:25:41] Adam: The second season, the third season,
 
-[00:25:43] Norm: third season. Do you like?
-
-[00:25:45] Norm: Do you feel like? Well, I'm not going to say much more than that. Is the Western theme a big appeal to you of the show, or is it less the Western theme and more like the gamification of how these systems are built to have this this host world work?
+[00:25:43] Norm: third season. Do you like? Do you feel like? Well, I'm not going to say much more than that. Is the Western theme a big appeal to you of the show, or is it less the Western theme and more like the gamification of how these systems are built to have this this host world work?
 
 [00:26:01] Will: For me, it's about free will.
 
@@ -406,9 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:29:27] Adam: It's it's wonderful. It's really great television. I I'm really liking the second season way better than the first. And by the way, all the money is on the screen.
 
-[00:29:36] Will: Yeah.
-
-[00:29:36] Will: Oh. Like. I mean. It's it's the thing Norman and I said after we saw the Game of Thrones exhibition years and years ago, when when like you see these those the costumes that they were making and the attention that they put into those costumes.
+[00:29:36] Will: Yeah. Oh. Like. I mean. It's it's the thing Norman and I said after we saw the Game of Thrones exhibition years and years ago, when when like you see these those the costumes that they were making and the attention that they put into those costumes.
 
 [00:29:50] Unknown speaker (Adam or Will): Yeah.
 
@@ -442,9 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:31:03] Adam: At all?
 
-[00:31:03] Norm: No, no, no,
-
-[00:31:04] Norm: No.
+[00:31:03] Norm: No, no, no, No.
 
 [00:31:04] Adam: At all. I have no reason to believe me. I'll just call you in the next couple of days.
 
@@ -478,15 +454,9 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:32:13] Adam: Oh my God, I'm so excited.
 
-[00:32:15] Norm: Um, I did
+[00:32:15] Norm: Um, I did watch Philadelphia Story first, but His Girl Friday, which is itself is a remake, and I don't want to go too far into it if we're gonna do a spoiler cast about it. But it is—it's perfect for right now.
 
-[00:32:16] Norm: watch Philadelphia Story first,
-
-[00:32:17] Norm: but His Girl Friday, which is itself is a remake, and I don't want to go too far into it if we're gonna do a spoiler cast about it. But it is—it's perfect for right now.
-
-[00:32:25] Will: Excellent.
-
-[00:32:26] Will: Have you um on the weird Cary Grant made a boatload of movies, but one of my favorite obscure weird ones is called Walk, Don't Run, which is like a pure. It's it's a it's a Kind of farcical comedy where he plays a speed walker who's in the I think 1960 Tokyo Olympics.
+[00:32:25] Will: Excellent. Have you um on the weird Cary Grant made a boatload of movies, but one of my favorite obscure weird ones is called Walk, Don't Run, which is like a pure. It's it's a it's a Kind of farcical comedy where he plays a speed walker who's in the I think 1960 Tokyo Olympics.
 
 [00:32:45] Norm: Weird.
 
@@ -556,9 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=ZttZDYdXxv0
 
 [00:34:59] Adam: See you guys.
 
-[00:35:02] Will: It's always a pleasure.
-
-[00:35:03] Will: Thanks for taking the time.
+[00:35:02] Will: It's always a pleasure. Thanks for taking the time.
 
 [00:35:05] Norm: All right, guys. See you next week.
 

@@ -10,9 +10,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:00:32] Simone: I'm Simone.
 
-[00:00:32] Adam: Hello.
-
-[00:00:34] Adam: Hello, everybody.
+[00:00:32] Adam: Hello. Hello, everybody.
 
 [00:00:34] Norm: Hey, everybody. We have Simone with us this week. How's it going, Simone?
 
@@ -20,9 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:00:41] Norm: Oh my gosh.
 
-[00:00:41] Simone: Yeah.
-
-[00:00:44] Simone: All this stuff.
+[00:00:41] Simone: Yeah. All this stuff.
 
 [00:00:45] Norm: Adam, you are coming loud and clear. You're closer. You're on our coast now.
 
@@ -46,9 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:03:10] Norm: Yeah, the fact that iTunes as a piece of software is the gateway between all the data on your mobile device and on your desktop device, which are made by the same company, like you have to convert it, and they want you to use iTunes Match, which I hate. Like the idea that they catalog your library and then have you download their version of the song with their bit rates, it's just it makes no sense to me.
 
-[00:03:33] Simone: I feel
-
-[00:03:33] Simone: Like overall, iTunes is such a weird program. Like especially that you're syncing your phone throughout iTunes. It's just like a remnant of an old infrastructure that really doesn't make sense.
+[00:03:33] Simone: I feel Like overall, iTunes is such a weird program. Like especially that you're syncing your phone throughout iTunes. It's just like a remnant of an old infrastructure that really doesn't make sense.
 
 [00:03:45] Norm: Yeah, because they want people to stream, right? They want people to use the Apple Music with the bought Beats Music to do just that. It's even worse for me the other way around. Like I film a lot of video with my phone, Simone. I know you do too. But getting your photos and your video, like 15 20 minute long videos. Off of the phone onto a computer, they want you use iCloud. They want you to send it up
 
@@ -82,9 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:06:33] Adam: Well, I know. Sure, it doesn't occur to me that that should be something that's that that I feel strongly about being private. But I mean, at the same time, also all sorts of things happens. Like for for a few months, my Hamilton album was censored, so every time someone said shit, I heard like a blank spot in the in the recording. And now, iTunes thinks that I have two copies of Hamilton, and some songs are on one copy, and some songs are in another. So for the last few weeks, it's been impossible for me to listen to Hamilton. In order,
 
-[00:07:07] Norm: oh, because they they stack them right. They combine or take out songs, and
-
-[00:07:07] Norm: That’s no good.
+[00:07:07] Norm: oh, because they they stack them right. They combine or take out songs, and That’s no good.
 
 [00:07:11] Adam: I have no idea what the hell is going on. The fact is, is that I I think that I'm relatively smart. I am not a digital native, you know. That's not my generation. But I I having used Macs, having been an Apple guy since the early '90s, I really feel like it shouldn't be this difficult for a user like me to figure out how to put music on his effing phone.
 
@@ -112,9 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:08:39] Norm: Last Thursday, it's the San Francisco, the touring version of Hamilton, the Hamilton tour, and and it's the a lot of the cast is actually from the Chicago version of Hamilton. It's exceeded all my expectations.
 
-[00:08:55] Simone: Really, and you had really high expectations as
-
-[00:08:57] Simone: anyone who's ever heard anything about Hamilton.
+[00:08:55] Simone: Really, and you had really high expectations as anyone who's ever heard anything about Hamilton.
 
 [00:09:00] Norm: Yeah, yeah, it was the thing where I definitely read some reviews, so I get see some photos of the cast. In the costumes to mentally prepare myself, but there was very little disconnect between the vocalization that I heard on the cast album and the performance. They got every; they brought their own spin to a lot of the songs, which I loved. But it was it did not feel like an imitation at all.
 
@@ -248,9 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:17:26] Simone: are you not allowed to talk about it?
 
-[00:17:29] Adam: Yeah.
-
-[00:17:29] Adam: And and actually, this is this is the way your body maintains as long as you needed to maintain. We got all the shots that we needed. We were doing slightly more than the average person, number of parabolas, so we got all the shots we needed. We did two at moon's gravity. We did a bunch in zero g. We experimented. We tried out a bunch of different stuff, and then we were like, " Okay, we're done. So let's get some b-roll." And that's when I was like, " Oh, it's happening!" And someone handed me a bag, and I threw up in it. And then I looked down in the bag and realized, " Oh, there's nothing keeping the vomit in this bag. I better close it." God. Because it could drift right out.
+[00:17:29] Adam: Yeah. And and actually, this is this is the way your body maintains as long as you needed to maintain. We got all the shots that we needed. We were doing slightly more than the average person, number of parabolas, so we got all the shots we needed. We did two at moon's gravity. We did a bunch in zero g. We experimented. We tried out a bunch of different stuff, and then we were like, " Okay, we're done. So let's get some b-roll." And that's when I was like, " Oh, it's happening!" And someone handed me a bag, and I threw up in it. And then I looked down in the bag and realized, " Oh, there's nothing keeping the vomit in this bag. I better close it." God. Because it could drift right out.
 
 [00:18:04] Norm: You don't want to pop that bag. That would be bad.
 
@@ -300,9 +288,7 @@ Episode URL: https://www.youtube.com/watch?v=bfbsaO0lrVY
 
 [00:21:26] Norm: I saw some good Indiana Jones cosplay actually, because this past weekend was at WonderCon. WonderCon, right? The the first big convention we go to, and I was there just for a day, but I could tell that my body was not ready for convention seasons because I got really tired really quickly. It's like it's the the endurance run. Got to got to build up my my my energy.
 
-[00:21:49] Simone: Like tired in your legs or tired
-
-[00:21:51] Simone: in your brain?
+[00:21:49] Simone: Like tired in your legs or tired in your brain?
 
 [00:21:51] Norm: A little bit of both, but most mostly my legs. Yeah, yeah. By time like Comic Con comes around, it's like a marathon. So you got to start with the short the short races first. But it was a great convention. I saw some really fun cosplay. Someone there was dressed up as Doctor Strange's Cloak, so just the floating cloak, and they were hidden inside the cape. And I thought that was really clever.
 

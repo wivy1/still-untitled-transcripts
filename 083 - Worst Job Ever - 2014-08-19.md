@@ -18,9 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:00:14] Adam: That did.
 
-[00:00:14] Will: Good morning.
-
-[00:00:18] Will: So this morning we're recording early morning, which is kind of a—it's a new thing for us, but it's a little unusual given the the run of the series. And this morning, on the way into your shop, I was cursing at Past Me.
+[00:00:14] Will: Good morning. So this morning we're recording early morning, which is kind of a—it's a new thing for us, but it's a little unusual given the the run of the series. And this morning, on the way into your shop, I was cursing at Past Me.
 
 [00:00:29] Adam: At what did Past you do?
 
@@ -66,9 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:01:19] Norm: Wide expanses.
 
-[00:01:19] Adam: They give you they—
-
-[00:01:23] Adam: give you at least I'd say probably a gallon and a half of gas, which means if you're in one of those Escalades, you've got like six minutes
+[00:01:19] Adam: They give you they— give you at least I'd say probably a gallon and a half of gas, which means if you're in one of those Escalades, you've got like six minutes
 
 [00:01:23] Will: Six miles. Yeah.
 
@@ -114,9 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:03:02] Will: Really, interesting.
 
-[00:03:02] Adam: Yeah.
-
-[00:03:06] Adam: I mean, you know, this is 20 years ago, but yeah. But the long story short, I let my Jaguar run out of gas. I accidentally didn't switch. over—
+[00:03:02] Adam: Yeah. I mean, you know, this is 20 years ago, but yeah. But the long story short, I let my Jaguar run out of gas. I accidentally didn't switch. over—
 
 [00:03:14] Will: You let someone else's Jaguar run out of gas, which is even worse.
 
@@ -134,9 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:03:37] Adam: It sputters, it sputters, and then it just stops running. And the the problem is, in a lot of cars, the fuel pump is cooled by the gas that it's pumping.
 
-[00:03:37] Will: Yeah.
-
-[00:03:48] Will: so you like burn up seals or something,
+[00:03:37] Will: Yeah. so you like burn up seals or something,
 
 [00:03:49] Adam: right? Burn up, it just it just fries itself, yeah, very quickly too. By the way—
 
@@ -184,15 +176,11 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:05:05] Will: It’s on my list.
 
-[00:05:05] Adam: Yeah.
-
-[00:05:06] Adam: I am still so madly in love with the throaty roar of my of my Abarth that—
+[00:05:05] Adam: Yeah. I am still so madly in love with the throaty roar of my of my Abarth that—
 
 [00:05:13] Norm: You know with the Teslas, you can they give you a CD or you can download one that we can switch between the sounds of all the different cars you want. You can drive a Veyron.
 
-[00:05:13] Will: Yeah.
-
-[00:05:22] Will: Does it go out or is it just inside? I want speakers under the hood.
+[00:05:13] Will: Yeah. Does it go out or is it just inside? I want speakers under the hood.
 
 [00:05:26] Adam: When I when I saw the Teslas, looking at the is it 2015 release or 2016
 
@@ -218,9 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:06:29] Norm: Yes.
 
-[00:06:29] Adam: The batteries—
-
-[00:06:32] Adam: and expensive to extract.
+[00:06:29] Adam: The batteries— and expensive to extract.
 
 [00:06:35] Norm: So the more people that have these cars, better infrastructure can get where you know you get more of these fill up points, at least in urban city areas.
 
@@ -236,9 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:07:06] Adam: No segue.
 
-[00:07:06] Will: Work it, work it.
-
-[00:07:08] Will: Speaking.
+[00:07:06] Will: Work it, work it. Speaking.
 
 [00:07:09] Norm: No. No. No. No.
 
@@ -412,9 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:13:51] Adam: Probably still running it.
 
-[00:13:51] Will: Yeah. Like—
-
-[00:14:01] Will: I enjoyed the job. Just to be clear,
+[00:13:51] Will: Yeah. Like— I enjoyed the job. Just to be clear,
 
 [00:14:03] Adam: Yeah, no, I enjoyed it too. So I've said in the past that I've worked most of my jobs for either a year or an hour. I have had two or three jobs that I quit very, very, very quickly.
 
@@ -494,9 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:17:06] Norm: You should put that on your LinkedIn.
 
-[00:17:06] Will: No, I’m not. Copy ever copy—
-
-[00:17:09] Will: retail specialist.
+[00:17:06] Will: No, I’m not. Copy ever copy— retail specialist.
 
 [00:17:12] Adam: Um. I I also worked for a short time. I say that Jamie gave me my first job in special effects. It's not entirely true. I actually worked for a short time at a place in New York called Peter Wallach Enterprises, and Peter Wallach is a fantastic special effects guy who did some very important work in the '80s. He's Eli Wallach's son, first of all, and he did a really terrific short film in the early '80s called " Raygun's Nightmare" about Reagan, and it involved just like Mechagodzilla with television eyes. It was really beautiful. He also is probably most well known for the Sledgehammer video, Peter Gabriel's Sledgehammer video, done in claymation,
 
@@ -542,9 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:19:28] Will: That I did that. I did that after school.
 
-[00:19:28] Adam: I wouldn’t—
-
-[00:20:09] Adam: Pay for college now.
+[00:19:28] Adam: I wouldn’t— Pay for college now.
 
 [00:20:09] Will: College was cheaper then.
 
@@ -696,17 +674,13 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:25:27] Adam: Were customers difficult?
 
-[00:25:27] Norm: Eh—
-
-[00:25:29] Norm: The college football, college football fans. I rolled hot dogs and and made nachos at at 14 years old.
+[00:25:27] Norm: Eh— The college football, college football fans. I rolled hot dogs and and made nachos at at 14 years old.
 
 [00:25:35] Adam: That's not. That's sort of bad. Were the people that hired you jerks?
 
 [00:25:39] Norm: No, it was all the Boy Scout people.
 
-[00:25:39] Will: So that isn’t a terrible job. Yeah.
-
-[00:25:42] Will: Were the people that you worked with terrible?
+[00:25:39] Will: So that isn’t a terrible job. Yeah. Were the people that you worked with terrible?
 
 [00:25:42] Norm: Nope.
 
@@ -846,13 +820,9 @@ Episode URL: https://www.youtube.com/watch?v=YhKQNEzt1co
 
 [00:34:00] Will: Yeah.
 
-[00:34:00] Adam: I did—
+[00:34:00] Adam: I did— for a year, like everyone does.
 
-[00:34:13] Adam: for a year, like everyone does.
-
-[00:34:13] Will: Yeah.
-
-[00:34:16] Will: So
+[00:34:13] Will: Yeah. So
 
 [00:34:17] Adam: terrible jobs. I can't wait to read the comment section of terrible jobs.
 

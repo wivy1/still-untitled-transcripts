@@ -108,9 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:04:48] Adam: so I I saw Chappelle perform at the Punchline in San Francisco years ago, and at some point the. He asked the audience what they wanted to talk about, and they said, " Hey, MythBusters." And he said, " I don't know what MythBusters is," and they all pointed at me, and he and I had a little interaction where he asked me what the show was about, and I said what it was, and he said, " What are you guys testing lately?" And I said, " This is years ago, so the Dick Cheney had just shot that guy in the face," and I said, " Well, we wanted to do the Dick Cheney shooting, but Discovery wouldn't let us," and then Chappelle did like 25 minutes of brilliant material on Dick Cheney, and it was it was totally mind blowing. So I asked, I was talking to Chris Hardwick about it later, and Chris has actually toured with with Dave, and I said, " Did he just come up with that material off the top of his head, or did he have it somewhere sitting in his pocket?" And Chris said, " I have no idea." He said, " I toured with him, and I barely heard the same jokes twice." He said, " I I think it might be that he has a larger roster of material than anyone could possibly imagine, and he can spontaneously cough up 20 minutes of high quality material on anything you want to talk about at any time."
 
-[00:06:04] Will: Wow,
-
-[00:06:06] Will: that's that's amazing.
+[00:06:04] Will: Wow, that's that's amazing.
 
 [00:06:08] Norm: That's what I hear about his shows. Sometimes when when he was not in Hollywood making TV shows or movies, and he was doing these secret shows, he doesn't allow filming. He's very adamant about that. No cell phones, but he apparently goes on for like three or four hours, which is which is a long, long time for for any stand up comic.
 
@@ -124,9 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:06:56] Adam: Yeah, that was the elevator pitch.
 
-[00:07:10] Will: That's that's really good. That's a good. I love to hear out people's elevator pitches. So that's that's a good one.
-
-[00:07:17] Will: What else is going on, Normie? Are you have you had time to do Florida stuff while you're there?
+[00:07:10] Will: That's that's really good. That's a good. I love to hear out people's elevator pitches. So that's that's a good one. What else is going on, Normie? Are you have you had time to do Florida stuff while you're there?
 
 [00:07:20] Norm: No, we're. I flew in a red eye. I flew a JetBlue for the first time
 
@@ -342,11 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:28:25] Adam: Mind bending. Oh my god! I cannot believe
 
-[00:28:27] Will: you would know each other so well at the end of seven days
-
-[00:28:34] Will: or 14 days.
-
-[00:28:36] Will: They were there for two weeks sometimes.
+[00:28:27] Will: you would know each other so well at the end of seven days or 14 days. They were there for two weeks sometimes.
 
 [00:28:39] Adam: I know. I know. I I sat in one of the toilets
 
@@ -394,9 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:32:12] Adam: Me too.
 
-[00:32:12] Norm: Yes.
-
-[00:32:12] Norm: Don't try to open all your packages in your 24 hours.
+[00:32:12] Norm: Yes. Don't try to open all your packages in your 24 hours.
 
 [00:32:24] Will: Holy cow, man!
 
@@ -422,9 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=N0HAUj41D9o
 
 [00:33:00] Adam: It's in my plan. Okay.
 
-[00:33:03] Will: Good. Okay.
-
-[00:33:04] Will: Cool.
+[00:33:03] Will: Good. Okay. Cool.
 
 [00:33:08] Adam: I want to build an MMU. I want to build the SAFER unit. I'm totally. I'm totally already gathering material for the mods for this new suit.
 

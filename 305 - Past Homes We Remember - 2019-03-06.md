@@ -14,11 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:00:41] Norm: Wow, they didn't hear that. 
 
-[00:00:41] Will: Oh,
-
-[00:00:41] Will: we're going
-
-[00:00:43] Will: to put the whole thing.
+[00:00:41] Will: Oh, we're going to put the whole thing.
 
 [00:00:43] Unknown speaker (Will or Adam): [unclear: You should just start the whole thing in / You should just start the whole thing?].
 
@@ -40,21 +36,15 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:01:22] Norm: which only works because for people who know Space Cowboy,
 
-[00:01:22] Adam: yeah,
+[00:01:22] Adam: yeah, come on, Space Cowboy is huge.
 
-[00:01:26] Adam: come on, Space Cowboy is huge.
-
-[00:01:27] Norm: You worked on it, so you
-
-[00:01:27] Norm: can say it.
+[00:01:27] Norm: You worked on it, so you can say it.
 
 [00:01:29] Adam: No, no, no, not the movie Space Cowboy.
 
 [00:01:31] Will: No, it’s from the end of the
 
-[00:01:33] Adam: It’s the song. It’s the song by you know some. Call me a space cowboy.
-
-[00:01:38] Adam: Some call me the gangster of love.
+[00:01:33] Adam: It’s the song. It’s the song by you know some. Call me a space cowboy. Some call me the gangster of love.
 
 [00:01:39] Will: but it's also from the end of of Cowboy Bebop. Every episode closes with " See a space cowboy."
 
@@ -106,9 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:02:42] Norm then Adam: Yeah, yeah, yeah.
 
-[00:02:42] Adam: We specifically
-
-[00:02:42] Adam: [unclear: waited till you were gone / We waited until you were gone].
+[00:02:42] Adam: We specifically [unclear: waited till you were gone / We waited until you were gone].
 
 [00:02:44] Norm: Do you have thoughts?
 
@@ -140,11 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:04:16] Norm: right? Like that Spielberg, whatever the end goal is, or whatever whatever the way he's going about it, but his end goal is to trying to preserve and celebrate the theatrical experience, which unfortunately has been diminishing over the years because
 
-[00:04:33] Adam: the way it's been raising in the last couple of years, hasn't it? I I think overall movie
-
-[00:04:36] Adam: tickets down,
-
-[00:04:37] Adam: money's are up. Okay, all right, that's what's going on.
+[00:04:33] Adam: the way it's been raising in the last couple of years, hasn't it? I I think overall movie tickets down, money's are up. Okay, all right, that's what's going on.
 
 [00:04:39] Norm: Yeah, I mean, it's it's still around, and I think the the goal of getting people in the seats and preserving that, whatever that is evolving, because that definitely is not the same as it was 100 years ago. You know with IMAX and Dolby and 3D.
 
@@ -224,9 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:08:17] Norm: Yeah.
 
-[00:08:17] Adam: Tag’s also in
-
-[00:08:17] Adam: there.
+[00:08:17] Adam: Tag’s also in there.
 
 [00:08:20] Will: Tag is probably in there.
 
@@ -308,11 +290,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:11:51] Adam: So there is a really interesting article I came across that talked about that. The very last time the studios, did I already talk about this on the podcast?, that the studios had a hostless Oscars was 1968, 69. At the very moment, the studio system was dying, and young, brash filmmakers like John Cassavetes and were bringing up films that were super cheap with amazing performances and amazing writing in them, and that engendered this whole radical shift in film into the early '70s. So that they pointed out that that happened at this pivot point in in film.
 
-[00:12:23] Will: So I was going to say the thing that hasn't happened as much with film as it has happened with online video and even TV to a lesser extent is that the democratization of the process hasn't gone down. And part of it is that is that you know with a podcast, the stuff that we have sitting on our desk would have cost $15,000 or $20,000
-
-[00:12:39] Will: right 10 or 12 years ago.
-
-[00:12:40] Will: And now it's five less than $1,000 to get everything you need to have a three-person podcast in in your living room.
+[00:12:23] Will: So I was going to say the thing that hasn't happened as much with film as it has happened with online video and even TV to a lesser extent is that the democratization of the process hasn't gone down. And part of it is that is that you know with a podcast, the stuff that we have sitting on our desk would have cost $15,000 or $20,000 right 10 or 12 years ago. And now it's five less than $1,000 to get everything you need to have a three-person podcast in in your living room.
 
 [00:12:46] Adam: And and this is why I love what Neill Blomkamp is doing with Oats Studio. I love that he is let's build a Roger Corman model where the quality now is 10 times what it was when Roger Corman was putting ships on sticks and filming them with cameras and makes them compelling stories.
 
@@ -334,9 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:13:18] Will: So, but but but it's not it's not happening with film, and part of it is that that. Distribution is hard once you get out. Although that's changing with Amazon and Hulu and and Netflix and the AMC. The sorry, the
 
-[00:13:18] Adam: and I
-
-[00:13:53] Adam: think that's only good. I think that's only good when the distribution can get wider for smaller projects.
+[00:13:18] Adam: and I think that's only good. I think that's only good when the distribution can get wider for smaller projects.
 
 [00:13:58] Will: Well, that's why it feels gross when Spielberg complains about Roma being in the Academy Awards because it feels like he's trying to pull up the ladder after him when he's one of those people that directly benefited from the people that that that broke the studio system in the '60s.
 
@@ -358,15 +334,9 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:14:30] Adam: Yeah, interesting.
 
-[00:14:30] Will: Like Jaws would have been would have been a drive in theater movie.
+[00:14:30] Will: Like Jaws would have been would have been a drive in theater movie. You know, that was 10 years before.
 
-[00:14:39] Will: You know, that was 10 years before.
-
-[00:14:40] Adam: You know, Jaws was on on Hotel Television, where I was. I was on a shoot recently, and I sat and watched it one night.
-
-[00:14:40] Adam: It's it's still exceptional.
-
-[00:14:40] Adam: Not, I mean, it is still absolutely one of the best horror action movies ever made.
+[00:14:40] Adam: You know, Jaws was on on Hotel Television, where I was. I was on a shoot recently, and I sat and watched it one night. It's it's still exceptional. Not, I mean, it is still absolutely one of the best horror action movies ever made.
 
 [00:14:53] Will: It's, I mean, it's the thing about it is like Alien. There's hardly any action, right? Like it's just it's just straight up horror
 
@@ -428,17 +398,11 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:16:09] Norm: It's a it's prestige television show, right? I think it's in the same family as Breaking Bad, as The Sopranos, The Wire, in that people are invested in these characters, in that type of serial storytelling.
 
-[00:16:21] Adam: and they’re being
-
-[00:16:21] Adam: built by wonderful
-
-[00:16:23] Adam: ensembles of writers and directors and actors who are doing some of the best work.
+[00:16:21] Adam: and they’re being built by wonderful ensembles of writers and directors and actors who are doing some of the best work.
 
 [00:16:28] Norm: And absolutely, and and by nature, the story they're telling is about tension not only between the main characters but about these opposing forces that culminates. Like you can feel the last season is about a culmination of the tension, and I will say because I am trying to talk. Around spoilers, the payoff for that specific build-up was 100% worth it.
 
-[00:16:50] Adam: I
-
-[00:16:50] Adam: totally yeah.
+[00:16:50] Adam: I totally yeah.
 
 [00:16:50] Norm: It is a 12-minute scene where you are literally watching six seasons of a show for this one scene
 
@@ -492,9 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:20:16] Norm: Directed by Rian Johnson, and that happens early enough in the final season that you really the
 
-[00:20:20] Adam: Ozymandias?
-
-[00:20:20] Adam: episode eight of the final season.
+[00:20:20] Adam: Ozymandias? episode eight of the final season.
 
 [00:20:20] Norm: Yeah, it is
 
@@ -548,9 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:22:19] Will: Chiseled, chiseled, Grecian features.
 
-[00:22:20] Adam: Oh, yeah. I mean, absolutely gorgeous. Yeah. He's married to Lisa Rinna. I met him at the Emmys one year, right after losing at the Emmys. I saw him and Lisa Rinna ahead of me, and I I called to them, and they were insanely polite and sweet, and made me feel so much better immediately. Not with any commiseration, just by being lovely 
-
-[00:22:20] Adam: humans,
+[00:22:20] Adam: Oh, yeah. I mean, absolutely gorgeous. Yeah. He's married to Lisa Rinna. I met him at the Emmys one year, right after losing at the Emmys. I saw him and Lisa Rinna ahead of me, and I I called to them, and they were insanely polite and sweet, and made me feel so much better immediately. Not with any commiseration, just by being lovely  humans,
 
 [00:22:37] Will: being delightful human beings.
 
@@ -614,11 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:25:25] Norm: Well, they weren't posting to Instagram, were they?
 
-[00:25:27] Will: right? I mean, it's it's just
-
-[00:25:29] Will: It’s talking about taste changing over 40 years.
-
-[00:25:31] Will: and you know, yeah.
+[00:25:27] Will: right? I mean, it's it's just It’s talking about taste changing over 40 years. and you know, yeah.
 
 [00:25:33] Norm: The the only recommendation I would say is that the 5D, which is now about two years old, does not have a flip out screen.
 
@@ -846,9 +802,7 @@ Episode URL: https://www.youtube.com/watch?v=lJ_kuenBTJk
 
 [00:33:44] Norm: Yeah,
 
-[00:33:44] Will: living on the coast, highly recommended.
-
-[00:33:44] Will: I think that’s as I think that’s all I have to end on
+[00:33:44] Will: living on the coast, highly recommended. I think that’s as I think that’s all I have to end on
 
 [00:33:59] Adam then Norm: You got Norm’s got a plane
 

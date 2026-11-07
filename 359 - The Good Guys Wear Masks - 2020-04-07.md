@@ -32,9 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:01:53] Adam: beautiful, and I just finished three, four of them for my wife, my mom, my son, and myself, and I'm I've been wearing it for the last hour. It feels pretty comfortable. I mean, it's hot boxing in here, and when you have a pollen bloom and a runny nose, a mask is literally a Dantean level of hell.
 
-[00:02:13] Norm: This is something I love.
-
-[00:02:16] Norm: This mask is something that I think we're going to see a lot of, and a lot of people make [unclear: a repeat / a opinion]. I mean, even there are Hollywood costumers. I think LA Times did a story over the weekend about you know the the costumers in LA making thousands of them now because it's still not widely a part of the the recommended precautionary measure. But we all know it's we're going to get there, and the smart move is to start making and wearing masks now. But there are so so many designs, and what you described is a very low barrier to entry design.
+[00:02:13] Norm: This is something I love. This mask is something that I think we're going to see a lot of, and a lot of people make [unclear: a repeat / a opinion]. I mean, even there are Hollywood costumers. I think LA Times did a story over the weekend about you know the the costumers in LA making thousands of them now because it's still not widely a part of the the recommended precautionary measure. But we all know it's we're going to get there, and the smart move is to start making and wearing masks now. But there are so so many designs, and what you described is a very low barrier to entry design.
 
 [00:02:47] Adam: It's also we should be clear that I've done a lot of reading on this in the last few days. This is interesting. When you study birth control, it is impossible to come up with a perfect number for the efficacy of any birth control because there's never been a study in which everyone followed the rules. And so, within the medical studies of things like the efficacy of masks, comfort is a real important thing because if it's not comfortable, it doesn't matter how effective it is. You just won't use it. That makes sense.
 
@@ -162,9 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:14:13] Will: That's funny. Um, yeah, I've been building Lego. I dug out. I went to the garage and dug out the the vault of unopened Lego and pulled out the Simpsons house from like four or five years ago. And I've just been when I when I'm feeling stressed out, I pick out a bag, I sit down, I build some Lego for an hour, and and then it kind of you know gives your brain something to do. It doesn't require it requires attention, but not. Full, full, you know, engagement.
 
-[00:14:41] Adam: You know, it's funny because my wife asked me this morning to bring Lego home from the cave because that sounded like fun, and I agree. So she has she has no idea what she's in for
-
-[00:14:55] Adam: because the one bin of my Lego is about the size of a body bag, but I will transfer some to a box and bring it home.
+[00:14:41] Adam: You know, it's funny because my wife asked me this morning to bring Lego home from the cave because that sounded like fun, and I agree. So she has she has no idea what she's in for because the one bin of my Lego is about the size of a body bag, but I will transfer some to a box and bring it home.
 
 [00:15:03] Norm: Can roll out the entire, you know, floor of a house.
 
@@ -248,9 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:24:01] Adam: yeah,
 
-[00:24:01] Norm: the fact that all three of us are fortunate enough to again to be surrounded by loved ones with family that's great, and we are sharing this experience together, which is very helpful mentally. But just because we're sharing this experience doesn't mean we have to share every single part of our day. And the thing that helped us over the weekend was one day letting
-
-[00:24:21] Norm: you know Danica sleep in, another day I got to sleep in, and then having time where at the end of the day when the baby gets goes to sleep, we can do separate things and still feel like We can, you know, have our thoughts to ourselves.
+[00:24:01] Norm: the fact that all three of us are fortunate enough to again to be surrounded by loved ones with family that's great, and we are sharing this experience together, which is very helpful mentally. But just because we're sharing this experience doesn't mean we have to share every single part of our day. And the thing that helped us over the weekend was one day letting you know Danica sleep in, another day I got to sleep in, and then having time where at the end of the day when the baby gets goes to sleep, we can do separate things and still feel like We can, you know, have our thoughts to ourselves.
 
 [00:24:33] Will: That balance, really. We're doing headphone time, which helps a lot. Like, if somebody has AirPods in, then you just leave them alone, and and like all the way. My daughter is like, " Hey, I have my headphones on. I'm just, I don't want to talk to anybody right now," which is funny.
 
@@ -350,9 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=OwC-kuox71A
 
 [00:32:02] Will: And and they're doing a show on Friday, right?
 
-[00:32:06] Norm: I don't know about that, but they they all got together to do a video conference sing along of the first song for a fan, and it's 100% worth watching. It's
-
-[00:32:19] Norm: you're crying throughout. There's an amazing Miyazaki four part documentary that NHK over in Japan has now made. Public, and I'll put the link in the show notes. It was available earlier, but now across the world, they've brought it back. It's also subtitled in a bunch of different languages. If English isn't your first language, and so that's really great to watch. A lot of people are doing fundraisers and doing money for charity. Lady Gaga is doing a a concert thing on Friday, but also Phoebe Waller-Bridge is bringing the Fleabag stage show that she did in London as a streamable. And in the US, I believe it's in Amazon. You're able to donate money and watch that.
+[00:32:06] Norm: I don't know about that, but they they all got together to do a video conference sing along of the first song for a fan, and it's 100% worth watching. It's you're crying throughout. There's an amazing Miyazaki four part documentary that NHK over in Japan has now made. Public, and I'll put the link in the show notes. It was available earlier, but now across the world, they've brought it back. It's also subtitled in a bunch of different languages. If English isn't your first language, and so that's really great to watch. A lot of people are doing fundraisers and doing money for charity. Lady Gaga is doing a a concert thing on Friday, but also Phoebe Waller-Bridge is bringing the Fleabag stage show that she did in London as a streamable. And in the US, I believe it's in Amazon. You're able to donate money and watch that.
 
 [00:32:59] Adam: Oh, I am so on that.
 

@@ -22,9 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:01:47] Will: Dulcet tones.
 
-[00:01:48] Adam: He really does. It's that. Well, I mean, he's a radio producer, and he has been for
-
-[00:01:48] Adam: decades.
+[00:01:48] Adam: He really does. It's that. Well, I mean, he's a radio producer, and he has been for decades.
 
 [00:01:55] Will: 15 20 years.
 
@@ -262,11 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:14:45] Will: or at least understand enough about the the other stuff down the line from the part that you do, so you don't get fleeced or make bad choices or whatever.
 
-[00:14:52] Adam: Exactly. So there's industrial design. There's art.
-
-[00:14:52] Adam: And there's a lot of other things that you can do that are…
-
-[00:14:52] Adam: You know, again, people might feel like an Art degree is too nebulous. A degree in making a living at as an artist is really difficult. I submit that making a living doing anything really specific is incredibly difficult. Any degree, any any specific, you know, if you want to be a forensic pathologist, I'll wager high-paying jobs in forensic pathology are are highly competitive
+[00:14:52] Adam: Exactly. So there's industrial design. There's art. And there's a lot of other things that you can do that are… You know, again, people might feel like an Art degree is too nebulous. A degree in making a living at as an artist is really difficult. I submit that making a living doing anything really specific is incredibly difficult. Any degree, any any specific, you know, if you want to be a forensic pathologist, I'll wager high-paying jobs in forensic pathology are are highly competitive
 
 [00:15:19] Will: and take a while to get there.
 
@@ -372,9 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:21:03] Will: So this is a. I thought this is a fabulous question. This is from Dave Tavrez. He says, " Hey guys, what's the best way to preserve a soda can? By preserve, I mean I want to fill it with something that has the same mass and strength as it will filled, but I don't want to leave a filled can on my shelf because I'm going to surround it with a bunch of other props. So specifically, he has a can of Tab Cola that he wants to add to his Back to the Future shelf, and he doesn't want to have a full can of Tab because eventually the can will break and explode and blow sticky, awful Tab all over his precious Back to the Future collectibles. He he can empty it. That's easy. Drilling two holes in the bottom is a piece of cake. But when he fills it with sand, it doesn't have the right kind of heft, and he doesn't know if there's anything he can put in it that will give it the right kind of heft and sloshiness of a can of cola without all the caustic, horrible chemicals that came with the tab.
 
-[00:21:52] Adam: Fascinating.
-
-[00:21:55] Adam: My first thought would be plaster.
+[00:21:52] Adam: Fascinating. My first thought would be plaster.
 
 [00:21:57] Will: Just, just put just pour wet plaster,
 
@@ -400,9 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:23:56] Adam: Like I'm tapping my fingers on the table, and you do that, and eventually the island will disappear. As you mix up the plaster, you let that settle for a little bit so it doesn't separate, right? Water and plaster, you probably for about 10 minutes, and it'll start to gel a little bit more, and then you can pour it. And you could probably pour it in a vessel with a tube going into the soda can, and it would all feed into there quite nicely.
 
-[00:23:56] Norm: Okay.
-
-[00:24:20] Norm: Wow.
+[00:23:56] Norm: Okay. Wow.
 
 [00:24:20] Adam: Yeah, that's my advice.
 
@@ -608,11 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:30:50] Norm: It's not Linda Fiorentino. I'm gonna look this up because that's like a sense memory.
 
-[00:30:54] Adam: Good God! Anyway, so this body was a key moment in the film. Because it's super horrible. Because he was supposedly engaging in S and M play, and there he is, like flayed on the bed and slashed to bits, naked. So they built this body at C W I, Chris Walas' special effects company. They did Arachnophobia and Naked Lunch and RoboCop and a bunch of other things. And my friend [unclear: Carol Beulman / Bowman] had to drive this complete. So when you finish a body like this, right? It's expensive. I don't know what they spent. $100,000, $200,000.
-
-[00:30:54] Adam: to build this thing.
-
-[00:30:54] Adam: I mean,
+[00:30:54] Adam: Good God! Anyway, so this body was a key moment in the film. Because it's super horrible. Because he was supposedly engaging in S and M play, and there he is, like flayed on the bed and slashed to bits, naked. So they built this body at C W I, Chris Walas' special effects company. They did Arachnophobia and Naked Lunch and RoboCop and a bunch of other things. And my friend [unclear: Carol Beulman / Bowman] had to drive this complete. So when you finish a body like this, right? It's expensive. I don't know what they spent. $100,000, $200,000. to build this thing. I mean,
 
 [00:31:24] Will: it looks. It looks very real. I mean, it's what 20 years old now. It looks really good.
 
@@ -678,9 +664,7 @@ Episode URL: https://www.youtube.com/watch?v=YwzZ8_84oEw
 
 [00:35:47] Norm: just get started.
 
-[00:35:48] Will: So yeah, so usually, usually once I have it in my head enough that I'm like, I can draw this, and then I draw it, and if I draw it and it looks like I was envisioning in my head, then I'm like, well, okay, let's see how this goes.
-
-[00:36:00] Will: Yeah.
+[00:35:48] Will: So yeah, so usually, usually once I have it in my head enough that I'm like, I can draw this, and then I draw it, and if I draw it and it looks like I was envisioning in my head, then I'm like, well, okay, let's see how this goes. Yeah.
 
 [00:36:00] Adam: Yeah.
 

@@ -16,9 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:00:19] Adam: which is a weird. We're we're jerks, honestly, for that. And you rolled up in a foam car, right?
 
-[00:00:25] Bill: Yeah,
-
-[00:00:25] Bill: that'll happen someday.
+[00:00:25] Bill: Yeah, that'll happen someday.
 
 [00:00:28] Norm: The door open and unrolled like a like a mat, like a yoga mat.
 
@@ -136,9 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:06:10] Bill: My
 
-[00:06:11] Adam: yeah,
-
-[00:06:11] Adam: you were bit by a radioactive spider.
+[00:06:11] Adam: yeah, you were bit by a radioactive spider.
 
 [00:06:13] Bill: Yep,
 
@@ -246,9 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:09:12] Bill: Yeah,
 
-[00:09:12] Adam: I picked up a bunch of leather rivets, the kind that's the little mushroom crown and the little post, and you.
-
-[00:09:18] Adam: Give them a little torque, but I've only ever seen them in an eighth-inch form factor, and these guys had them in like four other sizes.
+[00:09:12] Adam: I picked up a bunch of leather rivets, the kind that's the little mushroom crown and the little post, and you. Give them a little torque, but I've only ever seen them in an eighth-inch form factor, and these guys had them in like four other sizes.
 
 [00:09:27] Bill: Who are who are these guys?
 
@@ -426,9 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:17:06] Bill: It's really remarkable where the whole cosplay thing is now that people are importing foam.
 
-[00:17:13] Adam: That's that's really cool.
-
-[00:18:35] Adam: There's a thing that happens in a builder's life where, in the beginning, money is hard to come by because you're young and you don't make that much, and but your labor is plentiful. Plus, your energy is too, right? Like I did so many all-nighters in my 20s. I worked two jobs and still sculpted and did built stuff all night long. So labor is dirt cheap in the beginning, but then later labor becomes the expensive part, and materials become the cheap part. Yeah, and it's Just I don't necessarily have a point with this, but I was really surprised by how universal that is. Like, I gave away my labor in the beginning in order to be able to get materials.
+[00:17:13] Adam: That's that's really cool. There's a thing that happens in a builder's life where, in the beginning, money is hard to come by because you're young and you don't make that much, and but your labor is plentiful. Plus, your energy is too, right? Like I did so many all-nighters in my 20s. I worked two jobs and still sculpted and did built stuff all night long. So labor is dirt cheap in the beginning, but then later labor becomes the expensive part, and materials become the cheap part. Yeah, and it's Just I don't necessarily have a point with this, but I was really surprised by how universal that is. Like, I gave away my labor in the beginning in order to be able to get materials.
 
 [00:19:17] Norm: And I think that goes to the idea that maybe you undervalued your work.
 
@@ -504,9 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:22:44] Adam: Yeah. So so back in the day, I had a loft space, and a guy I knew who was a television producer called me up, and he goes, " Hey, um, I need to build some flats. Could I rent your space to build some flats?" And I said, " Yeah." And he's like, " Cool, I'm willing to pay this." And I was like, " Cool, all right, $200 a day to rent my thing." And he's like, " Now I'm hoping that you can do the building." And I was like, " What?" He's like, " No, I'm willing to pay. I'm willing to pay." And it was a full room set, a full room as a set. And I think he wanted to pay me like $9,000 or something like that. No, wait, yeah, something like that. And to me, that sounded like an absolute Midas King's ransom worth of money. But I called up my friend Todd Bright. Was an experienced scenic artist, and I was like, " Todd, what's wrong with this picture?" And he's like, " Oh, they're totally screwing you. That is easily a $20,000 job, and not even forget about the show. They are totally screwing you, given the who it was and what they were doing it for, because it was for a big corporate job." And he's like, " And thank God he counseled me through negotiating a reasonable price for this."
 
-[00:23:52] Norm: Wow.
-
-[00:23:53] Norm: Yeah.
+[00:23:52] Norm: Wow. Yeah.
 
 [00:23:54] Adam: I that that is something that we haven't talked about on the show about counseling younger builders what to charge and how to value themselves, but it is a really worthwhile thing to to discuss more in the open
 
@@ -726,9 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:33:53] Bill: Yeah, that particular project, which I'm very excited to share when everyone gets to see it, I think that one pulled in just about every skill I have. Now, my background, my my formal training is in 3D modeling and animation. So when 3D printing became a thing and I got my first printer, I I was like, I'm Tony Stark. I really like I can visualize it, I can model it, and that machine will make it real. That was my I am Iron Man moment. Nice. So yeah, this particular project was all 3D printing, lots of sanding, lots of mold making. It took me about six months off and on to to finish it, but it
 
-[00:34:31] Norm: and it's getting finished up.
-
-[00:34:33] Norm: You know, we did a panel with our friends Kit and Steve and you and Britt. And one of the things I asked you guys is, what what is one skill for prop makers and costumers that because it's very competitive these days, everyone's trying to get into it, that is still needed and it's It's modeling. It's 3D modeling.
+[00:34:31] Norm: and it's getting finished up. You know, we did a panel with our friends Kit and Steve and you and Britt. And one of the things I asked you guys is, what what is one skill for prop makers and costumers that because it's very competitive these days, everyone's trying to get into it, that is still needed and it's It's modeling. It's 3D modeling.
 
 [00:34:47] Bill: 3D modeling is a. It unlocks so many things for everything. You could turn a 3D model into papercraft. You could 3D print it. You could turn it into a sewing pattern. There's so many things you can do with a 3D model.
 
@@ -738,15 +726,11 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:35:16] Norm: It's like it's the realization that the digital skill that we all grew up assuming it would just stay in the computer has so many implications. I mean, people working in CNC know this, right? In the real world.
 
-[00:35:26] Adam: Well, and and and it's still. I mean, companies like Autodesk are still working hard to to collapse the CAD CAM pipeline to make it more intuitive
-
-[00:35:35] Adam: because the the lack of its intuitive interfaces for 2D to 3D to 2D to 3D is still a real barrier.
+[00:35:26] Adam: Well, and and and it's still. I mean, companies like Autodesk are still working hard to to collapse the CAD CAM pipeline to make it more intuitive because the the lack of its intuitive interfaces for 2D to 3D to 2D to 3D is still a real barrier.
 
 [00:35:43] Bill: It is. It's. It is definitely getting a lot better. We did some CAD CAM stuff for a premium video a while back using Fusion. Using Fusion and That's once it gets into CAM, is where I'm like, all right, let's take our time here. It's a it's a steep hill to climb, but I am making good good baby steps towards learning CAM, and that's that's another you unlock that skill. It's like here's another world of possibilities.
 
-[00:36:08] Adam: Yeah.
-
-[00:36:09] Adam: Um. Uh. Uh. My wife and I have started doing matinees on the weekends.
+[00:36:08] Adam: Yeah. Um. Uh. Uh. My wife and I have started doing matinees on the weekends.
 
 [00:36:14] Norm: Okay.
 
@@ -854,9 +838,7 @@ Episode URL: https://www.youtube.com/watch?v=8llUVmB_rKg
 
 [00:38:18] Norm: Yeah, oh, they're going to actually direct. Wow. Okay.
 
-[00:38:22] Adam: Joey and Norm and I are all like, " Okay, what do we do?"
-
-[00:38:25] Adam: Play cool. Be cool. Be cool.
+[00:38:22] Adam: Joey and Norm and I are all like, " Okay, what do we do?" Play cool. Be cool. Be cool.
 
 [00:38:25] Norm: And then also the video of the assembly you did with our friend Jen Schachter at NomCon, making the Rosie statue. That's going to go up this week as well.
 

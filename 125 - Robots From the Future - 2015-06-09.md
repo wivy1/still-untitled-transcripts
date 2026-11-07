@@ -316,9 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:14:46] Will: And this is something that if you put a human through the same course, maybe three minutes, maybe four, depending on how long it took you to drive.
 
-[00:14:53] Adam: So I mean, I way back in the early '90s, I was an assistant. I worked as an assistant for a roboticist named Chico MacMurtrie, who's still operating out of Red Hook, Brooklyn, and is a wonderful robot maker. And we were working on a bipedal robot back then.
-
-[00:15:11] Adam: And from a balance, programming, and movement perspective, just trying to do it through brute force, I have some understanding of just how difficult a technical challenge it is.
+[00:14:53] Adam: So I mean, I way back in the early '90s, I was an assistant. I worked as an assistant for a roboticist named Chico MacMurtrie, who's still operating out of Red Hook, Brooklyn, and is a wonderful robot maker. And we were working on a bipedal robot back then. And from a balance, programming, and movement perspective, just trying to do it through brute force, I have some understanding of just how difficult a technical challenge it is.
 
 [00:15:22] Will: I mean, we talk to people who talk about bipedal robots, and all of the stuff that we take for granted, like the
 
@@ -420,17 +418,13 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:21:14] Adam: Unless you're watching Steph Curry make a basket,
 
-[00:21:16] Norm: right?
-
-[00:21:16] Norm: Unless, well, before the game, not during the game, yeah. Oh, oh, it's too soon.
+[00:21:16] Norm: right? Unless, well, before the game, not during the game, yeah. Oh, oh, it's too soon.
 
 [00:21:24] Adam: It's too soon.
 
 [00:21:25] Will: We're recording this after game two.
 
-[00:21:26] Adam: Yeah.
-
-[00:21:26] Adam: Game two aired last night, so it wasn't the best moment for it.
+[00:21:26] Adam: Yeah. Game two aired last night, so it wasn't the best moment for it.
 
 [00:21:30] Norm: Same thing applies to the robot companies when you're watching a video and the robot's doing performing incredibly, like this incredible feat of balance and speed. They did that a lot of times.
 
@@ -556,9 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:28:33] Will: So it's all like that. All of this stuff is connected, right?
 
-[00:28:36] Adam: Right?
-
-[00:28:36] Adam: Right? Right.
+[00:28:36] Adam: Right? Right? Right.
 
 [00:28:36] Will: Yeah. It all comes out of the phones. It all started with the phones after you know 40 years of of you know computing.
 
@@ -592,11 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:30:00] Adam: Apocalypse, the robot
 
-[00:30:01] Will: apocalypse.
-
-[00:30:01] Will: Exactly.
-
-[00:30:01] Will: I feel like like
+[00:30:01] Will: apocalypse. Exactly. I feel like like
 
 [00:30:04] Adam: as long as Will Smith is on the case, I'll feel okay about it—the other Will Smith.
 
@@ -618,13 +606,9 @@ Episode URL: https://www.youtube.com/watch?v=wwDWNzFx0RQ
 
 [00:30:36] Will: Yeah.
 
-[00:30:36] Adam: They showed footage of ASIMO to Karl Pilkington on Ricky Gervais's podcast, and Karl goes, " He's walking as if he shit himself."
+[00:30:36] Adam: They showed footage of ASIMO to Karl Pilkington on Ricky Gervais's podcast, and Karl goes, " He's walking as if he shit himself." I was like, " That's exactly what he's walking like."
 
-[00:30:46] Adam: I was like, " That's exactly what he's walking like."
-
-[00:30:49] Norm: His knees are bent.
-
-[00:30:50] Norm: He's squatting forward. He's
+[00:30:49] Norm: His knees are bent. He's squatting forward. He's
 
 [00:30:53] Will: [unclear: not moving his load, guys]. We talked to people about that.
 

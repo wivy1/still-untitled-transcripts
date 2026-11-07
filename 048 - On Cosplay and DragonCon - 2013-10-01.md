@@ -68,9 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:02:47] Adam: So the the the models I have of the Strandbeests on my shelf that are my favorites are from this Japanese company that puts out a magazine that also includes a model kit, and they have all sorts of different models. They're cool model kits, like a one to one replica of. Of Galileo's first telescope, which I bought and I built, and I love it; it's great.
 
-[00:03:04] Norm: I think the kit is called Gakken,
-
-[00:03:07] Norm: and it's like science for adults, is the translation.
+[00:03:04] Norm: I think the kit is called Gakken, and it's like science for adults, is the translation.
 
 [00:03:10] Adam: And they're expensive; they're about $120 for one of these. But something happened, and now they're like $11. I don't quite understand, except that the magazine itself has been torn out, and I wonder if that if this is like kind of like a remaindered book where they tear the cover off. But this is just the Strandbeest kit and the directions. And I got one for you. I got, I got one for Will too when he shows up.
 
@@ -142,9 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:06:02] Adam: Right.
 
-[00:06:03] Norm: Because you have local conventions,
-
-[00:06:03] Norm: whether it's a board game convention or even like a comic book convention, you can have your small ones, which are more independent artist based and maybe not as commercial and not big name. And then Comic Con seems like a good if you can get in these days, a good way to just get immerse yourself in in geek culture.
+[00:06:03] Norm: Because you have local conventions, whether it's a board game convention or even like a comic book convention, you can have your small ones, which are more independent artist based and maybe not as commercial and not big name. And then Comic Con seems like a good if you can get in these days, a good way to just get immerse yourself in in geek culture.
 
 [00:06:22] Adam: Yes,
 
@@ -178,9 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:07:41] Norm: Yep.
 
-[00:07:41] Adam: and I think that Dragon Con regulars
-
-[00:07:41] Adam: think of Comic Con as amateur night,
+[00:07:41] Adam: and I think that Dragon Con regulars think of Comic Con as amateur night,
 
 [00:07:46] Norm: or cosplayers in general think of Comic Con maybe as the warm up.
 
@@ -272,9 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:11:37] Norm: Okay.
 
-[00:11:38] Adam: Uh, but I started out the first one,
-
-[00:11:38] Adam: and the whole first three rows was a musical theater group that had just had its opening night and were drunk and psyched, and when I started nailing this song, they became the greatest. Audience, ever, and it was like a feedback loop. Every performer knows this. You get a great audience, and all of a sudden, things can go really to a high level. And we had so—I mean, we just had the whole crowd just like freaking out towards the end. It was awesome.
+[00:11:38] Adam: Uh, but I started out the first one, and the whole first three rows was a musical theater group that had just had its opening night and were drunk and psyched, and when I started nailing this song, they became the greatest. Audience, ever, and it was like a feedback loop. Every performer knows this. You get a great audience, and all of a sudden, things can go really to a high level. And we had so—I mean, we just had the whole crowd just like freaking out towards the end. It was awesome.
 
 [00:12:07] Norm: Adam Savage karaoke.
 
@@ -286,9 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:12:34] Norm: Yeah,
 
-[00:12:36] Adam: the Gollum voices. I figured that's the kind of game I should bring to DragonCon. We we didn't do every other year. I've been to DragonCon. My cohorts in w00tstock, Paul and Storm, and also Wil Wheaton have always been at PAX.
-
-[00:12:50] Adam: And this year, Paul and Storm decided to go to DragonCon instead. So we had it wasn't the what was it called the Palooza?
+[00:12:36] Adam: the Gollum voices. I figured that's the kind of game I should bring to DragonCon. We we didn't do every other year. I've been to DragonCon. My cohorts in w00tstock, Paul and Storm, and also Wil Wheaton have always been at PAX. And this year, Paul and Storm decided to go to DragonCon instead. So we had it wasn't the what was it called the Palooza?
 
 [00:12:56] Norm: Uh, it was like a Gonzoroo,
 
@@ -354,9 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=Fo2ptl4dUp0
 
 [00:18:23] Adam: No.
 
-[00:18:24] Norm: because
-
-[00:18:24] Norm: they're entire competitions,
+[00:18:24] Norm: because they're entire competitions,
 
 [00:18:25] Adam: absolutely.
 

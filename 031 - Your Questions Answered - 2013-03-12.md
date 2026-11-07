@@ -14,9 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:00:07] Adam: How are you guys?
 
-[00:00:08] Will: We're doing great.
-
-[00:00:09] Will: We're here in the shop.
+[00:00:08] Will: We're doing great. We're here in the shop.
 
 [00:00:10] Adam: Yes, yes. It's a it's a nice weekend day in the shop. Beautiful outside, which means I like working indoors all day.
 
@@ -354,9 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:18:00] Will: Headliner and the whole thing.
 
-[00:18:01] Adam: It's beautiful.
-
-[00:18:02] Adam: I've got some great stickers on it. I love it. It's just sitting in a parking lot. Here in the mission, waiting for me to find an engine and to send it to go swap out. I'll tell you, and I know this is blasphemous, but since I'm in my mid 40s and like I, I don't like bending over to tie my shoes anymore because I'm old. I'm, I would almost consider throwing an automatic in it. Now I know there's a bunch of Land Cruiser owners that just clutch their pearls out there, but I, I wanna, I want a daily driver.
+[00:18:01] Adam: It's beautiful. I've got some great stickers on it. I love it. It's just sitting in a parking lot. Here in the mission, waiting for me to find an engine and to send it to go swap out. I'll tell you, and I know this is blasphemous, but since I'm in my mid 40s and like I, I don't like bending over to tie my shoes anymore because I'm old. I'm, I would almost consider throwing an automatic in it. Now I know there's a bunch of Land Cruiser owners that just clutch their pearls out there, but I, I wanna, I want a daily driver.
 
 [00:18:28] Will: Send your angry letters to.
 
@@ -402,9 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:19:36] Norm: All the different,
 
-[00:19:37] Adam: Totally covered.
-
-[00:19:38] Adam: Thank you, everybody who reached out. All of that, all of your advice is great, especially because French driver's licenses are similar to many other European driver's licenses, all of which were different sizes.
+[00:19:37] Adam: Totally covered. Thank you, everybody who reached out. All of that, all of your advice is great, especially because French driver's licenses are similar to many other European driver's licenses, all of which were different sizes.
 
 [00:19:47] Will: Yeah, I mean, even within the same years, we got we had several people who are French cops write in and say, " Hey, they're all a little different." So way to go! It's all different now because it's all Euro standard, whatever. Eric says, " Hey, I have an idea on what the knife was in the Bourne bag." Um, I'm pretty sure it's a Victorinox Mauser, which was made for the German army and is no longer in production. Coupled by its rarity, it's a tough find. Uh, that said, he has seen a few kicking around eBay from time to time. 
 
@@ -546,9 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=cKUKjiPQjAA
 
 [00:26:46] Adam: And that's theater, and that's film. I mean, I built an entire padded cell for a friend's senior thesis film at NYU for something like $25, because that's all that we had, and that refined my brain. You know, that limitation, and that's just finding that finding those ways to just get access to materials and get your hands dirty is great.
 
-[00:27:08] Will: We're almost there.
-
-[00:27:08] Will: I think we're on time, so. On that note, thank you as always, Adam.
+[00:27:08] Will: We're almost there. I think we're on time, so. On that note, thank you as always, Adam.
 
 [00:27:13] Adam: Absolutely.
 

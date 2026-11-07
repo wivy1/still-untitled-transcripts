@@ -48,11 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:00:58] Will: You're going to put the Totoro suit and walk around the mission to see what happens, right?
 
-[00:01:01] Adam: Exactly.
-
-[00:01:01] Adam: Okay.
-
-[00:01:01] Adam: But yeah, now that the book is out. And Savage Builds has premiered.
+[00:01:01] Adam: Exactly. Okay. But yeah, now that the book is out. And Savage Builds has premiered.
 
 [00:01:06] Will: But that first episode, very good.
 
@@ -134,9 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:04:55] Will: Yeah,
 
-[00:04:55] Adam: right. Because it looks so much like you are just being lifted.
-
-[00:04:55] Adam: from the center point.
+[00:04:55] Adam: right. Because it looks so much like you are just being lifted. from the center point.
 
 [00:04:58] Will: When he does it, it looks beautiful.
 
@@ -182,9 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:07:05] Adam: Uh, yeah. Uh, no, actually, we uh, we filled we filled balloons with propane and shot them with BBs above a candle.
 
-[00:07:17] Will: It worked out really well.
-
-[00:07:17] Will: Oh my god!
+[00:07:17] Will: It worked out really well. Oh my god!
 
 [00:07:21] Norm: All right.
 
@@ -226,9 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:08:28] Norm: Nice.
 
-[00:08:32] Adam: It was great.
-
-[00:08:33] Adam: On the second day, it was like 80, and finally Sunday when I left, it was getting balls hot again. But we had we had the weather, and it was glorious. Chattanooga, which I have been to before on one of my tours, is such a beautiful little city.
+[00:08:32] Adam: It was great. On the second day, it was like 80, and finally Sunday when I left, it was getting balls hot again. But we had we had the weather, and it was glorious. Chattanooga, which I have been to before on one of my tours, is such a beautiful little city.
 
 [00:08:49] Will: There's a there's something magical happening in those small city. We talked about this before the show, but as a person who came from a small city in the South, there's something really neat happening where. Those downtown urban areas in like these 200,000, 150,000, 250,000, 300,000 person cities are kind of indistinguishable from your Austins and your Portlands and your San Franciscos.
 
@@ -370,9 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:16:18] Norm: Oh, that's beautiful.
 
-[00:16:19] Will: That's very, very pretty.
-
-[00:16:19] Will: Wow.
+[00:16:19] Will: That's very, very pretty. Wow.
 
 [00:16:20] Adam: Yeah, so I had a lot of space to play super hot, except that I used it all. And at one point, I reached down to pick up a gun and smashed my face right into a coffee table.
 
@@ -588,9 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:22:53] Norm: So you can just have one ear if you want.
 
-[00:22:53] Adam: Oh. Ah.
-
-[00:22:56] Adam: Interesting.
+[00:22:53] Adam: Oh. Ah. Interesting.
 
 [00:22:57] Will: Um. It's a yeah.
 
@@ -606,9 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:23:19] Adam: Yeah,
 
-[00:23:19] Will: yeah. I just jam a microfiber.
-
-[00:24:54] Will: Anyway, John Wick,
+[00:23:19] Will: yeah. I just jam a microfiber. Anyway, John Wick,
 
 [00:24:56] Norm: John Wick three, Parabellum.
 
@@ -684,9 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:26:26] Will: It's it is the antithesis of what John Wick is, right? Like to me, John Wick was this stripped down, bare bones.
 
-[00:26:26] Norm: Yeah,
-
-[00:27:04] Norm: and I think the third one does a little. It's a little too overindulgent for my taste.
+[00:26:26] Norm: Yeah, and I think the third one does a little. It's a little too overindulgent for my taste.
 
 [00:27:04] Adam: Oh,
 
@@ -706,9 +688,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:27:20] Norm: it has the two stars from the raid films, the raid two. Have you seen the raid and the raid two?
 
-[00:27:20] Adam: I have not.
-
-[00:27:33] Adam: The Korean films.
+[00:27:20] Adam: I have not. The Korean films.
 
 [00:27:34] Norm: Uh, in uh, yeah, no, not Korean, Indonesian.
 
@@ -716,9 +696,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:27:38] Norm: the raid? Yeah.
 
-[00:27:38] Adam: Oh, okay.
-
-[00:27:40] Adam: Um, sorry about that,
+[00:27:38] Adam: Oh, okay. Um, sorry about that,
 
 [00:27:40] Norm: it's a little bit of homework that I uh. I I will get you a copy somehow.
 
@@ -790,9 +768,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:29:44] Norm: You, you should watch the Raid. Okay, the Raid Two.
 
-[00:29:44] Adam: Yeah,
-
-[00:29:46] Adam: let's. I'm totally looking forward to that.
+[00:29:44] Adam: Yeah, let's. I'm totally looking forward to that.
 
 [00:29:47] Norm: We should talk about that. Let's discuss and you know where we think it's places in in in martial arts.
 
@@ -822,9 +798,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:30:17] Adam: which is a wonderful little movie.
 
-[00:30:18] Norm: It's, it's so delightful. It's it's about you know a very successful traditional you know French style cooking chef who then goes on a road trip
-
-[00:30:18] Norm: with his son.
+[00:30:18] Norm: It's, it's so delightful. It's it's about you know a very successful traditional you know French style cooking chef who then goes on a road trip with his son.
 
 [00:30:28] Adam: He has a falling out with his benefactor.
 
@@ -870,11 +844,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:32:40] Adam: Yeah,
 
-[00:32:40] Norm: it feels like that. But with Jon Favreau and Roy Choi, they do a whole episode where they celebrate Jonathan Gold, the food critic who passed away in L.A. Dave Chang pops up out of nowhere. It's like, what are you guys making? Oh, you guys making kimchi fried rice? Let me make some kimchi fried rice. But they revisit a lot of the foods they made for Chef. You know, they go to Franklin Barbecue in Austin. They make the grilled cheese sandwich. They make beignets. They make a cubano, and it's it's real fun. But the best part of the show is Jon Favreau is so adorably earnest because it's been years since they they made the film, and he goes, Roy, Roy, Roy, remember you taught me? I have this email. You texted. I have this email. You told me the recipe, and now I've made it like 10 times and taste it. And did I do it right? And so he's so earnest about his love and his passion for cooking, and eager and an open ear. And there's no egos. Anywhere,
-
-[00:33:47] Norm: and that's
-
-[00:33:47] Norm: the best kind of cooking show.
+[00:32:40] Norm: it feels like that. But with Jon Favreau and Roy Choi, they do a whole episode where they celebrate Jonathan Gold, the food critic who passed away in L.A. Dave Chang pops up out of nowhere. It's like, what are you guys making? Oh, you guys making kimchi fried rice? Let me make some kimchi fried rice. But they revisit a lot of the foods they made for Chef. You know, they go to Franklin Barbecue in Austin. They make the grilled cheese sandwich. They make beignets. They make a cubano, and it's it's real fun. But the best part of the show is Jon Favreau is so adorably earnest because it's been years since they they made the film, and he goes, Roy, Roy, Roy, remember you taught me? I have this email. You texted. I have this email. You told me the recipe, and now I've made it like 10 times and taste it. And did I do it right? And so he's so earnest about his love and his passion for cooking, and eager and an open ear. And there's no egos. Anywhere, and that's the best kind of cooking show.
 
 [00:33:48] Adam: I know Favreau a little bit. He came onto the set with his family, actually just just around the time Chef came out. I have a Chef Crew Challenge Coin in my Challenge Coin case, and my experience of him was exactly that: no ego at all, really, really earnest. And Hell's Bells, man, he's one of my favorite directors.
 
@@ -914,15 +884,11 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:35:10] Adam: we did. Yep.
 
-[00:35:10] Will: I don't. If you are worried about list, like I think listening to those greatly enhanced my experience watching that show.
-
-[00:35:10] Will: for the first time.
+[00:35:10] Will: I don't. If you are worried about list, like I think listening to those greatly enhanced my experience watching that show. for the first time.
 
 [00:35:28] Adam: Oh, interesting. Your results may vary, but yes,
 
-[00:35:28] Will: yeah,
-
-[00:35:31] Will: you didn't spoil the big thing, which we're still not going to spoil. But I think the last end
+[00:35:28] Will: yeah, you didn't spoil the big thing, which we're still not going to spoil. But I think the last end
 
 [00:35:36] Adam: of the last episode,
 
@@ -940,9 +906,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:36:12] Unknown (speaker not established): [unclear: Maybe you didn’t understand this].
 
-[00:36:12] Adam: Yeah. but this is she turns she breaks the fourth wall constantly throughout the series to talk to us, the viewer, and in the second season towards the end, the priest who she's flirting with sees her do it and comments on it, and it's like cracking the world open when it happens. I've never been
-
-[00:36:37] Adam: so shocked by a brand new thing watching some new piece of media.
+[00:36:12] Adam: Yeah. but this is she turns she breaks the fourth wall constantly throughout the series to talk to us, the viewer, and in the second season towards the end, the priest who she's flirting with sees her do it and comments on it, and it's like cracking the world open when it happens. I've never been so shocked by a brand new thing watching some new piece of media.
 
 [00:36:42] Will: I knew it was coming, and I still gasped, right? Like it was. It was, Yeah.
 
@@ -1066,15 +1030,11 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:40:53] Will: So.
 
-[00:40:53] Adam: My only issue with
-
-[00:40:55] Adam: the series is he's a little too venal for me in the second season. He's like unrelentingly dark and kind of the degree to which he and Fleabag seek to harm each other, I found really upsetting. Actually, not not exhausting. Actually, just upsetting.
+[00:40:53] Adam: My only issue with the series is he's a little too venal for me in the second season. He's like unrelentingly dark and kind of the degree to which he and Fleabag seek to harm each other, I found really upsetting. Actually, not not exhausting. Actually, just upsetting.
 
 [00:41:10] Will: I I mean, I think
 
-[00:41:10] Adam: That was my only issue
-
-[00:41:13] Adam: with him.
+[00:41:10] Adam: That was my only issue with him.
 
 [00:41:13] Will: Having never been through a divorce personally. I don't know what that experience is like, but I can see. I mean, that came from a place of of a sad, angry man.
 
@@ -1188,13 +1148,9 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:45:15] Adam: Okay, I all I am doing is the same podcast two weeks in a row.
 
-[00:45:17] Will: Look, I am sorry.
+[00:45:17] Will: Look, I am sorry. This is my fault.
 
-[00:45:18] Will: This is my fault.
-
-[00:45:18] Adam: Go back and listen to last week's if you didn't hear this.
-
-[00:45:18] Adam: Okay.
+[00:45:18] Adam: Go back and listen to last week's if you didn't hear this. Okay.
 
 [00:45:20] Will: Thank you for indulging me.
 
@@ -1232,9 +1188,7 @@ Episode URL: https://www.youtube.com/watch?v=SDg_KT4roA0
 
 [00:46:39] Norm: Oh, the guts to do that
 
-[00:46:40] Will: into YouTube.
-
-[00:46:40] Will: This is—
+[00:46:40] Will: into YouTube. This is—
 
 [00:46:41] Adam: Simone remains one of the most inspiring humans that I am lucky to know, and even luckier to be able to watch her output.
 

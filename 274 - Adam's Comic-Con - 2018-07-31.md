@@ -4,9 +4,7 @@
 **Duration:** 29m 21s  
 Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
-[00:00:39] Will: Welcome to Still Untitled: The Adam Savage Project.
-
-[00:00:42] Will: I'm Will.
+[00:00:39] Will: Welcome to Still Untitled: The Adam Savage Project. I'm Will.
 
 [00:00:42] Adam: I'm Adam.
 
@@ -42,11 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:01:59] Adam: Yeah.
 
-[00:01:59] Will: Into low Earth orbit.
-
-[00:02:00] Will: Yeah.
-
-[00:02:00] Will: It's amazing.
+[00:01:59] Will: Into low Earth orbit. Yeah. It's amazing.
 
 [00:02:01] Adam: It's totally awesome. It was really inspiring. It's a it's a terrific conference, and it really is all about how to utilize the resource of this incredible scientific laboratory in low Earth orbit, and what we can do, and how we can use it as a stepping stone, both for planetary exploration, solar system exploration, but also better understanding what goes on down here.
 
@@ -282,9 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:11:43] Norm: No,
 
-[00:11:44] Will: just keep
-
-[00:11:45] Will: walking over the sword. Nothing can go wrong.
+[00:11:44] Will: just keep walking over the sword. Nothing can go wrong.
 
 [00:11:46] Norm: I feel indoctrinated into that.
 
@@ -322,9 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:13:19] Adam: That's like um on the on the Syfy Wire podcast I did last year, Jonathan Frakes revealed that he played Captain America at malls, as a as a thing in his early 20s. Yeah,
 
-[00:13:32] Will: pre-bear, I guess. Yeah,
-
-[00:13:34] Will: yeah,
+[00:13:32] Will: pre-bear, I guess. Yeah, yeah,
 
 [00:13:34] Adam: yeah. So Comic Con was Comic Con was phenomenal.
 
@@ -384,9 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:15:42] Adam: It's amazing. And FONCO FON Davis built one. I contributed a little R2-D2 head to it. It was.
 
-[00:15:49] Norm: A lot of our friends in the builder community, you know,
-
-[00:15:51] Norm: from Mike McMaster, Tom Spina,
+[00:15:49] Norm: A lot of our friends in the builder community, you know, from Mike McMaster, Tom Spina,
 
 [00:15:53] Adam: Gordon Tarpley,
 
@@ -488,9 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:19:51] Adam: When I kill you, you'll be awake, and we'll both be facing each other.
 
-[00:19:55] Norm: Oh wow!
-
-[00:19:57] Norm: Did you pick up anything?
+[00:19:55] Norm: Oh wow! Did you pick up anything?
 
 [00:19:58] Adam: Did I pick up anything?
 
@@ -566,9 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:21:34] Will: we like that was that was the conversation was how do you make those those those narrow nacelles
 
-[00:21:40] Norm: yeah totally
-
-[00:21:41] Norm: Weta is doing resin kits oh man when we visited them in January they said this is a direct credit to you Adam but you had a conversation with their collectibles and model making team David Tremont Leonard and Jules and about a Chappie
+[00:21:40] Norm: yeah totally Weta is doing resin kits oh man when we visited them in January they said this is a direct credit to you Adam but you had a conversation with their collectibles and model making team David Tremont Leonard and Jules and about a Chappie
 
 [00:21:59] Adam: yeah, yeah
 
@@ -582,21 +566,13 @@ Episode URL: https://www.youtube.com/watch?v=xTf_6IlWBUM
 
 [00:22:26] Will: A resin kit is just like molds and some resin, and you pour it in, then do the painting and all that.
 
-[00:22:30] Norm: So not making you know metal injection molded tooling. These are going to be limited, limited as many as the molds will will run.
-
-[00:22:36] Norm: Wow!
-
-[00:22:36] Norm: Made to put together with decals, you paint it yourself, and they want an army of these out there so people can share in the model making.
+[00:22:30] Norm: So not making you know metal injection molded tooling. These are going to be limited, limited as many as the molds will will run. Wow! Made to put together with decals, you paint it yourself, and they want an army of these out there so people can share in the model making.
 
 [00:22:46] Will: Oh, that's so cool!
 
 [00:22:47] Adam: I know it's totally amazing. They also had I I thought this was unfathomably beautiful. A one sixth scale Treebeard.
 
-[00:22:58] Norm: Oh right, yeah.
-
-[00:22:59] Norm: It was like,
-
-[00:22:59] Norm: felt that massive scale.
+[00:22:58] Norm: Oh right, yeah. It was like, felt that massive scale.
 
 [00:23:01] Will: Treebeard was a CG character purely, yeah, presumably right.
 

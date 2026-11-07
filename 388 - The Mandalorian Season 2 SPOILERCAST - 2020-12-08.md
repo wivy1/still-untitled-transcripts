@@ -168,9 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:16:07] Norm: I think they went down one path.
 
-[00:16:08] Joey: yeah,
-
-[00:16:09] Joey: yeah. But then it just started. It started making me think of of the things that I really. I'm gonna like. I'm gonna give my give myself. People are gonna skewer me for this, but a lot of the things that I really liked about the Last Jedi versus the uh, uh, the last movie was the last
+[00:16:08] Joey: yeah, yeah. But then it just started. It started making me think of of the things that I really. I'm gonna like. I'm gonna give my give myself. People are gonna skewer me for this, but a lot of the things that I really liked about the Last Jedi versus the uh, uh, the last movie was the last
 
 [00:16:27] Norm: Rise of Skywalker.
 
@@ -284,9 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=ImsjC-f56dQ
 
 [00:25:20] Joey: you should look it up. There's a there's a bunch of videos kind of showing how that how they look side by side.
 
-[00:25:24] Adam: That's awesome. By the way, the the line that I'm still having trouble wrapping my head around is from the gallery from the from the gallery in the episode in which they're talking to the directors and Bryce Dallas Howard is talking about being in Tokyo with her dad. And having dinner with George Lucas, Ron Howard, and Akira Kurosawa,
-
-[00:25:48] Adam: I'm just like
+[00:25:24] Adam: That's awesome. By the way, the the line that I'm still having trouble wrapping my head around is from the gallery from the from the gallery in the episode in which they're talking to the directors and Bryce Dallas Howard is talking about being in Tokyo with her dad. And having dinner with George Lucas, Ron Howard, and Akira Kurosawa, I'm just like
 
 [00:25:49] Norm: as a kid, right?
 

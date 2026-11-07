@@ -30,9 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:01:07] Norm: But you know, even if you think of it like a playroom in your fantasy, when you are holding a prop gun, uh, when I hold a prop gun and I treat it like a real gun, that enhances the fantasy.
 
-[00:01:16] Adam: It totally does. It totally does. And, um, you know, the armorer that we work with a lot, Alexander Jason, um, would castigate me for swinging the the pistol around,
-
-[00:01:25] Adam: And I, I appreciate those comments. That is absolutely something that I'll think about the next time we're we're waving them around. But all of these guns are fake. This is my, um, cheap all-metal airsoft replica of Jules's gun from Pulp Fiction. Now I know that it's not correct because this is a
+[00:01:16] Adam: It totally does. It totally does. And, um, you know, the armorer that we work with a lot, Alexander Jason, um, would castigate me for swinging the the pistol around, And I, I appreciate those comments. That is absolutely something that I'll think about the next time we're we're waving them around. But all of these guns are fake. This is my, um, cheap all-metal airsoft replica of Jules's gun from Pulp Fiction. Now I know that it's not correct because this is a
 
 [00:01:40] Will: Norman Chan. Good God, stop pointing that at me!
 
@@ -124,11 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:05:27] Will: We will, let's do a video of that.
 
-[00:05:28] Adam: Oh yeah, yeah, no, and I actually I have an interesting idea for it, which is, um, I of course I'm going to make it glowy.
-
-[00:05:34] Adam: Toying
-
-[00:05:35] Adam: around with how to make the glow when you look at it something beautiful that would also be a little difficult to describe. Like I want to achieve.
+[00:05:28] Adam: Oh yeah, yeah, no, and I actually I have an interesting idea for it, which is, um, I of course I'm going to make it glowy. Toying around with how to make the glow when you look at it something beautiful that would also be a little difficult to describe. Like I want to achieve.
 
 [00:05:45] Will: Seems like it should be like a hologram or something.
 
@@ -192,9 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:09:21] Will: Uh, um, the French woman.
 
-[00:09:23] Adam: Yeah.
-
-[00:09:25] Adam: But the scenes between him and her are are so sweet. They're so loving, and they feel so intimate to be there.
+[00:09:23] Adam: Yeah. But the scenes between him and her are are so sweet. They're so loving, and they feel so intimate to be there.
 
 [00:09:33] Will: Even when he's livid, even when he is losing his mind about the watch, you he's there's she is afraid of him. He's a violent, very strong man. She's a tiny little woman.
 
@@ -258,9 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:11:52] Will: was when I was in college or high school, probably
 
-[00:11:54] Adam: Maybe a little later. At any rate, I remember sitting watching Joy Luck Club and being quite moved by it. Um, my father was ill. He is, uh, my dad Passed away in '99 of Alzheimer's after a really long and terrible bout with it. And anyone who has gone through that; it's just unforgiving and terrible thing to go through. Uh, and Joy Luck Club, which is about family heritage and about lineage and about mothers and daughters, but you know, easily transferable in my mind to fathers and sons, really affected me emotionally. But I remember specifically being in the theater and being mad that I was being manipulated, right? Like, oh, movies, they just manipulate your emotions; it's not real. And now I am like, manipulate my emotions, please.
-
-[00:12:39] Adam: I need some of that.
+[00:11:54] Adam: Maybe a little later. At any rate, I remember sitting watching Joy Luck Club and being quite moved by it. Um, my father was ill. He is, uh, my dad Passed away in '99 of Alzheimer's after a really long and terrible bout with it. And anyone who has gone through that; it's just unforgiving and terrible thing to go through. Uh, and Joy Luck Club, which is about family heritage and about lineage and about mothers and daughters, but you know, easily transferable in my mind to fathers and sons, really affected me emotionally. But I remember specifically being in the theater and being mad that I was being manipulated, right? Like, oh, movies, they just manipulate your emotions; it's not real. And now I am like, manipulate my emotions, please. I need some of that.
 
 [00:12:40] Norm: I can't need to feel something.
 
@@ -528,9 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=5D1s-PzZaB8
 
 [00:23:44] Will: You're High Fidelity-ing this top 10.
 
-[00:23:45] Adam: I
-
-[00:23:45] Adam: totally am. I totally am. Um, you know, so all those ways in which the films influenced me, uh, they each of them has their own categories, and there's other films in those categories. You know, Guillermo is practically Guillermo del Toro is practically a whole genre.
+[00:23:45] Adam: I totally am. I totally am. Um, you know, so all those ways in which the films influenced me, uh, they each of them has their own categories, and there's other films in those categories. You know, Guillermo is practically Guillermo del Toro is practically a whole genre.
 
 [00:24:01] Will: I was going to say you probably have a Guillermo category.
 

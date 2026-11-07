@@ -190,9 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=VIRyVepJcH4
 
 [00:06:55] Adam: Well done.
 
-[00:06:56] Will: There we go.
-
-[00:06:57] Will: There's been a little bit of a controversy with both Etsy, some, one of our favorite sites,
+[00:06:56] Will: There we go. There's been a little bit of a controversy with both Etsy, some, one of our favorite sites,
 
 [00:07:02] Adam: Yes.
 
@@ -266,9 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=VIRyVepJcH4
 
 [00:09:45] Will: Right,
 
-[00:09:46] Adam: that is one thing, but I think that's only a small part.
-
-[00:09:53] Adam: Of why they're coming after the Jayne hats. I think that for them, there's also this this construct within large corporations, which is we control our brand, and the moment somebody does something unauthorized with it, we need to shut that down because brand control is paramount,
+[00:09:46] Adam: that is one thing, but I think that's only a small part. Of why they're coming after the Jayne hats. I think that for them, there's also this this construct within large corporations, which is we control our brand, and the moment somebody does something unauthorized with it, we need to shut that down because brand control is paramount,
 
 [00:10:11] Norm: regardless of whether it's good for the brand or not.
 

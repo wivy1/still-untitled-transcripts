@@ -76,17 +76,11 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:01:50] Adam: and that's what this little mark on my forehead is.
 
-[00:01:52] Norm: Oh wow!
-
-[00:01:52] Norm: Right in the center.
+[00:01:52] Norm: Oh wow! Right in the center.
 
 [00:01:54] Adam: Yeah.
 
-[00:01:54] Will: Nailed it. Nailed—
-
-[00:01:54] Will: One in a million shot,
-
-[00:01:56] Will: Adam. Good
+[00:01:54] Will: Nailed it. Nailed— One in a million shot, Adam. Good
 
 [00:01:56] Adam: job. So I finished my talk, and people were clapping, and then I had another 30 minutes of Q and A to do, and that's when the one of the organizers that had hired me. Came up to the foot of the stage and said, " Here's a napkin. You've cut yourself. I didn't even realize I'd lacerated.
 
@@ -142,13 +136,9 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:03:33] Adam: and another tangent off of Spider Man. Just before the podcast aired, we watched Tom Holland do his mind blowing lip sync of Rihanna's Umbrella from Lip Sync Battle.
 
-[00:03:45] Norm: Yeah,
+[00:03:45] Norm: Yeah, yeah, it's on YouTube.
 
-[00:03:45] Norm: yeah, it's on YouTube.
-
-[00:03:46] Adam: That is, I know he is a trained dancer.
-
-[00:03:48] Adam: He is.
+[00:03:46] Adam: That is, I know he is a trained dancer. He is.
 
 [00:03:49] Will: I did not know that, but now I believe it. Yeah,
 
@@ -232,9 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:07:50] Norm: I don't think so.
 
-[00:07:51] Will: Do you remember that?
-
-[00:07:52] Will: Yeah, yeah. The computer fired everything off.
+[00:07:51] Will: Do you remember that? Yeah, yeah. The computer fired everything off.
 
 [00:07:55] Adam: Well, they set it to milliseconds instead of seconds,
 
@@ -276,9 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:09:15] Adam: yes,
 
-[00:09:15] Norm: dropped on July 4, July 3, maybe. I've binged it all.
-
-[00:09:19] Norm: Did you see any of it? I
+[00:09:15] Norm: dropped on July 4, July 3, maybe. I've binged it all. Did you see any of it? I
 
 [00:09:20] Adam: haven't seen a single bit of it. I
 
@@ -298,13 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:09:57] Adam: and you could actually almost skip the whole episode where Hop and Eleven are yelling at each other.
 
-[00:10:01] Norm: Okay,
-
-[00:10:02] Norm: yeah, yeah, it takes a while for them to bring her. Back into the fold,
-
-[00:10:02] Norm: yeah.
-
-[00:10:05] Norm: Season three is so much better.
+[00:10:01] Norm: Okay, yeah, yeah, it takes a while for them to bring her. Back into the fold, yeah. Season three is so much better.
 
 [00:10:05] Unknown speaker (Adam or Will): Oh, good!
 
@@ -340,9 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:11:01] Norm: No, no, Hop is the is David Harbour
 
-[00:11:03] Adam: chief.
-
-[00:11:03] Adam: Oh, oh, oh, okay, got it, got it. I binged. The Night Manager.
+[00:11:03] Adam: chief. Oh, oh, oh, okay, got it, got it. I binged. The Night Manager.
 
 [00:11:11] Norm: I don't know what that is.
 
@@ -530,11 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:18:38] Will: Yeah, it's it's
 
-[00:18:39] Adam: very confusing,
-
-[00:18:40] Adam: right?
-
-[00:18:40] Adam: At any rate, I didn't worry about a lot of that. I simply chose this design, and this is the one we made. It's it's I love that it's made of sky metal.
+[00:18:39] Adam: very confusing, right? At any rate, I didn't worry about a lot of that. I simply chose this design, and this is the one we made. It's it's I love that it's made of sky metal.
 
 [00:18:49] Norm: Yeah, it's space stone.
 
@@ -574,9 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:20:04] Adam: I was. I was. You know, I didn't want it to crack in half, but he was. He he. He set my expectations to a proper level and said, " You got to be ready. This thing could just crap the bed." Luckily, it did not.
 
-[00:20:04] Norm: Wow.
-
-[00:20:17] Norm: You also said on the episode that you were able to buy the meteorite online. Is that a difficult thing to do to buy a meteorite?
+[00:20:04] Norm: Wow. You also said on the episode that you were able to buy the meteorite online. Is that a difficult thing to do to buy a meteorite?
 
 [00:20:23] Adam: It's not that difficult. They are fairly common. They are expensive. We spent a fair bit on it in order to find a chunk that would have as much material as we wanted.
 
@@ -676,9 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:24:13] Adam: 50th anniversary of Apollo. Have you been following the uh the Apollo 50th Twitter feed?
 
-[00:24:17] Will: It is my favorite,
-
-[00:24:18] Will: Twitter right now,
+[00:24:17] Will: It is my favorite, Twitter right now,
 
 [00:24:19] Adam: dude. It is so intense. Like realizing how much these guys are training for hours and hours every single day, right up to the launch,
 
@@ -748,9 +718,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:29:42] Adam: Yeah, they just found it.
 
-[00:29:44] Will: They found it a few years ago.
-
-[00:29:45] Will: Yeah, and yeah, it's it's it's fascinating.
+[00:29:44] Will: They found it a few years ago. Yeah, and yeah, it's it's it's fascinating.
 
 [00:29:48] Adam: Also, in because I've been following a whole bunch of Twitter feeds devoted to Apollo and NASA and the celebration, I came across this. Apparently, at Johnson, every now and then they they go out to a bunch of the manhole covers at Johnson and rub screen printing ink on them and put T-shirts on and screen print T-shirts with NASA.
 
@@ -768,15 +736,11 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:30:28] Will: not Astro. No, she's she's she's she works she worked in Mission Control on ISS.
 
-[00:30:34] Adam: Yes, yes.
-
-[00:30:35] Adam: Let's link to her Twitter feed below this. Yes, she's how I found that, and like then went down this whole rabbit hole of T-shirt printing at NASA. She's she is an awesome follow on Twitter if you're interested in NASA stuff, both the official and the unofficial. She tweets behind the scenes stuff about the decision making process, which I find really fascinating. Um,
+[00:30:34] Adam: Yes, yes. Let's link to her Twitter feed below this. Yes, she's how I found that, and like then went down this whole rabbit hole of T-shirt printing at NASA. She's she is an awesome follow on Twitter if you're interested in NASA stuff, both the official and the unofficial. She tweets behind the scenes stuff about the decision making process, which I find really fascinating. Um,
 
 [00:30:56] Will: I can't find her Twitter. right now.
 
-[00:30:57] Adam: We will link to it
-
-[00:30:58] Adam: in the description.
+[00:30:57] Adam: We will link to it in the description.
 
 [00:30:59] Will: We have to. We should get her on the show next time. she’s in San Francisco.
 
@@ -862,9 +826,7 @@ Episode URL: https://www.youtube.com/watch?v=So_FZOo0Khk
 
 [00:35:20] Adam: Exactly, and I stopped by Heroes Club by the way.
 
-[00:35:22] Norm: Oh, on Clement.?
-
-[00:35:26] Norm: Heroes Club is a it's a boutique high end toy store that basically sells your six scale figures. Oh,
+[00:35:22] Norm: Oh, on Clement.? Heroes Club is a it's a boutique high end toy store that basically sells your six scale figures. Oh,
 
 [00:35:32] Adam: they've been there since I've been in San Francisco. They've been there since way since before 1990 when I moved here.
 

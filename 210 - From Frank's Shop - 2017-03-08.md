@@ -68,9 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:02:28] Frank Ippolito: Nice. Which did you go to Melt Bar and Grilled?
 
-[00:02:32] Adam: No, I did not get to Melt
-
-[00:02:32] Adam: Bar and Grilled.
+[00:02:32] Adam: No, I did not get to Melt Bar and Grilled.
 
 [00:02:34] Frank Ippolito: There's a place called There's a place called Melt that has like different variations of grilled cheese. Like my favorite one there is called the Godfather, which is a piece of lasagna between two pieces of garlic toast. And then they have they have another one called the Dude Abides, which is meatballs and mozzarella sticks in between garlic toast.
 
@@ -152,9 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:10:37] Frank Ippolito: No, John Wick Two was everything I had wanted a sequel to John Wick to be.
 
-[00:10:42] Adam: Okay. Can Can we just get? Can we?
-
-[00:10:42] Adam: delve into this for a minute?
+[00:10:42] Adam: Okay. Can Can we just get? Can we? delve into this for a minute?
 
 [00:10:44] Norm: Are you the one with delicate sensibilities now?
 
@@ -194,9 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:13:30] Adam: Yeah. Um. And I look. I think Keanu. Like, I know there is a lot of people who love and hate Keanu. I think that in the right movie, he's one of the best action stars ever. I think he's akin to kind of a Charles Bronson. You know, you you can't give him a wide range, but in speed, in The Matrix, and John Wick, he's just amazing. And I thought he was terrific in this film. I just I okay, so in the film, there is a bit where he's going for the big kill, right in the in the early part of the movie.
 
-[00:14:01] Norm: Yeah.
-
-[00:14:01] Norm: Yep.
+[00:14:01] Norm: Yeah. Yep.
 
 [00:14:02] Adam: The tail end of Act One, and he buys a bunch of different guns and sets them in different places, and you realize he's thinking three steps ahead.
 
@@ -322,17 +316,13 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:21:51] Adam: You know, I will tell you that. So I avoided them. I did not on purpose, but I was on the road and I couldn't get a clear signal, and I just haven't gotten around to watching them. But my wife. And and my friends who were watching live at the time, they they suspect that there’s a that they suspected that it was a planted mistake at the end of the Oscars to drum up to drum up Miss Universe style attention onto the Oscars.
 
-[00:22:20] Norm: That's on the reputation of the the big accounting firm
-
-[00:22:20] Norm: PwC.
+[00:22:20] Norm: That's on the reputation of the the big accounting firm PwC.
 
 [00:22:23] Adam: Hey, look, I said never never ascribe extreme competence where extreme incompetence could also be the solution.
 
 [00:22:34] Norm: Right, right, yeah. Sometimes they read exactly the same. But one thing I wanted to talk about, especially since we have Frank on this week, is the the makeups effect. Like the other meme that came out of the Oscars is now Suicide Squad is an Academy Award winning film, and there are plenty of films that you know that win other categories that not for acting and not for directing, and Suicide Squad won for best makeup.
 
-[00:22:58] Frank Ippolito: Well,
-
-[00:22:58] Frank Ippolito: besides the fact that I don't agree with the judge, I think that Star Trek should have gotten it. That's beside the point. I think it's it's completely rude and completely wrong the way that this meme has popped up. They're putting this gorgeous like coral alien makeup next to Harley Quinn. I think a little bit more appropriate would be the coral alien next to Killer Croc because that makeup was gorgeous,
+[00:22:58] Frank Ippolito: Well, besides the fact that I don't agree with the judge, I think that Star Trek should have gotten it. That's beside the point. I think it's it's completely rude and completely wrong the way that this meme has popped up. They're putting this gorgeous like coral alien makeup next to Harley Quinn. I think a little bit more appropriate would be the coral alien next to Killer Croc because that makeup was gorgeous,
 
 [00:22:58] Adam: right?
 
@@ -356,9 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:26:18] Frank Ippolito: yeah.
 
-[00:26:18] Adam: Um,
-
-[00:26:18] Adam: You know, what did you think, Frank, of of Dallas Buyers Club winning best makeup?
+[00:26:18] Adam: Um, You know, what did you think, Frank, of of Dallas Buyers Club winning best makeup?
 
 [00:26:24] Frank Ippolito: You know that was that was also a tricky show to do on a very low budget.
 
@@ -398,11 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:29:17] Adam: Wow, that's really specific.
 
-[00:29:19] Frank Ippolito: Yeah, well, it is. But that I think that you know, people that want to get into special effects or prosthetics, I mean, especially if you want to work on movies and stuff, that is something you should live by. Like,
-
-[00:29:31] Frank Ippolito: pull up a good
-
-[00:29:31] Frank Ippolito: nose makeup, and then we'll talk.
+[00:29:19] Frank Ippolito: Yeah, well, it is. But that I think that you know, people that want to get into special effects or prosthetics, I mean, especially if you want to work on movies and stuff, that is something you should live by. Like, pull up a good nose makeup, and then we'll talk.
 
 [00:29:32] Adam: Frank, you're bringing up something really specific, which I've also said about model making. Which people say, " Hey, what should I have in my model making portfolio?" And I always point out, " Look, I've looked at hundreds of portfolios, and everyone has their arty thing in there—the spaceship that they designed, the spaceship that you designed—doesn't tell me anything about your skills. It does as a designer to a certain extent, but because I don't know what it should have looked like, I don't know how well you did executing it. But if you have a '57 Cadillac in your model making catalog that you built from scratch, that tells me Everything I need to know about how useful you will be to me on a crew.
 
@@ -416,13 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:30:25] Frank Ippolito: Okay. I don't remember which one's one and two.
 
-[00:30:25] Adam: Yeah.
-
-[00:30:32] Adam: We I saw Mike Birbiglia's stand-up special on Netflix called " Thank God for Jokes."
-
-[00:30:39] Adam: And
-
-[00:30:39] Adam: if you don't know Mike Birbiglia's comedy, " My Girlfriend's Boyfriend," " Sleepwalk with Me," and other films and comedy specials, he's amazing, wonderful comedian. He's been a friend of mine for years. Thank God for Jokes is a master class in in jokes, in stand-up comedy, and in what he loves about jokes, and it's really, really good. I cannot recommend it highly enough. A very sweet. Loving love letter to comedy and why it's so important.
+[00:30:25] Adam: Yeah. We I saw Mike Birbiglia's stand-up special on Netflix called " Thank God for Jokes." And if you don't know Mike Birbiglia's comedy, " My Girlfriend's Boyfriend," " Sleepwalk with Me," and other films and comedy specials, he's amazing, wonderful comedian. He's been a friend of mine for years. Thank God for Jokes is a master class in in jokes, in stand-up comedy, and in what he loves about jokes, and it's really, really good. I cannot recommend it highly enough. A very sweet. Loving love letter to comedy and why it's so important.
 
 [00:31:09] Norm: Now, is this on on streaming services?
 
@@ -448,17 +426,13 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:31:32] Norm: And I love Jack Reacher one.
 
-[00:31:34] Adam: I saw Jack Reacher two. I didn't. I didn't despise it.
-
-[00:31:40] Adam: It's indefensible, and it's not nearly as good as Jack Reacher one, but it's enjoyable.
+[00:31:34] Adam: I saw Jack Reacher two. I didn't. I didn't despise it. It's indefensible, and it's not nearly as good as Jack Reacher one, but it's enjoyable.
 
 [00:31:45] Norm: But The Accountant indefensible.
 
 [00:31:47] Adam: The Accountant, no, the Accountant makes no sense at all. It's literally like I think they were making two different movies, and they sort of pushed them into one, and the result looks like a crumpled piece of paper.
 
-[00:32:00] Norm: Oh
-
-[00:32:00] Norm: yeah,
+[00:32:00] Norm: Oh yeah,
 
 [00:32:00] Frank Ippolito: that's so funny.
 
@@ -474,11 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:33:19] Frank Ippolito: Good.
 
-[00:33:20] Norm: There are plenty of cities left. You go to BrainCandyLive.com. There
-
-[00:33:24] Norm: will be
-
-[00:33:25] Norm: details about this leg. Adam, you're planning a fall leg as well to visit all the cities that people who who aren't able to make it this leg, maybe more toward the west coast.
+[00:33:20] Norm: There are plenty of cities left. You go to BrainCandyLive.com. There will be details about this leg. Adam, you're planning a fall leg as well to visit all the cities that people who who aren't able to make it this leg, maybe more toward the west coast.
 
 [00:33:37] Adam: Absolutely, yes, we will, and so those dates for the fall tour will be announced soon. We're still, we're still booking that tour, but as soon as we have those dates, you will have them, and if you're coming out to see us on the road here, get strap yourselves in because we're having a great time and it's a really fun show.
 
@@ -496,9 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:34:22] Frank Ippolito: Monsterpalooza,
 
-[00:34:23] Norm: Monsterpalooza. Frank is unveiling a new makeup that he's been working on.
-
-[00:34:28] Norm: At
+[00:34:23] Norm: Monsterpalooza. Frank is unveiling a new makeup that he's been working on. At
 
 [00:34:28] Frank Ippolito: I've been working on on and off on this Peter Cushing Tarkin makeup. Um, I started sculpting it a couple years ago, and I've wanted to do this, you know, Peter Cushing likeness makeup, and I'm going to try and get it out at WonderCon, and we're having
 
@@ -512,9 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:35:12] Adam: you're going to do Tarkin in a hotel bathrobe.
 
-[00:35:15] Frank Ippolito: Not quite.
-
-[00:35:17] Frank Ippolito: We have another idea.
+[00:35:15] Frank Ippolito: Not quite. We have another idea.
 
 [00:35:19] Adam: A bunny suit.
 
@@ -530,6 +496,4 @@ Episode URL: https://www.youtube.com/watch?v=KQbVFlpcgZ8
 
 [00:35:54] Adam: I will totally do. All right, guys.
 
-[00:35:54] Norm: All right.
-
-[00:35:57] Norm: See you next. See you all next time. Bye bye.
+[00:35:54] Norm: All right. See you next. See you all next time. Bye bye.

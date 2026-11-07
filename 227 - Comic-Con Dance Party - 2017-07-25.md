@@ -20,11 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:01:18] Norm: Yeah. Yeah. Chain smokers, but that's I think a sign of a good Comic Con.
 
-[00:01:23] Adam: Oh yeah, no, no, no, it was great. This has been a really
-
-[00:01:23] Adam: good Comic-Con. It’s been a really good Comic-Con. It’s been a really,
-
-[00:01:23] Adam: this has been a curiously busy one, and I know they're always busy, but this one has felt particularly packed, and maybe it's because of the wide variety of stuff that we're doing.
+[00:01:23] Adam: Oh yeah, no, no, no, it was great. This has been a really good Comic-Con. It’s been a really good Comic-Con. It’s been a really, this has been a curiously busy one, and I know they're always busy, but this one has felt particularly packed, and maybe it's because of the wide variety of stuff that we're doing.
 
 [00:01:36] Norm: Yeah.
 
@@ -40,9 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:01:49] Adam: At the Children's Museum.
 
-[00:01:50] Norm: Zachary Levi.
-
-[00:01:53] Norm: And fantastic venue.
+[00:01:50] Norm: Zachary Levi. And fantastic venue.
 
 [00:01:54] Adam: Fantastic venue. We walked in. The DJ was playing " Shut Up." Come dance with me, and we were all like ah, and we jump dancing, dancing, totally
 
@@ -172,9 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:06:42] Norm: Yeah.
 
-[00:06:43] Adam: I was already working at Industrial Light Magic when it came out, and I started in '98.
-
-[00:06:47] Adam: I remember because I took Grant and I took Grant Imahara on a day date because we were we were like Matrix buds, and we went to see it for our third time each.
+[00:06:43] Adam: I was already working at Industrial Light Magic when it came out, and I started in '98. I remember because I took Grant and I took Grant Imahara on a day date because we were we were like Matrix buds, and we went to see it for our third time each.
 
 [00:06:55] Danica: Oh.
 
@@ -224,9 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:08:27] Adam: and then I guess you pointed at your watch. It was about one one. Oh yeah, it was about 1:15 when you pointed to your watch, and I went and grabbed Thing Two and his girlfriend, and we all walked back to the hotel. I figured you guys left soon after.
 
-[00:08:27] Norm: Oh yeah.
-
-[00:08:40] Norm: Yeah. Five minutes. Five minutes.
+[00:08:27] Norm: Oh yeah. Yeah. Five minutes. Five minutes.
 
 [00:08:42] Adam: I got my dancing in. So Zach Levy, Zachary Levi. Sorry, I don't. Right.
 
@@ -360,9 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:15:44] Norm: And the last time, actually, Danica, the most recent time Danica was on the podcast, when we couldn't say where we were.
 
-[00:15:44] Adam: Oh,
-
-[00:16:03] Adam: right, that's where we were.
+[00:15:44] Adam: Oh, right, that's where we were.
 
 [00:16:03] Danica: Yeah.
 
@@ -464,9 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:21:44] Danica: this suit is on display right there
 
-[00:21:45] Norm: in the Weta booth.
-
-[00:21:45] Norm: The Ghost of the Shell suit.
+[00:21:45] Norm: in the Weta booth. The Ghost of the Shell suit.
 
 [00:21:45] Danica: The Ghost of the Shell.
 
@@ -584,9 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:25:11] Norm: Beautiful.
 
-[00:25:11] Adam: Yeah. Yeah.
-
-[00:25:13] Adam: The cosplay and the the people, everyone walking around as superheroes and being kind of like drinking cokes and like complaining and moving straps and stuff. It's always the best.
+[00:25:11] Adam: Yeah. Yeah. The cosplay and the the people, everyone walking around as superheroes and being kind of like drinking cokes and like complaining and moving straps and stuff. It's always the best.
 
 [00:25:23] Norm: Mm-hmm. Yeah, I have definitely some some my eyes on some of the toys, on the floor that I want to pick up. Oh yeah. Got to see the the 1:72 scale Millennium Falcon that Bandai is is releasing.
 
@@ -708,9 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:28:42] Adam: And then there are some actual props on display, including a pistol that I had not seen before in any of the research that I've done. It was a there's a hold on, there was a there's the Blade Runner blaster that is well known and that a bunch of people have seen, but you see on the table in that famous shot of Ryan Gosling, Ridley Scott, Harrison Ford, and Denis Villeneuve, but then. There's this thing with the two barrels that harkens deeply to the original blaster. That's kind of an over-under, large Derringer kind of thing. We posted this photo,
 
-[00:28:42] Norm: yeah,
-
-[00:29:21] Norm: that's cool.
+[00:28:42] Norm: yeah, that's cool.
 
 [00:29:22] Adam: And I look at that. I'm like, that's what I gotta make. Look at that. That is. This is. That's a nice, nice piece.
 
@@ -744,17 +726,13 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:30:29] Norm: Yeah.
 
-[00:30:29] Adam: Yeah. I know.
-
-[00:30:51] Adam: I know. I know.
+[00:30:29] Adam: Yeah. I know. I know. I know.
 
 [00:30:51] Norm: And yeah, so Blade Runner's there, and it's like you don't even need a Comic Con badge for a lot of this stuff because it's all just surrounding
 
 [00:30:59] Adam: Yeah.
 
-[00:30:51] Norm: the convention. Like they had Star Trek Discovery had all their costumes and props.
-
-[00:30:51] Norm: Right in the Gaslamp District,
+[00:30:51] Norm: the convention. Like they had Star Trek Discovery had all their costumes and props. Right in the Gaslamp District,
 
 [00:31:04] Adam: Yeah.
 
@@ -764,11 +742,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:31:23] Norm: He said exactly the right thing.
 
-[00:31:23] Adam: Yeah,
-
-[00:31:23] Adam: He knew a way to
-
-[00:31:27] Adam: a girl's heart.
+[00:31:23] Adam: Yeah, He knew a way to a girl's heart.
 
 [00:31:28] Norm: That's amazing.
 
@@ -798,9 +772,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:32:03] Norm: It is Matt Reeves who's directing the new Batman film. He also directed Cloverfield. It's a friend of J. J. Abrams at school, and he did the last movie, Dawn of the Planet of the Apes.
 
-[00:32:03] Adam: Dawn of the Planet of the Apes.
-
-[00:32:13] Adam: So the Planet of the Apes movie are a funny trilogy to me because they're all really solid movies, but they're not like, oh, they're amazing. For some reason, they exist in this space in my head that isn't like, oh, you've got to go see it, but more like, oh yeah, solid, solidly great movie,
+[00:32:03] Adam: Dawn of the Planet of the Apes. So the Planet of the Apes movie are a funny trilogy to me because they're all really solid movies, but they're not like, oh, they're amazing. For some reason, they exist in this space in my head that isn't like, oh, you've got to go see it, but more like, oh yeah, solid, solidly great movie,
 
 [00:32:33] Norm: a movie that I didn't need to exist,
 
@@ -846,11 +818,7 @@ Episode URL: https://www.youtube.com/watch?v=XJ7mV9iVXF8
 
 [00:35:37] Adam: yeah,
 
-[00:35:37] Danica: and you notice it in ways like it's not like this film needs that score, and the fact that it has this very special piece is something that just
-
-[00:35:37] Danica: I don’t know,
-
-[00:35:37] Danica: You start going through it, and you realize how subtle it is, and how beautiful, and like semi-militant, and like this gorgeous, like staccato stuff is happening, and then this muted marimba and these earworm, the da da da da da da, amazing.
+[00:35:37] Danica: and you notice it in ways like it's not like this film needs that score, and the fact that it has this very special piece is something that just I don’t know, You start going through it, and you realize how subtle it is, and how beautiful, and like semi-militant, and like this gorgeous, like staccato stuff is happening, and then this muted marimba and these earworm, the da da da da da da, amazing.
 
 [00:35:37] Adam: Yeah,
 

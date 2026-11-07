@@ -56,9 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:01:47] Norm: Every streak begins with one.
 
-[00:01:48] Simone: Ah,
-
-[00:01:49] Simone: yeah. To live long and prosper, my Comic Con adventure. Hope it continues.
+[00:01:48] Simone: Ah, yeah. To live long and prosper, my Comic Con adventure. Hope it continues.
 
 [00:01:56] Adam: I very much enjoy seeing Comic Con through somebody new's eyes because it's an overwhelming slog. It. Is it is like a freight train, and for me, I'm up from like eight a.m. till two a.m. five days in a row, and I go home and I kind of recover. But when I see it through someone, someone's eyes who hasn't been before, it kind of freshens it up.
 
@@ -72,9 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:03:25] Adam: This is the first year I actually get a little downtime to chill because that was always a little bit of a rough transition.
 
-[00:03:32] Norm: And also, this is the first time that you've left your cave clean before,
-
-[00:03:38] Norm: because it's always a mad scramble. You're in production, and you're also building costumes.
+[00:03:32] Norm: And also, this is the first time that you've left your cave clean before, because it's always a mad scramble. You're in production, and you're also building costumes.
 
 [00:03:42] Adam: Yeah, and there's always like a whole bunch of every other year. There's been a lot of last minute production because MythBusters took up so much time. This year, the bear suit we finished it a week ahead of time.
 
@@ -146,9 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:07:32] Simone: Yeah, she just doesn't have any pocket space.
 
-[00:07:35] Norm: No, no, you— Yes,
-
-[00:07:34] Norm: I love that. This was very. There's no storage in that costume.
+[00:07:35] Norm: No, no, you— Yes, I love that. This was very. There's no storage in that costume.
 
 [00:07:40] Adam: Well, you know, this is what I think whenever I see the naked guy up in the Castro in San Francisco. Is where's your wallet?
 
@@ -156,9 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:07:46] Simone: Oh, don't ask.
 
-[00:07:47] Norm: Have you not seen Pulp Fiction?
-
-[00:07:51] Norm: It's where the watch is. But then there are a lot of cool costumes that were for upcoming movies on display.
+[00:07:47] Norm: Have you not seen Pulp Fiction? It's where the watch is. But then there are a lot of cool costumes that were for upcoming movies on display.
 
 [00:07:56] Adam: Yeah.
 
@@ -406,9 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:22:40] Adam: Yeah,
 
-[00:22:40] Norm: and the Bayfront, and
-
-[00:22:42] Norm: then the Marriott Marquis.
+[00:22:40] Norm: and the Bayfront, and then the Marriott Marquis.
 
 [00:22:43] Adam: Yeah.
 
@@ -416,9 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:22:46] Adam: Well, so I put out Onewheel on. I mean, I jump on the Onewheel, and for instance, last night to get to the IMDb party, I had to be there at 7:30. I left my hotel room at 7:22. And I just whizz through the crowd, and the best part about it is, by the time you see me, I'm gone.
 
-[00:23:02] Norm: Right.
-
-[00:23:02] Norm: It was a dream of Jeff Bezos.
+[00:23:02] Norm: Right. It was a dream of Jeff Bezos.
 
 [00:23:06] Adam: Yeah, it was
 
@@ -450,9 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:24:34] Norm: Pedicabs.
 
-[00:24:35] Simone: Pedicabs.
-
-[00:24:35] Simone: Yes. And and and the guy was like, I was like, do you do you have like, are you okay with this?
+[00:24:35] Simone: Pedicabs. Yes. And and and the guy was like, I was like, do you do you have like, are you okay with this?
 
 [00:24:42] Norm: Because four people.
 
@@ -460,9 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:24:44] Norm: In one.
 
-[00:24:45] Simone: In one, he was one person, but he was a professional MMA fighter. So for one, like he had thighs of steel, and also. He would not show in any way that he was getting tired. Like I could see his neck starting to get really sweaty and him being like grunting, but he's like, " No, I got this. I got this."
-
-[00:25:06] Simone: Yeah, it's just such a yeah. He had the spirit of a fighter.
+[00:24:45] Simone: In one, he was one person, but he was a professional MMA fighter. So for one, like he had thighs of steel, and also. He would not show in any way that he was getting tired. Like I could see his neck starting to get really sweaty and him being like grunting, but he's like, " No, I got this. I got this." Yeah, it's just such a yeah. He had the spirit of a fighter.
 
 [00:25:09] [unclear speaker]: You should have held a bell out in front of him.
 
@@ -552,9 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:31:08] Adam: excellent.
 
-[00:31:08] Simone: Yeah,
-
-[00:31:09] Simone: And look at you, yeah, I’ll keep my distance.
+[00:31:08] Simone: Yeah, And look at you, yeah, I’ll keep my distance.
 
 [00:31:09] Norm: that is a essential part of the tested Comic Con experience. How to find follow Adam without being conspicuous.
 
@@ -612,9 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=Hql4LDNPwUc
 
 [00:33:45] Adam: Thank you, guys.
 
-[00:33:46] Norm: Yeah,
-
-[00:33:46] Norm: All right, we’ll see you next week.
+[00:33:46] Norm: Yeah, All right, we’ll see you next week.
 
 [00:33:46] Simone: thank you.
 

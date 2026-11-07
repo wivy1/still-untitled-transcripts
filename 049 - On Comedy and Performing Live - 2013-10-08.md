@@ -34,9 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=zj_SMQFBLuA
 
 [00:01:18] Norm: dice rollers, and D and D, and just a whole series of these wooden weapons. Everything from like staffs to axes to broadswords.
 
-[00:01:26] Adam: Yeah,
-
-[00:01:27] Adam: and it's just these beautiful products. I really like this. I'm going to go to their website, and I actually, I must say, Geek Chic. I plan to modify this, not because it's not perfect, but just because I like to make all my toys. mine.
+[00:01:26] Adam: Yeah, and it's just these beautiful products. I really like this. I'm going to go to their website, and I actually, I must say, Geek Chic. I plan to modify this, not because it's not perfect, but just because I like to make all my toys. mine.
 
 [00:01:40] Norm: Let's give it a little bit, more.
 
@@ -198,9 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=zj_SMQFBLuA
 
 [00:21:20] Adam: Absolutely.
 
-[00:21:21] Norm: And find their audiences.
-
-[00:21:21] Norm: Even things like Twitter. I think I read recently that Twitter is a great way to make comedians work harder because if you have a gut response to a joke, and you look on Twitter, and 50 other people have that same response to like a current event or something,
+[00:21:21] Norm: And find their audiences. Even things like Twitter. I think I read recently that Twitter is a great way to make comedians work harder because if you have a gut response to a joke, and you look on Twitter, and 50 other people have that same response to like a current event or something,
 
 [00:21:37] Adam: right?
 

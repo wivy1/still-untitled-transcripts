@@ -92,9 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:02:26] Will: you shouldn't be on an airplane. You're a bad person.
 
-[00:02:28] Adam: If you think that flying is a nightmare, fly with a baby, and then everything you've ever complained about is for naught.
-
-[00:02:36] Adam: So I flew with eight-month-old twins alone.
+[00:02:28] Adam: If you think that flying is a nightmare, fly with a baby, and then everything you've ever complained about is for naught. So I flew with eight-month-old twins alone.
 
 [00:02:40] Will: You flew with two babies. That's your mistake.
 
@@ -396,9 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:11:42] Norm: Can you do fancy poutine?
 
-[00:11:43] Adam: You can do fancy poutine. I've had there's a restaurant. So Julia's mode of travel is look up where Anthony Bourdain has filmed segments and go there. We have never gone wrong doing this, and in Montreal there's an amazing restaurant called Pied de Cochon, Feet of the Pig,
-
-[00:11:59] Adam: and we had deep fried foie gras balls.
+[00:11:43] Adam: You can do fancy poutine. I've had there's a restaurant. So Julia's mode of travel is look up where Anthony Bourdain has filmed segments and go there. We have never gone wrong doing this, and in Montreal there's an amazing restaurant called Pied de Cochon, Feet of the Pig, and we had deep fried foie gras balls.
 
 [00:12:06] Will: Oh wow!
 
@@ -434,17 +430,13 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:13:24] Will: It's a chain.
 
-[00:13:25] Norm: Oh, okay. Yeah.
-
-[00:13:26] Norm: Honey baked ham, turkey,
+[00:13:25] Norm: Oh, okay. Yeah. Honey baked ham, turkey,
 
 [00:13:27] Unknown: Lots of it.
 
 [00:13:28] Will: green bean casserole. Is that a staple?
 
-[00:13:30] Norm: No green bean casserole.
-
-[00:13:31] Norm: Oh.
+[00:13:30] Norm: No green bean casserole. Oh.
 
 [00:13:31] Adam: What about the yams with the marshmallow top?
 
@@ -568,9 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:18:04] Will: The whole time. Okay.
 
-[00:18:04] Adam: Yeah.
-
-[00:18:06] Adam: Oh, that's my compressor. Sorry about that.
+[00:18:04] Adam: Yeah. Oh, that's my compressor. Sorry about that.
 
 [00:18:08] Will: It sucks, or blows. I'm not sure.
 
@@ -586,9 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:18:26] Norm: Yeah. On the tour.
 
-[00:18:28] Will: Yeah.
-
-[00:18:29] Will: Like you're sitting there at the table, one of the big tables with the crew, and everybody just gets up and leaves all at the same time.
+[00:18:28] Will: Yeah. Like you're sitting there at the table, one of the big tables with the crew, and everybody just gets up and leaves all at the same time.
 
 [00:18:35] Adam: Shit! Finish up. And then at 9:30, Jamie goes. All right, it's 9:30. I'm gonna go home. We were laughing hysterically. We couldn't believe it. It was literally like get the fuck out.
 
@@ -648,9 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:20:28] Will: You have any more?
 
-[00:20:29] Adam: [unclear: We don’t have more / Where’s Jamie?]
-
-[00:20:30] Adam: I went to Jamie's dressing room. Well, dude, we got to go back out, and he's like, " Why? Like they're clapping." Yep, we got to do a curtain call. What's a curtain call, dude? Follow me. We go back out. We walk out. Whoa! They go crazy. We bow. We say good night, and then it dies down.
+[00:20:29] Adam: [unclear: We don’t have more / Where’s Jamie?] I went to Jamie's dressing room. Well, dude, we got to go back out, and he's like, " Why? Like they're clapping." Yep, we got to do a curtain call. What's a curtain call, dude? Follow me. We go back out. We walk out. Whoa! They go crazy. We bow. We say good night, and then it dies down.
 
 [00:20:46] Will: All from the second cup of coffee.
 
@@ -712,11 +698,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:22:38] Will: Yes. Yes.
 
-[00:22:39] Adam: So if you want to say hi.
-
-[00:22:40] Adam: yes, at the Nokia, we're performing at the Nokia Theater in LA on December 17th, which is my dad's birthday.
-
-[00:22:47] Adam: My deceased dad.
+[00:22:39] Adam: So if you want to say hi. yes, at the Nokia, we're performing at the Nokia Theater in LA on December 17th, which is my dad's birthday. My deceased dad.
 
 [00:22:48] Will: It's still your dad's birthday. Yeah, it's still your dad's birthday.
 
@@ -744,9 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=JzQnMXry1n4
 
 [00:23:37] Adam: and then we concocted a ruse with my boys, whereby the season finale was coming up. We were all excited to watch it at home. Nobody made any plans, and then I got a phone call. And in front of the boys at dinner, and I'm like, " What? Okay, I get. All right, I guess I can. All right, yeah, I can make that work." Hung up, and they're like, " What?" I'm like, " I've got to go on a business trip to L.A." And they're like, " When?" I'm like, " Tomorrow." And they're like, " No, no, no, the series finale." And they're like, " Yeah." Julie's like, " Well, we could all go. We could all go, and then we could watch it after your meeting." I'm like, " Okay, yeah, that's it." So we go, and we stayed at the Biltmore, which is downtown, around the corner, and we're like, one of the we even concocted getting mad about at one of them for having really worn out shoes. So like, fine, we'll go out and buy some shoes. So we're like walking out of the Biltmore at like 3 p.m. and we're da da da da da, and we get, we’re walking past the Nokia, and thing two goes, " Dad, what is the big? Oh my gosh, Dad, that's where the American Idol season finale is happening." And I he turns around to me, and I go. Wouldn't it be awesome if we had four tickets and I held them in my hand?
 
-[00:24:51] Will: Wow!
-
-[00:24:53] Will: Did they just drop?
+[00:24:51] Will: Wow! Did they just drop?
 
 [00:24:54] Adam: Their heads exploded. It was under. They were like, "Wow,"
 

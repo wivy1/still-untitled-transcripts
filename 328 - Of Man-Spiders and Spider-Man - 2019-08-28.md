@@ -38,9 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:00:52] Norm: That's right.
 
-[00:00:52] Adam: Yeah.
-
-[00:00:54] Adam: I met Arnold Schwarzenegger there.
+[00:00:52] Adam: Yeah. I met Arnold Schwarzenegger there.
 
 [00:00:54] Will: Really?
 
@@ -116,9 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:03:53] Will: You'd been working. You got the coat. It was a while ago.
 
-[00:03:53] Adam: Yeah, like maybe two
-
-[00:03:56] Adam: or three years ago or something. Even maybe even more.
+[00:03:53] Adam: Yeah, like maybe two or three years ago or something. Even maybe even more.
 
 [00:03:56] Will: Yeah,
 
@@ -150,23 +146,17 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:05:25] Adam: And I burned it onto a cassette, and I bought a Walkman, and I gave it to her and Said, " This is a time machine.
 
-[00:05:25] Will: Recorded it on a cassette.
-
-[00:05:44] Will: That's really cool,
+[00:05:25] Will: Recorded it on a cassette. That's really cool,
 
 [00:05:45] Adam: but yeah, Walkman running original Walkman. Yeah, they were they weren't $400, but they're about $100.
 
-[00:05:45] Will: Okay,
-
-[00:05:53] Will: it was fantastic. I thought your dance was really good.
+[00:05:45] Will: Okay, it was fantastic. I thought your dance was really good.
 
 [00:05:55] Adam: I didn't actually watch the video, and I was like, I really should have committed more to that dancing.
 
 [00:06:00] Norm: Well, in the moment, it's like with every cosplay, you feel, and also maybe it's appropriate for Star Lord. You feel more awesome than you actually.
 
-[00:06:09] Adam: No, no, I should have committed more.
-
-[00:06:11] Adam: I wanted to, I wanted to go. Farther, I wanted more dancing. I should have done a couple of twirls. That's all I'm thinking.
+[00:06:09] Adam: No, no, I should have committed more. I wanted to, I wanted to go. Farther, I wanted more dancing. I should have done a couple of twirls. That's all I'm thinking.
 
 [00:06:16] Will: To play Star Lord, you need a certain level of of complete
 
@@ -280,9 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:08:24] Norm: Oh, man. I think we bought a T-shirt from him. There was a tested fan who she paints animals in cosplay, so like corgis and owls.
 
-[00:08:24] Will: Oh,
-
-[00:08:35] Will: that's so good!
+[00:08:24] Will: Oh, that's so good!
 
 [00:08:35] Unknown speaker: And other stuff.
 
@@ -306,9 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:09:25] Norm: And we ran into last year, Mike and Shelly, this couple who cosplay together. They did a Totoro that you repaired last year, and she was Darkseid, and this year they unveiled a man spider, so not Spider Man, but a man spider.
 
-[00:09:25] Will: Oh, I saw a picture of that.
-
-[00:09:39] Will: Yeah,
+[00:09:25] Will: Oh, I saw a picture of that. Yeah,
 
 [00:09:40] Norm: where it's you know Peter Parker turning into a giant spider with you know with big spider claws with PVC pipe, and it turns out that the fur of the man spider is repurposed Totoro.
 
@@ -324,9 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:10:13] Will: I'm just
 
-[00:10:13] Norm: I'm just
-
-[00:10:13] Norm: It looked gorgeous.
+[00:10:13] Norm: I'm just It looked gorgeous.
 
 [00:10:14] Will: really disconcerted by the idea of somebody using a skin Totoro to make a Cronenberg Spider Man.
 
@@ -362,9 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:10:47] Will: Yeah, talk about it in the future.
 
-[00:10:48] Adam: Oh yeah.
-
-[00:10:48] Adam: that this is Olivia Wilde's film, a coming of age two teenage girls.
+[00:10:48] Adam: Oh yeah. that this is Olivia Wilde's film, a coming of age two teenage girls.
 
 [00:10:53] Will: Yeah,
 
@@ -478,9 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:14:06] Will: We did, we did. I was in the.
 
-[00:14:08] Norm: It was all the like people who wanted to be DJs. We all had those friends.
-
-[00:14:12] Norm: We all did friends.
+[00:14:08] Norm: It was all the like people who wanted to be DJs. We all had those friends. We all did friends.
 
 [00:14:13] Will: I was AV club.
 
@@ -538,9 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:15:51] Norm: Yeah, the whole movie,
 
-[00:15:52] Will: and and then yeah,
-
-[00:15:53] Will: the whole movie, yeah,
+[00:15:52] Will: and and then yeah, the whole movie, yeah,
 
 [00:15:53] Norm: and the big twist in Homecoming, which we were, it's too late. We can spoil it with Michael Keaton being the father. That's what the the best idea ever. The feeling that the you know projecting the feeling that a young boy has to ask to meet the father of his date, that feeling also meant. Combining with being the arch villain,
 
@@ -562,9 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:18:03] Will: So, so do we want to talk about spoilers?
 
-[00:18:04] Norm: Yeah, let's go right in.
-
-[00:18:06] Norm: There are many spoilers to talk about.
+[00:18:04] Norm: Yeah, let's go right in. There are many spoilers to talk about.
 
 [00:18:10] Adam: The, the, so I want to talk about the first spoiler.
 
@@ -680,9 +656,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:24:12] Norm: Yes,
 
-[00:24:12] Will: yeah, is my one of my favorite.
-
-[00:24:12] Will: Like, like we've seen a lot of those kind of dream sequence fighty things.
+[00:24:12] Will: yeah, is my one of my favorite. Like, like we've seen a lot of those kind of dream sequence fighty things.
 
 [00:24:12] Norm: Right, right, yeah.
 
@@ -718,15 +692,11 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:25:24] Will: yeah
 
-[00:25:24] Norm: yeah
-
-[00:25:26] Norm: what I also like was that you know with the mysterious reveal right one of the best parts about the the comics whenever comics try to make like a superhero real they just add more support cast right? No, Iron Man the realistic version of Iron Man has like a team of 100 technicians that helps him put him on and this is what they did for the villain a realistic version of how a villain works well he has a whole support team that he directs he's a director and they I love that him going back to the the the the steaming of the cape right that the vanity of that that that bit was so funny
+[00:25:24] Norm: yeah what I also like was that you know with the mysterious reveal right one of the best parts about the the comics whenever comics try to make like a superhero real they just add more support cast right? No, Iron Man the realistic version of Iron Man has like a team of 100 technicians that helps him put him on and this is what they did for the villain a realistic version of how a villain works well he has a whole support team that he directs he's a director and they I love that him going back to the the the the steaming of the cape right that the vanity of that that that bit was so funny
 
 [00:25:56] Will: well that and the whole idea of his his actual supervillain costume being a 3D motion capture suit
 
-[00:25:56] Norm: yeah
-
-[00:25:56] Norm: what's wrong with my hand?
+[00:25:56] Norm: yeah what's wrong with my hand?
 
 [00:26:04] Adam: yeah very very um and so to tie up this coming of age discussion I forgot so this is a slightly tangential but it's germane yesterday I drove thing two to the airport to go to college.
 
@@ -736,9 +706,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:26:22] Will: that's a big day.
 
-[00:26:24] Adam: Yeah,
-
-[00:26:25] Adam: the nest is empty. I went downstairs and fumigated their entire floor.
+[00:26:24] Adam: Yeah, the nest is empty. I went downstairs and fumigated their entire floor.
 
 [00:26:29] Will: Oh no! Time to turn into a sewing room.
 
@@ -748,15 +716,11 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:26:39] Norm: Wow! Did you have to put on some some black light?
 
-[00:26:43] Adam: No, no, it wasn't that bad. But driving back from the airport, so I like did I did a double duty. I put the dogs in the car so I could take them to the dog park on my way back from the airport, and like I drop him off, give him a big hug. He's a big, strapping young lad. He's like two inches taller than me, and give him this big hug and put him on the plane. And I'm driving back, and like Guardians is on, and I'm. How can I try to explain?
-
-[00:27:06] Adam: Yeah, totally. I might have I might have gotten a little weepy.
+[00:26:43] Adam: No, no, it wasn't that bad. But driving back from the airport, so I like did I did a double duty. I put the dogs in the car so I could take them to the dog park on my way back from the airport, and like I drop him off, give him a big hug. He's a big, strapping young lad. He's like two inches taller than me, and give him this big hug and put him on the plane. And I'm driving back, and like Guardians is on, and I'm. How can I try to explain? Yeah, totally. I might have I might have gotten a little weepy.
 
 [00:27:09] Will: I I love so we'll talk. I guess we'll talk about the Sony MCU stuff in a minute, maybe or not. But the thing that I'm most bummed about with that is that. Potentially, we lose Happy Hogan in the Spider Verse.
 
-[00:27:22] Adam: That would kill me. That would kill me
-
-[00:27:23] Adam: if we lost Happy and Aunt May because I love that pairing.
+[00:27:22] Adam: That would kill me. That would kill me if we lost Happy and Aunt May because I love that pairing.
 
 [00:27:26] Will: Well, Aunt May, we we get
 
@@ -854,9 +818,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:31:29] Will: Oh, cool he was.
 
-[00:31:29] Norm: No,
-
-[00:31:31] Norm: I never saw Spider Man.
+[00:31:29] Norm: No, I never saw Spider Man.
 
 [00:31:31] Adam: Was that the one where he's like, no, he's doing that thing?
 
@@ -966,9 +928,7 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:35:43] Will: It's really probably.
 
-[00:35:44] Adam: I don’t know how. I don't know what that'll do for me in any other circumstance.
-
-[00:35:47] Adam: I'm useless in an apocalypse with that skill, but
+[00:35:44] Adam: I don’t know how. I don't know what that'll do for me in any other circumstance. I'm useless in an apocalypse with that skill, but
 
 [00:35:51] Will: it's a real. Yeah, that's a real. That's a real niche market there, Adam. Congratulations.
 
@@ -994,17 +954,13 @@ Episode URL: https://www.youtube.com/watch?v=Hq9K0El8xas
 
 [00:36:57] Will: and just doing the kind of like the the the kind of the grunt work, like the small brushing and the Taking stuff off and putting it back on, and all that, and a lot of more ones that that had been at that time were had repaired those. What was it? A B-19, B-25. I can't remember. Anyway, World War Two era bombers because they served and were the mechanics for World War Two era bombers. It was so cool. So cool.
 
-[00:37:35] Adam: The first time I saw the flying fortress and I saw the beautiful clear plastic gunner's ball on the underside. I saw one of those up close and I was like, " Oh my god! I understand another 30% of George Lucas's aesthetic."
-
-[00:37:49] Adam: How did they make so many Star Wars ships exemplified by that one ball?
+[00:37:35] Adam: The first time I saw the flying fortress and I saw the beautiful clear plastic gunner's ball on the underside. I saw one of those up close and I was like, " Oh my god! I understand another 30% of George Lucas's aesthetic." How did they make so many Star Wars ships exemplified by that one ball?
 
 [00:37:54] Will: Yeah. How did they make those domes in 1940?
 
 [00:37:56] Adam: That is a good question, and I think they're actually polycarbonate, and I'm not sure. I've never researched it, which is dumb of me.
 
-[00:37:56] Will: Well, because that's researchable.
-
-[00:38:04] Will: Isn't the polycar? They had to be polycarbonate because that's how contact lenses were invented. This may be an apocryphal story, but the thing I always heard was a flyer had a shard of plastic in his eye,
+[00:37:56] Will: Well, because that's researchable. Isn't the polycar? They had to be polycarbonate because that's how contact lenses were invented. This may be an apocryphal story, but the thing I always heard was a flyer had a shard of plastic in his eye,
 
 [00:38:04] Adam: And it didn’t harm him?
 

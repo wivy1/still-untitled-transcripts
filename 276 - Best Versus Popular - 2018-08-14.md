@@ -20,19 +20,13 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:00:23] Adam: Also, you know, along with Stewart Brand, like one of the Forrest Gumps of the internet.
 
-[00:00:29] Will: You need to explain that.
+[00:00:29] Will: You need to explain that. more.
 
-[00:00:31] Will: more.
-
-[00:00:31] Adam: I just feel like whenever you talk to Kevin, he was present at the beginning of so many important things. And even if he wasn't present, he was tangential and and part of the. You know, it's just like he shows up in all of these different.
-
-[00:00:31] Adam: worlds.
+[00:00:31] Adam: I just feel like whenever you talk to Kevin, he was present at the beginning of so many important things. And even if he wasn't present, he was tangential and and part of the. You know, it's just like he shows up in all of these different. worlds.
 
 [00:00:45] Norm: He was in the room where it happened.
 
-[00:00:46] Adam: Yeah, he was in the room where
-
-[00:00:46] Adam: it happened.
+[00:00:46] Adam: Yeah, he was in the room where it happened.
 
 [00:00:47] Norm: And of all the people we know, and We spent a lot of time with people we know thinking about the future. He's been thinking about quote unquote what the future is for a very, very long time. He's still doing
 
@@ -50,11 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:01:21] Adam: Just Wired magazines. Adam Rogers. Yes, I love him because I love getting him cranky and hearing him rant about stuff. I find it very enjoyable.
 
-[00:01:28] Will: Yeah,
-
-[00:01:28] Will: it
-
-[00:01:28] Will: usually doesn't take that much work.
+[00:01:28] Will: Yeah, it usually doesn't take that much work.
 
 [00:01:29] Adam: No, it doesn't. And I said, hey, I know that print is dying, but what if you had like a subscription model where you could kind of order the subjects that you want articles on, and would be delivered to you in a paper copy? And he went, yeah, I get what you're saying, but fuck you.
 
@@ -62,9 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:01:49] Adam: Exactly. Like as a magazine guy, I want to be part of the team that puts the thing together and sends it to you, not the curated. Not you don't curate it every week. That's not the point.
 
-[00:01:49] Norm: Yeah, no,
-
-[00:01:59] Norm: his job is curation.
+[00:01:49] Norm: Yeah, no, his job is curation.
 
 [00:02:00] Will: Yeah, it's it's funny because there was a there was a big conversation about fact checking a few weeks ago happening on the internet because of. I think stuff related to Elon Musk, but I can't remember. And one of the things that came out of that was Erin Biba was writing about was posted on Twitter about how you know if you work at if you see something in a magazine and it's a magazine that has an actual fact checking department because it's a month long process and because those fact or sometimes multi month process, you know if you've ever written anything for Wired, you know what it's like to get a call from their fact checking desk.
 
@@ -94,9 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:03:26] Adam: The number of the the number basically every article I read today is missing critical words in the middle of sentences because someone's dictation software. And by the way, I feel like almost everyone writing on the web is using dictation software at this point.
 
-[00:03:39] Will: No,
-
-[00:03:39] Will: They're just using the predictive keyboards and they're bad.
+[00:03:39] Will: No, They're just using the predictive keyboards and they're bad.
 
 [00:03:42] Adam: Yeah, yeah. At any rate, wait. What does all this was by way of saying? Your thing about using the three intros reminded me of a suggestion that Kevin had. He's a big fan of Tested,
 
@@ -164,9 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:07:12] Adam: I also had another visit a couple days before Kevin, our friend of Tested and spacesuit maker extraordinaire. In fact, some of his handiwork is behind us right now. Ryan Nagata came by.
 
-[00:07:12] Norm: Oh,
-
-[00:07:12] Norm: I love Ryan.
+[00:07:12] Norm: Oh, I love Ryan.
 
 [00:07:12] Adam: He was here for Space Fest, space convention up in Santa Rosa, and brought by some toys to show me. Yeah, some stuff I that we'll maybe cover on Tested soon. I don't want to necessarily talk about it, but basically it was like two and a half hours of him and I pulling stuff off the shelves and geeking out and talking about things we'd learned recently. And
 
@@ -228,11 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:08:46] Norm: No, Gary.
 
-[00:08:46] Will: Oh, Gary.
-
-[00:08:48] Will: Okay. Yeah, I, I, I was very excited. I'm, I'm, I. There's so many different ways you could go with that Patrick Stewart thing. Like it could be like an inner light kind of Patrick Stewart. It could be.
-
-[00:08:48] Will: I don't know.
+[00:08:46] Will: Oh, Gary. Okay. Yeah, I, I, I was very excited. I'm, I'm, I. There's so many different ways you could go with that Patrick Stewart thing. Like it could be like an inner light kind of Patrick Stewart. It could be. I don't know.
 
 [00:09:02] Norm: I don't think. I mean, and certainly many people listening to this podcast are of our generation who maybe watched Next Generation or Star Trek back in the early '90s. But a lot of millennials or younger folk don't realize how how big of a cultural phenomenon just watched Star Trek was.
 
@@ -248,9 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:09:54] Norm: Exactly, you recorded it, so you'd in syndication 178 episodes. You watch, and if you missed a night, you have to wait till the next cycle of syndication to watch that episode.
 
-[00:10:03] Will: I just.
-
-[00:10:03] Will: I remember " Best of Both Worlds," the first part of the of the Locutus two parter, and like that aired in May, I think. And then we had to wait all summer.
+[00:10:03] Will: I just. I remember " Best of Both Worlds," the first part of the of the Locutus two parter, and like that aired in May, I think. And then we had to wait all summer.
 
 [00:10:12] Norm: Wow! Yeah,
 
@@ -266,9 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:10:27] Adam: you would go back and
 
-[00:10:33] Will: Now you go back
-
-[00:10:34] Will: and watch the last season again, right? Yeah. But then
+[00:10:33] Will: Now you go back and watch the last season again, right? Yeah. But then
 
 [00:10:38] Adam: you couldn't do that.
 
@@ -280,9 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:10:57] Adam: I had never watched, and.
 
-[00:10:57] Norm: It's so great.
-
-[00:10:59] Norm: Are you are you in the middle of the first season?
+[00:10:57] Norm: It's so great. Are you are you in the middle of the first season?
 
 [00:11:01] Adam: Yeah, I'm on episode five.
 
@@ -298,9 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:11:45] Will: Well, and and the FBI agent across the street Noah yeah is is
 
-[00:11:45] Norm: yeah the sort of
-
-[00:11:49] Norm: best friend from Truman Show
+[00:11:45] Norm: yeah the sort of best friend from Truman Show
 
 [00:11:50] Will: yeah
 
@@ -332,9 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:12:27] Norm: Yeah, yes, and it's tense. It's in in the same way that Breaking Bad. It's tense throughout because it's a how how how is he going to get himself out of this mess? That show is very much a how are these this family? How is this couple going to get themselves out of this mess in this episode?
 
-[00:12:41] Adam: My wife has a theory about the about the deaths in the show. She said, " I think that." She said, " I think that I think they're going to follow this dictum that they're not going to kill anyone we know." Like that, the audience could change. I could change certainly, but up till now, everyone they've killed has been a one off. Like they've shown up to be killed, and then
-
-[00:12:41] Adam: they've been killed, and then
+[00:12:41] Adam: My wife has a theory about the about the deaths in the show. She said, " I think that." She said, " I think that I think they're going to follow this dictum that they're not going to kill anyone we know." Like that, the audience could change. I could change certainly, but up till now, everyone they've killed has been a one off. Like they've shown up to be killed, and then they've been killed, and then
 
 [00:12:41] Will: spoiler alert:
 
@@ -348,17 +318,11 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:13:15] Adam: No.
 
-[00:13:15] Norm: It opens an episode. It's a montage. Oh, no,
+[00:13:15] Norm: It opens an episode. It's a montage. Oh, no, I’m not saying that.
 
-[00:13:15] Norm: I’m not saying that.
+[00:13:19] Adam: no. I got to the weird sex with the guy who liked to beat Keri Russell. That was super intense.
 
-[00:13:19] Adam: no. I got to the weird
-
-[00:13:20] Adam: sex with the guy who liked to beat Keri Russell. That was super intense.
-
-[00:13:24] Will: There's a lot of there's there's a discomfort
-
-[00:13:26] Will: uncomfortable off camera noises.
+[00:13:24] Will: There's a lot of there's there's a discomfort uncomfortable off camera noises.
 
 [00:13:29] Norm: It turns out being a spy not so glamorous.
 
@@ -378,15 +342,11 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:13:54] Adam: Right. Exactly.
 
-[00:13:54] Norm: It seems really bad
-
-[00:13:54] Norm: Speaking of spy stuff. I know you guys haven't watched it here. I'm going to give the recommendation again for Mission Impossible, the new one. Oh, yeah,
+[00:13:54] Norm: It seems really bad Speaking of spy stuff. I know you guys haven't watched it here. I'm going to give the recommendation again for Mission Impossible, the new one. Oh, yeah,
 
 [00:14:01] Adam: yeah. I'm totally psyched to see it. I just
 
-[00:14:03] Norm: if you can find the time.
-
-[00:14:05] Norm: Henry Cavill is in it. Tom Cruise does amazing stunts.
+[00:14:03] Norm: if you can find the time. Henry Cavill is in it. Tom Cruise does amazing stunts.
 
 [00:14:08] Adam: You know, there's sorry to interrupt, but there's a point in the trailer where Henry Cavill puts his dukes up.
 
@@ -440,11 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:15:02] Unknown speaker: What a glorious thing.
 
-[00:15:02] Norm: Oh my god!
-
-[00:15:02] Norm: It's lovely.
-
-[00:15:02] Norm: About the breaking down of every single scene, about how he directed, how he as a filmmaker and a writer. Because he did, he won an Academy Award for Usual Suspects.
+[00:15:02] Norm: Oh my god! It's lovely. About the breaking down of every single scene, about how he directed, how he as a filmmaker and a writer. Because he did, he won an Academy Award for Usual Suspects.
 
 [00:15:36] Will: He was the DP, right?
 
@@ -496,9 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:17:21] Adam: and slow and plotting and that's incredible. I'm dying to see it. I was just looking at my clock at my phone to see like, oh, maybe there's maybe it's at Alamo and I can go see it this afternoon.
 
-[00:17:21] Norm: Ooh.
-
-[00:17:32] Norm: I would put that movie up in contention for the upcoming Oscars because the big news this week is, of course, the Oscars has announced a new category. Very nebulous in how they're going to actually qualify this category, but is achievement in popular film.
+[00:17:21] Norm: Ooh. I would put that movie up in contention for the upcoming Oscars because the big news this week is, of course, the Oscars has announced a new category. Very nebulous in how they're going to actually qualify this category, but is achievement in popular film.
 
 [00:19:00] Will: This is dumb, right? I had to get it out up front. It's a dumb idea.
 
@@ -524,9 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:19:59] Will: And they've been over the what 80 years that they've been doing this. Sometimes they get it really right, but more often than not, when you look, if you look back at the movies from the '50s and '60s, they messed up more often than not. Back then, for sure,
 
-[00:20:12] Adam: Yeah,
-
-[00:20:12] Adam: movies that didn't even get considered.
+[00:20:12] Adam: Yeah, movies that didn't even get considered.
 
 [00:20:14] Will: Yeah, yeah, movies movies that we look at now are like what
 
@@ -578,11 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:21:59] Norm: Then you're saying well received film, right? Like what what is that?
 
-[00:22:03] Will: Yeah, is it
-
-[00:22:03] Will: tomato meter?
-
-[00:22:03] Will: Do we mean it the tomato meter? I is like is the Last Jedi a popular film? It made $1 billion. Seems a little divisive.
+[00:22:03] Will: Yeah, is it tomato meter? Do we mean it the tomato meter? I is like is the Last Jedi a popular film? It made $1 billion. Seems a little divisive.
 
 [00:22:13] Norm: But I was just also
 
@@ -590,11 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:22:14] Adam: here that they were never going to ask James Franco to host it again. That would make me feel like they're on the right track.
 
-[00:22:20] Will: Yeah, okay.
-
-[00:22:20] Will: I think Crystal's available.
-
-[00:22:20] Will: I like Fallon. Fallon was okay.
+[00:22:20] Will: Yeah, okay. I think Crystal's available. I like Fallon. Fallon was okay.
 
 [00:22:26] Adam: Who was the last person I thought was really great at hosting the Oscars?
 
@@ -606,9 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:22:33] Will: they did the Golden Globes.
 
-[00:22:34] Adam: They did the Golden Globes. They did better. That was amazing.
-
-[00:22:34] Adam: Did he do
+[00:22:34] Adam: They did the Golden Globes. They did better. That was amazing. Did he do
 
 [00:22:37] Will: it more than once? He done. He did. He did something. He does the Tonys.
 
@@ -620,9 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:22:46] Adam: Except that I think that the one thing Oscars don't need more of is song and dance numbers.
 
-[00:22:53] Will: I don’t know.
-
-[00:22:53] Will: This is this is why you are not in charge of programming the Oscars, Adam.
+[00:22:53] Will: I don’t know. This is this is why you are not in charge of programming the Oscars, Adam.
 
 [00:22:57] Norm: It loves being in the '20s. I forever stuck in the '20s.
 
@@ -664,9 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:24:22] Adam: They're not even planning to do it for this year, are they?
 
-[00:24:24] Will: No,
-
-[00:24:24] Will: It's 2020. Yeah,
+[00:24:24] Will: No, It's 2020. Yeah,
 
 [00:24:25] Adam: that's what. Yeah,
 
@@ -690,11 +628,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:24:38] Norm: Yeah. Yeah.
 
-[00:24:40] Will: Best popular film.
-
-[00:24:42] Will: Best kiss. Maybe the
-
-[00:24:43] Will: Bruce Banner.
+[00:24:40] Will: Best popular film. Best kiss. Maybe the Bruce Banner.
 
 [00:24:44] Norm: The Oscar itself should be holding some popcorn.
 
@@ -728,9 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:26:08] Will: they shut it all down? You think they just cheated, like like went out with small handhelds?
 
-[00:26:12] Adam: I think
-
-[00:26:12] Adam: they. I don't know.
+[00:26:12] Adam: I think they. I don't know.
 
 [00:26:14] Norm: A lot of second unit.
 
@@ -746,9 +678,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:26:16] Norm: I am the I am the hero of these eight blocks.
 
-[00:26:21] Will: Okay,
-
-[00:26:21] Will: so Norm.
+[00:26:21] Will: Okay, so Norm.
 
 [00:26:23] Norm: So the exercise I want to go through is let's go through the past, like say five years.
 
@@ -756,9 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:26:23] Norm: and I am going to give you five options for each year. These are movies that made a lot of money, which is by one metric a way you be considered the top of
 
-[00:26:23] Adam: your list.
-
-[00:26:32] Adam: Let's see how how obvious this becomes.
+[00:26:23] Adam: your list. Let's see how how obvious this becomes.
 
 [00:26:32] Norm: Yeah, exactly.
 
@@ -808,9 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:27:48] Will: Ragnarok is perfect all the way through. I've watched Ragnarok probably 10 times now. Like Netflix has become the Thor Ragnarok channel in my house, and is it is it is
 
-[00:27:57] Norm: And
-
-[00:27:57] Norm: unquestionably a popular film and one that would not get recognized in a typical best picture.
+[00:27:57] Norm: And unquestionably a popular film and one that would not get recognized in a typical best picture.
 
 [00:28:04] Will: It's probably the lowest box office of all these movies, isn't it?
 
@@ -888,9 +814,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:30:17] Will: awards.
 
-[00:30:17] Adam: Okay, so we got to
-
-[00:30:18] Adam: get our terms right here.
+[00:30:17] Adam: Okay, so we got to get our terms right here.
 
 [00:30:19] Norm: This is the year. This is the Moonlight year.
 
@@ -958,9 +882,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:31:32] Adam: I'm a cranky old man when I watch Deadpool. I don't get this humor. These kids.
 
-[00:31:37] Norm: So maybe this is the Star Wars movie year.
-
-[00:31:39] Norm: All right.
+[00:31:37] Norm: So maybe this is the Star Wars movie year. All right.
 
 [00:31:40] Will: I I real I I still I really think Zootopia is the is the best film that Disney Disney Animation Studios put out.
 
@@ -976,9 +898,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:31:58] Norm: [unclear: yeah / the thoughts, yeah]
 
-[00:32:02] Adam: it's perfect.
-
-[00:32:02] Adam: An amazing shift.
+[00:32:02] Adam: it's perfect. An amazing shift.
 
 [00:32:04] Norm: Yes, well,
 
@@ -986,9 +906,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:32:10] Norm: especially animated.
 
-[00:32:10] Adam: That's astounding.
-
-[00:32:10] Adam: Right,
+[00:32:10] Adam: That's astounding. Right,
 
 [00:32:11] Norm: exactly. You can do it.
 
@@ -1012,9 +930,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:32:24] Adam: Did Finding Dory beat it?
 
-[00:32:25] Will: I don't think Finding Dory must have beat it.
-
-[00:32:27] Will: No, Finding Dory. Finding Dory. I love Finding Dory. I enjoyed it a lot.
+[00:32:25] Will: I don't think Finding Dory must have beat it. No, Finding Dory. Finding Dory. I love Finding Dory. I enjoyed it a lot.
 
 [00:32:31] Adam: Did you guys like listening to us not know a fact that you know?
 
@@ -1122,11 +1038,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:35:31] Adam: [unclear: I was / So] best comedy.
 
-[00:35:31] Norm: I know we're going to be
-
-[00:35:31] Norm: best comedy musical
-
-[00:35:31] Norm: or musical.
+[00:35:31] Norm: I know we're going to be best comedy musical or musical.
 
 [00:35:44] Will: I mean, if they have some musical numbers, The Martian
 
@@ -1188,9 +1100,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:36:40] Norm: definitely not a popular film.
 
-[00:36:42] Adam: Already
-
-[00:36:42] Adam: Four years ago,
+[00:36:42] Adam: Already Four years ago,
 
 [00:36:43] Norm: yeah. And now this is the year where I think it's going to be easy for us to pick. You got Hunger Games, yeah. The the last one, Mockingjay. You got Guardians of the Galaxy,
 
@@ -1214,13 +1124,9 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:37:11] Norm: I can't. I can't do it.
 
-[00:37:11] Adam: Okay, wait. What was the?
+[00:37:11] Adam: Okay, wait. What was the? Read that list one more time.
 
-[00:37:11] Adam: Read that list one more time.
-
-[00:37:11] Norm: Okay.
-
-[00:37:14] Norm: Hunger Games.
+[00:37:11] Norm: Okay. Hunger Games.
 
 [00:37:15] Adam: Yeah.
 
@@ -1242,9 +1148,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:37:50] Will: Guardians One's way better than Guardians Two.
 
-[00:37:53] Adam: Oh no,
-
-[00:37:53] Adam: I love Guardians Two. I've actually watched. I've watched that like four times already.
+[00:37:53] Adam: Oh no, I love Guardians Two. I've actually watched. I've watched that like four times already.
 
 [00:37:56] Will: So okay, here's the thing about Winter Soldier. Yeah. Every scene in Winter Soldier, I'm going to describe a scene. You're going to say, " Oh man, that is my favorite scene in the movie."
 
@@ -1256,9 +1160,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:37:56] Will: yeah. That's the best scene.
 
-[00:37:56] Adam: No, I'm right there with you. Look, I,
-
-[00:38:09] Adam: This is a movie I've watched. It's one of my regular, like I just need to go to my happy place. Let me watch Winter Soldier.
+[00:37:56] Adam: No, I'm right there with you. Look, I, This is a movie I've watched. It's one of my regular, like I just need to go to my happy place. Let me watch Winter Soldier.
 
 [00:38:14] Will: Right when Natasha, when they're riding the escalator and Cap's ready to fight, she's like, " No, watch this!" And she's like, " Look, people, just people look away from public." That's a great scene. It's a million great character scenes, and it makes Cap and Black Widow characters that we care about and love.
 
@@ -1296,17 +1198,13 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:39:05] Will: Norm, this was an exercise.
 
-[00:39:05] Norm: Totally, was that
-
-[00:39:10] Norm: if we had problems coming up with our favorite? And the discussion is fun.
+[00:39:05] Norm: Totally, was that if we had problems coming up with our favorite? And the discussion is fun.
 
 [00:39:13] Adam: I feel like I'm a prop in your philosophy here.
 
 [00:39:15] Will: Like with Norm has the little Adam Will dolls.
 
-[00:39:18] Norm: This is truly the Adam Will project. What? What's the debate we had?
-
-[00:39:23] Norm: The debate we had is fun. I think that's what the Oscar, the Academy wants for the Oscars. They want that type of engagement where the people care about the films intensely. We'll debate them because most of the American public aren't going to care about debating between La La Land and Moonlight, right? They want a debate about Winter Soldier and Guardians of the Galaxy.
+[00:39:18] Norm: This is truly the Adam Will project. What? What's the debate we had? The debate we had is fun. I think that's what the Oscar, the Academy wants for the Oscars. They want that type of engagement where the people care about the films intensely. We'll debate them because most of the American public aren't going to care about debating between La La Land and Moonlight, right? They want a debate about Winter Soldier and Guardians of the Galaxy.
 
 [00:39:47] Adam: Ah, interesting.
 
@@ -1338,9 +1236,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:41:29] Norm: There you go. That's a perfect.
 
-[00:41:31] Adam: It's totally a great place to finish this.
-
-[00:41:34] Adam: See y'all next week.
+[00:41:31] Adam: It's totally a great place to finish this. See y'all next week.
 
 [00:41:34] Will: Anything on the site this week, Norm?
 
@@ -1352,9 +1248,7 @@ Episode URL: https://www.youtube.com/watch?v=7cdJiiazmys
 
 [00:41:44] Will: You did that like six years ago. Now I was still here when you shot those videos. It seems like.
 
-[00:41:48] Norm: And this is going out. But the previous week, we also released Adam painting his contribution to the Magic Wheelchair Project for Comic Con this this year, which is this. He did a.
-
-[00:41:48] Norm: You did an astromech.
+[00:41:48] Norm: And this is going out. But the previous week, we also released Adam painting his contribution to the Magic Wheelchair Project for Comic Con this this year, which is this. He did a. You did an astromech.
 
 [00:42:00] Adam: Yes. R2
 

@@ -68,9 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=gPE-cLUiVqE
 
 [00:02:29] Norm: Hold on.
 
-[00:02:30] Adam: Oh,
-
-[00:02:30] Adam: is it?
+[00:02:30] Adam: Oh, is it?
 
 [00:02:31] Norm: He, he just finished his Apollo suit, so we shot a video about it.
 
@@ -86,11 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=gPE-cLUiVqE
 
 [00:02:47] Will: Yeah. Oh, cool!
 
-[00:02:48] Adam: And this is he screen printed the beta cloth pattern onto fabric.
-
-[00:02:53] Adam: Wow!
-
-[00:02:53] Adam: Yeah, he's he Nagata is.
+[00:02:48] Adam: And this is he screen printed the beta cloth pattern onto fabric. Wow! Yeah, he's he Nagata is.
 
 [00:02:56] Will: I didn't realize that they had a mesh top on those. I guess it's so you didn't get hot.
 
@@ -114,9 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=gPE-cLUiVqE
 
 [00:03:34] Norm: Um, so it was it was nice get together, and we'll have videos on that in a couple weeks.
 
-[00:03:40] Adam: Oh, that's awesome! Very exciting.
-
-[00:03:43] Adam: I should host one up here.
+[00:03:40] Adam: Oh, that's awesome! Very exciting. I should host one up here.
 
 [00:03:44] Norm: Speaking of obsession, research.
 
@@ -360,19 +352,13 @@ Episode URL: https://www.youtube.com/watch?v=gPE-cLUiVqE
 
 [00:19:21] Norm: What?
 
-[00:19:22] Adam: This this this has a name.
-
-[00:19:24] Adam: Is this
-
-[00:19:25] Adam: called the waffle stomper?
+[00:19:22] Adam: This this this has a name. Is this called the waffle stomper?
 
 [00:19:26] Norm: I knew it was gonna be waffle something. That's gross.
 
 [00:19:29] Adam: I think I might have said that on the podcast.
 
-[00:19:31] Will: Grody. Wow.
-
-[00:19:33] Will: Anyway.
+[00:19:31] Will: Grody. Wow. Anyway.
 
 [00:19:33] Adam: Anyway.
 
@@ -418,9 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=gPE-cLUiVqE
 
 [00:20:47] Will: Oh man, our videos are really long. It's the first third.
 
-[00:20:50] Adam: No, the first third.
-
-[00:20:51] Adam: The standard thing of like,
+[00:20:50] Adam: No, the first third. The standard thing of like,
 
 [00:20:52] Will: I want the 30 seconds.
 
@@ -442,11 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=gPE-cLUiVqE
 
 [00:21:21] Will: Well, it turns out.
 
-[00:21:22] Adam: It turns out.
-
-[00:21:24] Adam: Let's see. Any anything? Books
-
-[00:21:26] Adam: service manual has been has been a great thing. Also, searching hack, adding the word hack.
+[00:21:22] Adam: It turns out. Let's see. Any anything? Books service manual has been has been a great thing. Also, searching hack, adding the word hack.
 
 [00:21:31] Will: Books.google.com lets you search inside millions and millions of books.
 
@@ -484,21 +464,15 @@ Episode URL: https://www.youtube.com/watch?v=gPE-cLUiVqE
 
 [00:25:12] Will: If you are going to post them,
 
-[00:25:14] Adam: if you are going to post them,
-
-[00:25:14] Adam: if you are going to post it, post it so that people can see what you are doing. Again, I am big about the open-source stuff, and yes, I am protecting some sources of stuff that I am not supposed to know about, or people want to keep close, and we all do that in the prop community. But if you are going to put pictures of your stuff up online, make it nice so I can see it when I go. When I go to your props, I feel look. Amazon does the same thing in large image. Boom, whole window comes up with the image the same size.
+[00:25:14] Adam: if you are going to post them, if you are going to post it, post it so that people can see what you are doing. Again, I am big about the open-source stuff, and yes, I am protecting some sources of stuff that I am not supposed to know about, or people want to keep close, and we all do that in the prop community. But if you are going to put pictures of your stuff up online, make it nice so I can see it when I go. When I go to your props, I feel look. Amazon does the same thing in large image. Boom, whole window comes up with the image the same size.
 
 [00:25:39] Will: Sometimes it's big though. It's like it's like 30% of the time.
 
 [00:25:42] Adam: Almost never.
 
-[00:25:43] Will: Yeah.
+[00:25:43] Will: Yeah. Oh, it's for media. It's books, books, movies. That stuff has big covers.
 
-[00:25:45] Will: Oh, it's for media. It's books, books, movies. That stuff has big covers.
-
-[00:25:48] Norm: Drives me crazy.
-
-[00:25:49] Norm: You got to right-click and find the source and change the extension. So it's not the resize version.
+[00:25:48] Norm: Drives me crazy. You got to right-click and find the source and change the extension. So it's not the resize version.
 
 [00:25:54] Adam: Isn't that called hacking? According to the federal prosecutors,
 
@@ -526,9 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=gPE-cLUiVqE
 
 [00:27:01] Norm: Painting some stuff with Frank Ippolito.
 
-[00:27:02] Will: Oh, I did really
-
-[00:27:03] Will: cool.
+[00:27:02] Will: Oh, I did really cool.
 
 [00:27:03] Norm: Learning how to airbrush.
 

@@ -330,13 +330,9 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:15:01] Norm: Okay.
 
-[00:15:01] Adam: Um, looking back at his whole oeuvre,
+[00:15:01] Adam: Um, looking back at his whole oeuvre, and one movie they singled out was a movie actually some friends of mine worked on in New York back in the '80s was the vampire pick, Vampire’s Kiss.
 
-[00:15:14] Adam: and one movie they singled out was a movie actually some friends of mine worked on in New York back in the '80s was the vampire pick, Vampire’s Kiss.
-
-[00:15:26] Norm: Never saw.
-
-[00:15:26] Norm: it.
+[00:15:26] Norm: Never saw. it.
 
 [00:15:26] Adam: With Jennifer Beals.
 
@@ -412,9 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:17:14] Will: I would also, I would, I would add post-apocalyptic
 
-[00:17:16] Norm: here in...
-
-[00:17:17] Norm: the Quaid, Randy, not Randy Quaid,
+[00:17:16] Norm: here in... the Quaid, Randy, not Randy Quaid,
 
 [00:17:19] Will: Dennis Quaid,
 
@@ -438,9 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:18:14] Will: Yes,
 
-[00:18:15] Adam: he's he's terrific. He is wonderfully committed, and actually, Dances with Wolves is a beautiful.
-
-[00:18:15] Adam: movie.
+[00:18:15] Adam: he's he's terrific. He is wonderfully committed, and actually, Dances with Wolves is a beautiful. movie.
 
 [00:18:20] Will: Dances with Wolves is great,
 
@@ -456,9 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:18:33] Norm: In like, oh wow, yeah.
 
-[00:18:36] Will: High five.
-
-[00:18:36] Will: We got it, guys! High five.
+[00:18:36] Will: High five. We got it, guys! High five.
 
 [00:18:38] Norm: Corporate names, yeah. No, it's like Promised Land. No, that Gus Van Sant movie with Matt Damon.
 
@@ -626,9 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:24:02] Adam: and it doesn't do that to you.
 
-[00:24:03] Will: I don't do that. I use it like twice a week.
-
-[00:24:05] Will: I don't have a problem, man. I'm clean.
+[00:24:03] Will: I don't do that. I use it like twice a week. I don't have a problem, man. I'm clean.
 
 [00:24:05] Adam: Here's my other question: Is what kind of disease vector is chap is chapstick?
 
@@ -648,9 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:24:31] Norm: Speaking of spitting in mouths. Well,
 
-[00:24:33] Will: Norm, Norm,
-
-[00:24:34] Will: that like there's no reason to go on with the podcast after that. I think we're done here.
+[00:24:33] Will: Norm, Norm, that like there's no reason to go on with the podcast after that. I think we're done here.
 
 [00:24:38] Norm: Two weeks ago, our office manager invited us to the Armory in San Francisco.
 
@@ -712,9 +698,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:26:17] Norm: Yep. Got to sign the waiver.
 
-[00:26:17] Adam: Oh wow, it's that kind of like you might not make it
-
-[00:26:20] Adam: all the way through. Is there a safe word for the?
+[00:26:17] Adam: Oh wow, it's that kind of like you might not make it all the way through. Is there a safe word for the?
 
 [00:26:21] Norm: There's a safe word.
 
@@ -724,9 +708,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:26:24] Norm: Safety.
 
-[00:26:25] Adam: I wonder how they came up with that.
-
-[00:26:28] Adam: You remind me of Tracy Morgan had a joke on 30 Rock. You should have a safe word, and it should not be more.
+[00:26:25] Adam: I wonder how they came up with that. You remind me of Tracy Morgan had a joke on 30 Rock. You should have a safe word, and it should not be more.
 
 [00:26:37] Norm: Have you guys done haunts before?
 
@@ -768,9 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:27:40] Norm: 12 months a year.
 
-[00:27:41] Will: There's a lot of like local stage people that fund their entire year off of their Halloween.
-
-[00:27:41] Will: haunt.
+[00:27:41] Will: There's a lot of like local stage people that fund their entire year off of their Halloween. haunt.
 
 [00:27:45] Norm: I was talking to Frank and Len on their podcast about it, and I think Len did one that was in the building they filmed Shawshank Redemption in.
 
@@ -804,9 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:29:29] Will: Yeah, that's good. That's exactly it. That's the name of the episode.
 
-[00:29:32] Adam: I so the other thing that happens on Halloween, and I'm curious to see how it happens this year, is that people dress up as me and Jamie.
-
-[00:29:40] Adam: Oh yeah,
+[00:29:32] Adam: I so the other thing that happens on Halloween, and I'm curious to see how it happens this year, is that people dress up as me and Jamie. Oh yeah,
 
 [00:29:40] Will: I love those. Couples
 
@@ -882,9 +860,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:32:25] Will: No, and they position it in the store in such a way that the kids see another $100 worth of accessories and nonsense that also have nothing to do with the film.
 
-[00:32:33] Norm: Right, but have the logo
-
-[00:32:34] Norm: and have the picture and the logo
+[00:32:33] Norm: Right, but have the logo and have the picture and the logo
 
 [00:32:35] Adam: trident and things.
 
@@ -938,9 +914,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:33:53] Will: yeah
 
-[00:33:53] Adam: you'll have it's it's amazing and you can see through the thing on his chest okay you'll I'll
-
-[00:33:57] Adam: pull it down after the podcast, but I want to. This one's it's slightly translucent, and I want one that's a little bit better than that.
+[00:33:53] Adam: you'll have it's it's amazing and you can see through the thing on his chest okay you'll I'll pull it down after the podcast, but I want to. This one's it's slightly translucent, and I want one that's a little bit better than that.
 
 [00:34:05] Will: Do I have to wear like a white leotard inside it so I don't show through?
 
@@ -964,11 +938,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:34:19] Will: I think I think that you can use some other materials. I want to do one that's inflatable with the armor on the outside.
 
-[00:34:24] Adam: Oh wow! There's a
-
-[00:34:25] Adam: few people. I've seen
-
-[00:34:26] Adam: people who've done it. Yeah, no, there's some gorgeous stuff on that front out there.
+[00:34:24] Adam: Oh wow! There's a few people. I've seen people who've done it. Yeah, no, there's some gorgeous stuff on that front out there.
 
 [00:34:29] Will: But we've been. We have a. I think we have an interesting approach.
 
@@ -988,9 +958,7 @@ Episode URL: https://www.youtube.com/watch?v=kh6uUah7k7Y
 
 [00:34:52] Will: We'll have to do it next week.
 
-[00:34:53] Adam: Okay,
-
-[00:34:55] Adam: I think that's as good a place to stop as any.
+[00:34:53] Adam: Okay, I think that's as good a place to stop as any.
 
 [00:34:56] Norm: Please send us pictures of your costumes if you're working on something.
 

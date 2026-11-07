@@ -148,9 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:05:57] Norm: And you took a lot from him.
 
-[00:05:58] Adam: Yeah.
-
-[00:05:59] Adam: And I went back, and I'm like, hey, I went to high school here 25 years ago.
+[00:05:58] Adam: Yeah. And I went back, and I'm like, hey, I went to high school here 25 years ago.
 
 [00:06:04] Will: So did a lot of other kids.
 
@@ -328,9 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:11:01] Frank Ippolito: Really?
 
-[00:11:02] Adam: Yeah.
-
-[00:11:03] Adam: And you have to just proceed with assuming that's happening because you got to keep the energy up because people you want to give everyone the right ride.
+[00:11:02] Adam: Yeah. And you have to just proceed with assuming that's happening because you got to keep the energy up because people you want to give everyone the right ride.
 
 [00:11:12] Norm: So you talk about maybe microphones.
 
@@ -342,9 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:11:34] Norm: Oh, no! I was talking about the actual farts, but yes, that's it. Yes.
 
-[00:11:36] Adam: Yes.
-
-[00:11:37] Adam: I have there. There is a because we've talked about my dodo birds on tested and on the podcast. I want to talk about maybe one of my favorite moments on the tour, which was early on. We played Canada during the week of Thanksgiving because they don't care.
+[00:11:36] Adam: Yes. I have there. There is a because we've talked about my dodo birds on tested and on the podcast. I want to talk about maybe one of my favorite moments on the tour, which was early on. We played Canada during the week of Thanksgiving because they don't care.
 
 [00:11:54] Will: America. American Thanksgiving.
 
@@ -398,19 +392,13 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:13:32] Adam: We're treating you like a visiting researcher.
 
-[00:14:07] Frank Ippolito: Wow.
-
-[00:14:08] Frank Ippolito: Wow. That’s awesome.
+[00:14:07] Frank Ippolito: Wow. Wow. That’s awesome.
 
 [00:14:08] Adam: I had a desk set up to it next to it.
 
 [00:14:10] Frank Ippolito: White gloves.
 
-[00:14:11] Adam: Exactly. And they. The best part was was, shortly after I bought the casting, apropos of nothing, I called up the paleontology department and talked to their resident expert.
-
-[00:14:22] Adam: And they said, well, you know what?
-
-[00:14:23] Adam: All these these years later, I mean, this is like seven years later. They remembered that vividly. They're like, we remembered that you called and asked all sorts of questions about the dodo and took it really seriously. And so, you know, we're we're treating you like a real researcher. And they said on the elevator up, the curator said, " Yeah, you you do know that our dodo might is mounted slightly wrong, but we didn't want to change the mount because it's archival. It's 100 years old." And I said, " Right." His his keel sternum is too distended and misshapen. And they were like, " He goes, yes." And we had never spoken about this. He goes, " You have checked in on your dodo anatomy." It was super exciting. We've talked about it on the podcast. That I thought that their pose wasn't right, and I was totally right. So that when I finally mount mine, and now I've got a bee in my bonnet to tackle that casting again, I'm going to mount it right.
+[00:14:11] Adam: Exactly. And they. The best part was was, shortly after I bought the casting, apropos of nothing, I called up the paleontology department and talked to their resident expert. And they said, well, you know what? All these these years later, I mean, this is like seven years later. They remembered that vividly. They're like, we remembered that you called and asked all sorts of questions about the dodo and took it really seriously. And so, you know, we're we're treating you like a real researcher. And they said on the elevator up, the curator said, " Yeah, you you do know that our dodo might is mounted slightly wrong, but we didn't want to change the mount because it's archival. It's 100 years old." And I said, " Right." His his keel sternum is too distended and misshapen. And they were like, " He goes, yes." And we had never spoken about this. He goes, " You have checked in on your dodo anatomy." It was super exciting. We've talked about it on the podcast. That I thought that their pose wasn't right, and I was totally right. So that when I finally mount mine, and now I've got a bee in my bonnet to tackle that casting again, I'm going to mount it right.
 
 [00:15:15] Will: So the backstage, like one of my favorite things in the world to do is do the back scenes tours of museums.
 
@@ -882,8 +870,6 @@ Episode URL: https://www.youtube.com/watch?v=XHWbusu6MYA
 
 [00:35:20] Frank Ippolito: Well, I'll let you know.
 
-[00:35:21] Will: Have a good week, guys. See you next week.
-
-[00:36:04] Will: Thanks for listening.
+[00:35:21] Will: Have a good week, guys. See you next week. Thanks for listening.
 
 [00:36:19] Norm: Bye.

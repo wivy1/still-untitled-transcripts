@@ -16,9 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=OOU8yadI2sY
 
 [00:00:10] Adam: Renowned cosplayer, teacher, costumer, maker extraordinaire,
 
-[00:00:15] Beverly: dabbler
-
-[00:00:17] Beverly: of everything,
+[00:00:15] Beverly: dabbler of everything,
 
 [00:00:18] Adam: member of the Tested family, Beverly. It's good to see you.
 
@@ -188,9 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=OOU8yadI2sY
 
 [00:24:20] Beverly: If I can, yes. And we, I have a good friend of mine, Melanie from Deela Designs. She is in our bubble of people that we can interact with, still at at a distance, but she does come come over. And for that shoot, she, uh, she was helping me because I have to do like the the, uh, crab walk when I have the Hela helmet on. I have to go sideways everywhere, so she helped me quite a lot with that. And she, you know, she's sort of like the, uh, the person that will make sure that my horns are straight. Or
 
-[00:24:52] Adam: that's the thing is you every extra pair of eyes is a really is a really big help. And this is also sometimes the way for me. It's often the way I find the pose that I'll use at the con.
-
-[00:25:03] Adam: Right,
+[00:24:52] Adam: that's the thing is you every extra pair of eyes is a really is a really big help. And this is also sometimes the way for me. It's often the way I find the pose that I'll use at the con. Right,
 
 [00:25:03] Beverly: yeah,
 

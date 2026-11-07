@@ -64,9 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:00:57] Will: Lord of the Flies.
 
-[00:00:58] Adam: Battle Royale.
-
-[00:00:59] Adam: That's it. It's the holiday Battle Royale of the food.
+[00:00:58] Adam: Battle Royale. That's it. It's the holiday Battle Royale of the food.
 
 [00:01:02] Will: Terrible movie.
 
@@ -90,9 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:01:17] Will: Did you call Griswold?
 
-[00:01:18] Adam: every every
-
-[00:01:18] Adam: horizontal surface had a human on it.
+[00:01:18] Adam: every every horizontal surface had a human on it.
 
 [00:01:20] Will: Did you put lights on the house? Make everybody come out? You go a little crazy.
 
@@ -138,9 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:02:15] Will: So when you socket it down, there's not even any wires to plug in.
 
-[00:02:18] Adam: Yeah,
-
-[00:02:18] Adam: no, me too. Same thing. And the whole top half just lights up.
+[00:02:18] Adam: Yeah, no, me too. Same thing. And the whole top half just lights up.
 
 [00:02:21] Will: It's the business, man. It's amazing.
 
@@ -206,9 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:04:23] Unknown speaker: Does it do that really quickly?
 
-[00:04:26] Will: It was.
-
-[00:04:26] Will: It seemed like the video made it look very fast. I did not spend $300 on the Christmas lights to find out.
+[00:04:26] Will: It was. It seemed like the video made it look very fast. I did not spend $300 on the Christmas lights to find out.
 
 [00:04:33] Norm: That difficult of a problem.
 
@@ -222,9 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:04:45] Will: Yeah,
 
-[00:04:46] Adam: That’s nifty.
-
-[00:04:47] Adam: I'm I'm those are cur. I'm curious about those. I’m light curious.
+[00:04:46] Adam: That’s nifty. I'm I'm those are cur. I'm curious about those. I’m light curious.
 
 [00:04:50] Will: I was going to say, there's a guy in the well. They've gotten they've they've reduced in price dramatically each year they've been out so far. So like next year or the year after, they'll be affordable for for more people. Well,
 
@@ -248,13 +238,9 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:05:34] Will: Yeah, sorry.
 
-[00:05:35] Adam: Because there's a lot of
+[00:05:35] Adam: Because there's a lot of I saw a lot of things over the holidays.
 
-[00:05:36] Adam: I saw a lot of things over the holidays.
-
-[00:05:38] Will: You, you had an adventure.
-
-[00:05:39] Will: What happened to you? Anything exciting?
+[00:05:38] Will: You, you had an adventure. What happened to you? Anything exciting?
 
 [00:05:41] Adam: Yeah, my land on Saturday, December 28th, I woke up to put my mom on the plane to go visit my sister in Los Angeles.
 
@@ -402,9 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:12:45] Will: Come back out and build a fence the next day if it doesn't work out.
 
-[00:12:47] Adam: Well, they did.
-
-[00:12:48] Adam: They did have to repair the fences
+[00:12:47] Adam: Well, they did. They did have to repair the fences
 
 [00:12:50] Norm: of moving a couch down the stairs. Right. Everyone has their opinion on the best way to do it, and
 
@@ -438,9 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:14:03] Will: Hey, me too.
 
-[00:14:04] Adam: You
-
-[00:14:04] Adam: did?
+[00:14:04] Adam: You did?
 
 [00:14:04] Norm: Yes, last Thursday,
 
@@ -492,9 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:15:35] Will: Very first time.
 
-[00:15:35] Adam: and you are
-
-[00:15:35] Adam: familiar with the libretto.
+[00:15:35] Adam: and you are familiar with the libretto.
 
 [00:15:37] Will: I I have listened to the original cast recording. I don't know Spotify would probably tell you at least hundreds, maybe thousands. of times.
 
@@ -578,9 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:18:58] Will: No, it’s not a flame.
 
-[00:18:58] Adam: It looks.
-
-[00:18:58] Adam: No, it's not a flame. But so I I have some of these. They're big, like three inch diameter candles. They're actually coated in real wax. They smell like candles, and the quote flame is a flame shaped piece of plastic with an LED pointed at it, and it's on a little little. Little electromagnetic mover that just makes it kind of do this, so that as you look over to it,
+[00:18:58] Adam: It looks. No, it's not a flame. But so I I have some of these. They're big, like three inch diameter candles. They're actually coated in real wax. They smell like candles, and the quote flame is a flame shaped piece of plastic with an LED pointed at it, and it's on a little little. Little electromagnetic mover that just makes it kind of do this, so that as you look over to it,
 
 [00:19:20] Unknown (Adam or Will): incredibly convincing,
 
@@ -682,9 +660,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:23:41] Will: He's he's very good.
 
-[00:23:43] Norm: Yeah,
-
-[00:23:43] Norm: I think they're casting him as the new Home Alone kid.
+[00:23:43] Norm: Yeah, I think they're casting him as the new Home Alone kid.
 
 [00:23:46] Will: I was just thinking we needed. a new Home Alone.
 
@@ -792,11 +768,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:25:50] Adam: Florence Pugh is going to be a gigantic star. She's so good in this movie.
 
-[00:25:54] Norm: She’s in Black Widow next.
-
-[00:25:56] Norm: She was in Midsommar and also Fighting with My Family.
-
-[00:26:00] Norm: Okay,
+[00:25:54] Norm: She’s in Black Widow next. She was in Midsommar and also Fighting with My Family. Okay,
 
 [00:26:00] Will: was she the lead in Midsommar?
 
@@ -824,13 +796,9 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:26:21] Will: That’s who’s right, yeah.
 
-[00:26:22] Adam: The chemistry that the
+[00:26:22] Adam: The chemistry that the chemistry's with
 
-[00:26:23] Adam: chemistry's with
-
-[00:26:24] Norm: with all.
-
-[00:26:24] Norm: Yeah, it's
+[00:26:24] Norm: with all. Yeah, it's
 
 [00:26:25] Adam: he's surpassingly charismatic. Every bit deserved to be the it guy because he's incredible. And I watched the King.
 
@@ -842,9 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:26:36] Adam: really worth seeing. Actually, great. Joel Edgerton plays Falstaff.
 
-[00:26:42] Will: Okay,
-
-[00:26:41] Will: okay, I'm I'm into this.
+[00:26:42] Will: Okay, okay, I'm I'm into this.
 
 [00:26:45] Norm: One thing that's interesting with Little Women because it is an adaptation is that it's the way she not only does it non-linearly, a lot of it in flashbacks and pairing scenes together in ways that if you read the book chronologically, you don’t often see.
 
@@ -868,9 +834,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:27:54] Norm: I saw them both on the same day.
 
-[00:27:56] Will: Jesus,
-
-[00:27:56] Will: That’s a hell of a double feature. That is...
+[00:27:56] Will: Jesus, That’s a hell of a double feature. That is...
 
 [00:27:57] Norm: I was exhausted.
 
@@ -922,15 +886,11 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:29:05] Adam: Yeah, yeah.
 
-[00:29:05] Norm: And I don't
-
-[00:29:05] Norm: necessarily think it's the my favorite film of the year, but if the award is for achievement in filmmaking, I think it is well deserved of that because. I will say the conceit of it being a single shot is distracting at times,
+[00:29:05] Norm: And I don't necessarily think it's the my favorite film of the year, but if the award is for achievement in filmmaking, I think it is well deserved of that because. I will say the conceit of it being a single shot is distracting at times,
 
 [00:29:20] Adam: Oh.
 
-[00:29:21] Norm: because if you know that going in,
-
-[00:29:21] Norm: and I'm sure plenty people go in not knowing it, and they don't even think about it. It's like, oh wow, why am I feeling exhausted?
+[00:29:21] Norm: because if you know that going in, and I'm sure plenty people go in not knowing it, and they don't even think about it. It's like, oh wow, why am I feeling exhausted?
 
 [00:29:28] Will: Well, You're just tense.
 
@@ -950,9 +910,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:29:56] Will: Use a pole as the cut point or whatever yeah.
 
-[00:29:57] Norm: Exactly, to a
-
-[00:29:58] Norm: wire. Um, but the performance... Performances sometimes it's tough to have a consistency in performance. They do cuts mid conversation, and so you're asking an actor to do a take, have a conversation with one other character, walking through, you know, a forest. And they're passing by a tree, and the sentence continues.
+[00:29:57] Norm: Exactly, to a wire. Um, but the performance... Performances sometimes it's tough to have a consistency in performance. They do cuts mid conversation, and so you're asking an actor to do a take, have a conversation with one other character, walking through, you know, a forest. And they're passing by a tree, and the sentence continues.
 
 [00:30:18] Adam: Right.
 
@@ -960,17 +918,13 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:30:22] Adam: Ooh.
 
-[00:30:23] Norm: because they've
-
-[00:30:23] Norm: it's a different take, or because they've they've. you know.
+[00:30:23] Norm: because they've it's a different take, or because they've they've. you know.
 
 [00:30:26] Adam: You should be able to gloss over that with ADR and stuff like that, shouldn't you?
 
 [00:30:30] Norm: You should, but you can even the
 
-[00:30:32] Adam: speaking like I know how to direct a film.
-
-[00:30:34] Adam: I have no idea,
+[00:30:32] Adam: speaking like I know how to direct a film. I have no idea,
 
 [00:30:35] Will: Adam Savage. I'm Joe Director.
 
@@ -982,9 +936,7 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:30:52] Adam: Yeah. Okay.
 
-[00:30:53] Will: Oh, as a bomb goes off.
-
-[00:30:55] Will: I mean,
+[00:30:53] Will: Oh, as a bomb goes off. I mean,
 
 [00:30:55] Norm: something happens, right? Like, like.
 
@@ -1058,17 +1010,13 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:35:46] Adam: But it'll be very soon.
 
-[00:35:48] Will: Yeah,
-
-[00:35:49] Will: I’ll be, I don’t know what I'm doing this afternoon. I saw Once Upon a Time, Once Upon a Time in Hollywood. Finally,
+[00:35:48] Will: Yeah, I’ll be, I don’t know what I'm doing this afternoon. I saw Once Upon a Time, Once Upon a Time in Hollywood. Finally,
 
 [00:35:55] Adam: ah, yeah. How did you like it?
 
 [00:35:57] Will: I I thought it was very cool, much like Ad Astra. Like looking at Brad Pitt is very it's very satisfying.
 
-[00:36:04] Adam: It's very relaxing.
-
-[00:36:06] Adam: I think we all can agree.
+[00:36:04] Adam: It's very relaxing. I think we all can agree.
 
 [00:36:08] Will: Just like man, he looks he looks a little bit older, but wow, it's it's like he's Clooneying at a really high level. He's so pretty. So, but I I don't. Like it feels like a really odd story to do the Inglourious Basterds treatment on, and and like alt history, a thing that happened. Like I don't understand why that story had to be. I knew I I love that Tarantino went and made a movie set in the '70s that he shot like a movie made in the '70s.
 
@@ -1142,15 +1090,11 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:40:04] Will: We'll see. So the next one is a gritty Star Trek.
 
-[00:40:05] Norm: Soderbergh,
-
-[00:40:07] Norm: But I want to see him do a horror film. I mean, that scene where Brad Pitt, Cliff Booth goes to the ranch and. Looks for and goes
+[00:40:05] Norm: Soderbergh, But I want to see him do a horror film. I mean, that scene where Brad Pitt, Cliff Booth goes to the ranch and. Looks for and goes
 
 [00:40:14] Adam: super creepy.
 
-[00:40:15] Norm: Yeah, super
-
-[00:40:15] Norm: creepy.
+[00:40:15] Norm: Yeah, super creepy.
 
 [00:40:15] Adam: Was that Dakota Fanning or Elle Fanning? At
 
@@ -1190,15 +1134,11 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:42:02] Adam: Yeah.
 
-[00:42:03] Norm: from the the Golden Harvest pictures
-
-[00:42:03] Norm: and the Shaw Brothers pictures. And how all that stuff was, you know, the business behind how U.S. film studios bought those up, reedited them, redubbed them, and how then they went back to China
+[00:42:03] Norm: from the the Golden Harvest pictures and the Shaw Brothers pictures. And how all that stuff was, you know, the business behind how U.S. film studios bought those up, reedited them, redubbed them, and how then they went back to China
 
 [00:42:20] Adam: Oh, wow.
 
-[00:42:21] Norm: and and that circular nature.
-
-[00:42:21] Norm: Iron Fists and Kung Fu Kicks interview a lot of great people, and it all talks about Bruce Lee's legacy and a lot of the context that we don't really understand, like how young he died and how his legend grew after his his death.
+[00:42:21] Norm: and and that circular nature. Iron Fists and Kung Fu Kicks interview a lot of great people, and it all talks about Bruce Lee's legacy and a lot of the context that we don't really understand, like how young he died and how his legend grew after his his death.
 
 [00:42:34] Adam: Right, right, right.
 
@@ -1230,17 +1170,13 @@ Episode URL: https://www.youtube.com/watch?v=JAqb-TIorno
 
 [00:43:29] Unknown (Adam, Norm, or Will): Dreamgirls.
 
-[00:43:29] Will: Dream
-
-[00:43:29] Will: Showgirls is a different thing, Adam.
+[00:43:29] Will: Dream Showgirls is a different thing, Adam.
 
 [00:43:33] Adam: Showgirls is also a masterpiece, but for totally different. reasons.
 
 [00:43:35] Will: Not intentionally, though. I don't think. Can we talk about Mandalorian for just a moment?
 
-[00:43:41] Adam: By all means,
-
-[00:43:43] Adam: because the my favorite Western samurai film.
+[00:43:41] Adam: By all means, because the my favorite Western samurai film.
 
 [00:43:44] Will: Well, I mean the opening. So I was cold on the Mandalorian at the beginning.
 

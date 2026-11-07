@@ -60,9 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:01:42] Kishore: reviewing an item. Yeah.
 
-[00:01:42] Will: Oh.
-
-[00:01:43] Will: Yeah, we're we're a gateway drug for all sorts of thermal mug aficionados.
+[00:01:42] Will: Oh. Yeah, we're we're a gateway drug for all sorts of thermal mug aficionados.
 
 [00:01:46] Kishore: I have credit card receipts to prove that.
 
@@ -106,9 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:03:47] Adam: He did actually. Frankly, I'm not, that was, That's why I was pausing in my head. I'm. I think he wrote it while writing the trilogy. I'm not positive.
 
-[00:03:54] Kishore: Wow!
-
-[00:03:55] Kishore: How do you do that?
+[00:03:54] Kishore: Wow! How do you do that?
 
 [00:03:55] Adam: I don't know.
 
@@ -174,9 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:06:25] Adam: accidentally
 
-[00:06:26] Will: we were not allowed the microwave
-
-[00:06:27] Will: my parents had when I was a kid.
+[00:06:26] Will: we were not allowed the microwave my parents had when I was a kid.
 
 [00:06:27] Adam: I think is the term
 
@@ -324,9 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:12:33] Adam: It's always been a hipster mecca for 30 years.
 
-[00:12:36] Kishore: Yeah, totally. And so I remember my first set, and I had written, I had written political humor, so that was going to go over well. And then I get off stage, and
-
-[00:12:46] Kishore: the MC is like, " That was an incredible set. I wish he told some jokes." Oh, and I was like, " Ah, this is great."
+[00:12:36] Kishore: Yeah, totally. And so I remember my first set, and I had written, I had written political humor, so that was going to go over well. And then I get off stage, and the MC is like, " That was an incredible set. I wish he told some jokes." Oh, and I was like, " Ah, this is great."
 
 [00:12:56] Adam: I a few years ago for Sketchfest, I had, you know, Janet would will occasionally on Sketchfest just text me and be like, " Hey, there's this thing. Do you want to participate in this?" And I'll be like, " Yes." And on this particular year, I said yes, and then forgot about it until the night. Oh no! And then Janet texted me, and I was having dinner with my family, and she was like, " Hey, you're supposed to go on stage at Cobb's in 30 minutes, and yet you're not there. What is up?" And I was like, " I'll be there." And so I raced to Cobb's, parked, got out, ran up, ran on stage, and experienced for the first time a comedy club audience, which is a radically different audience than I had ever faced before, and that was totally intense. I did about 12 minutes.
 
@@ -556,17 +548,11 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:25:34] Kishore: Make up an out. Have them call you
 
-[00:25:36] Adam: . Yeah.
-
-[00:25:37] Adam: This is this is Matt Parker from Numberphile.
+[00:25:36] Adam: . Yeah. This is this is Matt Parker from Numberphile.
 
 [00:25:40] Kishore: He's the best.
 
-[00:25:41] Adam: I love him. And yeah, so my my wife was like, " You get to see one of your math friends tonight," because she she's been making fun of me. I'll sit there with headphones on, watching Numberphile, and then deep dives into mathematics. And literally, about every 10 minutes, I'll go, "
-
-[00:25:58] Adam: Oh, oh!"
-
-[00:25:59] Adam: As some geometric thing is revealed of its symmetry to the pi and Fibonacci, and she's like, " You guys can get all emotional about math together."
+[00:25:41] Adam: I love him. And yeah, so my my wife was like, " You get to see one of your math friends tonight," because she she's been making fun of me. I'll sit there with headphones on, watching Numberphile, and then deep dives into mathematics. And literally, about every 10 minutes, I'll go, " Oh, oh!" As some geometric thing is revealed of its symmetry to the pi and Fibonacci, and she's like, " You guys can get all emotional about math together."
 
 [00:26:10] Kishore: He's he's incredible. the The video he did where he basically used a massive set of dominoes and set them up to perform calculations
 
@@ -644,9 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=QBfRwptYxAg
 
 [00:30:15] Adam: Amazing.
 
-[00:30:16] Will: Yeah.
-
-[00:30:16] Will: So that's what I've been doing.
+[00:30:16] Will: Yeah. So that's what I've been doing.
 
 [00:30:17] Kishore: All right. So take home message is fire up your grapes.
 

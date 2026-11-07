@@ -12,9 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:00:11] Will: Hey, just Norm.
 
-[00:00:12] Norm: Just Norm.
-
-[00:00:13] Norm: How are you guys doing today?
+[00:00:12] Norm: Just Norm. How are you guys doing today?
 
 [00:00:14] Will: I'm doing awesome, man. You guys did something that looked really fun yesterday that I've always wanted to do and never got into, judging by social media. But you built a bunch of gunpla,
 
@@ -30,11 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:00:30] Norm: Gunpla is what the fans call it. G-U-N-P-L-A. And I'm not even going to speak to it as if I'm an expert because I'm not. And there are people who are truly obsessed about this. But it's something like how people are obsessed with Lego in the states and around the world. In China and Japan, and in the states, there are a lot of people who are truly obsessed about building these type of plastic model kits. Now, I believe Adam, that you're not very familiar with this.
 
-[00:00:54] Adam: I am not familiar at all. I know that Gundam exists.
-
-[00:00:54] Adam: Mm-hmm. I have no idea.
-
-[00:00:54] Adam: I've never partaken in the hobby.
+[00:00:54] Adam: I am not familiar at all. I know that Gundam exists. Mm-hmm. I have no idea. I've never partaken in the hobby.
 
 [00:01:01] Norm: But and it's something that you know. People like Guillermo love.
 
@@ -52,9 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:01:27] Unknown speaker: It’s like armor.
 
-[00:01:27] Norm: Right. Right.
-
-[00:01:12] Norm: and then there's also just straight up giant robots. I guess Transformers would be different because
+[00:01:27] Norm: Right. Right. and then there's also just straight up giant robots. I guess Transformers would be different because
 
 [00:01:32] Adam: okay,
 
@@ -160,9 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:04:31] Norm: got. Yeah, I did get some there, and also use that as an opportunity to kind of inventory and and
 
-[00:04:37] Adam: see what's out there.
-
-[00:04:38] Adam: So then you can help me pick out a good one.
+[00:04:37] Adam: see what's out there. So then you can help me pick out a good one.
 
 [00:04:40] Norm: That's right, and I want to get recommendations. I'm now subscribed to the Reddit r Gunpla subreddit.
 
@@ -304,9 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:08:02] Norm: and for baby for
 
-[00:08:03] Adam: babies.
-
-[00:08:04] Adam: Here you go, baby.
+[00:08:03] Adam: babies. Here you go, baby.
 
 [00:08:05] Will: Well, no.
 
@@ -416,9 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:10:42] Will: which basically it's it's it's narrated by Buzz Aldrin. I think they go through and they use they use the actual stock recordings.
 
-[00:10:51] Adam: Right.
-
-[00:10:52] Adam: Oh, but the Capcom
+[00:10:51] Adam: Right. Oh, but the Capcom
 
 [00:10:53] Will: from Capcom and like all all that stuff. The amazing thing about it is that it puts you in the cockpit of both the Columbia command module. And the lem at different times, and you can like because it's VR, you can just lean forward and look at the the knobs and dials.
 
@@ -518,9 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:14:03] Will: Okay, so he built a, but he basically built the
 
-[00:14:06] Adam: Oh, right.
-
-[00:14:06] Adam: He built a console that is, yeah.
+[00:14:06] Adam: Oh, right. He built a console that is, yeah.
 
 [00:14:08] Will: It's just the the the end of the pinball machine that you interact with, and he uses it when he's playing the VR pinball game. Lines it up and works works brilliantly. There's a whole world of those kinds of crazy sim games. There was a great article, and I think The Guardian the other day about about people who play things like London Subway Simulator and Bus Driving Simulator and Euro Truck Simulator and Farm Simulator. And I think that all there's a cottage industry in building custom control panels for like your London subway train, so that you have a you have all the physical switches and knobs and dials in the right place.
 
@@ -580,15 +564,11 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:16:44] Norm: Yeah. If you activate 100 of them, and it's a
 
-[00:16:47] Adam: fleet. Dun dun dun. You do it three times.
-
-[00:16:47] Adam: And it goes and finds Sarah Connor.
+[00:16:47] Adam: fleet. Dun dun dun. You do it three times. And it goes and finds Sarah Connor.
 
 [00:16:50] Will: It would be amazing. It would be amazing if you do it twice and it just starts going. Dun dun dun dun dun dun dun dun.
 
-[00:16:55] Adam: Sorry, John Connor.
-
-[00:16:54] Adam: I'm getting a knocking sound.
+[00:16:55] Adam: Sorry, John Connor. I'm getting a knocking sound.
 
 [00:17:00] Will: Yeah. Oh, it's just the Terminator. It's in the trunk. It's fine. John Connor's not anywhere
 
@@ -680,9 +660,7 @@ Episode URL: https://www.youtube.com/watch?v=GqkEgVQJAUs
 
 [00:20:16] Will: Maybe they just build the engines there.
 
-[00:20:17] Adam: I don't know the answer to that. But congratulations to SpaceX for
-
-[00:20:17] Adam: successfully
+[00:20:17] Adam: I don't know the answer to that. But congratulations to SpaceX for successfully
 
 [00:20:22] Will: Oh, yeah.
 

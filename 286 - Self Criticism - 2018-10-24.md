@@ -50,9 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:02:29] Adam: They are the most importantly dangerous kind of cameraman, camera people, because they're editors and producers as well as being camera people. And unfortunately, reality television is rife with a lot of camera people who are excellent at their jobs, but their jobs are usually to button on at the beginning of the day and button off at the end and cover everything that happens in the middle. And the kind of storytelling that we like to do, it benefits so much from a Joey or a Scott who thinks like an editor and cuts. So that every shot has something moving in it as a rhythm that can be used for cutting,
 
-[00:03:04] Will: purposeful.
-
-[00:03:05] Will: And even more importantly, like they're paying attention to what's going on around them enough so that if something amazing is, if they if they get the sense, if Joey gets the sense that something amazing is going to happen, he he's aware of what's going on around him enough that he gets set up to get that shot when it happens, and that's that's super rare.
+[00:03:04] Will: purposeful. And even more importantly, like they're paying attention to what's going on around them enough so that if something amazing is, if they if they get the sense, if Joey gets the sense that something amazing is going to happen, he he's aware of what's going on around him enough that he gets set up to get that shot when it happens, and that's that's super rare.
 
 [00:03:21] Adam: And then once you have that thing, you have to make sure that you've covered around it so that when you put that episode into your video, it is surrounded by narrative that helps it make sense. Like that that's non trivial.
 
@@ -88,13 +86,9 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:05:36] Adam: We shot a one-day build on Friday.
 
-[00:05:36] Norm: Friday?
+[00:05:36] Norm: Friday? Yes.
 
-[00:05:39] Norm: Yes.
-
-[00:05:39] Adam: Yeah.
-
-[00:05:39] Adam: Friday. Friday that I totally screwed up.
+[00:05:39] Adam: Yeah. Friday. Friday that I totally screwed up.
 
 [00:05:43] Will: Oh no.
 
@@ -202,11 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:14:36] Adam: she she said that she laid out this beautiful talk, and I I want to link to put on
 
-[00:14:36] Will: Yeah, yeah.
-
-[00:14:36] Will: the site.
-
-[00:14:40] Will: I'd love to watch that. Um, when when I started at Ars Technica a long time ago, I was working for a bunch of people who went to Harvard Divinity School, and their stated goal when we started that website was, " Hey, we don't want to ever publish a mistake, right? " And it's it's the web, right? It's it's the web in like 1998, so you could edit pages.
+[00:14:36] Will: Yeah, yeah. the site. I'd love to watch that. Um, when when I started at Ars Technica a long time ago, I was working for a bunch of people who went to Harvard Divinity School, and their stated goal when we started that website was, " Hey, we don't want to ever publish a mistake, right? " And it's it's the web, right? It's it's the web in like 1998, so you could edit pages.
 
 [00:14:40] Adam: Yeah,
 
@@ -288,9 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:22:52] Norm: yes. Yeah.
 
-[00:22:53] Will: Oh my god!
-
-[00:22:54] Will: Yeah. Like I mean, just it's it's it. If you want to know how much how important the music is to Jurassic Park, watch the Jurassic Park Brontosaurus reveal with the Melodica instead of the instead of the orchestra.
+[00:22:53] Will: Oh my god! Yeah. Like I mean, just it's it's it. If you want to know how much how important the music is to Jurassic Park, watch the Jurassic Park Brontosaurus reveal with the Melodica instead of the instead of the orchestra.
 
 [00:23:07] Adam: Is that Chris Hardwick's favorite of the Plastic Winds?
 
@@ -352,9 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:24:40] Norm: Max Brooks talking about zombies because you know right World War Z and all that stuff yeah yeah yeah it's
 
-[00:25:02] Adam: aren't they aren't they there's a
-
-[00:25:04] Adam: there's a sequel coming out right
+[00:25:02] Adam: aren't they aren't they there's a there's a sequel coming out right
 
 [00:25:04] Norm: David Fincher is making that sequel
 
@@ -378,9 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:25:25] Adam: That was Matthew Fox.
 
-[00:25:25] Norm: Wow,
-
-[00:25:27] Norm: you're right. And that was the the part of the script they got. Yeah.
+[00:25:25] Norm: Wow, you're right. And that was the the part of the script they got. Yeah.
 
 [00:25:30] Adam: They so they cut the last third of the movie out and reshoot it. Uh, Damon Lindelof famously rewrote the whole end, and they spent millions, tens of millions of dollars reshooting it. And in the original screenplay, Brad Pitt finally makes it back home, and his wife is now married to to to Matthew Fox,
 
@@ -480,11 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:29:25] Will: Bad Janet.
 
-[00:29:27] Adam: Well, just when Bad Janet, you ask Bad Janet for something, and she goes. First of all, she never looks at you. She's always
-
-[00:29:33] Adam: looking at her phone, and
-
-[00:29:35] Adam: she goes, " Why don't you roll off your mom and do it yourself?"
+[00:29:27] Adam: Well, just when Bad Janet, you ask Bad Janet for something, and she goes. First of all, she never looks at you. She's always looking at her phone, and she goes, " Why don't you roll off your mom and do it yourself?"
 
 [00:29:39] Will: The thing, the thing, the undercurrent that I like most about that show is that they hate phones. They hate phones more than anything. Like, like when there's a there's a there's a moment when when Eleanor is thinking about things that she misses from Earth, and the first thing she comes up with is her phone. And I'm just like, oh, oh, this is too real. I'm going to put my phone down now and maybe pay attention to the TV show for five minutes.
 
@@ -600,9 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:34:32] Adam: Judy Garland and James Mason, and then there's one less than 10 years before that. Okay. Um. But I'm a fan of the Kris Kristofferson Barbra Streisand one.
 
-[00:34:42] Will: I saw that one probably 20 years ago. I haven't seen it since then. But
-
-[00:34:46] Will: this was a fine film.
+[00:34:42] Will: I saw that one probably 20 years ago. I haven't seen it since then. But this was a fine film.
 
 [00:34:47] Adam: I think this is as good,
 
@@ -616,17 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:34:55] Will: Like the moment there was, there was a video that went around the internet around the time her first or second album came out of her when she was at like a conservatory school playing, just playing the piano on stage, no makeup, nothing, and just playing and singing, and it's it's riveting. Yeah. And
 
-[00:35:11] Adam: like, she's a
-
-[00:35:12] Adam: remarkable
-
-[00:35:13] Adam: thing. She's a remarkable
-
-[00:35:14] Adam: thing. She's
-
-[00:35:15] Adam: not a thing.
-
-[00:35:15] Adam: She's a person.
+[00:35:11] Adam: like, she's a remarkable thing. She's a remarkable thing. She's not a thing. She's a person.
 
 [00:35:16] Will: She's a person.
 
@@ -744,9 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:37:42] Norm: Yeah, a lot of cool stuff.
 
-[00:37:42] Will: Is that
-
-[00:37:43] Will: is that arcade cabinet here? Is it over it? Mike Mike’s shop?
+[00:37:42] Will: Is that is that arcade cabinet here? Is it over it? Mike Mike’s shop?
 
 [00:37:46] Norm: It’s it’s at Other Ocean.
 
@@ -800,9 +766,7 @@ Episode URL: https://www.youtube.com/watch?v=Crp5vzDdjlg
 
 [00:38:35] Will: Good. You got all of your systems.
 
-[00:38:36] Norm: Yeah. No.
-
-[00:38:37] Norm: Do you know me?
+[00:38:36] Norm: Yeah. No. Do you know me?
 
 [00:38:42] Will: Welcome to Still Untitled the Adam Savage Project. I'm Will.
 

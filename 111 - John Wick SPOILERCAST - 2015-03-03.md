@@ -38,9 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:01:32] Will: Do they make it with real gingers?
 
-[00:01:34] Norm: Yes.
-
-[00:01:34] Norm: Oh, you can see the ginger floating inside.
+[00:01:34] Norm: Yes. Oh, you can see the ginger floating inside.
 
 [00:01:36] Adam: He means gingers like him and me.
 
@@ -54,9 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:01:57] Adam: Street Fighter. I have read about that.
 
-[00:02:00] Will: Yeah,
-
-[00:02:00] Will: really, that was his last role. Yeah.
+[00:02:00] Will: Yeah, really, that was his last role. Yeah.
 
 [00:02:02] Adam: Oh yeah.
 
@@ -80,13 +76,9 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:02:16] Will: Gross.
 
-[00:02:17] Adam: Yes, she got
+[00:02:17] Adam: Yes, she got a little bit of that. She got she got a Belgian waffle.
 
-[00:02:18] Adam: a little bit of that. She got she got a Belgian waffle.
-
-[00:02:20] Will: She got the split.
-
-[00:02:21] Will: Oh wow!
+[00:02:20] Will: She got the split. Oh wow!
 
 [00:02:21] Norm: Now he's doing Volvo or his car commercial.
 
@@ -128,9 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:02:59] Adam: No, there's a movie called JCVD.
 
-[00:03:00] Will: Oh.
-
-[00:03:00] Will: Yeah,
+[00:03:00] Will: Oh. Yeah,
 
 [00:03:00] Adam: and it's a meta movie about the action hero in which he plays a version of himself, kind of like openly weeping on camera, and it's sort of a documentary style of him making a movie that is actually made for the.
 
@@ -234,9 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:06:09] Adam: Death Wish films,
 
-[00:06:10] Norm: yeah,
-
-[00:06:10] Norm: exactly, all that stuff, you know, and and but there seems to be this trend now of the guy you know who used to be
+[00:06:10] Norm: yeah, exactly, all that stuff, you know, and and but there seems to be this trend now of the guy you know who used to be
 
 [00:06:18] Will: right,
 
@@ -284,9 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:07:31] Adam: Oh, spoiler cast.
 
-[00:07:32] Will: Oh, you're right. This is a spoiler cast for John Wick.
-
-[00:07:34] Will: We're about to
+[00:07:32] Will: Oh, you're right. This is a spoiler cast for John Wick. We're about to
 
 [00:07:34] Adam: Talk the crap out of this movie because it is really worth talking the crap out of. And I will submit that nothing we say would limit your enjoyment of this film. We could tell you exactly.
 
@@ -322,9 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:08:48] Adam: That really is almost the only question,
 
-[00:08:50] Will: Right.
-
-[00:08:51] Will: and they tell you in the opening scene. The opening scene is him crashing the SUV at the end of the rampage. Right.
+[00:08:50] Will: Right. and they tell you in the opening scene. The opening scene is him crashing the SUV at the end of the rampage. Right.
 
 [00:08:56] Norm: That's not even his dip though, and his dip in this movie it's like the smallest dip.
 
@@ -370,9 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:11:14] Adam: I got caught while you were scratching my balls.
 
-[00:11:15] Will: Right. Right.
-
-[00:11:16] Will: Exactly. Like it's a good turn, and that's the other the the mirror image of this. This is minor minorest of speed bumps, and and yeah,
+[00:11:15] Will: Right. Right. Exactly. Like it's a good turn, and that's the other the the mirror image of this. This is minor minorest of speed bumps, and and yeah,
 
 [00:11:24] Adam: with with literally the bad guy going, no, no, I'm quite confident he will be killed while I don't have to watch.
 
@@ -466,9 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:13:47] Adam: which was Charlize Theron's first big movie. And Two Days in the Valley, which is a fine movie, felt way too clever by half, trying to get to that Pulp Fiction territory.
 
-[00:13:57] Will: They were
-
-[00:13:57] Will: they were it was all winks and nods,
+[00:13:57] Will: They were they were it was all winks and nods,
 
 [00:13:59] Adam: right? And John Wick, which is sort of gesturally, one entire wink and a nod at the same time, was just like, here's it's fight choreographers going, here's what we like about these scenes, and we're just going to take one and run it for like 15 minutes for your enjoyment.
 
@@ -624,9 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:21:16] Will: Oh yeah!
 
-[00:21:17] Adam: It's it is it is.
-
-[00:21:18] Adam: I will say, I suspected. Here is a big spoiler. I suspected that Willie that Willem Dafoe was on his side when the girl came to the hotel room.
+[00:21:17] Adam: It's it is it is. I will say, I suspected. Here is a big spoiler. I suspected that Willie that Willem Dafoe was on his side when the girl came to the hotel room.
 
 [00:21:27] Will: Yeah,
 
@@ -670,9 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:23:07] Norm: That is the very save the cat moment.
 
-[00:23:09] Adam: And you're right. You're very.
-
-[00:23:09] Adam: You're absolutely right. That's the save the save the cat moment. Is let the giant doorman go. Yeah.
+[00:23:09] Adam: And you're right. You're very. You're absolutely right. That's the save the save the cat moment. Is let the giant doorman go. Yeah.
 
 [00:23:14] Norm: Yes.
 
@@ -710,15 +686,11 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:24:42] Adam: Oh, bookmark! I've got some. Once this podcast is over, I have something to tell you about one of our episodes this year.
 
-[00:24:48] Will: Oh, that's just mean.
-
-[00:24:49] Will: I have to cut that out. I'm sorry, guys. Um, the uh,
+[00:24:48] Will: Oh, that's just mean. I have to cut that out. I'm sorry, guys. Um, the uh,
 
 [00:24:54] Adam: wait, wait, no, I'll tell you. Okay,
 
-[00:24:56] Will: cut it out and cut back in.
-
-[00:24:57] Will: No, no, no, no,
+[00:24:56] Will: cut it out and cut back in. No, no, no, no,
 
 [00:24:57] Adam: no, no, no, no, no.
 
@@ -756,9 +728,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:26:58] Will: Was there a total body count? Do we know?
 
-[00:27:00] Adam: Yes.
-
-[00:27:00] Adam: So there's a supercut you can watch online of all of his kills in the movie, and I think how many?
+[00:27:00] Adam: Yes. So there's a supercut you can watch online of all of his kills in the movie, and I think how many?
 
 [00:27:06] Norm: Like 76.
 
@@ -872,9 +842,7 @@ Episode URL: https://www.youtube.com/watch?v=uY5N9fapJc4
 
 [00:30:06] Adam: We love this movie. I can't wait till you. I want to borrow the Blu-ray from you because I want to see extra materials.
 
-[00:30:09] Will: Absolutely.
-
-[00:30:10] Will: Yeah, I want to. I want to know how they did a lot of the the like. There's a. I want to know if they talk about the the world.
+[00:30:09] Will: Absolutely. Yeah, I want to. I want to know how they did a lot of the the like. There's a. I want to know if they talk about the the world.
 
 [00:30:16] Adam: Yeah.
 

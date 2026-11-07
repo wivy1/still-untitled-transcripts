@@ -40,11 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:00:50] Will: DC Fontana.
 
-[00:00:52] Adam: I mean, every every one of these interviews was so yeah, it was awesome. Like I, I don't want to gush too much. I did a lot of press about it. I'm really proud of how the how the interviews went. I would keep doing this show for a long time. Like if sci fi wants, hey sci fi, if you want to keep going,
-
-[00:01:08] Adam: don't don't let's
-
-[00:01:08] Adam: totally make that deal.
+[00:00:52] Adam: I mean, every every one of these interviews was so yeah, it was awesome. Like I, I don't want to gush too much. I did a lot of press about it. I'm really proud of how the how the interviews went. I would keep doing this show for a long time. Like if sci fi wants, hey sci fi, if you want to keep going, don't don't let's totally make that deal.
 
 [00:01:09] Will: Don't put all your cards out on the table. You gotta you gotta you gotta kind of side eye him a little bit, kind of just be like,
 
@@ -90,9 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:02:49] Adam: John is a is a legend, and John and I were actually at a party last weekend together. Not together, but we were at the same party, and someone walked up to the pair of us and said, " So, what do you guys do?" There was this long pause, and I said, " I wrote Photoshop," and John went, " And I used to host Mythbusters."
 
-[00:03:06] Norm: That's amazing. That's so
-
-[00:03:09] Norm: awesome.
+[00:03:06] Norm: That's amazing. That's so awesome.
 
 [00:03:10] Will: That's terrible.
 
@@ -182,11 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:07:50] Adam: right?
 
-[00:07:50] Will: What like what's your like I go through and listen to podcasts that they do with other people because it's always like if you do a 40 minute podcast with somebody, you're going to get past the first five minutes of interview questions. I'm kind of curious what your prep process is
-
-[00:08:27] Will: for a
-
-[00:08:27] Will: show like that.
+[00:07:50] Will: What like what's your like I go through and listen to podcasts that they do with other people because it's always like if you do a 40 minute podcast with somebody, you're going to get past the first five minutes of interview questions. I'm kind of curious what your prep process is for a show like that.
 
 [00:08:28] Adam: It's multifold. On one level, yes, I usually listen to like three mainstream interviews with that person to hear the five questions they always get, and those look. I want I want to service the fans, and I want to make sure we cover territory that's necessary in order to get to the deeper stuff. And if it's a question they constantly get, and they got a great story, I'll ask that question, or I'll ask it in a slightly different way to try and get a different answer. But you know, I I don't mind getting the same question as a person being interviewed. So yeah, that's the beginning.
 
@@ -276,11 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:12:25] Will: no, Nerve, Nerve.
 
-[00:12:26] Adam: I was on
-
-[00:12:27] Adam: Nerve. I was
-
-[00:12:27] Adam: on Nerve. She was on.
+[00:12:26] Adam: I was on Nerve. I was on Nerve. She was on.
 
 [00:12:29] Norm: Does that exist anymore?
 
@@ -334,9 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:14:38] Unknown speaker: Yeah.
 
-[00:14:38] Will: So so this this seconds thing though is one of my favorite science fiction tropes. Like when you think about an interstellar civilization, days are meaningless, right? Because days are based around the orbit of one particular the rotation one particular planet around one particular sun. So really. The way to think about days is in terms of kiloseconds, right? So, like, if you look at like the Iain Banks culture novels, which are my all-time favorite science fiction novels, or I think this Charlie Stross post-singularity stuff does this too. It's all kiloseconds,
-
-[00:15:08] Will: which requires a
+[00:14:38] Will: So so this this seconds thing though is one of my favorite science fiction tropes. Like when you think about an interstellar civilization, days are meaningless, right? Because days are based around the orbit of one particular the rotation one particular planet around one particular sun. So really. The way to think about days is in terms of kiloseconds, right? So, like, if you look at like the Iain Banks culture novels, which are my all-time favorite science fiction novels, or I think this Charlie Stross post-singularity stuff does this too. It's all kiloseconds, which requires a
 
 [00:15:08] Adam: 1,000 seconds per hour.
 
@@ -408,9 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:17:03] Norm: We bashed and talked about how we much love that movie on this podcast.
 
-[00:17:03] Adam: Yeah, I’m sure we have.
-
-[00:17:09] Adam: Anyway, this aluminum. Who makes this Mauser?
+[00:17:03] Adam: Yeah, I’m sure we have. Anyway, this aluminum. Who makes this Mauser?
 
 [00:17:13] Norm: It's an airsoft [unclear: prop / website]. I'm going to post it in the comments below.
 
@@ -438,9 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:18:08] Will: That’s a lovely arm. Yeah, I mean, as your as your
 
-[00:18:11] Adam: sorry for putting it down on the table,
-
-[00:18:12] Adam: pointed at your belly,
+[00:18:11] Adam: sorry for putting it down on the table, pointed at your belly,
 
 [00:18:13] Will: your gun, your gun safety there. Years on MythBusters. It's totally worn off. I can see.
 
@@ -498,9 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:20:04] Norm: Yeah, it looks very much like one.
 
-[00:20:06] Adam: Wow.
-
-[00:20:07] Adam: Does anyone want to hear us keep talking about this?
+[00:20:06] Adam: Wow. Does anyone want to hear us keep talking about this?
 
 [00:20:07] Will: You guys are incredible nerds.
 
@@ -586,9 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:21:44] Norm: And.
 
-[00:21:44] Adam: Interesting.
-
-[00:21:46] Adam: It's all we're gonna say right now.
+[00:21:44] Adam: Interesting. It's all we're gonna say right now.
 
 [00:21:47] Norm: And we may have a line on the original one. So
 
@@ -682,11 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:25:40] Will: we had Labor Day weekend stuff.
 
-[00:25:44] Norm: They were sweeping up.
-
-[00:25:46] Norm: The yeah like all
-
-[00:25:46] Norm: the hotels.
+[00:25:44] Norm: They were sweeping up. The yeah like all the hotels.
 
 [00:25:47] Adam: I thought you would have seen Mayor McCheese there.
 
@@ -794,11 +766,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:28:28] Will: I mean, we can't complain. We shouldn't be complaining about weather because the weather in other places has been a different kind of deadly and awful.
 
-[00:28:34] Adam: Right, I know.
-
-[00:28:34] Adam: Yeah,
-
-[00:28:34] Adam: and Florida is drowning, and the West is on fire. Canada and the U.S.
+[00:28:34] Adam: Right, I know. Yeah, and Florida is drowning, and the West is on fire. Canada and the U.S.
 
 [00:28:34] Unknown speaker: Yeah.
 
@@ -874,9 +842,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:31:13] Unknown speaker: Yes.
 
-[00:31:13] Adam: I read the books.
-
-[00:31:15] Adam: I haven't watched the TV show,
+[00:31:13] Adam: I read the books. I haven't watched the TV show,
 
 [00:31:16] Norm: but but seriously, some parts of U.S. and also U.S. Virgin Islands under serious trouble and totally worth making some donations.
 
@@ -904,9 +870,7 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:32:34] Adam: making sure I I actually just double checked all the water the water jugs I keep in the house.
 
-[00:32:39] Will: One
-
-[00:32:40] Will: of the things we added last year to ours is a water filtration kit because, like, you can keep enough water, but if you can clean the water that you can collect or or get from creeks or whatever, then that helps a ton.
+[00:32:39] Will: One of the things we added last year to ours is a water filtration kit because, like, you can keep enough water, but if you can clean the water that you can collect or or get from creeks or whatever, then that helps a ton.
 
 [00:32:50] Adam: I use a gravity system that for my camping. I did a lot of research of. A couple of years ago, and found that the gravity feed camping filters actually filter more water faster than almost any other specific type.
 
@@ -938,21 +902,13 @@ Episode URL: https://www.youtube.com/watch?v=Np_gjo6cxkc
 
 [00:33:57] Norm: A bunch of stuff going on this week. I think we have a build going up this week. Adam did a infrastructure build in the cave in a place you've never seen before.
 
-[00:34:06] Will: Oh, oh, yeah.
-
-[00:34:06] Will: this is this is nice work.
+[00:34:06] Will: Oh, oh, yeah. this is this is nice work.
 
 [00:34:08] Adam: That was really
 
 [00:34:08] Will: a major improvement.
 
-[00:34:10] Adam: Yeah, my wife was here just the other day for the first time since I'd done that repair. She's like, "
-
-[00:34:14] Adam: Whoa,
-
-[00:34:15] Adam: yeah."
-
-[00:34:15] Adam: So look forward to that.
+[00:34:10] Adam: Yeah, my wife was here just the other day for the first time since I'd done that repair. She's like, " Whoa, yeah." So look forward to that.
 
 [00:34:17] Norm: Yeah. Also, we put an announcement last week, but the members of the Tested Premium community this year we announce our annual gift, and it is going to be the seven-inch record that Adam recorded at Third Man Records.
 

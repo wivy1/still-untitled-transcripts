@@ -92,9 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:05:16] Unknown speaker: That's a good one.
 
-[00:05:20] Will: That is a very good one.
-
-[00:05:23] Will: So so speaking of bringing people around from all over the world into maker spaces and connecting people, this weekend in San Francisco was Bay Area Maker Faire,
+[00:05:20] Will: That is a very good one. So so speaking of bringing people around from all over the world into maker spaces and connecting people, this weekend in San Francisco was Bay Area Maker Faire,
 
 [00:05:23] Ian: the big one.
 
@@ -104,9 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:05:33] Ian: [unclear: Yes / The mothership].
 
-[00:05:33] Will: I have long long said it is my favorite weekend of the year. That has only become more true as I'm like I now have a four year old kid who I can bring and kind of see that thing
-
-[00:05:43] Will: through her eyes.
+[00:05:33] Will: I have long long said it is my favorite weekend of the year. That has only become more true as I'm like I now have a four year old kid who I can bring and kind of see that thing through her eyes.
 
 [00:05:43] Ian: Yeah,
 
@@ -256,9 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:15:07] Ian: Oh, that’s.
 
-[00:15:07] Norm: the with 3D designs. So he brought his completely one third scale working engines. Wow. Not completely working. They are 3D 3D all all 3D printed. 95% with some minor
-
-[00:15:26] Norm: hardware.
+[00:15:07] Norm: the with 3D designs. So he brought his completely one third scale working engines. Wow. Not completely working. They are 3D 3D all all 3D printed. 95% with some minor hardware.
 
 [00:15:26] Ian: Files online.
 
@@ -338,13 +332,9 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:17:43] Norm: You put your own bricks; they don't ship the bricks.
 
-[00:17:43] Will: Yeah,
+[00:17:43] Will: Yeah, Um, that's amazing.
 
-[00:17:45] Will: Um, that's amazing.
-
-[00:17:47] Ian: We were discussing this with our. We sent some photos back to some folks at our makerspace, and somebody immediately chimed in and said, " I got the bricks."
-
-[00:17:53] Ian: Thanks, thanks, guys.
+[00:17:47] Ian: We were discussing this with our. We sent some photos back to some folks at our makerspace, and somebody immediately chimed in and said, " I got the bricks." Thanks, thanks, guys.
 
 [00:17:55] Adam: Hey, it takes a village.
 
@@ -370,11 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:21:18] Will: It's always interesting,
 
-[00:21:18] Adam: but there was a repeated answer which upset me, and I really want to drive it home, which was people saying, " Oh, I didn't make. I don't make anything. I code."
-
-[00:21:18] Adam: That counts.
-
-[00:21:18] Adam: And I, this is what I kept saying. Yeah. But I think, like, I want a T-shirt that says, " Coding is making." Like,
+[00:21:18] Adam: but there was a repeated answer which upset me, and I really want to drive it home, which was people saying, " Oh, I didn't make. I don't make anything. I code." That counts. And I, this is what I kept saying. Yeah. But I think, like, I want a T-shirt that says, " Coding is making." Like,
 
 [00:21:35] Ian: I'll make you that shirt.
 
@@ -524,11 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=BguKreSXgyY
 
 [00:29:22] Ian: Uh, and I can tell you that the featured fairs, uh, Maker Media also sends us blue ribbons, and that is one of the highlights of my year. Is going to you know those select makers who really did something fantastic. Either they built something fantastic, or they interacted in a very fantastic way, and and being able to present them that and seeing it hanging there, and and you know seeing them on social media, just being able to give them back that little bit and and that fuel and knowing that they're going to take that and then build something. Even bigger, even more amazing, or collaborate with someone else. It's just it's amazing thing.
 
-[00:29:59] Will: And even if you don't get the blue ribbon, the rest of the people there are enthusiastic. It is the friendliest crowd. I talked to an R2 builder yesterday, who he'd gone to like comic conventions and comic cons and stuff like that with his relatively new R2 unit. His name is, shout out to Manny. Thanks for taking time to to play R2 for my daughter. She really had a blast. But but he said that what he had had seen at comic cons where it's mostly adults who are like, oh cool, I can take a picture with R2-D2 was completely dwarfed by taking R2-D2 places where there's you know four five six year olds who are like,
-
-[00:30:31] Will: oh, oh my god, mom, it's R2-D2,
-
-[00:30:36] Will: and you know they're so excited they're literally vibrating. So you know it's a it is a good scene. You don't have to be ashamed of what you do. You can show it off. Somebody there will be excited about it, no matter how weird or esoteric you think the thing that you do is. And you should all go to see it. I think it's
+[00:29:59] Will: And even if you don't get the blue ribbon, the rest of the people there are enthusiastic. It is the friendliest crowd. I talked to an R2 builder yesterday, who he'd gone to like comic conventions and comic cons and stuff like that with his relatively new R2 unit. His name is, shout out to Manny. Thanks for taking time to to play R2 for my daughter. She really had a blast. But but he said that what he had had seen at comic cons where it's mostly adults who are like, oh cool, I can take a picture with R2-D2 was completely dwarfed by taking R2-D2 places where there's you know four five six year olds who are like, oh, oh my god, mom, it's R2-D2, and you know they're so excited they're literally vibrating. So you know it's a it is a good scene. You don't have to be ashamed of what you do. You can show it off. Somebody there will be excited about it, no matter how weird or esoteric you think the thing that you do is. And you should all go to see it. I think it's
 
 [00:30:50] Ian: we we have this we have an artist that that comes to our event every year. His name's Warren. He goes by Famous After Death. And he, it's a good title, isn’t it?
 

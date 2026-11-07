@@ -42,9 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:01:48] Norm: You showed right before we recorded the podcast. You showed Adam a photo of your vocal cords, which are gross.
 
-[00:01:48] Will: It’s
-
-[00:01:53] Will: very Giger esque, right? It's like it's like
+[00:01:48] Will: It’s very Giger esque, right? It's like it's like
 
 [00:01:56] Adam: it's something. It's more like Eraserhead than Giger.
 
@@ -72,13 +70,9 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:02:51] Norm: Oh, yeah.
 
-[00:02:51] Will: Alright.
+[00:02:51] Will: Alright. So, like, we have a couple of couple of longtime friends coming over, some former co workers, some people bringing their parents.
 
-[00:02:51] Will: So, like, we have a couple of couple of longtime friends coming over, some former co workers, some people bringing their parents.
-
-[00:02:51] Adam: That's great.
-
-[00:02:51] Adam: That’s great.
+[00:02:51] Adam: That's great. That’s great.
 
 [00:03:17] Norm: But if any of those people want to give up their Hamilton tickets because they don't want to support it anymore, I'm happy to take them.
 
@@ -130,11 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:05:13] Norm: not really. You,
 
-[00:05:21] Will: Norm. When all I remember is that when we went to Texas once for a shoot, we were driving through what I would describe as a fairly normal part of suburban America, and Norm looked around and saw, " Man, it's a lot of strip malls, isn't it?"
-
-[00:05:33] Will: And I said, " Welcome to America."
-
-[00:05:35] Will: And he said, " I don't know how people live here. It's like, well, it's the same as you and I do. They go to work, they eat food, you know, they they you know enjoy more barbecue here maybe than we do."
+[00:05:21] Will: Norm. When all I remember is that when we went to Texas once for a shoot, we were driving through what I would describe as a fairly normal part of suburban America, and Norm looked around and saw, " Man, it's a lot of strip malls, isn't it?" And I said, " Welcome to America." And he said, " I don't know how people live here. It's like, well, it's the same as you and I do. They go to work, they eat food, you know, they they you know enjoy more barbecue here maybe than we do."
 
 [00:05:43] Norm: It's all related through the lens of pop culture. Oh, this is a lot like The Walking Dead.
 
@@ -174,17 +164,13 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:06:17] Adam: Yeah.
 
-[00:06:17] Will: Do they not have lemons?
-
-[00:06:22] Will: What?
+[00:06:17] Will: Do they not have lemons? What?
 
 [00:06:22] Adam: I'm sure they do. But when you order a lemonade in a restaurant, you're getting the Sprite.
 
 [00:06:22] Unknown speaker: Wow.
 
-[00:06:29] Norm: Oh, for
-
-[00:06:29] Norm: your brand to be so strong that consumes other like things? Right. Who's your favorite superhero? Superman? Which Superman? Oh, Batman.
+[00:06:29] Norm: Oh, for your brand to be so strong that consumes other like things? Right. Who's your favorite superhero? Superman? Which Superman? Oh, Batman.
 
 [00:06:37] Adam: Green Lantern.
 
@@ -242,9 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:08:27] Will: Yeah.
 
-[00:08:27] Norm: All right.
-
-[00:08:27] Norm: Yeah. High recommendations. Yeah. Do you guys watch movies with families or friends in on Thanksgiving weekend?
+[00:08:27] Norm: All right. Yeah. High recommendations. Yeah. Do you guys watch movies with families or friends in on Thanksgiving weekend?
 
 [00:08:27] Adam: Oh,
 
@@ -444,9 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:14:11] Adam: Oh, I'm sure. I'm really looking forward to it.
 
-[00:14:13] Will: I've read the script for Passengers, and it is an absolutely lovely script. It's it's like
-
-[00:14:18] Will: And.
+[00:14:13] Will: I've read the script for Passengers, and it is an absolutely lovely script. It's it's like And.
 
 [00:14:18] Norm: [unclear: you Google] the film will not be able to take that away from you.
 
@@ -532,9 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:16:06] Will: which was kind of bad, but also okay.
 
-[00:16:09] Adam: Yeah.
-
-[00:16:09] Adam: I couldn't finish it. I watched the first 30 minutes, and I love nobody loves Tina Fey more than me. But I didn't, I didn't like that. I didn't like her in that.
+[00:16:09] Adam: Yeah. I couldn't finish it. I watched the first 30 minutes, and I love nobody loves Tina Fey more than me. But I didn't, I didn't like that. I didn't like her in that.
 
 [00:16:17] Will: It's it's one of those movies that like I I can look at it. I'm like, I don't. This is not a good movie, but I'm enjoying myself.
 
@@ -670,9 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:19:18] Adam: we bought we bought one of those big fake ones with the lights built in. Boy, we it's just really nice for the last three years.
 
-[00:19:18] Will: Wow.
-
-[00:19:24] Will: Don't you feel a little sad though?
+[00:19:18] Will: Wow. Don't you feel a little sad though?
 
 [00:19:25] Adam: Totally.
 
@@ -982,9 +960,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:28:35] Adam: yeah
 
-[00:28:35] Will: like it's a super easy thing to do it doesn't cost a ton of money and it's and it's like something you make for somebody which is
-
-[00:28:35] Will: nice.
+[00:28:35] Will: like it's a super easy thing to do it doesn't cost a ton of money and it's and it's like something you make for somebody which is nice.
 
 [00:29:02] Adam: a great idea um and we'd love your suggestions in the comments
 
@@ -1044,9 +1020,7 @@ Episode URL: https://www.youtube.com/watch?v=CdxK-t-TVXc
 
 [00:30:17] Adam: Follow Will's Twitter feed.
 
-[00:30:17] Will: Yeah.
-
-[00:30:19] Will: Bye, guys.
+[00:30:17] Will: Yeah. Bye, guys.
 
 [00:30:20] Norm: All right. All right. Bye.
 

@@ -18,11 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:01:29] Will: I think that's a good idea.
 
-[00:01:30] Adam: No politics Tuesday. We have some announcements to make.
-
-[00:01:34] Adam: So,
-
-[00:01:30] Adam: There's good news on the horizon.
+[00:01:30] Adam: No politics Tuesday. We have some announcements to make. So, There's good news on the horizon.
 
 [00:01:36] Will: Yeah, there's stuff happening.
 
@@ -92,9 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:05:06] Norm: Yep.
 
-[00:05:06] Will: We have some more to come, and it's not all video game stuff. There is some cool science stuff coming. We have, I think, four video game episodes and one science episode booked for this first season.
-
-[00:05:06] Will: So.
+[00:05:06] Will: We have some more to come, and it's not all video game stuff. There is some cool science stuff coming. We have, I think, four video game episodes and one science episode booked for this first season. So.
 
 [00:05:15] Norm: Great,
 
@@ -156,15 +150,9 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:06:46] Unknown: Alright.
 
-[00:06:47] Will: So I got a full, full
+[00:06:47] Will: So I got a full, full [speaker unclear: Norm / Will] body white unitard.
 
-[00:06:47] Will: [speaker unclear: Norm / Will] body
-
-[00:06:47] Will: white unitard.
-
-[00:06:48] Norm: Right.
-
-[00:06:50] Norm: Wait, this is not opaque, right?
+[00:06:48] Norm: Right. Wait, this is not opaque, right?
 
 [00:06:52] Will: Good. Fingers, the whole thing.
 
@@ -180,17 +168,13 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:07:09] Norm: Whoa!
 
-[00:07:10] Will: Wait, what?
-
-[00:07:10] Will: Come on. That is a big. You're three. You got to build up to that over a few. So okay. So I, I came in here. I mentioned it casually, and you laughed, and we're like, " Hey, I have a Baymax costume. You can totally use it." I think it happened on the podcast.
+[00:07:10] Will: Wait, what? Come on. That is a big. You're three. You got to build up to that over a few. So okay. So I, I came in here. I mentioned it casually, and you laughed, and we're like, " Hey, I have a Baymax costume. You can totally use it." I think it happened on the podcast.
 
 [00:07:21] Norm: Yeah.
 
 [00:07:21] Will: Um. So I I borrowed that from you, and I tried it on at home just to see what the what the wear was like. Yeah. And I had the same situation. I'm standing in the middle of my living room in my underwear inside the Baymax costume.
 
-[00:07:34] Norm: Wow.
-
-[00:07:34] Norm: And okay, so it's I've seen photos of the Baymax costume. It's not completely transparent. So at what distance do you start to realize there is a person inside this, possibly wearing not many clothes?
+[00:07:34] Norm: Wow. And okay, so it's I've seen photos of the Baymax costume. It's not completely transparent. So at what distance do you start to realize there is a person inside this, possibly wearing not many clothes?
 
 [00:07:46] Will: So I think that probably I didn't test this with like a black jumpsuit underneath, but I think that um you can see the shadow of the person. Like if there's a light source behind them, you see the shadow of them through it. Okay. But other than that, you don't see a whole lot.
 
@@ -226,9 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:09:00] Will: So I handed a pair of shorts out, and and then I just started I inflated it, which took just a minute. Yeah,
 
-[00:09:06] Adam: [speaker unclear: Norm / Adam] it’s
-
-[00:09:06] Adam: very fast,
+[00:09:06] Adam: [speaker unclear: Norm / Adam] it’s very fast,
 
 [00:09:07] Will: and I started walking.
 
@@ -334,13 +316,9 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:12:12] Norm: blends in.
 
-[00:12:12] Adam: You can wear one of those
+[00:12:12] Adam: You can wear one of those Really, really like decaying zombie mask. Inside, like the realistic silicone ones,
 
-[00:12:13] Adam: Really, really like decaying zombie mask. Inside, like the realistic silicone ones,
-
-[00:12:18] Norm: Yeah.
-
-[00:12:19] Norm: Cost, you gotta take it to another level.
+[00:12:18] Norm: Yeah. Cost, you gotta take it to another level.
 
 [00:12:21] Adam: Like you know, a knife through your cheeks or something horrifying.
 
@@ -348,11 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:12:25] Norm: Baymax’s soul.
 
-[00:12:26] Will: These kids
-
-[00:12:26] Will: [unclear: were so / so / completion within Will’s whole clause].
-
-[00:12:26] Will: excited to be [unclear: inside / in it / Baymax].
+[00:12:26] Will: These kids [unclear: were so / so / completion within Will’s whole clause]. excited to be [unclear: inside / in it / Baymax].
 
 [00:12:27] Adam: I have no interest in scarring children. It's just in my nature to think of the darkest thing you could do with any given course, any given task.
 
@@ -388,9 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:13:56] Adam: Years and years ago in New York, I I briefly dated this lovely woman named Suzanne, whose ex boyfriend. I don't know why I had to say her name, but she's I remember her fondly.
 
-[00:14:09] Will: Her ex boyfriend, her John Staples from Columbus 
-
-[00:14:09] Will: [speaker unclear: Norm / Will] Circle.
+[00:14:09] Will: Her ex boyfriend, her John Staples from Columbus  [speaker unclear: Norm / Will] Circle.
 
 [00:14:13] Adam: No, her ex boyfriend.
 
@@ -416,9 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:15:06] Adam: It’s always Joey.
 
-[00:15:07] Will: Always Joey was Amy Jo Johnson?
-
-[00:15:09] Will: Joey was Amy Jo Johnson.
+[00:15:07] Will: Always Joey was Amy Jo Johnson? Joey was Amy Jo Johnson.
 
 [00:15:11] Adam: Amy Joey Johnson.
 
@@ -516,11 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:22:06] Adam: Yeah, absolutely.
 
-[00:22:06] Norm: it's not just for people in the United States.
-
-[00:22:08] Norm: [speaker unclear: Adam / Norm] The
-
-[00:22:08] Norm: lessons can be applied everywhere, and it is in a global movement.
+[00:22:06] Norm: it's not just for people in the United States. [speaker unclear: Adam / Norm] The lessons can be applied everywhere, and it is in a global movement.
 
 [00:22:12] Adam: And I, I, I actually, yeah, I was in Toronto this weekend. Oh, great, I was in Toronto this weekend. We haven't talked about this.
 
@@ -532,9 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:22:23] Will: Another perfect segue ruined.
 
-[00:22:25] Adam: Wow, he did it! That's incredible.
-
-[00:22:27] Adam: It was incepted. It was literally
+[00:22:25] Adam: Wow, he did it! That's incredible. It was incepted. It was literally
 
 [00:22:27] Norm: I couldn’t—
 
@@ -542,13 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:23:02] Norm: yeah, on the Generator Arctic trip, yeah, Tom Scott and I believe Vivienne Gucwa, photographer from New York and YouTuber, yeah, they were there. I don't know about the other presenters. Can you tell us about some of the their presentations or some?
 
-[00:23:16] Adam: We had a wonderful. We had this wonderful autistic comedian who was really brilliant. He was. Hilarious! We had an appearance from the Lucky Iron Fish Company, a local entrepreneur who built a lucky iron fish. He sells for dirt cheap, and you throw it in your pot and you boil your stew, and it gives you all your
-
-[00:23:16] Adam: [speaker unclear: Norm / Adam] daily
-
-[00:23:16] Adam: dose of
-
-[00:23:16] Adam: [speaker unclear: Norm / Adam] iron.
+[00:23:16] Adam: We had a wonderful. We had this wonderful autistic comedian who was really brilliant. He was. Hilarious! We had an appearance from the Lucky Iron Fish Company, a local entrepreneur who built a lucky iron fish. He sells for dirt cheap, and you throw it in your pot and you boil your stew, and it gives you all your [speaker unclear: Norm / Adam] daily dose of [speaker unclear: Norm / Adam] iron.
 
 [00:23:37] Norm: Amazing, amazing story!
 
@@ -560,9 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:23:42] Norm: And yeah, I think I forget their name.
 
-[00:23:46] Adam: So this is this is this is in Thailand, I
-
-[00:23:46] Adam: [speaker unclear: Norm / Adam] believe.
+[00:23:46] Adam: So this is this is this is in Thailand, I [speaker unclear: Norm / Adam] believe.
 
 [00:23:50] Norm: Yes,
 
@@ -572,9 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:23:52] Adam: and the way you normally deal with it is by giving out vitamin supplements, but this can be expensive, and the amount of adoption is taciturn.
 
-[00:24:01] Will: So you literally put a piece of metal in the
-
-[00:24:03] Will: [speaker unclear: Adam / Will] food.
+[00:24:01] Will: So you literally put a piece of metal in the [speaker unclear: Adam / Will] food.
 
 [00:24:03] Adam: So we don't have much of a problem with anemia. A lot of the reason is because we many people cook in cast iron pots, and you get iron in your food just from that. So this entrepreneur came up with this cast iron fish this big, and really,
 
@@ -602,9 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:24:51] Adam: That's exactly. I get really excited about stuff like that. And Amanda Palmer was there. Neil Gaiman. They did some. They they sang and and did some spoken word. Leonard Cohen. Chris Hadfield, of course. He he talked about the the trip to the Arctic. Gave a beautiful, beautiful talk, and he loved your talk. By the way, he really gave it high praise. It was super inspiring night, and I I ended up hanging out at the end of the night with some wonderful makers from a place called. Steam Labs. Steam Labs. Will you hand me my coat right there? I got to get this right. I am terrible about remembering things. I am absolutely abysmal about it. But this was a makerspace in Toronto, and yes, I got it right. Steam Labs. Here we go. Andy Forrest and his wife and all of the people from Steam Labs. We ended up. This is just the way. This is like I found my people. So we're sharing pictures of sorted drawers and tool cabinets around the table.
 
-[00:25:55] Norm: Sounds about
-
-[00:25:55] Norm: right.
+[00:25:55] Norm: Sounds about right.
 
 [00:25:55] Will: You know, it might be time to consult a medical professional about this. This obsession with sorting and storing.
 
@@ -622,9 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:26:55] Adam: exactly. And in a drawer where you don't have a lot of dynamic load on the foam core, it lasts forever. That was the case I was making for them, and that was this. I was up until like two in the morning in Toronto. I had to get up at five a.m. to catch a seven a.m.
 
-[00:27:08] Will: At that point, you just
-
-[00:27:09] Will: roll through.
+[00:27:08] Will: At that point, you just roll through.
 
 [00:27:10] Adam: I meditated for 40 minutes and then slept for ninety.
 
@@ -636,9 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:27:15] Adam: I sleep on planes. Yeah,
 
-[00:27:16] Will: that must be
-
-[00:27:16] Will: [speaker unclear: Adam / Will] nice.
+[00:27:16] Will: that must be [speaker unclear: Adam / Will] nice.
 
 [00:27:17] Adam: I do, and oh hey, by the way. Adam's book club. I dis I decided to read one of the Jack Reacher novels.
 
@@ -676,9 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:28:13] Will: Like up there with, up there with John Wick?
 
-[00:28:15] Adam: I will show you after this podcast. If you search Tom Cruise fight scene Jack Reacher, you'll get this video, which is Tom Cruise as Jack Reacher fighting five guys and just making mincemeat out of
-
-[00:28:15] Adam: [speaker unclear: Norm / Adam] them.
+[00:28:15] Adam: I will show you after this podcast. If you search Tom Cruise fight scene Jack Reacher, you'll get this video, which is Tom Cruise as Jack Reacher fighting five guys and just making mincemeat out of [speaker unclear: Norm / Adam] them.
 
 [00:28:30] Norm: And it's not about just the exact choreography or the way it was blocked, but like the buildup.
 
@@ -722,13 +668,9 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:30:05] Will: I guess pattern recognition, maybe the first of the new
 
-[00:30:09] Adam: William Gibson
+[00:30:09] Adam: William Gibson Yeah.
 
-[00:30:09] Adam: Yeah.
-
-[00:30:09] Will: the Gibson books, and I read that on a flight from Atlanta to Hawaii one time, and was just like this is. This is literally the best way I've ever spent an airplane
-
-[00:30:09] Will: [speaker unclear: Adam / Will] ride.
+[00:30:09] Will: the Gibson books, and I read that on a flight from Atlanta to Hawaii one time, and was just like this is. This is literally the best way I've ever spent an airplane [speaker unclear: Adam / Will] ride.
 
 [00:30:17] Adam: It feels so much better than just blearily like waiting for the Wi-Fi to get faster.
 
@@ -772,9 +714,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:31:52] Will: Once you've signed up for the free Wi-Fi, you can't upgrade without going through a bunch of hoops and calling a phone number.
 
-[00:31:59] Adam: Oh
-
-[00:31:59] Adam: [speaker unclear: Will / Adam] wow!
+[00:31:59] Adam: Oh [speaker unclear: Will / Adam] wow!
 
 [00:32:00] Norm: Because it's tied to your hotel room number.
 
@@ -844,17 +784,13 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:33:29] Adam: Oh, yeah.
 
-[00:33:30] Will: You're gonna ask forgiveness, not permission.
-
-[00:33:31] Will: You’re gonna sneak her in?
+[00:33:30] Will: You're gonna ask forgiveness, not permission. You’re gonna sneak her in?
 
 [00:33:32] Adam: Oh, just put him in a little.
 
 [00:33:33] Norm: Yeah, she's small now.
 
-[00:33:34] Will: [speaker unclear for She’ll-go prefix: Will / Norm] She’ll go
-
-[00:33:34] Will: in a bag.
+[00:33:34] Will: [speaker unclear for She’ll-go prefix: Will / Norm] She’ll go in a bag.
 
 [00:33:35] Norm: She's so small.
 
@@ -866,9 +802,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:33:43] Adam: This this this was now. I'm sorry. This is just for people watching on on YouTube.
 
-[00:33:47] Norm: So if you're listening, go go
-
-[00:33:47] Norm: [speaker unclear: Will / Norm] watch it.
+[00:33:47] Norm: So if you're listening, go go [speaker unclear: Will / Norm] watch it.
 
 [00:33:48] Will: Shut it off or chop it off.
 
@@ -876,17 +810,11 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:34:23] Will: I think they look like the granny. It’s a for granny.
 
-[00:34:25] Adam: Stop it! Stop it right now!
-
-[00:34:25] Adam: [speaker unclear: Will / Adam] Stop
-
-[00:34:25] Adam: it! They they're probably some sort of protection, protective padding. But I don't know where on your body they would strap to. So
+[00:34:25] Adam: Stop it! Stop it right now! [speaker unclear: Will / Adam] Stop it! They they're probably some sort of protection, protective padding. But I don't know where on your body they would strap to. So
 
 [00:34:37] Norm: it's not when you're horseback riding. It's what gives you the the pop up of your legs, your pants.
 
-[00:34:40] Adam: So so so Norm will take some pictures. We'll also put up a little post about these and find out what they
-
-[00:34:40] Adam: [speaker unclear: Will / Adam] are.
+[00:34:40] Adam: So so so Norm will take some pictures. We'll also put up a little post about these and find out what they [speaker unclear: Will / Adam] are.
 
 [00:34:44] Will: Like the the just so everybody knows the leather. If you ride horses, feel like the knee roll leather on a on like an English saddle,
 
@@ -908,19 +836,13 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:35:09] Will: they're horrible.
 
-[00:35:09] Adam: Yeah, I just don't care to read
+[00:35:09] Adam: Yeah, I just don't care to read [speaker unclear: Will / Adam] them.
 
-[00:35:09] Adam: [speaker unclear: Will / Adam] them.
-
-[00:35:11] Will: I regret
-
-[00:35:11] Will: [speaker unclear: Adam / Will] everything.
+[00:35:11] Will: I regret [speaker unclear: Adam / Will] everything.
 
 [00:35:11] Adam: I don't. You know, I've already made them all. And so have we here. Right. So,
 
-[00:35:17] Will: [speaker unclear: Will / Adam] I
-
-[00:35:17] Will: mean, unless that's what they actually are, in which case, feel free if you have, if you have sources, we'll take citations.
+[00:35:17] Will: [speaker unclear: Will / Adam] I mean, unless that's what they actually are, in which case, feel free if you have, if you have sources, we'll take citations.
 
 [00:35:17] Unknown speaker: Please.
 
@@ -936,9 +858,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:35:50] Will: Yeah, you could blow it up if you want to get crazy.
 
-[00:35:52] Norm: Wow.
-
-[00:35:52] Norm: You know, I have one of those already. as well. So I’m okay.
+[00:35:52] Norm: Wow. You know, I have one of those already. as well. So I’m okay.
 
 [00:35:56] Will: Is it just sitting in your bedroom looking at you?
 
@@ -970,9 +890,7 @@ Episode URL: https://www.youtube.com/watch?v=oSrBoBbUItk
 
 [00:36:25] Adam: Do it out of bright paper,
 
-[00:36:26] Will: and so. So while the Kickstarter is going, I think I'm gonna if I can sneak in and borrow your laser, we'll do a live
-
-[00:36:26] Will: [speaker unclear: Adam / Will] build.
+[00:36:26] Will: and so. So while the Kickstarter is going, I think I'm gonna if I can sneak in and borrow your laser, we'll do a live [speaker unclear: Adam / Will] build.
 
 [00:36:31] Adam: I'm gonna Ask you to do one of my head too.
 

@@ -128,9 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:13:25] Adam: Um. Because because Mimi Leder, who directed it, and is a terrific director, I think Mimi Leder did some of the episodes of Watchmen.
 
-[00:13:36] Will: Oh, that would make sense.
-
-[00:13:39] Will: I that movie's really well put together. I think it was not like it was very thrilling, but it kind of rolls off of you, as I recall.
+[00:13:36] Will: Oh, that would make sense. I that movie's really well put together. I think it was not like it was very thrilling, but it kind of rolls off of you, as I recall.
 
 [00:13:47] Adam: But it's absolutely like it's a beautifully made film, perfectly put together. It's just like really solid, excellent action adventure film.
 
@@ -148,9 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:14:32] Norm: yes yes
 
-[00:14:34] Will: yeah yeah
-
-[00:14:36] Will: he went from that onto Men in Black right
+[00:14:34] Will: yeah yeah he went from that onto Men in Black right
 
 [00:14:38] Norm: he did he did and the the reason I want to bring that up there was an interesting Twitter thread that I was reading over the weekend of filmmakers in the '80s and '90s had unbelievable streaks in in their run you know when you think of John Carpenter right Ridley Scott and
 
@@ -216,9 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=gTb6-Tu6bGk
 
 [00:18:22] Norm: Hmm.
 
-[00:18:25] Adam: I'm really enjoying it.
-
-[00:18:26] Adam: Jeffrey Wright is a national treasure who is who deserves more acclaim for his excellent abilities as an actor and storyteller.
+[00:18:25] Adam: I'm really enjoying it. Jeffrey Wright is a national treasure who is who deserves more acclaim for his excellent abilities as an actor and storyteller.
 
 [00:18:37] Norm: And Evan Rachel Wood.
 

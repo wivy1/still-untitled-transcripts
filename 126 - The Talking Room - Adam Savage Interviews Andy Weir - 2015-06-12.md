@@ -158,9 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:09:33] Andy Weir: So I'm interested in that.
 
-[00:09:35] Adam: Yeah, yeah, yeah. It's it's pretty crunchy. His— compared
-
-[00:09:37] Adam: to my other spacesuits.
+[00:09:35] Adam: Yeah, yeah, yeah. It's it's pretty crunchy. His— compared to my other spacesuits.
 
 [00:09:37] Andy Weir: Yeah, well, it it sounds awesome. And I want to see it. But the okay, so his spacesuit is is like kind of a next gen spacesuit. One thing that, as a spacesuit buff, I'm sure you know, is that it's it's practically impossible to put on a spacesuit by yourself.
 
@@ -192,9 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:10:54] Andy Weir: Right, and that and that I I even I mentioned in the book, and that's another case where I'm a little hand wavy about it. It's like, oh, he can he can bend down, he can kneel down without too much trouble. If you ever watch the Apollo astronauts, I mean, they're I mean they they're trying to reach down with these little like. Grabber stick things, and then they stumble and fall over, and so I'm assuming that, like, you know, close to 100 years of technological advancements since the Apollo days should be sufficient.
 
-[00:11:22] Adam: Okay.
-
-[00:11:23] Adam: Oh, so is that what you're thinking that this might be about 40 or 50 years in the future?
+[00:11:22] Adam: Okay. Oh, so is that what you're thinking that this might be about 40 or 50 years in the future?
 
 [00:11:26] Andy Weir: Actually, no. I so I'll tell you. Um, uh, I'll show to you. I'll show to you later. I can I can show you a video that I posted online. But I actually calculated the orbital trajectories that they take to get from Earth to Mars and from Mars back to Earth and all the stuff that happens in the book.
 
@@ -320,9 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:19:38] Adam: Would fans actually come up with corrections that would make it into the manuscript then?
 
-[00:19:40] Andy Weir: Absolutely
-
-[00:19:42] Andy Weir: Absolutely, especially the scientific accuracy was great. People are like, oh, you got the chemistry wrong on this, and I'm like, of course I did. I suck at chemistry, and I'm like, tell me what I did wrong, and then now all of a sudden I have a subject matter expert to talk to, right? So I posted it chapter by chapter, and I told the fans, I'm like, I want to be clear, this isn't exactly a serial. I reserve the right to go back and make changes to earlier chapters, so this stuff isn't like set in stone canon.
+[00:19:40] Andy Weir: Absolutely Absolutely, especially the scientific accuracy was great. People are like, oh, you got the chemistry wrong on this, and I'm like, of course I did. I suck at chemistry, and I'm like, tell me what I did wrong, and then now all of a sudden I have a subject matter expert to talk to, right? So I posted it chapter by chapter, and I told the fans, I'm like, I want to be clear, this isn't exactly a serial. I reserve the right to go back and make changes to earlier chapters, so this stuff isn't like set in stone canon.
 
 [00:20:05] Adam: Right, right.
 
@@ -344,9 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:21:21] Andy Weir: So they make their money off their content. So you must charge at least $0.99. Well, basically, it works out to be the lowest you can set your share to is 30%, and the lowest price you can set is $0.99. So I'm like, okay, $0.99. My royalty is thirty thirty big pennies per copy. There you go. So I say, all right, everybody, now you can read it my website, or you can download it for free for your e reader here, or you can pay $1 to have Amazon put it on your e reader for you. Basically, think of it that way. And within a month or two, more people had bought it from Amazon than had downloaded it for free. Because
 
-[00:22:00] Adam: That's hilarious.
-
-[00:22:01] Adam: That's just the cost of convenience.
+[00:22:00] Adam: That's hilarious. That's just the cost of convenience.
 
 [00:22:02] Andy Weir: Yes, the and I guess people $1 is not a big barrier to entry for a lot of people.
 
@@ -438,9 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:27:28] Andy Weir: It's all really exciting to me. Of course, I mean the the people who are doing the manned spaceflight. I mean astronauts are just Universally acknowledged as like a cut above like the rest of humanity. I mean, they're just they're so awesome. And you say like, what makes a good astronaut, right? And one thing, if you're going to have a mission that's going to take you know an entire year, you know, from start to finish, you better have six people who work together. That's one thing. It's like I've never liked it. Well, not never liked it, but I usually don't like it when I'm watching a movie or reading a book and there's a crew, a space crew, and they have like these this tension and these like personal issues and stuff like that. And I'm like, no, like astronauts are unbelievably professional,
 
-[00:28:09] Adam: right? Right.
-
-[00:28:11] Adam: They do. You take the top one tenth of 1% and then shave off 99% of those and you get astronauts,
+[00:28:09] Adam: right? Right. They do. You take the top one tenth of 1% and then shave off 99% of those and you get astronauts,
 
 [00:28:18] Andy Weir: right? Right. Exactly. And then just so the things I wanted to do for the crew, as shown in the book, are first off, obviously, everybody's extremely good at their technical skills, right? Everybody knows exactly what they're doing.
 
@@ -448,15 +438,11 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:28:29] Andy Weir: Nothing on the ship catches them off guard. They don't have to like try to figure. They know how everything works.
 
-[00:28:34] Adam: And that's the way astronauts work.
-
-[00:28:36] Adam: That's the way astronauts are. Through every worst case scenario possible,
+[00:28:34] Adam: And that's the way astronauts work. That's the way astronauts are. Through every worst case scenario possible,
 
 [00:28:38] Andy Weir: right? Number two, a very good esprit de corps. Like they have no personal issues, no arguments or problems with each other. They don't. They don't. They don't butt heads on anything. They're really. They're really professional and very. They get along very well. And then third, a a deep and profound confidence in their commander. So Commander Lewis.
 
-[00:28:59] Adam: right, right. Yes,
-
-[00:28:59] Adam: that was pretty impressive.
+[00:28:59] Adam: right, right. Yes, that was pretty impressive.
 
 [00:29:00] Andy Weir: Is like nobody ever questions what she has to say ever, and not not because they're afraid of her, but just because they respect her that much.
 
@@ -468,9 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:29:27] Andy Weir: Yeah.
 
-[00:29:28] Adam: Did you know that you were going to do that narratively, or did you come to that?
-
-[00:29:33] Adam: Kind of like I want to talk about what's happening on Earth. How NASA would respond to such a thing.
+[00:29:28] Adam: Did you know that you were going to do that narratively, or did you come to that? Kind of like I want to talk about what's happening on Earth. How NASA would respond to such a thing.
 
 [00:29:36] Andy Weir: Exactly. Well. My original plan was, as I started, I didn't really have a full like outline or layout. When I started, my plan was just he's gonna we're gonna see his log entries from the start all the way to the end, like and it's just gonna be everything from his point of view.
 
@@ -486,9 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:30:06] Andy Weir: Is watching like an entire like space complex go like.
 
-[00:30:11] Adam: Right.
-
-[00:30:11] Adam: Yeah. When they see things have moved, things have changed.
+[00:30:11] Adam: Right. Yeah. When they see things have moved, things have changed.
 
 [00:30:14] Andy Weir: And so I realized that it's not like they'd just be sitting around doing nothing. Even if they couldn't communicate with him, they'd be like, Can we send a probe with supplies?
 
@@ -582,9 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:35:38] Andy Weir: The ones that I really liked are the ones where they sent like, hey, you got the math wrong. Yeah. Because then I feel really good about it because it's been like double checked.
 
-[00:35:45] Adam: Right. Right.
-
-[00:35:46] Adam: Right. By the best source.
+[00:35:45] Adam: Right. Right. Right. By the best source.
 
 [00:35:47] Andy Weir: Yeah.
 
@@ -724,9 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:41:47] Andy Weir: Yeah, he mentioned he mentioned like we get one f word. We're using it in the first 30 seconds.
 
-[00:41:51] Adam: Yeah, exactly.
-
-[00:41:53] Adam: That's great. I'm I'm glad to know because it belongs there.
+[00:41:51] Adam: Yeah, exactly. That's great. I'm I'm glad to know because it belongs there.
 
 [00:41:56] Andy Weir: Belongs there. Yeah, his his language alone would would push it into R territory, but that's okay. They're just gonna soften it up a little bit.
 
@@ -758,9 +736,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:43:21] Andy Weir: Well, I I imagine the studio Fox will make one.
 
-[00:43:25] Adam: I'm sure they will.
-
-[00:43:26] Adam: Yeah. Was there a point at which you're writing these? You know, as you're thinking through the exercise of what could go wrong and how would you fix it, and then what could go wrong and how would you fix it, were there points where you went to a dead end, where you went down a path that was just too difficult to fix? So you backtrack.
+[00:43:25] Adam: I'm sure they will. Yeah. Was there a point at which you're writing these? You know, as you're thinking through the exercise of what could go wrong and how would you fix it, and then what could go wrong and how would you fix it, were there points where you went to a dead end, where you went down a path that was just too difficult to fix? So you backtrack.
 
 [00:43:43] Andy Weir: Yes, that actually happened a few times. I was like, oh, let's. Here's another thing that could happen, and then I'm like, if that happens, how does he get out of it? Because I never started with the solution and worked back to the problem. I would always start with the problem,
 
@@ -858,9 +834,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:49:22] Adam: That's what he was pulling. What six Gs?
 
-[00:49:25] Andy Weir: Just like and
-
-[00:49:27] Andy Weir: launching on top of a rocket, just like he's like. So the guy is just. He also had another great expression where he's my favorite astronaut, by the way. He had this great expression where they were talking about stage one failure for the space shuttle when they were launching Columbia, the first, you know, SS, STS one, right?
+[00:49:25] Andy Weir: Just like and launching on top of a rocket, just like he's like. So the guy is just. He also had another great expression where he's my favorite astronaut, by the way. He had this great expression where they were talking about stage one failure for the space shuttle when they were launching Columbia, the first, you know, SS, STS one, right?
 
 [00:49:46] Adam: Yeah.
 
@@ -882,9 +856,7 @@ Episode URL: https://www.youtube.com/watch?v=5SemyzKgaUU
 
 [00:50:58] Andy Weir: And it this valve popped and and let the air out, and they all just died of asphyxiation.
 
-[00:51:04] Adam: Oh.
-
-[00:51:05] Adam: Um, you're gathering together this information. Is it all in here? Are you using a program or a set? What's your organizational philosophy for gathering this to be able to utilize?
+[00:51:04] Adam: Oh. Um, you're gathering together this information. Is it all in here? Are you using a program or a set? What's your organizational philosophy for gathering this to be able to utilize?
 
 [00:51:15] Andy Weir: Well, the the cool anecdotes, like I was just saying, that's just up here because that's cool. Um, all the math and science. So I I had files and spreadsheets, and so like, I know like like I mentioned, I know like what the date was.
 

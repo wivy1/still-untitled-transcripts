@@ -84,9 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:02:22] Adam: You can, you know, you can deduct it.
 
-[00:02:23] Will: That's true. I could deduct it.
-
-[00:02:27] Will: There’s a whole new world of things that can be deducted.
+[00:02:23] Will: That's true. I could deduct it. There’s a whole new world of things that can be deducted.
 
 [00:02:27] Adam: Yeah, man.
 
@@ -276,9 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:07:03] Adam: and they love film.
 
-[00:07:03] Will: Yeah,
-
-[00:07:05] Will: well, and so they also do old shows too. So after we went there, we grabbed the calendar, and they have like a they do a Saturday morning show of of of Miyazaki films sometimes. So they're doing like Spirited Away and Totoro, and stuff like that that you can bring your kids to.
+[00:07:03] Will: Yeah, well, and so they also do old shows too. So after we went there, we grabbed the calendar, and they have like a they do a Saturday morning show of of of Miyazaki films sometimes. So they're doing like Spirited Away and Totoro, and stuff like that that you can bring your kids to.
 
 [00:07:18] Norm: Yeah.
 
@@ -358,9 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:09:17] Will: So okay, that's that's
 
-[00:09:19] Norm: context for
-
-[00:09:19] Norm: Well.
+[00:09:19] Norm: context for Well.
 
 [00:09:19] Will: one of the things I wanted to know. I went and looked on the internet and there's no good list of what changes.
 
@@ -498,9 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:14:08] Adam: You can do without the whole traveling to the yeah
 
-[00:14:11] Will: yeah.
-
-[00:14:11] Will: It just happens when he arrives.
+[00:14:11] Will: yeah. It just happens when he arrives.
 
 [00:14:13] Norm: There's a whole you know. It almost seems like you wrote it for that. You have the people leaving the room, coming back in the room, people doing things on their own when you have other people interacting.
 
@@ -688,11 +680,7 @@ Episode URL: https://www.youtube.com/watch?v=GZ5QgP80dtE
 
 [00:24:34] Adam: I've never seen it.
 
-[00:24:35] Will: Oh, Stagecoach! So, Stagecoach is a relatively, I guess it was probably John Wayne's first big film. Um, and it is, I want to say it's a John Ford. I can't remember, but it's it's a it is the movie that sets a lot of the tone that carries forward into the John Ford era of westerns until you get up to the the the spaghetti westerns of the '60s and '70s. Yeah. Um, and like this is very much in that you know John Ford, Man Who Shot Liberty Valance, Red River. Um, uh, it's it's very much a homage to those in the same way that you know Jackie Brown is to everything Elmore Leonard ever wrote, and and um, like it is it is lovely to look at in that sense because those those openings with the snow are something you never see in those movies because they didn't have the technology. They weren't able to shoot in those places,
-
-[00:25:30] Will: for the most part,
-
-[00:25:31] Will: or they faked it on a soundstage.
+[00:24:35] Will: Oh, Stagecoach! So, Stagecoach is a relatively, I guess it was probably John Wayne's first big film. Um, and it is, I want to say it's a John Ford. I can't remember, but it's it's a it is the movie that sets a lot of the tone that carries forward into the John Ford era of westerns until you get up to the the the spaghetti westerns of the '60s and '70s. Yeah. Um, and like this is very much in that you know John Ford, Man Who Shot Liberty Valance, Red River. Um, uh, it's it's very much a homage to those in the same way that you know Jackie Brown is to everything Elmore Leonard ever wrote, and and um, like it is it is lovely to look at in that sense because those those openings with the snow are something you never see in those movies because they didn't have the technology. They weren't able to shoot in those places, for the most part, or they faked it on a soundstage.
 
 [00:25:31] Adam: Yeah,
 

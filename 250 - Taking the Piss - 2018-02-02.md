@@ -158,9 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:06:16] Will: How how fast do these planes go?
 
-[00:06:16] Adam: Not very.
-
-[00:06:17] Adam: No.
+[00:06:16] Adam: Not very. No.
 
 [00:06:18] Norm: No. I mean, they can because some of these surveillance planes would have flown very high. But what we were doing was relatively low,
 
@@ -258,9 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:10:54] Adam: Yeah.
 
-[00:10:54] Will: You know, because I is he well, I don't want to ask questions that might we might.
-
-[00:10:54] Will: Get in trouble.
+[00:10:54] Will: You know, because I is he well, I don't want to ask questions that might we might. Get in trouble.
 
 [00:10:58] Norm: There's a story I'll put in the show notes where he he has done a video introducing this this documentary concept and as his next project. And I think what he's doing is after he makes it, he's going to make sure every school,
 
@@ -322,9 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:13:39] Will: Because Beyond the company that ran MythBusters that produced MythBusters is Australian company.
 
-[00:13:43] Adam: They are, and I got to see my old director Alice and one of my cameramen Timmy, and I had lunch with Michael Borglund from Beyond. So that's again more of my extended family. Listen, Australia is such a beautiful New Zealand and Australia both incredible countries. Perth, I love Perth. Nobody gets to Perth. Perth is a really beautiful.
-
-[00:13:43] Adam: Place.
+[00:13:43] Adam: They are, and I got to see my old director Alice and one of my cameramen Timmy, and I had lunch with Michael Borglund from Beyond. So that's again more of my extended family. Listen, Australia is such a beautiful New Zealand and Australia both incredible countries. Perth, I love Perth. Nobody gets to Perth. Perth is a really beautiful. Place.
 
 [00:14:04] Will: It's on the west coast, right?
 
@@ -360,9 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:15:14] Will: So is there okay? Is there a human inside? There's like working the legs.
 
-[00:15:19] Adam: No humans inside.
-
-[00:15:19] Adam: The legs are are are automatic, but under the legs is a sled that a human rides in.
+[00:15:19] Adam: No humans inside. The legs are are are automatic, but under the legs is a sled that a human rides in.
 
 [00:15:25] Will: Ah.
 
@@ -392,9 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:17:27] Norm: Oh great!
 
-[00:17:27] Adam: We can put up
-
-[00:17:31] Adam: just me operating one that turned out I was allowed to show.
+[00:17:27] Adam: We can put up just me operating one that turned out I was allowed to show.
 
 [00:17:31] Norm: Oh, cool!
 
@@ -464,9 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:20:44] Will: Right. Did you Did you hand axe the meat off of the animal yourself? Like, what was the?
 
-[00:20:49] Adam: I had a steak.
-
-[00:20:49] Adam: That felt appropriate.
+[00:20:49] Adam: I had a steak. That felt appropriate.
 
 [00:20:50] Will: Okay. Okay, that seems good. Yeah. Nice.
 
@@ -478,9 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:20:55] Will: And I called my GP and he was like, Oh yeah, that's a really good idea. You should do that. And I I had the I felt bad for like one day.
 
-[00:20:55] Adam: Wow,
-
-[00:20:55] Adam: Not bad.
+[00:20:55] Adam: Wow, Not bad.
 
 [00:20:55] Will: which was beats the six days that everybody else is getting.
 
@@ -522,9 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:24:36] Adam: and they all know each other's style very uniquely. It's very interesting.
 
-[00:24:49] Will: Well, one of the things so there was a Q and A along with the along with the session.
-
-[00:24:49] Will: Like like basically people are asking questions. We talk about like Caroll Spinney and how Caroll Spinney does Big Bird. Yeah. And what like that that he's still doing TV puppetry because he's looking at a monitor down on his chest, which is incredible.
+[00:24:49] Will: Well, one of the things so there was a Q and A along with the along with the session. Like like basically people are asking questions. We talk about like Caroll Spinney and how Caroll Spinney does Big Bird. Yeah. And what like that that he's still doing TV puppetry because he's looking at a monitor down on his chest, which is incredible.
 
 [00:25:06] Adam: Yeah.
 
@@ -564,9 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:26:54] Adam: I got I got seven hours of sleep on the way.
 
-[00:26:57] Will: Did you have the pod with the thing that goes over?
-
-[00:26:57] Will: The top?
+[00:26:57] Will: Did you have the pod with the thing that goes over? The top?
 
 [00:26:59] Adam: No, it's not quite that.
 
@@ -584,9 +566,7 @@ Episode URL: https://www.youtube.com/watch?v=TzljG3HMp0s
 
 [00:27:27] Will: It's so good.
 
-[00:27:28] Adam: Such a good movie.
-
-[00:27:30] Adam: That's actually I find it very funny. Quick change has a sorry.
+[00:27:28] Adam: Such a good movie. That's actually I find it very funny. Quick change has a sorry.
 
 [00:27:32] Norm: All right, Go ahead. No, no, no.
 

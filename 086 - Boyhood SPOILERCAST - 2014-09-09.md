@@ -24,17 +24,13 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:00:16] Adam: Yes.
 
-[00:00:16] Will: and I said that I didn't really have any, but I was wrong.
-
-[00:00:16] Will: What you're holding,
+[00:00:16] Will: and I said that I didn't really have any, but I was wrong. What you're holding,
 
 [00:00:16] Adam: you're holding,
 
 [00:00:16] Will: you're holding, you're holding a thing that I hadn't really appreciated how much I covet, and at what a high level.
 
-[00:00:16] Adam: Here, um,
-
-[00:00:34] Adam: that is that is my magnesium aluminum alloy bladed Kill Bill sword made by my friend Jason Blakey.
+[00:00:16] Adam: Here, um, that is that is my magnesium aluminum alloy bladed Kill Bill sword made by my friend Jason Blakey.
 
 [00:00:41] Will: It's dull.
 
@@ -76,9 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:01:55] Will: that hamon, or is it different? That it ends up that way?
 
-[00:01:55] Adam: No,
-
-[00:02:01] Adam: no, no. Different makers seek to put their stamp on it to different. Kinds of hamons and different kind of treatments. Yeah, I mean, every last bit of the of the grain and finish and polish of these things has a name and a school of thought and a philosophy.
+[00:01:55] Adam: No, no, no. Different makers seek to put their stamp on it to different. Kinds of hamons and different kind of treatments. Yeah, I mean, every last bit of the of the grain and finish and polish of these things has a name and a school of thought and a philosophy.
 
 [00:02:01] Will: Of course, of course.
 
@@ -362,9 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:11:59] Norm: And I think that there should be nerd committee, like the national. There should be a a subset of the counterparts of that that committee for the National Film Archives. We're having the very same discussion that they're having,
 
-[00:12:29] Adam: National Nerd Archives,
-
-[00:12:29] Adam: right? About what about import?
+[00:12:29] Adam: National Nerd Archives, right? About what about import?
 
 [00:12:29] Norm: Yes,
 
@@ -854,9 +846,7 @@ Episode URL: https://www.youtube.com/watch?v=E80A3gkAQNo
 
 [00:33:39] Will: The objection is when somebody is in. We've had people who are in, let's say, regions where, like Australia, for example. If you want to go see Guardians of the Galaxy before you leave for Australia tomorrow, I don't think it's going to be in Australia until like 2017.
 
-[00:33:52] Adam: What?
-
-[00:33:52] Adam: I thought it was an international release.
+[00:33:52] Adam: What? I thought it was an international release.
 
 [00:33:54] Will: I'm sure it's an international release.
 

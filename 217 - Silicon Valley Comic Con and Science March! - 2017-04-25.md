@@ -252,9 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=o8Ij0rEn6J8
 
 [00:21:03] Adam: Not at all. He's going to love it.
 
-[00:21:12] Norm: Wait,
-
-[00:21:13] Norm: and some of the nerds out there will say, " Woz did not actually work on the Macintosh."
+[00:21:12] Norm: Wait, and some of the nerds out there will say, " Woz did not actually work on the Macintosh."
 
 [00:21:18] Kishore: Nerds out there, or nerds sitting right next to me,
 

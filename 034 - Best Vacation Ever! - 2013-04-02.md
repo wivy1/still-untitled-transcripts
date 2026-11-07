@@ -154,15 +154,9 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:04:46] Adam: middle of Cape Cod, uh, semi, uh, east of east of Buzzards Bay, down here around the arm. Armpit of Cape Cod.
 
-[00:04:56] Will: Okay. Oh,
+[00:04:56] Will: Okay. Oh, Cape Cod's armpit, you say.
 
-[00:04:58] Will: Cape Cod's armpit, you say.
-
-[00:04:59] Adam: Yeah. Um, but, uh,
-
-[00:05:00] Adam: we also did we did a couple of trips, and the the the one I remember the most is that my my father was obsessed with. I should start with this. What we think of as landscape painting was always considered a lesser art, until, uh, the until a set of artists, uh, Thomas Cole, Asher Durand, Albert Bierstadt, started to paint really serious landscapes on the Hudson, and they're called the Hudson River School of landscape painting, and established landscape painting as a as its own art form, as its own genre. Albert Bierstadt, if you see his like huge paintings of Victoria Falls and stuff like that, you you'd recognize them. These big dramatic skies and and landscapes with, you know, incredible amounts of detail, and my father was obsessed with the Hudson River School.
-
-[00:05:48] Adam: And he did a film for the Museum of Modern. For the Metropolitan Museum of Art in New York, when I was a kid, about about this, he started out with one of the lesser-known artists named Jasper Cropsey because my dad figured out the actual locations that Cropsey painted his paintings.
+[00:04:59] Adam: Yeah. Um, but, uh, we also did we did a couple of trips, and the the the one I remember the most is that my my father was obsessed with. I should start with this. What we think of as landscape painting was always considered a lesser art, until, uh, the until a set of artists, uh, Thomas Cole, Asher Durand, Albert Bierstadt, started to paint really serious landscapes on the Hudson, and they're called the Hudson River School of landscape painting, and established landscape painting as a as its own art form, as its own genre. Albert Bierstadt, if you see his like huge paintings of Victoria Falls and stuff like that, you you'd recognize them. These big dramatic skies and and landscapes with, you know, incredible amounts of detail, and my father was obsessed with the Hudson River School. And he did a film for the Museum of Modern. For the Metropolitan Museum of Art in New York, when I was a kid, about about this, he started out with one of the lesser-known artists named Jasper Cropsey because my dad figured out the actual locations that Cropsey painted his paintings.
 
 [00:06:03] Will: Oh, wow! Really?
 
@@ -206,9 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:08:25] Norm: I
 
-[00:08:25] Will: do you mean amusement parks or roller coasters?
-
-[00:08:27] Will: Disney and Six Flags and that stuff.
+[00:08:25] Will: do you mean amusement parks or roller coasters? Disney and Six Flags and that stuff.
 
 [00:08:29] Adam: I'm lumping them all together into one group. I am a, I'm, I, I. Here's the thing.
 
@@ -458,9 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=xVq_vJkqzaY
 
 [00:20:33] Adam: Yeah.
 
-[00:20:34] Will: Huh. Um,
-
-[00:20:35] Will: yeah, so that that kind of stuff is always fun.
+[00:20:34] Will: Huh. Um, yeah, so that that kind of stuff is always fun.
 
 [00:20:38] Norm: Travel more is
 

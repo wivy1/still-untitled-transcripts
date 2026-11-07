@@ -40,9 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:02:04] Norm: All the hotel plans, ever rewards plan ever.
 
-[00:02:11] Will: It’s a lot. Vacations.
-
-[00:02:11] Will: Yeah, that's 40 cross countries.
+[00:02:11] Will: It’s a lot. Vacations. Yeah, that's 40 cross countries.
 
 [00:02:14] Adam: It's it it works out to something close to that. I mean, you know, we were in Abu Dhabi this summer, and
 
@@ -60,9 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:03:40] Norm: Something to say.
 
-[00:03:41] Adam: I showed you guys the phone
-
-[00:03:43] Adam: footage.
+[00:03:41] Adam: I showed you guys the phone footage.
 
 [00:03:45] Will: Oh yeah, yeah. You showed us two angles because you showed us the the.
 
@@ -270,15 +266,11 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:16:59] Adam: Yep.
 
-[00:17:00] Will: People drive between 55 and 90 miles an hour
-
-[00:17:03] Will: on that stretch of road,
+[00:17:00] Will: People drive between 55 and 90 miles an hour on that stretch of road,
 
 [00:17:04] Norm: and it gets curvy moving into the city.
 
-[00:17:06] Will: Yeah
-
-[00:17:06] Will: and it's really windy, and
+[00:17:06] Will: Yeah and it's really windy, and
 
 [00:17:07] Adam: I'm really lucky that it was a Sunday afternoon.
 
@@ -324,9 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:18:25] Will: It's essentially a train without rails at that point.
 
-[00:18:29] Adam: Yeah, I guess you're right.
-
-[00:18:30] Adam: I guess
+[00:18:29] Adam: Yeah, I guess you're right. I guess
 
 [00:18:30] Norm: tapping the brake
 
@@ -340,9 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:18:47] Will: Do the Cubs play baseball or not?
 
-[00:18:51] Norm: The one with the stripes.
-
-[00:18:51] Norm: Yeah. The other thing aside from MythBusters ending, the most tweets I think we got last week was about the new Star Wars trailer,
+[00:18:51] Norm: The one with the stripes. Yeah. The other thing aside from MythBusters ending, the most tweets I think we got last week was about the new Star Wars trailer,
 
 [00:19:00] Adam: wanting us to talk about it.
 
@@ -358,9 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:19:11] Unknown speaker: Yeah. Um.
 
-[00:19:12] Norm: Four o'clock on Friday.
-
-[00:19:14] Norm: The first show is at seven.
+[00:19:12] Norm: Four o'clock on Friday. The first show is at seven.
 
 [00:19:15] Will: Four o'clock in the afternoon.
 
@@ -394,11 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:19:51] Adam: Well, what they're saying is the final.
 
-[00:19:52] Norm: What they're saying, I believe it. Uh, it doesn't feel like a final theatrical trailer because. Like the other trailers before, while you're seeing a lot of visual elements,
-
-[00:20:01] Norm: it doesn't tell you anything about the story that you didn't already know
-
-[00:20:05] Norm: No.
+[00:19:52] Norm: What they're saying, I believe it. Uh, it doesn't feel like a final theatrical trailer because. Like the other trailers before, while you're seeing a lot of visual elements, it doesn't tell you anything about the story that you didn't already know No.
 
 [00:20:06] Adam: Well, well, the girl seems to be more prominent.
 
@@ -442,9 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:21:18] Will: Both about eight millimeter film. Different. Super eight. Totally different.
 
-[00:21:23] Adam: Hey, Mom!
-
-[00:21:24] Adam: He is bottle fed and vat grown on Spielberg and Lucas, and has retained, I think, their abilities of framing, and I mean framing in the wide scale and love of adventurous storytelling. And so I just I have the highest hopes for this.
+[00:21:23] Adam: Hey, Mom! He is bottle fed and vat grown on Spielberg and Lucas, and has retained, I think, their abilities of framing, and I mean framing in the wide scale and love of adventurous storytelling. And so I just I have the highest hopes for this.
 
 [00:21:41] Will: It made me think. It made me think. So we won't get into specifics yet. We'll talk about it in a minute. It made me think about the original trilogy from a different perspective. Hmm. So I I thought, what would you know these events that we all have watched hundreds of times probably and are. Intimately familiar with, look like to some poor schmo on you know Coruscant or or well Endor probably those guys the Endor genocide is yeah is well established in the literature.
 
@@ -512,9 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:24:02] Will: I think that's the the important most important thing from the trailer. Is all true. Is the it's all true?
 
-[00:24:06] Adam: Right
-
-[00:24:07] Adam: you realize it's become mythology over the last 30 years.
+[00:24:06] Adam: Right you realize it's become mythology over the last 30 years.
 
 [00:24:10] Will: Well, that like I immediately went through and replayed all of the first three movies and was like, oh wait, okay, so Jedi were real in the Old Republic,
 
@@ -544,9 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:25:06] Adam: Yeah.
 
-[00:25:06] Norm: So. I know in the the extended universe doesn't exist in this new movie trilogy, but in the extended universe there was a set of twins. There, I believe, Han and
-
-[00:25:21] Norm: Leia had twins, and they both had force powers, and it was a big part of that story. Oh, and so this could be paying it could be paying homage to that. I don't know.
+[00:25:06] Norm: So. I know in the the extended universe doesn't exist in this new movie trilogy, but in the extended universe there was a set of twins. There, I believe, Han and Leia had twins, and they both had force powers, and it was a big part of that story. Oh, and so this could be paying it could be paying homage to that. I don't know.
 
 [00:25:30] Will: I wouldn't hold my breath.
 
@@ -600,11 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:27:52] Will: Well, I mean that that's the big question. Is it's unclear to me who the big bad is, right? I mean, we're supposed to think it's Adam Driver,
 
-[00:27:59] Adam: right?
-
-[00:28:00] Adam: I mean, it's pretty.
-
-[00:28:00] Adam: I think I love the way he holds that lightsaber—the kind of aggressive way he's holding it every time it goes on. It's not like. A more elegant age. This is more like I'm going to slice you in half, motherfucker.
+[00:27:59] Adam: right? I mean, it's pretty. I think I love the way he holds that lightsaber—the kind of aggressive way he's holding it every time it goes on. It's not like. A more elegant age. This is more like I'm going to slice you in half, motherfucker.
 
 [00:28:12] Will: But then, but then you also see Rey, looking incredibly angry. Yeah, like she's shooting a blaster and looking super, super pissed. So, I mean,
 
@@ -658,9 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:29:56] Will: no, no.
 
-[00:29:56] Adam: no, no. and so yeah, no, that's very exciting. I will tell you, by the way, that the first time I saw Darth Maul, when I worked at Industrial Light and Magic, we would once a month gather together to watch all the shots that had been completed by the company that month. And there was a guy in the edit room up there who would cut together all the completed effects shots, but they weren't with sound. That's a totally different thing. So he'd just cut it to some cool piece of music, and you'd go once a month and to see theater where we watched the Martian screening last week. And you'd sit there for probably 35 minutes to some cool soundtrack, and what? And you'd watch like a perfect storm mixed with bits from Pearl Harbor, mixed with bits from Episode Two. And that was the first time I saw Darth Maul, and we were, I must say, from inside the company, we were making lots of fun of Darth Maul from the very beginning. We kept we called him El Diablo.
-
-[00:30:48] Adam: I mean, I-
+[00:29:56] Adam: no, no. and so yeah, no, that's very exciting. I will tell you, by the way, that the first time I saw Darth Maul, when I worked at Industrial Light and Magic, we would once a month gather together to watch all the shots that had been completed by the company that month. And there was a guy in the edit room up there who would cut together all the completed effects shots, but they weren't with sound. That's a totally different thing. So he'd just cut it to some cool piece of music, and you'd go once a month and to see theater where we watched the Martian screening last week. And you'd sit there for probably 35 minutes to some cool soundtrack, and what? And you'd watch like a perfect storm mixed with bits from Pearl Harbor, mixed with bits from Episode Two. And that was the first time I saw Darth Maul, and we were, I must say, from inside the company, we were making lots of fun of Darth Maul from the very beginning. We kept we called him El Diablo. I mean, I-
 
 [00:30:48] Will: he looked like a Mexican wrestler,
 
@@ -780,9 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=kiCNb2XCOCI
 
 [00:33:51] Adam: Right, right, right.
 
-[00:33:51] Norm: It's Goonies. It's
-
-[00:33:53] Norm: Super Eight. You know, it's it's ragtag team of people from different places coming together and then having an impact on the world,
+[00:33:51] Norm: It's Goonies. It's Super Eight. You know, it's it's ragtag team of people from different places coming together and then having an impact on the world,
 
 [00:33:59] Will: which is the best of Star Wars.
 

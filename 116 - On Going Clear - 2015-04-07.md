@@ -152,9 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:04:21] Adam: that that is a disclaimer that's been in everything I've ever read about Scientology. So I'm putting it in our podcast.
 
-[00:04:26] Will: Okay, thanks, Adam.
-
-[00:04:26] Will: And we are relaying. Our legal team thanks you in advance.
+[00:04:26] Will: Okay, thanks, Adam. And we are relaying. Our legal team thanks you in advance.
 
 [00:04:29] Adam: Any time.
 
@@ -388,9 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:14:47] Adam: So this material they go over in the movie is, I think, very carefully culled from the book. I actually thought that the documentary was, having read the book, I read the book when it first came out. It was almost a little less shocking than the book. I I might have I found the most surprising thing is to see L. Ron Hubbard in person. And if I was cutting that documentary, I might have cut it in reverse. I might have started with the horror stories and gone back to the origin story to see L. Ron Hubbard towards the end because I feel like that would have more of a punch and a power and a terror to it. But I'm just that's all a long way of me saying read the book. The book is phenomenal.
 
-[00:15:30] Will: Why is it so fascinating? Why is Scientology so fascinating? Is it because it's a success?
-
-[00:15:35] Will: And it's a large scale.
+[00:15:30] Will: Why is it so fascinating? Why is Scientology so fascinating? Is it because it's a success? And it's a large scale.
 
 [00:15:36] Norm: I think it's a success that a lot of people don't. I mean, especially in today, you hear about celebrity. I mean, because they use celebrity. As a way for recruitment, and we we give power to celebrity, and there’s a lot unknowns and power structures, and you know it is while it's technically a religion, there’s a lot of semantics that we don't understand. Like why is it a religion?
 
@@ -586,17 +582,13 @@ Episode URL: https://www.youtube.com/watch?v=Phkx8f_Dy5I
 
 [00:24:04] Norm: You don't want to be disconnected. Yeah. A lot of acronyms. Cool.
 
-[00:24:04] Adam: Yes. You don’t
-
-[00:24:08] Adam: want to become an SP.
+[00:24:04] Adam: Yes. You don’t want to become an SP.
 
 [00:24:09] Norm: I'm like a yes. What's an SP? Proud, proud SP.
 
 [00:24:11] Adam: Suppressive person.
 
-[00:24:11] Will: Oh.
-
-[00:24:13] Will: On that note, we'll be out here with the SP.
+[00:24:11] Will: Oh. On that note, we'll be out here with the SP.
 
 [00:24:16] Adam: Kind of a dark episode of Still Untitled.
 

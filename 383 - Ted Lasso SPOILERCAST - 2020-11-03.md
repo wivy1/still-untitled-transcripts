@@ -250,9 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=3sVWJThNzrI
 
 [00:27:44] Norm: Oh, is that who that is?
 
-[00:27:45] Adam: That's, yeah,
-
-[00:27:46] Adam: Giles. Is I mean, with all that charisma, you've never seen Giles do anything but a Hugh Grant impression so far. And Anthony Head shows up, and he's all like, " Hello, darlings." Um. So that episode, that's we watched that last night, and I had some new ideas about that episode. So this is the episode in which the team has its annual fundraising dinner, and the players all get auctioned off to rich old ladies. There's a lot of opportunity for comedy and jealousy, and Ted engineers to have the two warring soccer players at the same table, Jamie and uh,
+[00:27:45] Adam: That's, yeah, Giles. Is I mean, with all that charisma, you've never seen Giles do anything but a Hugh Grant impression so far. And Anthony Head shows up, and he's all like, " Hello, darlings." Um. So that episode, that's we watched that last night, and I had some new ideas about that episode. So this is the episode in which the team has its annual fundraising dinner, and the players all get auctioned off to rich old ladies. There's a lot of opportunity for comedy and jealousy, and Ted engineers to have the two warring soccer players at the same table, Jamie and uh,
 
 [00:28:22] Norm: and Roy,
 

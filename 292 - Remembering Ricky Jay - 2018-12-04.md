@@ -48,9 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:01:36] Unknown speaker (Adam or Norm): Yeah,
 
-[00:01:36] Norm: and and you can you you can hold your head up. Your neck is strong. Oh, be more like your sister.
-
-[00:01:36] Norm: [unclear: Avery / Yeah].
+[00:01:36] Norm: and and you can you you can hold your head up. Your neck is strong. Oh, be more like your sister. [unclear: Avery / Yeah].
 
 [00:01:41] Jeremy: cats are even more self-sufficient though. Like if you have a dog, you still have to walk it, but cats you can forget about.
 
@@ -58,13 +56,9 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:01:50] Norm: Every chore.
 
-[00:01:51] Adam: Well, I mean, cats are just going to show it to you for checking. That’s what they do. Have you looked here? Check it 
+[00:01:51] Adam: Well, I mean, cats are just going to show it to you for checking. That’s what they do. Have you looked here? Check it  out.
 
-[00:01:51] Adam: out.
-
-[00:01:56] Norm: Don't make it angry. Every chore relative to raising 
-
-[00:01:56] Norm: keeping a child alive
+[00:01:56] Norm: Don't make it angry. Every chore relative to raising  keeping a child alive
 
 [00:02:01] Adam: becomes trivial.
 
@@ -136,9 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:05:42] Adam: Yeah,
 
-[00:05:42] Jeremy: they have a Bluetooth device
-
-[00:05:42] Jeremy: in there?
+[00:05:42] Jeremy: they have a Bluetooth device in there?
 
 [00:05:43] Adam: Yep, and apparently it's strong enough that I don't need to. [unclear: Used to be / It used to be] the Bluetooth was not strong enough, and you had to wear like a necklace around your neck with a radio in it
 
@@ -188,17 +180,11 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:07:42] Unknown, possibly Adam or Jeremy or Norm: Mm-hmm. Yeah.
 
-[00:07:43] Norm: Did either either
+[00:07:43] Norm: Did either either of you see a Quiet Place?
 
-[00:07:43] Norm: of you see a Quiet Place?
+[00:07:43] Adam: I have not yet.
 
-[00:07:43] Adam: I
-
-[00:07:46] Adam: have not yet.
-
-[00:07:47] Norm: Oh, hearing aids play a big part of that movie.
-
-[00:07:47] Norm: That’s the John Krasinski horror movie he directed and wrote.
+[00:07:47] Norm: Oh, hearing aids play a big part of that movie. That’s the John Krasinski horror movie he directed and wrote.
 
 [00:07:52] Adam: Yeah. No, I’m I’m dying to see it.
 
@@ -206,9 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:07:59] Norm: I mean, he's in a bunch of movies now, right?
 
-[00:08:01] Adam: Oh, not seeing Jim Halpert. right? 
-
-[00:08:01] Adam: I see what you're saying.
+[00:08:01] Adam: Oh, not seeing Jim Halpert. right?  I see what you're saying.
 
 [00:08:03] Jeremy: Yeah, I mean, he's he's doing the Bourne thing on Amazon, right?
 
@@ -218,9 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:08:08] Norm: Jack Jack Ryan.
 
-[00:08:09] Jeremy: Sorry, Jack Ryan.
-
-[00:08:09] Jeremy: thing.
+[00:08:09] Jeremy: Sorry, Jack Ryan. thing.
 
 [00:08:10] Adam: I had someone tell me, oh, there's a Jack Reacher television show, and I was like, really? I love the Jack Reacher novels, and I went to Amazon. It's like, no, it's Jack Ryan.
 
@@ -236,9 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:08:26] Adam: Tom Cruise was absurd from a height standpoint, but I think the first Jack Reacher movie is a terrific movie, and I defend it heartily. It's a super enjoyable action movie.
 
-[00:08:26] Norm: I
-
-[00:08:35] Norm: believe it was a Chris McQuarrie's first directorial debut.
+[00:08:26] Norm: I believe it was a Chris McQuarrie's first directorial debut.
 
 [00:08:38] Adam: Well, it's terrific. [unclear: It’s got my one / It’s got my]. It's got maybe one of my top three fight scenes in movies.
 
@@ -250,9 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:08:49] Adam: Oh my God! I really should have known that those two were linked. That is. Awesome,
 
-[00:08:55] Norm: but isn’t Jack
-
-[00:08:55] Norm: Reacher?
+[00:08:55] Norm: but isn’t Jack Reacher?
 
 [00:08:55] Adam: [unclear: So / That’s a / The] Way of the Gun has one of my favorite movie quotes in the world, in which James Caan says, " $15 million—that's not money. Money's what you get out of the ATM machine. $15 million is a motive with a universal adapter on it."
 
@@ -278,11 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:10:38] Adam: His internal monologue is fascinating because he'll say things like, " I could see the guy rearing up for a swing, so I adjusted my left foot so that when he did, I bent down, which put my elbow in the perfect place to give him a kidney hit. That would bring down a normal guy, but this guy wanted more. I mean, it’s all this. The the physics and the momentum and the the the the constellation of signals he is processing in a fight is really delightful.
 
-[00:11:02] Norm: There's infallibility, I think, that works great in 
-
-[00:11:02] Norm: book form.
-
-[00:11:02] Norm:  Yeah, but it's it's tough to convey in movie form.
+[00:11:02] Norm: There's infallibility, I think, that works great in  book form. Yeah, but it's it's tough to convey in movie form.
 
 [00:11:10] Jeremy: Didn't they make a second movie?
 
@@ -300,11 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:11:50] Adam: He's a historian, a magician, an Actor, a raconteur, a a guardian of the of the of the Church of Magic. I mean, you know, Ricky Jay was really important culturally.
 
-[00:12:02] Jeremy: The only thing I ever knew him for was from Boogie Nights. 
-
-[00:12:02] Jeremy: That's how that's how I knew him. That's how I was introduced to him. I watched the commentary track multiple times
-
-[00:12:02] Jeremy: and I know Paul Thomas Anderson has a world of respect for him and refers to him as a magician first.
+[00:12:02] Jeremy: The only thing I ever knew him for was from Boogie Nights.  That's how that's how I knew him. That's how I was introduced to him. I watched the commentary track multiple times and I know Paul Thomas Anderson has a world of respect for him and refers to him as a magician first.
 
 [00:12:15] Adam: Yeah,
 
@@ -314,9 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:12:16] Adam: he’s in all the David Mamet films, he’s
 
-[00:12:19] Jeremy: is that
-
-[00:12:19] Jeremy: true?
+[00:12:19] Jeremy: is that true?
 
 [00:12:19] Adam: Oh yeah, he's in most of the David Mamet films. Absolutely, he's part of that troupe. He's in yeah, Ricky Jay is wonderful.
 
@@ -364,17 +332,13 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:15:18] Norm: and consultations in general for storytelling too. Like, how do you trick an audience to to care about this thing?
 
-[00:15:18] Adam: And such
-
-[00:15:24] Adam: a wonderful, wonderful actor. I mean, I love him in the movie Heist. is one of my favorite David Mamet films with Sam Rockwell, Rebecca Pidgeon, Danny DeVito, and Ricky Jay is just is one of their one of their team.
+[00:15:18] Adam: And such a wonderful, wonderful actor. I mean, I love him in the movie Heist. is one of my favorite David Mamet films with Sam Rockwell, Rebecca Pidgeon, Danny DeVito, and Ricky Jay is just is one of their one of their team.
 
 [00:15:39] Jeremy: I don't mean to digress, but I'm stuck on the physics of how you throw a card so well and directly so that it embeds itself into a watermelon.
 
 [00:15:47] Adam: I'm happy to show you right after this podcast.
 
-[00:15:49] Jeremy: [unclear: No, you don’t / No, you don’t have to / ∅].
-
-[00:15:49] Jeremy: Is it more about the spin than the force?
+[00:15:49] Jeremy: [unclear: No, you don’t / No, you don’t have to / ∅]. Is it more about the spin than the force?
 
 [00:15:53] Adam: It is absolutely about the spin and. And over time, yeah, you end up with this ability to kind of whip those cards out. I'm actually I'm pretty good at throwing playing cards. I believe that there are still playing cards in the rafters at M5. And every time he finds one, Jamie Hyneman gets a little pissed off.
 
@@ -392,9 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:16:37] Adam: Really,
 
-[00:16:37] Norm: if you once want to know about his 
-
-[00:16:37] Norm: story.
+[00:16:37] Norm: if you once want to know about his  story.
 
 [00:16:38] Adam: and then there's a there's an early '80s there's sorry there's a '90s HBO documentary of a stage show he did called Ricky Jay and His 52 Assistants, which is absolutely worth watching. I mean, the thing that he would do with his card magic, he really appreci-. You know. Ricky Jay, one of his mentors was Dai Vernon, this really important 20th century magician who really advocated a naturalistic style, not a David Copperfield kind of whoa things are happening, but much more of a you know learned from [unclear: card cheats]. So you know these are the magicians that are like you don't move a coin from one hand to the other. Nobody nobody does that. You do the natural things, the things that don't draw your attention, and so that people like Derek DelGaudio, who's also are adepts of that that style. When you watch them do stuff, it's twice as mysterious because it just feels you don't see any flourishes of cards like you know doing incredible things. You're just watching the impossible happen by what seems like someone just naturally shuffling cards,
 
@@ -408,11 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:18:00] Jeremy: That's God, you know.
 
-[00:18:00] Adam: Yeah. Well, right right after the announcement that Ricky Jay died, he tweeted, " Ricky Jay just stole my wallet."
-
-[00:18:09] Adam: I
-
-[00:18:09] Adam: really appreciated that. That that was like I was really sad about that, and that that was exactly the right amount of lightening of the mood, and I think that Ricky would have loved that. Um, one last thing about Ricky Jay is that when we went to do the card showdown, [unclear: because when we went / was when we, when we went] to do the showdown, I was effectively directing this sequence, and so Ricky said, " What do you want to do?" And I said, " Well, let's face off. I'll say 10 paces, and you'll go. 
+[00:18:00] Adam: Yeah. Well, right right after the announcement that Ricky Jay died, he tweeted, " Ricky Jay just stole my wallet." I really appreciated that. That that was like I was really sad about that, and that that was exactly the right amount of lightening of the mood, and I think that Ricky would have loved that. Um, one last thing about Ricky Jay is that when we went to do the card showdown, [unclear: because when we went / was when we, when we went] to do the showdown, I was effectively directing this sequence, and so Ricky said, " What do you want to do?" And I said, " Well, let's face off. I'll say 10 paces, and you'll go. 
 
 [00:18:09] Unknown speaker (Adam or Jeremy): Let’s do it."
 
@@ -420,9 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:19:06] Jeremy: Yeah, hope you're wearing your safety goggles.
 
-[00:19:07] Adam: Yeah, I was. We were both wearing safety 
-
-[00:19:07] Adam: goggles.
+[00:19:07] Adam: Yeah, I was. We were both wearing safety  goggles.
 
 [00:19:09] Unknown speaker (Norm or Jeremy): Threw the card right in your belly button.
 
@@ -442,9 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:20:57] Jeremy: Yeah, actually, related to the wireless charging, I'm finally like getting my hands into NFC, which is like all the makers out there like they.
 
-[00:20:57] Adam: What
-
-[00:21:06] Adam: is NFC?
+[00:20:57] Adam: What is NFC?
 
 [00:21:07] Jeremy: A near field communication.
 
@@ -482,9 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:22:21] Adam: But we did discover that reed switches are highly volatile, and soldering them just a little too long can render them completely destroyed.
 
-[00:22:29] Jeremy: You did a great job, though. It works, right? 
-
-[00:22:29] Jeremy: Does it still work?
+[00:22:29] Jeremy: You did a great job, though. It works, right?  Does it still work?
 
 [00:22:31] Adam: It still works right now. If you leave it plugged in for too long, the sound cuts out, so you have to unplug it for 10 seconds and then replug it in. But yeah, those reed switches are still working. But I think out of we ended up needing three. I had to solder five to get those three because I destroyed a couple.
 
@@ -502,9 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:23:26] Adam: No, no, no, no. This is actually a thing that really happened. So it was a really, really clever bug because it wasn't actively powered. It was only powered when they were beaming a radio at it, and so the normal bug sweeps would not pick it up because this had no had no signature.
 
-[00:23:42] Jeremy: Yeah.
-
-[00:23:43] Jeremy: Wow.
+[00:23:42] Jeremy: Yeah. Wow.
 
 [00:23:43] Adam: Yeah.
 
@@ -588,17 +538,13 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:26:24] Unknown speaker: I think people are going to like it.
 
-[00:26:25] Adam: I'm trying to figure out. So yeah, I'm trying to figure out exactly how to display it, how to properly display it. That'll be that'll be the next thing. Oh, that's such a tease. I'm so sorry, everybody. 
-
-[00:26:25] Adam: It’s a Blade Runner prop.
+[00:26:25] Adam: I'm trying to figure out. So yeah, I'm trying to figure out exactly how to display it, how to properly display it. That'll be that'll be the next thing. Oh, that's such a tease. I'm so sorry, everybody.  It’s a Blade Runner prop.
 
 [00:26:39] Norm: Oh,
 
 [00:26:39] Adam: Yeah, there you go. I'm dropping it. It’s a Blade Runner prop, and you might have seen it in the background of some various some various videos here or there. I think it might have shown up in the background a couple times.
 
-[00:26:50] Norm: Yeah,
-
-[00:26:50] Norm: I think that's enough information. People can suss that out based on that, but it’s it’s worth the wait. Definitely worth the wait. One other recommendation, and it's for you guys in the room too. I was doing. We're watching a lot of Netflix now because baby, and I actually found [unclear: some / someone] on Netflix just randomly selecting something that ended up being amazing. It's and kind of passed by. Came out last year. It's called Five Came Back, and it's a Steven Spielberg produced three episode documentary series about the five film directors in Hollywood who went to film World War II. Oh, wow. So it’s about John Ford, John Huston, George Stevens, Frank Capra, and William Wyler, who in the '20s and '30s were pioneers in Hollywood. [unclear: ∅ / Yeah]. Some of them had already made you know Maltese Falcon [unclear: and and and / Yeah, yeah, and] won Academy Awards, and their decision to pause their careers and support the war effort by filming World War II. So it builds up and culminates, and this is all history. So the footage you see on D Day and the Battle of Midway are filmed by these. These directors and how they brought their directorial sensibilities to telling the story of war,
+[00:26:50] Norm: Yeah, I think that's enough information. People can suss that out based on that, but it’s it’s worth the wait. Definitely worth the wait. One other recommendation, and it's for you guys in the room too. I was doing. We're watching a lot of Netflix now because baby, and I actually found [unclear: some / someone] on Netflix just randomly selecting something that ended up being amazing. It's and kind of passed by. Came out last year. It's called Five Came Back, and it's a Steven Spielberg produced three episode documentary series about the five film directors in Hollywood who went to film World War II. Oh, wow. So it’s about John Ford, John Huston, George Stevens, Frank Capra, and William Wyler, who in the '20s and '30s were pioneers in Hollywood. [unclear: ∅ / Yeah]. Some of them had already made you know Maltese Falcon [unclear: and and and / Yeah, yeah, and] won Academy Awards, and their decision to pause their careers and support the war effort by filming World War II. So it builds up and culminates, and this is all history. So the footage you see on D Day and the Battle of Midway are filmed by these. These directors and how they brought their directorial sensibilities to telling the story of war,
 
 [00:28:08] Unknown speaker (Adam or Jeremy): incredible,
 
@@ -608,13 +554,9 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:28:14] Norm: Yes, well, 100%.
 
-[00:28:15] Adam: That
+[00:28:15] Adam: That also that also dovetails really with the " They Shall Not Grow Old" coming out
 
-[00:28:15] Adam: also that also dovetails really with the " They Shall Not Grow Old" coming out
-
-[00:28:21] Norm: in mid-December,
-
-[00:28:22] Norm: Totally, no, absolutely.
+[00:28:21] Norm: in mid-December, Totally, no, absolutely.
 
 [00:28:23] Adam: Peter Jackson's World War One restored footage film,
 
@@ -622,23 +564,15 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:28:26] Adam: [unclear: ∅ / Oh].
 
-[00:28:26] Norm: Steven
-
-[00:28:26] Norm:  Spielberg, Lawrence Kasdan, and and Francis Ford Coppola.
+[00:28:26] Norm: Steven Spielberg, Lawrence Kasdan, and and Francis Ford Coppola.
 
 [00:28:51] Adam: Your memory Norm is really something to marvel at.
 
 [00:28:54] Jeremy: He's He's lost 10%.
 
-[00:28:55] Norm: Yeah, 10 feet.
+[00:28:55] Norm: Yeah, 10 feet. You can see it. Yeah,
 
-[00:28:55] Norm: You
-
-[00:28:55] Norm: can see it. Yeah,
-
-[00:28:58] Jeremy: but still,
-
-[00:28:58] Jeremy: that's like 100%, but more than I have.
+[00:28:58] Jeremy: but still, that's like 100%, but more than I have.
 
 [00:29:00] Adam: Um, I did. I just a shameless plug. I want to point out that we have some brand new products, for sale for the holidays on AdamSavage.com, where we've released some wide mouth pouches that you can buy in a set, a large and a small. I don't go anywhere without these in my bag. Been developing this with Marcos for several months, and the pouches. Yeah, I'm really psyched about this. And we have a EDC one, EDC twos now. The smaller EDC bag in black, and black on black, and black with a gray interior. So if you're interested in some of those things, go check it out at AdamSavage.com. And shameless plug.
 
@@ -646,13 +580,9 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:29:52] Adam: She is so amazing. I'm her Phoenix gauntlets have have they're sitting right over there on my pool table because I'm. Trying to figure out how best to display all of my gauntlets, I realized in the same way I have helmet display, I need to come up with a way for the gauntlets to all be visible in a in a singular way, and that's non trivial.
 
-[00:30:09] Norm: [unclear: Oh well, these / They’re large things].
+[00:30:09] Norm: [unclear: Oh well, these / They’re large things]. because they're so posable, yeah. Might want to. How do you find a? hand?
 
-[00:30:10] Norm: because they're so posable, yeah. Might want to. How do you find a? hand?
-
-[00:30:13] Adam: Well,
-
-[00:30:13] Adam: I have some posable hands over there. I bought some of those wooden artist posable hands, but then really, I want all the gauntlets to be posed and visible, you know. So [unclear: that’s / that’s a / that’s it.] Melissa Ng is lightning in a bottle. It's delightful to know her, and she was so much fun to host here in the cave.
+[00:30:13] Adam: Well, I have some posable hands over there. I bought some of those wooden artist posable hands, but then really, I want all the gauntlets to be posed and visible, you know. So [unclear: that’s / that’s a / that’s it.] Melissa Ng is lightning in a bottle. It's delightful to know her, and she was so much fun to host here in the cave.
 
 [00:30:29] Jeremy: I would have thought there was no room left in your cave years ago, and yet you always find a way.
 
@@ -666,9 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:30:55] Norm: there are a lot.
 
-[00:30:56] Adam: I’ve
-
-[00:30:56] Adam: got space gloves. I've got yeah, I've got early gauntlets that I made when I was. 25. Yeah,
+[00:30:56] Adam: I’ve got space gloves. I've got yeah, I've got early gauntlets that I made when I was. 25. Yeah,
 
 [00:31:02] Norm: sounds like a future-tested video.
 
@@ -688,9 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=BWXnB7cKR08
 
 [00:31:18] Jeremy: My pleasure.
 
-[00:31:18] Adam: Thank you,
-
-[00:31:18] Adam: Jeremy.
+[00:31:18] Adam: Thank you, Jeremy.
 
 [00:31:18] Jeremy: My pleasure. Thank you, guys.
 

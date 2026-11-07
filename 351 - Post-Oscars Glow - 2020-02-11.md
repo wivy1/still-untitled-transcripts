@@ -46,19 +46,13 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:00:43] Norm: Yeah. East Coast is doing [unclear]. very windy in San Francisco. Coming in though.
 
-[00:00:46] Adam: Yeah.
+[00:00:46] Adam: Yeah. Yesterday morning, coming back from coffee, heading north on Valencia, I had trouble moving forward on the Onewheel because of the strength of the wind.
 
-[00:00:47] Adam: Yesterday morning, coming back from coffee, heading north on Valencia, I had trouble moving forward on the Onewheel because of the strength of the wind.
-
-[00:00:55] Will: Wow. Our power went out. Because of the wind in Pacifica,
-
-[00:00:59] Will: never happens.
+[00:00:55] Will: Wow. Our power went out. Because of the wind in Pacifica, never happens.
 
 [00:00:59] Adam: Really,
 
-[00:00:59] Will: I mean, usually they turn off because they're afraid the the PG&E is going to burn down the thing.. But in this case,
-
-[00:01:04] Will: but this time it was just the wind blew up a tree over a power line.
+[00:00:59] Will: I mean, usually they turn off because they're afraid the the PG&E is going to burn down the thing.. But in this case, but this time it was just the wind blew up a tree over a power line.
 
 [00:01:07] Adam: Wow.
 
@@ -114,9 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:02:49] Adam: It's a boat that's just like not being on a boat.
 
-[00:02:51] Will: What if you went on a cruise in outer space without ever leaving your hotel?
-
-[00:02:59] Will: Also, it's really expensive.
+[00:02:51] Will: What if you went on a cruise in outer space without ever leaving your hotel? Also, it's really expensive.
 
 [00:02:59] Norm: They're building.
 
@@ -158,9 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:03:50] Adam: It's decidedly animated.
 
-[00:03:52] Norm: It is decidedly animated.
-
-[00:03:53] Norm: It's 100%.
+[00:03:52] Norm: It is decidedly animated. It's 100%.
 
 [00:03:54] Will: Animated.
 
@@ -180,9 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:04:10] Will: Yeah.
 
-[00:04:10] Adam: Um, aside from them being, I think, from a watching standpoint, the most boring and least interesting
-
-[00:04:11] Adam: of all the,
+[00:04:10] Adam: Um, aside from them being, I think, from a watching standpoint, the most boring and least interesting of all the,
 
 [00:04:21] Will: They're always the most boring.
 
@@ -298,9 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:08:05] Norm: No, no one at the Academy knows.
 
-[00:08:06] Will: It's it's handled by whatever. Maybe
-
-[00:08:08] Will: Price Waterhouse.
+[00:08:06] Will: It's it's handled by whatever. Maybe Price Waterhouse.
 
 [00:08:08] Adam: PwC.
 
@@ -344,9 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:09:41] Adam: I did it. I used the force. Um, yes, the outrage for this Oscars happened when the nominations were announced because of Oscars so white.
 
-[00:09:52] Will: Yeah.
-
-[00:09:53] Will: Which continues to be a thing.
+[00:09:52] Will: Yeah. Which continues to be a thing.
 
 [00:09:54] Adam: Which still ends up being a real problem for them. However, yes, I think that there was a lot of well-deserved awards. I thought the, uh, uh, uh, uh.. The score. The woman who won for best score was
 
@@ -592,9 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:21:14] Unknown speaker: Yes.
 
-[00:21:17] Adam: The case I made for the Blade Runner blaster.
-
-[00:21:17] Adam: That was not the that was not the first case I made for an object I loved, but it started me on a path of really workshopping these cases until they felt like they were part of the universe that I wanted the object to take me to.
+[00:21:17] Adam: The case I made for the Blade Runner blaster. That was not the that was not the first case I made for an object I loved, but it started me on a path of really workshopping these cases until they felt like they were part of the universe that I wanted the object to take me to.
 
 [00:21:34] Will: The microscope case.
 
@@ -610,11 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:22:12] Will: It feels like maybe an Empire guy might display that.
 
-[00:22:14] Adam: Oh, I know. I realize it's almost a trophy case, and that's again. I'm sorry, we're describing this in the abstract. We will do a show and tell video. We'll shoot it today of this case, so it goes up soon. But what I did over the weekend is I came in and made a case for a costume I'm wearing very soon, and this was a. So I'll I'll do it like this. I'll have this costume. This was a commission that came in, and we'll
-
-[00:22:38] Adam: release a few
-
-[00:22:39] Adam: videos about this very soon. But the costume is beautiful, and it's not just beautiful, and it doesn't just look like the one from the film, but it feels substantively great. And so I kept on thinking it's a superhero costume, and I kept on thinking, well, what would the superhero store
+[00:22:14] Adam: Oh, I know. I realize it's almost a trophy case, and that's again. I'm sorry, we're describing this in the abstract. We will do a show and tell video. We'll shoot it today of this case, so it goes up soon. But what I did over the weekend is I came in and made a case for a costume I'm wearing very soon, and this was a. So I'll I'll do it like this. I'll have this costume. This was a commission that came in, and we'll release a few videos about this very soon. But the costume is beautiful, and it's not just beautiful, and it doesn't just look like the one from the film, but it feels substantively great. And so I kept on thinking it's a superhero costume, and I kept on thinking, well, what would the superhero store
 
 [00:22:55] Norm: their costume in. Their
 
@@ -694,9 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=7_bZ2zLYnNE
 
 [00:26:21] Will: Is this the one that I came in and I was like? And I think, I think everybody else that hit the door was like, " Where the hell are you going to store this thing?"
 
-[00:26:25] Adam: Everyone, yeah, everyone.
-
-[00:26:26] Adam: We put it in storage yesterday.
+[00:26:25] Adam: Everyone, yeah, everyone. We put it in storage yesterday.
 
 [00:26:28] Will: Yeah, that's great. People love this kind of oblique references to upcoming content. It's their favorite. I have a concrete piece of content I can recommend.
 

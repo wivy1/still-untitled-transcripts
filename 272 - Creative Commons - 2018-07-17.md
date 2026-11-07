@@ -120,9 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:05:56] Will: Yeah,
 
-[00:05:56] Adam: so so gorgeous. At 6 a.m. with raking sunlight across the valley,
-
-[00:06:01] Adam: it was the perfect time.
+[00:05:56] Adam: so so gorgeous. At 6 a.m. with raking sunlight across the valley, it was the perfect time.
 
 [00:06:02] Will: Is the, I, I, I'm bad about my Shining stuff, but is the the Overlook is actually there, right?
 
@@ -142,9 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:06:27] Norm: middle Oregon.
 
-[00:06:28] Adam: Okay,
-
-[00:06:29] Adam: it's all it's all a jumble in my head now. After all that research.
+[00:06:28] Adam: Okay, it's all it's all a jumble in my head now. After all that research.
 
 [00:06:31] Norm: The terrible Shining remake, the TV movie in the '90s was shot.
 
@@ -258,9 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:10:33] Norm: Right?
 
-[00:10:37] Adam: Yeah, no.
-
-[00:10:37] Adam: I've been a Flickr user for well over a decade.
+[00:10:37] Adam: Yeah, no. I've been a Flickr user for well over a decade.
 
 [00:10:37] Unknown speaker (Norm or Adam): Yeah.
 
@@ -270,9 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:10:46] Adam: Called Nanette.
 
-[00:10:48] Will: Oh, I've heard about this
-
-[00:10:48] Will: What is it?
+[00:10:48] Will: Oh, I've heard about this What is it?
 
 [00:10:49] Adam: by an Australian comedian named Hannah Gadsby.
 
@@ -348,9 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:14:07] Will: Yeah. Well, and and so in this, like, they got through the first 10 or 15 minutes were the nostalgia part that was interesting on the first read of the book and insufferable on every subsequent visit through. And and I thought it was really like he got that out of the way up front, and then it was just kind of like it was there in the background if you wanted to go in and frame by frame see what all the characters were, but it wasn't. It wasn't a hey, look at my Delorean with the Knight Rider flashy lights and the R2-D2 on the back,
 
-[00:14:35] Norm: Right, right. It showed.
-
-[00:14:36] Norm: It didn't have to tell.
+[00:14:35] Norm: Right, right. It showed. It didn't have to tell.
 
 [00:14:37] Unknown speaker (Will or Norm): Yeah,
 
@@ -360,9 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:14:40] Adam: I reread. Um, as part of my all space, all the time lifestyle right now, all NASA, all space exploration, I reread Nicholas de Monchaux's incredible book, Spacesuit.
 
-[00:14:51] Will: Oh, I bought
-
-[00:14:51] Will: that the other day.
+[00:14:51] Will: Oh, I bought that the other day.
 
 [00:14:51] Adam: Nicholas de Monchaux is a professor at Cal. Uh, he's. I was introduced to him by Tom Sachs. He's become a friend. He's. It's an amazingly wonderful book. Um, it's written non-linearly because, as he points out in the beginning, the story of the spacesuit that NASA took to the moon is so weird you can't tell it linearly. So he decided to break the book into the 21 chapters, each signifying one of the 21 layers of the Apollo A seven suit.
 
@@ -416,9 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:17:16] Will: So that would have been before like Luxo Jr. or any of their when they were doing stuff for Disney.
 
-[00:17:20] Adam: Yeah,
-
-[00:17:20] Adam: it was super, super,
+[00:17:20] Adam: Yeah, it was super, super,
 
 [00:17:21] Unknown speaker, Adam or Will: super,
 
@@ -454,9 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:19:02] Adam: I was like, I'm getting chills just describing it. I didn't. I was like, oh man, so this is totally different. And then when you get to see the guy fall off the bike and the camera's following him as he's tumbling on the highway, and you feel every bump,
 
-[00:19:18] Will: like that. That was the moment that was like those those like the motorcycle chase, the first motorcycle motorcycle chase. I was like, this is I've never seen this in in in a in a live action film before.
-
-[00:19:31] Will: Oh yeah,
+[00:19:18] Will: like that. That was the moment that was like those those like the motorcycle chase, the first motorcycle motorcycle chase. I was like, this is I've never seen this in in in a in a live action film before. Oh yeah,
 
 [00:19:31] Adam: yeah. The sound
 
@@ -486,9 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:20:37] Norm: that's the beauty about animation, whether it's the hand-drawn or even CG stuff. Now, even the CG stuff now, Pixar prides itself in. All being hand done. It's not simulations in terms of like
 
-[00:20:48] Adam: right.
-
-[00:20:49] Adam: They're not doing physics simulations.
+[00:20:48] Adam: right. They're not doing physics simulations.
 
 [00:20:50] Norm: They're hand animating everything. Like they're not. They're not putting markers on people to animate the faces.
 
@@ -516,11 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:21:50] Will: What's Sorry to bother you.
 
-[00:21:51] Adam: Sorry to bother you. Is Boots Riley's film starring Lakeith Stanfield, um, uh, from Atlanta and from, uh, Get Out? It's apparent. I have been steadfastly not learning anything about it because I've been hearing it's so amazing. Actually, at Sketchfest about three or four years ago, Boots Riley was here in the cave telling me about his screenplay for this movie [unclear: and telling / And I was like, oh, my God. And telling] me that he had shown it to Dave Eggers, who said it was the best screenplay he'd ever seen, and then published it.
-
-[00:22:24] Adam: Wow!
-
-[00:22:24] Adam: And now it is out, and I like I. I've been a little busy, but I cannot wait to see it. Everyone I know who's seen it says it is completely astounding—an experience.
+[00:21:51] Adam: Sorry to bother you. Is Boots Riley's film starring Lakeith Stanfield, um, uh, from Atlanta and from, uh, Get Out? It's apparent. I have been steadfastly not learning anything about it because I've been hearing it's so amazing. Actually, at Sketchfest about three or four years ago, Boots Riley was here in the cave telling me about his screenplay for this movie [unclear: and telling / And I was like, oh, my God. And telling] me that he had shown it to Dave Eggers, who said it was the best screenplay he'd ever seen, and then published it. Wow! And now it is out, and I like I. I've been a little busy, but I cannot wait to see it. Everyone I know who's seen it says it is completely astounding—an experience.
 
 [00:22:34] Norm: Shot in the Bay Area, shot in Oakland, set in Oakland.
 
@@ -584,11 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:25:02] Will: Perfect.
 
-[00:25:02] Adam: But I also released the plans for the EDC one and two, so that people can buy the plans and make them themselves.
-
-[00:25:09] Adam: That's awesome.
-
-[00:25:09] Adam: This was informed by a request. Number one, when we released the EDC one, we made it as cheap as we could and still be able to manufacture it in the United States. And people said that was, you know, some people complained that it was too expensive, and I appreciate that. So we were able to make the EDC two, uh, much more efficiently. Marcos did some amazing designing to make it out of two pieces of fabric, where the original is like seven or eight. And still, someone said that back at that time, you could also release the plans so people could make their own. And I thought about it, and I really liked that idea. So I'm releasing the plans, uh, for $15. You can buy the plans for one or the other bag,
+[00:25:02] Adam: But I also released the plans for the EDC one and two, so that people can buy the plans and make them themselves. That's awesome. This was informed by a request. Number one, when we released the EDC one, we made it as cheap as we could and still be able to manufacture it in the United States. And people said that was, you know, some people complained that it was too expensive, and I appreciate that. So we were able to make the EDC two, uh, much more efficiently. Marcos did some amazing designing to make it out of two pieces of fabric, where the original is like seven or eight. And still, someone said that back at that time, you could also release the plans so people could make their own. And I thought about it, and I really liked that idea. So I'm releasing the plans, uh, for $15. You can buy the plans for one or the other bag,
 
 [00:25:47] Norm: and these are these are large, full size,
 
@@ -612,9 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:28:05] Unknown speaker (Norm, Will or Adam carry): Yeah,
 
-[00:28:05] Adam: Um, we're trying to solve that.
-
-[00:28:08] Adam: That's a separate issue.
+[00:28:05] Adam: Um, we're trying to solve that. That's a separate issue.
 
 [00:28:08] Norm: Purely logistical.
 
@@ -666,9 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:29:46] Adam: yeah.
 
-[00:29:46] Will: Not hard to do. Like his point is, people are going to do it anyway.
-
-[00:29:49] Will: At least now I have a relationship with these people, and they sign up for my mailing list or whatever.
+[00:29:46] Will: Not hard to do. Like his point is, people are going to do it anyway. At least now I have a relationship with these people, and they sign up for my mailing list or whatever.
 
 [00:29:52] Adam: Right, right. Uh, okay. Second question: If I charge, I charge $15 for the plans
 
@@ -732,9 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:33:05] Norm: $20,  a person.
 
-[00:33:05] Adam: $20.
-
-[00:33:06] Adam: I need a picture of an eye.
+[00:33:05] Adam: $20. I need a picture of an eye.
 
 [00:33:08] Will: Oh yeah, just just just stare at me. Send me a short video that says, " I think that these plans are worth nothing, Adam," and then you can have them for free.
 
@@ -786,9 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:35:36] Norm: I gave you the. Flickr Creative Commons segue, like 20 minutes ago.
 
-[00:35:40] Will: I looked, I saw that one hanging there.
-
-[00:35:42] Will: I saw that one hanging there.
+[00:35:40] Will: I looked, I saw that one hanging there. I saw that one hanging there.
 
 [00:35:44] Adam: You know Norm better, and
 
@@ -822,9 +788,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:36:26] Adam: but but that doesn't include the emotional aspect of what it means to see. When I was walking by Byrite Ice Cream as Totoro two years ago on Halloween, the guy behind the counter lost his freaking mind.
 
-[00:36:38] Will: Oh, I
-
-[00:36:38] Will: can't. I. I I would love, like, I on Halloween or something like when they're doing the they're doing a screening of, um, Totoro at at, uh, they do it every summer
+[00:36:38] Will: Oh, I can't. I. I I would love, like, I on Halloween or something like when they're doing the they're doing a screening of, um, Totoro at at, uh, they do it every summer
 
 [00:36:49] Adam: yeah
 
@@ -874,9 +838,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:37:56] Adam: amazing.
 
-[00:37:56] Will: Um, But but imagine the herding of the Totoros right down the middle of the
-
-[00:38:00] Will: running of the Totoros.
+[00:37:56] Will: Um, But but imagine the herding of the Totoros right down the middle of the running of the Totoros.
 
 [00:38:01] Adam: I can't wait to see your photos and the documentation from this. Also, at my panel, I'll be showing some some teaser footage from MythBusters Junior.
 
@@ -1018,9 +980,7 @@ Episode URL: https://www.youtube.com/watch?v=_oEvB9ft5-M
 
 [00:42:55] Adam: It's it's an amazing achievement.
 
-[00:42:57] Will: Oh, okay. We'll see you next week. Have fun at Comic Con, boys.
-
-[00:43:01] Will: I'll be here holding on the home fort and we'll see you next week.
+[00:42:57] Will: Oh, okay. We'll see you next week. Have fun at Comic Con, boys. I'll be here holding on the home fort and we'll see you next week.
 
 [00:43:01] Adam: When we get back. Thanks, y'all.
 

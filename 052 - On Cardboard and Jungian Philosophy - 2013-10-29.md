@@ -28,9 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:00:50] Will: Oh yeah, that's great.
 
-[00:00:51] Adam: You know those videos that have been talking about the condition of bitchy resting face.
-
-[00:00:56] Adam: There's a whole YouTube video of like. Do people sometimes misinterpret you? You might have bitchy resting face.
+[00:00:51] Adam: You know those videos that have been talking about the condition of bitchy resting face. There's a whole YouTube video of like. Do people sometimes misinterpret you? You might have bitchy resting face.
 
 [00:01:02] Will: I have bitchy resting face.
 
@@ -56,9 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:02:48] Norm: Oh, just no muscle control.
 
-[00:02:52] Will: Just like oh, I am
-
-[00:02:53] Will: using exactly as much energy as I need to do this and this. Oh yeah, the blah, blah, blah, blah.
+[00:02:52] Will: Just like oh, I am using exactly as much energy as I need to do this and this. Oh yeah, the blah, blah, blah, blah.
 
 [00:02:58] Norm: There is a great animated GIF from
 
@@ -68,15 +64,11 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:03:06] Adam: Yeah.
 
-[00:03:06] Norm: and, uh, she was talking about books
-
-[00:03:06] Norm: and literature, she's a huge book nerd,
+[00:03:06] Norm: and, uh, she was talking about books and literature, she's a huge book nerd,
 
 [00:03:10] Adam: Yeah.
 
-[00:03:10] Norm: and telling us
-
-[00:03:10] Norm: and like if you watch the video, we're listening, but we're also a little like we're staring at our laptops. We’re staring forward. And she says she describes a genre of literature or a specific book in which there was like samurai, and then she says with Pokemon, and the moment she says with Pokemon, all three of our heads look up as if that's the cue. Like that was something interesting.
+[00:03:10] Norm: and telling us and like if you watch the video, we're listening, but we're also a little like we're staring at our laptops. We’re staring forward. And she says she describes a genre of literature or a specific book in which there was like samurai, and then she says with Pokemon, and the moment she says with Pokemon, all three of our heads look up as if that's the cue. Like that was something interesting.
 
 [00:03:33] Will: It's like when you watch a meerkat video and there's a predator coming. It's like what?
 
@@ -84,9 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:03:41] Will: That was only eight or nine hours in. That was early.
 
-[00:03:43] Adam: Great.
-
-[00:03:44] Adam: Um. I have gone through this. Like I've I've filmed MythBusters either in a terrible mood or without enough sleep, or sometimes I've been sick. You know,
+[00:03:43] Adam: Great. Um. I have gone through this. Like I've I've filmed MythBusters either in a terrible mood or without enough sleep, or sometimes I've been sick. You know,
 
 [00:03:55] Will: the show must go on.
 
@@ -194,9 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:09:42] Will: It's all they had back then, probably.
 
-[00:09:46] Adam: Right.
-
-[00:09:46] Adam: So I made the MTV logo
+[00:09:46] Adam: Right. So I made the MTV logo
 
 [00:09:48] Norm: You requested from your cable company.
 
@@ -298,9 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:15:10] Norm: You can't understand that
 
-[00:15:11] Adam: right,
-
-[00:15:12] Adam: right, right. That is a text from my kid's school about the fire on Mission and 25th, causing difficulty at the actual school, which is on 25th and Valencia.
+[00:15:11] Adam: right, right, right. That is a text from my kid's school about the fire on Mission and 25th, causing difficulty at the actual school, which is on 25th and Valencia.
 
 [00:15:20] Will: There's a fire in San Francisco. We're recording this the day before it goes up, which is actually kind of unusual.
 
@@ -448,9 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:19:34] Will: There, you are on. You are in the. Well, they're into the window.
 
-[00:19:36] Adam: Yeah,
-
-[00:19:36] Adam: they're exploring. You've watched all of Breaking Bad. I think we can use real words.
+[00:19:36] Adam: Yeah, they're exploring. You've watched all of Breaking Bad. I think we can use real words.
 
 [00:19:40] Will: Yeah, well, they don't use real words in Breaking Bad, though, do they? It's on basic cable.
 
@@ -478,9 +462,7 @@ Episode URL: https://www.youtube.com/watch?v=ymjgl60jrwk
 
 [00:20:13] Will: Oh,
 
-[00:20:13] Adam: Anchorman. Where he says " F you,
-
-[00:20:16] Adam: San Diego," and it's the whole movie plot hinges on this one use of the F bomb.
+[00:20:13] Adam: Anchorman. Where he says " F you, San Diego," and it's the whole movie plot hinges on this one use of the F bomb.
 
 [00:20:24] Will: Such a good movie,
 

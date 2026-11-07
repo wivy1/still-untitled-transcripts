@@ -256,9 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:09:11] Adam: Jenny Slate’s in it?
 
-[00:09:11] Will: Yeah, Jenny Slates in
-
-[00:09:11] Will: it.
+[00:09:11] Will: Yeah, Jenny Slates in it.
 
 [00:09:15] Adam: I didn’t get far, that far,
 
@@ -268,9 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:09:27] Will: as she bounces between the rooms.
 
-[00:09:27] Norm: Oh,
-
-[00:09:28] Norm: interesting.
+[00:09:27] Norm: Oh, interesting.
 
 [00:09:29] Will: And I I was thoroughly charmed by it. Oh, I couldn't sleep the other night. Like it's not it's not a great movie, but it's a movie that I will definitely go back and watch again. Just because the set design and the world is exceptional.
 
@@ -310,11 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:10:29] Adam: and it felt like it felt like a mix. It felt like I was watching an updated Two Days in the Valley. Remember that?
 
-[00:10:29] Will: Yeah.
-
-[00:10:29] Will: I love that movie.
-
-[00:10:36] Will: So, like, at some point, we have to rank. Like, this is actually a good accidental film festival. Is all of the bad Pulp Fiction knockoffs? Yeah, it's like Two Days in the Valley. Go and anyway, yeah, it's great.
+[00:10:29] Will: Yeah. I love that movie. So, like, at some point, we have to rank. Like, this is actually a good accidental film festival. Is all of the bad Pulp Fiction knockoffs? Yeah, it's like Two Days in the Valley. Go and anyway, yeah, it's great.
 
 [00:10:46] Norm: It feels a little bit like that. Kind of Tarantino knockoff in that if you're going to have a story,
 
@@ -374,9 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:12:52] Adam: I I think the the articles about how they mixed a Star is Born, how they did all the vocals on site at places like Glastonbury Music Festival and Coachella, and yet didn't let the audience hear the audio. So they got
 
-[00:12:52] Norm: what?
-
-[00:13:06] Norm: Yeah, it made over four years. Bradley Cooper, huge, like he pushed this project forward. I think originally it was another Clint Eastwood was supposed to direct it.
+[00:12:52] Norm: what? Yeah, it made over four years. Bradley Cooper, huge, like he pushed this project forward. I think originally it was another Clint Eastwood was supposed to direct it.
 
 [00:13:16] Will: Oh, that's just what I want to see.
 
@@ -436,9 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:16:06] Norm: It's really, really good.
 
-[00:16:06] Adam: Also, really good. All right, let's let's. Well,
-
-[00:16:10] Adam: so here's the thing: the the point of this conversation is probably in the title for the podcast today, right?
+[00:16:06] Adam: Also, really good. All right, let's let's. Well, so here's the thing: the the point of this conversation is probably in the title for the podcast today, right?
 
 [00:16:15] Norm: I'm saying I'm not even going to. They got it. They got to earn it.
 
@@ -524,15 +512,11 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:18:44] Adam: it looks it looks terrible
 
-[00:18:45] Will: it's very dumb
-
-[00:18:46] Will: so it's extraordinarily dumb
+[00:18:45] Will: it's very dumb so it's extraordinarily dumb
 
 [00:18:47] Norm: okay it's it's one of those films where it's based on a true story right
 
-[00:18:47] Adam: yeah yeah no I
-
-[00:18:51] Adam: know and I know the story
+[00:18:47] Adam: yeah yeah no I know and I know the story
 
 [00:18:52] Norm: and the pitch is that they
 
@@ -630,9 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:21:15] Adam: For real life stuff?
 
-[00:21:15] Norm: yes,
-
-[00:21:15] Norm: real real life space films.
+[00:21:15] Norm: yes, real real life space films.
 
 [00:21:19] Will: I think I'd probably put right stuff up there.
 
@@ -664,9 +646,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:22:20] Adam: In fact, the giant globe that hung above Jamie's machine shop was built for one of the looking back at the planet shots from Right Stuff.
 
-[00:22:20] Norm: Really?
-
-[00:22:28] Norm: Now, the framing of those two films, with Apollo 13 and the Right Stuff, are very different. Also, right? Right Stuff is about Mercury, and Apollo 13 is about one mission, and you can fill two hours, two and a half hours, with either of those. First Man is interesting in that it is not one mission or one program; it is one person's journey.
+[00:22:20] Norm: Really? Now, the framing of those two films, with Apollo 13 and the Right Stuff, are very different. Also, right? Right Stuff is about Mercury, and Apollo 13 is about one mission, and you can fill two hours, two and a half hours, with either of those. First Man is interesting in that it is not one mission or one program; it is one person's journey.
 
 [00:22:47] Adam: Well, that's exactly the process. It's an incredibly personal, incredibly personal film in which that leaps forward in time, sometimes abruptly five years, but each of those leaps is not done by oh, see how far they've gone in the Apollo program. Each of those leaps involves Armstrong's family. And in that, it is a very quiet. If you are going expecting either right stuff or Apollo 13, this isn't either of those. It's a very quiet and personal film.
 
@@ -754,9 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:26:29] Adam: Julia kept on turning. My wife kept on turning to me, going, " Who was it? Who was that?" And she's like, " I only know the right stuff." So, who was that in the right stuff? I was like, " Fred Ward played him in the right stuff." So, I am doing all this cross comparison.
 
-[00:26:40] Will: It was so
-
-[00:26:42] Will: funny because one of the things that I realized is that they cast people who looked like the people who played these people in the right stuff. I think maybe more than the people who were the actors, the actual people.
+[00:26:40] Will: It was so funny because one of the things that I realized is that they cast people who looked like the people who played these people in the right stuff. I think maybe more than the people who were the actors, the actual people.
 
 [00:26:51] Adam: I the Apollo 1 fire was so upsetting. By the way,
 
@@ -952,9 +930,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:37:05] Adam: Night at the movies.
 
-[00:37:05] Will: I would say that the theme of Chazelle's work is probably obsession, because if you look at Whiplash and La La Land, these are all
-
-[00:37:13] Will: obsessed people
+[00:37:05] Will: I would say that the theme of Chazelle's work is probably obsession, because if you look at Whiplash and La La Land, these are all obsessed people
 
 [00:37:13] Norm: well dedicated, determined, absolutely people, and the toll that takes.
 
@@ -962,9 +938,7 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:37:39] Adam: There but for the grace.
 
-[00:37:41] Will: yeah,
-
-[00:37:41] Will: and and um, definitely a bad husband. Yeah,
+[00:37:41] Will: yeah, and and um, definitely a bad husband. Yeah,
 
 [00:37:46] Norm: so one thing I am curious about, I want to get your thoughts on, and I want to spoil this part of the film, but there is something that happens on this that has historical, if it's true, would have historical significance, but at very best is apocryphal, but probably fiction.
 
@@ -1028,17 +1002,13 @@ Episode URL: https://www.youtube.com/watch?v=412bCBB60wY
 
 [00:40:25] Adam: Oh, I have one. It's going on in my head.
 
-[00:40:25] Will: No, no,
-
-[00:40:26] Will: but I mean, when you make a video, you need to have the chunk for when.
+[00:40:25] Will: No, no, but I mean, when you make a video, you need to have the chunk for when.
 
 [00:40:26] Adam: All right.
 
 [00:40:26] Will: Yeah.
 
-[00:40:26] Norm: Normals.
-
-[00:40:31] Norm: I was pan the camera off to the side.
+[00:40:26] Norm: Normals. I was pan the camera off to the side.
 
 [00:40:31] Adam: Exactly.
 

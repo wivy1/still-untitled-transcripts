@@ -38,11 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:01:38] Norm: It sounds like that's a philosophy that you could apply not only to internet commenting but to conversation in general.
 
-[00:01:44] Adam: Yes, one could one one could absolutely.
-
-[00:01:48] Adam: Some people have
-
-[00:01:53] Adam: a way with words, and some people don't.
+[00:01:44] Adam: Yes, one could one one could absolutely. Some people have a way with words, and some people don't.
 
 [00:01:56] Norm: Hey Adam, I noticed, and we had this in last week's episode. You have some. Eyes on the table.
 
@@ -132,11 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:05:40] Norm: And I'm very happy being a satisfier.
 
-[00:05:42] Simone: I think it. I
-
-[00:05:43] Simone: think it really
-
-[00:05:44] Simone: just depends. I'm a maximizer, but I'm a maximizer in the sense that I'm like, I'm just not going to buy anything because I can't find the one that I want.
+[00:05:42] Simone: I think it. I think it really just depends. I'm a maximizer, but I'm a maximizer in the sense that I'm like, I'm just not going to buy anything because I can't find the one that I want.
 
 [00:05:51] Adam: Yeah, that's that sounds like it.
 
@@ -164,9 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:06:44] Simone: Adam.
 
-[00:06:45] Norm: That
-
-[00:06:46] Norm: was a perfect segue. Oh,
+[00:06:45] Norm: That was a perfect segue. Oh,
 
 [00:06:48] Simone: perfect segue, because Norman and Adam were mocking me for not having seen Blade Runner.
 
@@ -200,9 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:08:23] Adam: to make you say it again.
 
-[00:08:24] Simone: Yeah,
-
-[00:08:24] Simone: and I think that I mean in like face-to-face interactions, but also like that's something I see a lot in my like in the comment sections on my YouTube channel or on my Facebook channel. Like, whenever somebody asks something, and they're like, " How did you wire this thing?" Then there's going to be a ton of people coming, like, " How can you not know? I was playing with this when I was seven years old. This is a disgrace to the education system." And I'm like, " That is not the way to go on about it." If people ask questions, and you think it's a stupid question, explain it to them, or like teach them how it's done, and don't mock them for not knowing.
+[00:08:24] Simone: Yeah, and I think that I mean in like face-to-face interactions, but also like that's something I see a lot in my like in the comment sections on my YouTube channel or on my Facebook channel. Like, whenever somebody asks something, and they're like, " How did you wire this thing?" Then there's going to be a ton of people coming, like, " How can you not know? I was playing with this when I was seven years old. This is a disgrace to the education system." And I'm like, " That is not the way to go on about it." If people ask questions, and you think it's a stupid question, explain it to them, or like teach them how it's done, and don't mock them for not knowing.
 
 [00:08:58] Adam: And all the smartest people that I've ever met, the most common phrase that comes out of their mouth is, " I don't know." Right, like, oh, I've never heard of that guy you are mentioning. Tell me about him because I'd like to know. I mean, you know, that's like the MIT, the JPL scientists, the NASA scientists. You know, [unclear: science is a method / Scienceism / the scientists] specifically within the scientific community. I don't know is one of the most important places to park your brain.
 
@@ -290,15 +278,9 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:13:16] Simone: Yeah, I think that's one of the nice things. I mean, you were showing me around your workshop a little bit earlier today. It's like every piece is. I mean, it comes with a story.
 
-[00:13:24] Adam: Yeah, and when I have I hold fundraisers in this space occasionally, and one of the things I do in that fundraiser is just spend two hours answering questions about anything anyone's pointing at, and that's the thing is, as as filled as this space is, I have a story about every object in here.
+[00:13:24] Adam: Yeah, and when I have I hold fundraisers in this space occasionally, and one of the things I do in that fundraiser is just spend two hours answering questions about anything anyone's pointing at, and that's the thing is, as as filled as this space is, I have a story about every object in here. It's why I have trouble remembering shit. So, so Shenzhen, is there something about it you anticipated that didn't come to fruition, or some aspect of it that really surprised you?
 
-[00:13:41] Adam: It's why I have
-
-[00:13:43] Adam: trouble remembering shit. So, so Shenzhen, is there something about it you anticipated that didn't come to fruition, or some aspect of it that really surprised you?
-
-[00:13:57] Simone: I
-
-[00:13:58] Simone: think overall, I mean, as I said before, I I kind of expected there to be a little bit more of a structure to it. That it's like, okay, this is the area where you can buy this type of stuff, and and there is like a little bit of it, but it's also just very. I mean, I don't. I'm not sure about this, but I don't think that there's an overall organization that like organizes the market that there is. It's just individual shops and people renting. It's very organic, and so there's not really an overall structure to it, and I think that really surprised me. Hmm. But but yeah,
+[00:13:57] Simone: I think overall, I mean, as I said before, I I kind of expected there to be a little bit more of a structure to it. That it's like, okay, this is the area where you can buy this type of stuff, and and there is like a little bit of it, but it's also just very. I mean, I don't. I'm not sure about this, but I don't think that there's an overall organization that like organizes the market that there is. It's just individual shops and people renting. It's very organic, and so there's not really an overall structure to it, and I think that really surprised me. Hmm. But but yeah,
 
 [00:14:29] Adam: and it's way more anarchic than you thought.
 
@@ -338,15 +320,9 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:17:09] Adam: So just knowing what, so now you know what questions to go and Google.
 
-[00:17:12] Simone: Yeah,
+[00:17:12] Simone: Yeah, what questions to ask? And I remember that when I started teaching myself, it was really like I did not know what to Google, or I didn't know how to break down a problem into problems I could actually solve. And it's just like googling, like it doesn't work, is not going to generate any good replies. And I think just being able to post the right questions is, I mean, that's that's the thing you're going to do. I mean, especially when it's a field that's evolving so fast, you're not going to know the answers. You just need to know how to post the questions.
 
-[00:17:12] Simone: what questions to ask? And I remember that when I started teaching myself, it was really like I did not know what to Google, or I didn't know how to break down a problem into problems I could actually solve. And it's just like googling, like it doesn't work, is not going to generate any good replies.
-
-[00:17:28] Simone: And I think just being able to post the right questions is, I mean, that's that's the thing you're going to do. I mean, especially when it's a field that's evolving so fast, you're not going to know the answers. You just need to know how to post the questions.
-
-[00:17:38] Adam: I do think it's funny that when I'm having a problem, occasionally I'll be like, " Ah, why isn't this working?" So I'll go to Google and I'll just say something like, " Why does," and it will auto finish. iTunes suck.
-
-[00:17:50] Adam: And I'm like, well, that. Darn it! Everyone else is asking that question. That means it doesn't have an answer.
+[00:17:38] Adam: I do think it's funny that when I'm having a problem, occasionally I'll be like, " Ah, why isn't this working?" So I'll go to Google and I'll just say something like, " Why does," and it will auto finish. iTunes suck. And I'm like, well, that. Darn it! Everyone else is asking that question. That means it doesn't have an answer.
 
 [00:17:55] Norm: You know, and I think also if you use Chrome, the autofill is contextual based on the page you're currently on. So it really is like finding a map.
 
@@ -380,11 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:18:37] Adam: Um, in the very beginning days of MythBusters, Jamie and I were. A lot of people wondered if we were gay, and thought we were a couple. Yeah, I actually somebody sent me a discussion on a bear website. Um, a bear is a specific subset of the homosexual community. They Large men with big beards. They're that's. I don't know how they self-identify, but bears are awesome. They're generally, you know, they're not scary. They they sometimes have a scary look about them because they're big guys with beards. But there's a bear forum that a friend of mine sent me a discussion about Jamie, and they were.
 
-[00:19:14] Norm: Turns out, Adam, you're the cub.
-
-[00:19:16] Norm: You
-
-[00:19:17] Norm: didn't know.
+[00:19:14] Norm: Turns out, Adam, you're the cub. You didn't know.
 
 [00:19:18] Adam: Who knew? Yeah.
 
@@ -394,9 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:19:26] Simone: What is, what is that?
 
-[00:19:27] Adam: Slash?
-
-[00:19:26] Adam: That's fan fiction in which Jamie sexual fan fiction.
+[00:19:27] Adam: Slash? That's fan fiction in which Jamie sexual fan fiction.
 
 [00:19:32] Simone: Oh, really?
 
@@ -414,9 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:19:56] Adam: Yeah, they totally.
 
-[00:19:56] Simone: People are very weird.
-
-[00:20:00] Simone: Gosh.
+[00:19:56] Simone: People are very weird. Gosh.
 
 [00:20:00] Adam: They totally are. So I, I have no interest in seeing in reading that.
 
@@ -454,11 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:21:10] Simone: Actually.
 
-[00:21:10] Adam: A friend
-
-[00:21:11] Adam: of
-
-[00:21:12] Adam: mine pointed out that Neil deGrasse Tyson is that I've said this on the podcast before.
+[00:21:10] Adam: A friend of mine pointed out that Neil deGrasse Tyson is that I've said this on the podcast before.
 
 [00:21:15] Norm: Maybe
 
@@ -466,9 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:21:19] Simone: He uses it a lot.
 
-[00:21:20] Adam: No, but he is like you say the moon's really far away from the Earth, and he'll go
-
-[00:21:28] Adam: actually.
+[00:21:20] Adam: No, but he is like you say the moon's really far away from the Earth, and he'll go actually.
 
 [00:21:28] Norm: It's specifically.
 
@@ -594,9 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:27:17] Norm: The Sopranos. Oh yes, yes, right,
 
-[00:27:20] Adam: yeah.
-
-[00:27:20] Adam: And Fincher loves The Sopranos, and Sopranos is one of the things that got Fincher interested in long form television to do
+[00:27:20] Adam: yeah. And Fincher loves The Sopranos, and Sopranos is one of the things that got Fincher interested in long form television to do
 
 [00:27:28] Norm: House of Cards.
 
@@ -626,9 +586,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:29:04] Adam: Okay. So, so in it, what Norm is referring to is
 
-[00:29:07] Simone: You didn’t see the Captain America, the first one.
-
-[00:29:09] Simone: No,
+[00:29:07] Simone: You didn’t see the Captain America, the first one. No,
 
 [00:29:10] Adam: that's fine. What Norm is referring to is Captain America gets unfrozen after 50 years in a sort of cryogenic sleep, and as he's woken up now in the 2000s, he's like, " How do I catch up on culture since World War Two?" And people keep giving him suggestions, and he's writing down his suggestions in a notebook. And in the film, you catch a glimpse of what's in that notebook. But what's really cool is they changed what was in that notebook depending on the market that the film was released in.
 
@@ -642,9 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:29:49] Adam: [unclear: thing / yeah / I think we can help you]
 
-[00:29:51] Simone: because moving here from Sweden, it's a lot. Because I mean, also it's I have a fairly American accent, and sometimes people mistake me for being American. And then I just lack some like very obvious piece of knowledge. I mean, just somebody being like, " Oh, I'm from Oregon," and I'm like, " Yeah, really? Where's that?" And they're like, "
-
-[00:30:10] Simone: Who is this girl?" Or like beginning like when I moved to San Francisco the first time, and I was paying for something in a store, and she was like, " Yeah, it's $1.50 or whatever," and I was just like going through the coins, and I was like, " What's this little guy?"
+[00:29:51] Simone: because moving here from Sweden, it's a lot. Because I mean, also it's I have a fairly American accent, and sometimes people mistake me for being American. And then I just lack some like very obvious piece of knowledge. I mean, just somebody being like, " Oh, I'm from Oregon," and I'm like, " Yeah, really? Where's that?" And they're like, " Who is this girl?" Or like beginning like when I moved to San Francisco the first time, and I was paying for something in a store, and she was like, " Yeah, it's $1.50 or whatever," and I was just like going through the coins, and I was like, " What's this little guy?"
 
 [00:30:21] [unclear speaker]: Okay, yeah, so that's it.
 
@@ -692,9 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=nVVfbXOikts
 
 [00:31:13] Adam: Hey, put your suggestions for bits of American culture that Simone should know about down below and keep it clean, people.
 
-[00:31:20] Simone: Yes,
-
-[00:31:20] Simone: greatly appreciated.
+[00:31:20] Simone: Yes, greatly appreciated.
 
 [00:31:21] Norm: Yes, and stuff for us as well. We always love taking recommendations. Photos of workshops. Uh, we we want to share those as well.
 

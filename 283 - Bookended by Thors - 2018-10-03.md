@@ -132,9 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:04:48] Norm: For a while,
 
-[00:04:48] Adam: yeah.
-
-[00:04:48] Adam: I’m going into production. There's a lot of stuff going on. Silicon Valley Comic Con has moved next year from the spring to August.
+[00:04:48] Adam: yeah. I’m going into production. There's a lot of stuff going on. Silicon Valley Comic Con has moved next year from the spring to August.
 
 [00:04:56] Will: I thought you were going to say it was moved to Anaheim. No, that's what happens at the
 
@@ -158,9 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:05:08] Norm: That's right.
 
-[00:05:08] Will: Yeah,
-
-[00:05:08] Will: Those were good times.
+[00:05:08] Will: Yeah, Those were good times.
 
 [00:05:11] Adam: But WonderCon started up here.
 
@@ -280,9 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:11:01] Will: Can you do decal sheets like that at home?
 
-[00:11:03] Adam: You can actually do. You can. You can buy. Yeah. If you went and looked on Amazon, you would be able to find waterslide decal stuff. You can do on either a laser printer or
-
-[00:11:12] Adam: a inkjet. I believe there are systems for both.
+[00:11:03] Adam: You can actually do. You can. You can buy. Yeah. If you went and looked on Amazon, you would be able to find waterslide decal stuff. You can do on either a laser printer or a inkjet. I believe there are systems for both.
 
 [00:11:15] Will: Then you have to trim them yourself with an exacto or something [unclear: before you get a flat ice / before you get them out / before you get it].
 
@@ -332,9 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:13:14] Adam: I didn’t realize that was happening. That was yeah.
 
-[00:13:14] Will: Oh yeah.
-
-[00:13:15] Will: So they so they they go out and they send them out in the world. They send them to art museums or the botanical gardens or something and tell them to to design a custom print.
+[00:13:14] Will: Oh yeah. So they so they they go out and they send them out in the world. They send them to art museums or the botanical gardens or something and tell them to to design a custom print.
 
 [00:13:15] Adam: Yeah.
 
@@ -534,9 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:22:45] Will: Prime Now is where you get them. 
 
-[00:22:47] Adam: This is the
-
-[00:22:47] Adam: thing: is that no one is stocking anything. So if you are looking at this world and thinking that this isn't the right direction to go. Support these small companies because this could be the future where things are bespoke and built by people who really care, and that you could go support them. That and it doesn't take much; it's an extra $40 on that garage kit. Go do it.
+[00:22:47] Adam: This is the thing: is that no one is stocking anything. So if you are looking at this world and thinking that this isn't the right direction to go. Support these small companies because this could be the future where things are bespoke and built by people who really care, and that you could go support them. That and it doesn't take much; it's an extra $40 on that garage kit. Go do it.
 
 [00:23:08] Will: Yeah.
 
@@ -612,15 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:28:08] Will: Look, I think we can just safely say it's bookended on either side by Thor movies.
 
-[00:28:12] Adam: Wow,
-
-[00:28:15] Adam: that is really great.
-
-[00:28:15] Adam: Yeah, we're talking
-
-[00:28:17] Adam: about ranking
-
-[00:28:17] Adam: all 21.
+[00:28:12] Adam: Wow, that is really great. Yeah, we're talking about ranking all 21.
 
 [00:28:19] Will: Whatever.
 
@@ -674,23 +656,17 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:29:12] Adam: absolutely.
 
-[00:29:12] Norm: Right, there you go,
-
-[00:29:14] Norm: right? Thor. Thor. Now let's have the discussion. Ragnarok.
+[00:29:12] Norm: Right, there you go, right? Thor. Thor. Now let's have the discussion. Ragnarok.
 
 [00:29:18] Adam: Ragnarok.
 
 [00:29:18] Will: Yeah, with a bullet. And then it might. It might be a dead tie for last place.
 
-[00:29:18] Adam: Dark
-
-[00:29:25] Adam: world.
+[00:29:18] Adam: Dark world.
 
 [00:29:27] Will: I. Dark world. Dark world's Loki sucks. Thor one's Loki is good and sets up the only good villain until very recent.
 
-[00:29:27] Norm: [unclear: No, no, no, no, no. The problem / Now, I know, they had a Loki problem].
-
-[00:29:37] Norm: [unclear: is true / Dark Elf].
+[00:29:27] Norm: [unclear: No, no, no, no, no. The problem / Now, I know, they had a Loki problem]. [unclear: is true / Dark Elf].
 
 [00:29:39] Adam: Okay, so just we're arguing over which one sucked more.
 
@@ -722,17 +698,9 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:29:51] Will: He has one of the worst Marvel girlfriends of all time.
 
-[00:30:02] Norm: I agree.
+[00:30:02] Norm: I agree. Does he wear baseball cap to hide himself?
 
-[00:30:02] Norm: Does he wear baseball cap to hide
-
-[00:30:02] Norm:  himself?
-
-[00:30:04] Adam: I just didn't
-
-[00:30:04] Adam:  care about
-
-[00:30:05] Adam: anybody. I just didn't care about him.
+[00:30:04] Adam: I just didn't care about anybody. I just didn't care about him.
 
 [00:30:06] Will: Doesn't he wear jorts or like cargo pants? As like his his human disguise?
 
@@ -744,9 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:30:14] Norm: This is this is
 
-[00:30:15] Will: I feel like
-
-[00:30:15] Will: Thor is the heart of the MCU. That's what that's what Avengers Infinity War showed us.
+[00:30:15] Will: I feel like Thor is the heart of the MCU. That's what that's what Avengers Infinity War showed us.
 
 [00:30:19] Norm: I think, Thor one, the first Thor was a fish out of water story that was really funny, and I think the Thor movies have all been have been at their best when they're really been lighthearted.
 
@@ -766,9 +732,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:30:54] Norm: It’s set more Asgard,
 
-[00:30:54] Will: yeah.
-
-[00:30:54] Will: But you get Lady Kiff and,
+[00:30:54] Will: yeah. But you get Lady Kiff and,
 
 [00:30:56] Norm: Sif, yep,
 
@@ -776,9 +740,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:30:57] Norm: Kiff is the
 
-[00:30:57] Will:  green alien from Futurama.
-
-[00:30:59] Will: Like I met her for five minutes. Who knows?
+[00:30:57] Will:  green alien from Futurama. Like I met her for five minutes. Who knows?
 
 [00:31:01] Norm: Thor two has the fish out of water story, except it's Natalie Portman's time being in Asgard, and I don't think it's played. She even though there's more of her, she's not really utilized at all.
 
@@ -820,11 +782,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:31:36] Will: Favreau two is the one was written during a writer's strike. I think when there's no actual plotter,
 
-[00:31:36] Adam: right?
-
-[00:31:41] Adam: Genndy Tartakovsky plotted
-
-[00:31:43] Adam: the battle sequence at the end of two.
+[00:31:36] Adam: right? Genndy Tartakovsky plotted the battle sequence at the end of two.
 
 [00:31:46] Norm: So two, I think we agree, is the worst one. Unfortunately.
 
@@ -848,9 +806,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:32:19] Adam: But he was marginalized. He had had a bunch of chances. He'd been arrested, this and and all of that played into the Tony Stark character in the movie. So there was this wonderful sort of cultural plot mix going on for Iron Man that made it even more exciting and funnier. A lot of those jokes hit hard because culturally at that moment Robert Downey Jr. Was very much like Tony Stark.
 
-[00:32:19] Will: Yeah,
-
-[00:32:43] Will: he wasn't the executive producer on 21 MCU films at that point or whatever it is.
+[00:32:19] Will: Yeah, he wasn't the executive producer on 21 MCU films at that point or whatever it is.
 
 [00:32:43] Adam: Yeah,
 
@@ -970,9 +926,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:36:07] Adam: somebody's yelling at the television at the at the computer screen right now.
 
-[00:36:10] Norm: What about this character?
-
-[00:36:10] Norm: I'm scrolling through the list, and I think we're good.
+[00:36:10] Norm: What about this character? I'm scrolling through the list, and I think we're good.
 
 [00:36:15] Unknown (Norm/Will): [unclear: No / So now we're right].
 
@@ -994,9 +948,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:36:28] Will: Man. Spider Man. Spider Man does whatever a spider can.
 
-[00:36:30] Adam: Black Panther. I was on a long haul flight from England a few months ago, and for some reason. I watched Black Panther three times in four days, and I will tell you that that is a movie that not only is super enjoyable to watch from any point at which you pick it up, but it gets better and better. And by better, I mean it gets more more emotional. It hits you deeper. Those characters and their triumphs and and failures are more have more pathos to them. That might be my favorite of all the.
-
-[00:37:09] Adam: MCU
+[00:36:30] Adam: Black Panther. I was on a long haul flight from England a few months ago, and for some reason. I watched Black Panther three times in four days, and I will tell you that that is a movie that not only is super enjoyable to watch from any point at which you pick it up, but it gets better and better. And by better, I mean it gets more more emotional. It hits you deeper. Those characters and their triumphs and and failures are more have more pathos to them. That might be my favorite of all the. MCU
 
 [00:37:09] Norm: only one that I've choked up at. Yeah, really,
 
@@ -1008,9 +960,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:37:13] Will: Oh, he's right.
 
-[00:37:13] Adam: He's totally right. That is one of the most
-
-[00:37:27] Adam: complicated things you could do to give a villain that you like. Well, he's got to go, but man,
+[00:37:13] Adam: He's totally right. That is one of the most complicated things you could do to give a villain that you like. Well, he's got to go, but man,
 
 [00:37:31] Norm: his methods,
 
@@ -1080,11 +1030,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:39:40] Norm: Yeah. So was Benedict Cumberbatch?
 
-[00:39:42] Will: Yeah, no, I know, but I know Cumberbatch.
-
-[00:39:43] Will: I've seen Sherlock.
-
-[00:39:44] Will: I know, I've seen that. I’m a little
+[00:39:42] Will: Yeah, no, I know, but I know Cumberbatch. I've seen Sherlock. I know, I've seen that. I’m a little
 
 [00:39:46] Adam: clear about.
 
@@ -1166,9 +1112,7 @@ Episode URL: https://www.youtube.com/watch?v=6nxrD54z4QE
 
 [00:42:09] Adam: It’s character development? Is it great action sequences? Is it how affected emotionally we were?
 
-[00:42:14] Norm: The movie you enjoyed the most.
-
-[00:42:15] Norm: You enjoy you would rewatch the most.
+[00:42:14] Norm: The movie you enjoyed the most. You enjoy you would rewatch the most.
 
 [00:42:17] Will: It's the movie you enjoyed the most. That's what it will always be.
 

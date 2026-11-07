@@ -338,9 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:13:05] Adam: I got to say. So that's that's that's all there is to it. In New York on Wednesday, I'm just going to go see a matinee in the IMAX.
 
-[00:13:10] Will: Yeah.
-
-[00:13:11] Will: There you go.
+[00:13:10] Will: Yeah. There you go.
 
 [00:13:11] Adam: Yeah.
 
@@ -432,9 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:16:28] Norm: Tony Stark, which is him and Nebula on the the Benatar, and he is teaching her how to play some football.
 
-[00:16:37] Adam: Yeah,
-
-[00:16:38] Adam: Dukes. We used to. So I grew up. That's what we called it in Westchester County in the '70s. We called it Duke's football. You folded up a triangle and you shot it.
+[00:16:37] Adam: Yeah, Dukes. We used to. So I grew up. That's what we called it in Westchester County in the '70s. We called it Duke's football. You folded up a triangle and you shot it.
 
 [00:16:46] Will: We did a ground game too. So you slide it on the table across, and you try to get it over the edge.
 
@@ -450,9 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:17:11] Adam: She's she's used to someone stepping on her face.
 
-[00:17:14] Will: Exactly.
-
-[00:17:14] Will: And it's like, yeah, it's, it's.
+[00:17:14] Will: Exactly. And it's like, yeah, it's, it's.
 
 [00:17:16] Norm: And in a movie where yes, it's different from before because Infinity War because it's about the core Avengers. It's about Tony Stark, Iron Man, Thor, Black Widow, Hawkeye. The secondary characters they only had a few to so and Hulk to to work with. Nebula stands out.
 
@@ -508,9 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:19:03] Adam: right.
 
-[00:19:03] Will: Right.
-
-[00:19:03] Will: there anyway. Um. So okay. So you go from there.
+[00:19:03] Will: Right. there anyway. Um. So okay. So you go from there.
 
 [00:19:06] Norm: Captain Marvel saves them.
 
@@ -540,9 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:19:43] Norm: No, that's
 
-[00:19:44] Will: because because
-
-[00:19:45] Will: there's a moment where I sat there and I was like, " Oh man, Scarlett Johansson's had a bad bad. "
+[00:19:44] Will: because because there's a moment where I sat there and I was like, " Oh man, Scarlett Johansson's had a bad bad. "
 
 [00:19:49] Adam: Scarlett Johansson also.
 
@@ -552,9 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:20:04] Will: I think I think that there's like Winter Soldier. She's excellent. Like there's a moment that she becomes a fully fledged character in Winter Soldier, and and this is the culmination of that.
 
-[00:20:14] Adam: Yeah, I agree. I agree, and I like the way they shot her with less obvious makeup.
-
-[00:20:20] Adam: They made her look a little plainer, which is sort of I think stood in for
+[00:20:14] Adam: Yeah, I agree. I agree, and I like the way they shot her with less obvious makeup. They made her look a little plainer, which is sort of I think stood in for
 
 [00:20:23] Norm: And more natural hair.
 
@@ -836,9 +824,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:29:36] Adam: Rocket, so
 
-[00:29:37] Will: Rocket's
-
-[00:29:38] Will: kind of a dick.
+[00:29:37] Will: Rocket's kind of a dick.
 
 [00:29:39] Adam: I Rocket is totally a dick, but Rocket's damaged, and I appreciate. For me, one of the most surprisingly moving moments, and I'm jumping way forward in this, is when Rocket and Nebula briefly hold hands to support each other.
 
@@ -870,9 +856,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:30:42] Will: yeah. Well, I mean, so the thing is, Rocket's whole thing is, I don't need anybody. I don't need anybody. I don't need anybody except he realizes somewhere. I think in the second Guardians movie that probably he does need people.
 
-[00:30:50] Adam: Yeah,
-
-[00:30:51] Adam: he does. The Yondu, the Yondu's. I'm still surprised by how moving the Yondu. Rocket scene is in Ragnarok. Ragnarok?
+[00:30:50] Adam: Yeah, he does. The Yondu, the Yondu's. I'm still surprised by how moving the Yondu. Rocket scene is in Ragnarok. Ragnarok?
 
 [00:30:59] Will: No, in
 
@@ -958,9 +942,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:34:37] Adam: I loved seeing Tessa Thompson. I love her so much.
 
-[00:34:40] Norm: Angry girl.
-
-[00:34:40] Norm: Valkyrie.
+[00:34:40] Norm: Angry girl. Valkyrie.
 
 [00:34:40] Adam: So is her name Valkyrie?
 
@@ -1034,9 +1016,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:36:40] Norm: Yep.
 
-[00:36:42] Will: Fortnite.
-
-[00:36:43] Will: They're out of pizza rolls.
+[00:36:42] Will: Fortnite. They're out of pizza rolls.
 
 [00:36:44] Adam: They’re yelling at the—.
 
@@ -1092,17 +1072,13 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:38:04] Adam: Rene Russo,
 
-[00:38:04] Norm: I love Rene Russo.
-
-[00:38:04] Norm: I love the Ancient One, Tilda Swinton. I can't believe
+[00:38:04] Norm: I love Rene Russo. I love the Ancient One, Tilda Swinton. I can't believe
 
 [00:38:09] Adam: the Ancient One. The conversation between Banner and the Ancient One might be one of my favorite conversations in the whole film.
 
 [00:38:14] Norm: The pairing, it's very good. Pair the right people together.
 
-[00:38:16] Adam: Yeah.
-
-[00:38:17] Adam: Tilda Swinton. I mean, just being where he's like, " No, I'm going to take it." She's all like, " Let me explain what power looks like."
+[00:38:16] Adam: Yeah. Tilda Swinton. I mean, just being where he's like, " No, I'm going to take it." She's all like, " Let me explain what power looks like."
 
 [00:38:23] Norm: Push you to the astral plane, and and then she does the Doc Brown chalkboard explanation of the the timeline.
 
@@ -1186,9 +1162,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:40:38] Adam: right? Right?
 
-[00:40:38] Will: Right? Yeah,
-
-[00:40:39] Will: They fought in the Algarve [wording uncertain].
+[00:40:38] Will: Right? Yeah, They fought in the Algarve [wording uncertain].
 
 [00:40:39] Adam: yeah, yeah. When he was Loki, guy
 
@@ -1228,9 +1202,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:41:49] Norm: And also, as all fathers, all three of us are fathers, like that moment where a son is talking to his father. The father not knowing it before he's born.
 
-[00:41:59] Adam: No amount of money
-
-[00:41:59] Adam: buy another second of time.
+[00:41:59] Adam: No amount of money buy another second of time.
 
 [00:42:00] Norm: That was it. I know. That was a choke up moment.
 
@@ -1278,9 +1250,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:43:16] Will: I'm interested to see what it feels like on this. You've seen it twice.
 
-[00:43:17] Norm: Yeah.
-
-[00:43:18] Norm: It goes by. It goes by real fast.
+[00:43:17] Norm: Yeah. It goes by. It goes by real fast.
 
 [00:43:19] Adam: I, when Thanos showed up for that, what turns out to be the final battle. I was like, well, there's got to be another battle after this.
 
@@ -1414,9 +1384,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:47:45] Norm: Okay,
 
-[00:47:46] Will: we gotta get to so
-
-[00:47:47] Will: the relay is the next big thing, right? I mean, they fight for a while.
+[00:47:46] Will: we gotta get to so the relay is the next big thing, right? I mean, they fight for a while.
 
 [00:47:50] Norm: They fight. There's great moments. Captain Marvel comes in. The women of Marvel, the superheroes of Marvel.
 
@@ -1596,9 +1564,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:53:15] Adam: Oh, really?
 
-[00:53:16] Norm: the last original Star Trek film. The credits were done that way,
-
-[00:53:15] Norm: and Kevin Feige is a noted Star Trek fan.
+[00:53:16] Norm: the last original Star Trek film. The credits were done that way, and Kevin Feige is a noted Star Trek fan.
 
 [00:53:20] Adam: Dude,
 
@@ -1606,9 +1572,7 @@ Episode URL: https://www.youtube.com/watch?v=McKy0-3dtv4
 
 [00:53:22] Adam: Norm is unpacking the deep cuts.
 
-[00:53:24] Will: Deep cuts, yeah.
-
-[00:53:25] Will: You should go see this.
+[00:53:24] Will: Deep cuts, yeah. You should go see this.
 
 [00:53:26] Adam: You should go see this.
 

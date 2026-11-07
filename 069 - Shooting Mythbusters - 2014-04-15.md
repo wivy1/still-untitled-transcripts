@@ -214,23 +214,17 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:05:09] Will: Right.
 
-[00:05:09] Adam: Yeah.
-
-[00:05:10] Adam: So then the question came. What's the oldest recipe in history? And I said, pasta puttanesca.
+[00:05:09] Adam: Yeah. So then the question came. What's the oldest recipe in history? And I said, pasta puttanesca.
 
 [00:05:17] Will: See, that's good. That's good. See how it works. Yeah, it works out. It all comes together.
 
-[00:05:17] Adam: You know, you got a good callback in there.
-
-[00:05:24] Adam: Yeah. Yeah. Woohoo!
+[00:05:17] Adam: You know, you got a good callback in there. Yeah. Yeah. Woohoo!
 
 [00:05:26] Will: Did you get a big cheer from that?
 
 [00:05:26] Adam: I did.
 
-[00:05:26] Will: The like did you get a good laugh from the family?
-
-[00:05:30] Will: That’s good.
+[00:05:26] Will: The like did you get a good laugh from the family? That’s good.
 
 [00:05:30] Adam: Yeah.
 
@@ -292,9 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:06:49] Will: quad rotor, octa rotor,
 
-[00:06:49] Adam: flying cameras,
-
-[00:06:53] Adam: flying cameras.
+[00:06:49] Adam: flying cameras, flying cameras.
 
 [00:06:53] Will: Let’s say, call them aerial jib replacements.
 
@@ -568,9 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:18:03] Will: Yeah, you can.
 
-[00:18:04] Adam: You go buy them on eBay. They're like they start at $400, and when they were new,
-
-[00:18:08] Adam: they were like $1,600, $1,800. They were super expensive.
+[00:18:04] Adam: You go buy them on eBay. They're like they start at $400, and when they were new, they were like $1,600, $1,800. They were super expensive.
 
 [00:18:12] Will: That that stuff has been like yeah. Anyway,
 
@@ -618,9 +608,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:20:16] Will: viewfinder.
 
-[00:20:17] Adam: Yeah, the viewfinder. Well, we had one before that without a viewfinder, and it was a nightmare.
-
-[00:20:19] Adam: And actually, Scott literally, like at one point, I remember somebody taping a clamshell to the top of the high speed camera so Saza could wear it on his shoulder and actually follow stuff. Oh yeah, but it was total kludge.
+[00:20:17] Adam: Yeah, the viewfinder. Well, we had one before that without a viewfinder, and it was a nightmare. And actually, Scott literally, like at one point, I remember somebody taping a clamshell to the top of the high speed camera so Saza could wear it on his shoulder and actually follow stuff. Oh yeah, but it was total kludge.
 
 [00:20:34] Will: Yeah, well, like adding viewfinders to high speed cameras was a big deal when that happened.
 
@@ -652,9 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:21:27] Adam: Ah, yes.
 
-[00:21:37] Will: Right. I see. the...
-
-[00:21:38] Will: Like, could you do tempered glass? What's the fastest thing you do?
+[00:21:37] Will: Right. I see. the... Like, could you do tempered glass? What's the fastest thing you do?
 
 [00:21:42] Adam: Well, we were shooting. We were shooting some guns with the stuff, and we're filming some guns shooting.
 
@@ -738,9 +724,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:24:32] Will: really hard to do.
 
-[00:24:33] Adam: No, it's mind blowing how good this guy was. I wish I could remember his name.
-
-[00:24:36] Adam: Oh, he's so brilliant. He's got a credit in the second Rocket Car episode of MythBusters. Yeah, we rented helicopters, and I think during Duct Tape Bridge, we had some guys with a actual helicopter, remote control helicopter rig with a camera on it, and they couldn't fly in anything over five mile per hour wind, and that was a pain. In the end, they spent a whole day. And look to their credit, it's hard to start a business. They were trying to; they're doing a freebie for us. Just we're paying their expenses, and after a whole day of shooting, we had one usable shot. Duncan's copter with all that auto stabilization that it does, because that's the big
+[00:24:33] Adam: No, it's mind blowing how good this guy was. I wish I could remember his name. Oh, he's so brilliant. He's got a credit in the second Rocket Car episode of MythBusters. Yeah, we rented helicopters, and I think during Duct Tape Bridge, we had some guys with a actual helicopter, remote control helicopter rig with a camera on it, and they couldn't fly in anything over five mile per hour wind, and that was a pain. In the end, they spent a whole day. And look to their credit, it's hard to start a business. They were trying to; they're doing a freebie for us. Just we're paying their expenses, and after a whole day of shooting, we had one usable shot. Duncan's copter with all that auto stabilization that it does, because that's the big
 
 [00:25:15] Will: that's the magic.
 
@@ -748,15 +732,11 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:25:22] Will: and accelerometers, gyroscopes, GPS,
 
-[00:25:24] Adam: yes, can know what it's doing, and the GPS is the Phantom's really remarkable thing because it does.
-
-[00:25:29] Adam: Well, you pushed on the landing gear.
+[00:25:24] Adam: yes, can know what it's doing, and the GPS is the Phantom's really remarkable thing because it does. Well, you pushed on the landing gear.
 
 [00:25:33] Norm: You can push. You can pull on it,
 
-[00:25:35] Adam: and it goes back to where you were. But
-
-[00:25:37] Adam: more than that, when it loses.
+[00:25:35] Adam: and it goes back to where you were. But more than that, when it loses.
 
 [00:25:39] Norm: Reception. If it loses the trans, you can turn off the transmitter when it's 1,000 feet away, and then 800, 700 meters away, and it will come back. Well, so it will hover 20 meters.
 
@@ -888,9 +868,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:32:23] Will: Well, and I know a lot of times when when people use this kind of these kind of rotors or even like traditional jibs, there'll be one person operating the jib. There's another person operating the camera at the end of the jib, so they have a whole plan. With the quadrotor, you don't necessarily have that.
 
-[00:32:36] Adam: You don't necessarily have that, but it might be a good idea to be able to do that.
-
-[00:32:39] Adam: Yeah. Have a separate operator as well as a flyer, so that you know, because when he's flying it, he is literally, you know, I am panning and tilting the camera at the same time as moving the quadrotor.
+[00:32:36] Adam: You don't necessarily have that, but it might be a good idea to be able to do that. Yeah. Have a separate operator as well as a flyer, so that you know, because when he's flying it, he is literally, you know, I am panning and tilting the camera at the same time as moving the quadrotor.
 
 [00:32:51] Will: Does he do the one with the like four sticks, or does he have the?
 
@@ -910,9 +888,7 @@ Episode URL: https://www.youtube.com/watch?v=5mVhSaUsLbU
 
 [00:33:26] Norm: Wow.
 
-[00:33:26] Will: Fantastic.
-
-[00:33:27] Will: Um. So I guess that'll do it for us today.
+[00:33:26] Will: Fantastic. Um. So I guess that'll do it for us today.
 
 [00:33:29] Adam: I think that was a productive talk.
 

@@ -58,11 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:02:04] Will: This isn’t People versus OJ Simpson.
 
-[00:02:05] Adam: No, this isn't the Ryan…. This isn't that one. This is a documentary on OJ that's hours long.
-
-[00:02:15] Adam: I, it’s jaw-droppingly fascinating.
-
-[00:02:15] Adam: Really, really amazing. Um, you get to your. I'm only halfway through the first couple of hours. It seems to be like I I come to this podcast woefully unprepared for knowing how long it is, how many episodes, etc. I'm about an hour and a half into it and I am riveted. It's talking about OJ, talking about his personality, his relationships, his friends, but also his place within the culture, his place representing African American and white culture and where they meet, how he posited and positioned that, and how people around him thought about it. It's riveting.
+[00:02:05] Adam: No, this isn't the Ryan…. This isn't that one. This is a documentary on OJ that's hours long. I, it’s jaw-droppingly fascinating. Really, really amazing. Um, you get to your. I'm only halfway through the first couple of hours. It seems to be like I I come to this podcast woefully unprepared for knowing how long it is, how many episodes, etc. I'm about an hour and a half into it and I am riveted. It's talking about OJ, talking about his personality, his relationships, his friends, but also his place within the culture, his place representing African American and white culture and where they meet, how he posited and positioned that, and how people around him thought about it. It's riveting.
 
 [00:02:51] Will: I I will I will check it. Where Where are you watching it? What's it on? Do you know?
 
@@ -136,9 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:04:39] Norm: Oh, cool.
 
-[00:04:35] Adam: getting to walk through the spaceships.
-
-[00:04:35] Adam: They built some really big sets, and
+[00:04:35] Adam: getting to walk through the spaceships. They built some really big sets, and
 
 [00:04:45] Norm: for TV,
 
@@ -160,9 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:05:55] Will: So, so, speaking of real science in outer space,
 
-[00:05:57] Norm: oh god, there’s more before we get to the segue.
-
-[00:06:00] Norm: [unclear: Uh, there’s / …].
+[00:05:57] Norm: oh god, there’s more before we get to the segue. [unclear: Uh, there’s / …].
 
 [00:06:00] Will: [unclear: That was such a part / That was such a].
 
@@ -206,9 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:06:51] Norm: or a a vision of Hollywood.
 
-[00:06:53] Adam: A vision of Hollywood.
-
-[00:06:54] Adam: [unclear: Just like the culture / Just like the artists], the the emotion is not stilted. It feels real. The two actors, which is Ryan Gosling and Emma Stone, are magnificent. It's like there's a reason you hire movie stars to do stuff.
+[00:06:53] Adam: A vision of Hollywood. [unclear: Just like the culture / Just like the artists], the the emotion is not stilted. It feels real. The two actors, which is Ryan Gosling and Emma Stone, are magnificent. It's like there's a reason you hire movie stars to do stuff.
 
 [00:07:06] Will: Yeah, they they look like movie stars.
 
@@ -232,25 +222,15 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:08:02] Will: Gosling does.
 
-[00:08:03] Adam: Yeah,
-
-[00:08:03] Adam: and I found myself wondering:
-
-[00:08:05] Adam: Is that really him,
-
-[00:08:05] Adam: or have they? Because he plays clearly him really intense jazz piano all in single shots.
+[00:08:03] Adam: Yeah, and I found myself wondering: Is that really him, or have they? Because he plays clearly him really intense jazz piano all in single shots.
 
 [00:08:14] Norm: Is it cheaper to get an actor to [unclear: be go method / deep, go method] or to CG that?
 
 [00:08:17] Adam: I I haven't looked it up. I'm sure that I. I mean, I know I can. It's just been a busy week.
 
-[00:08:21] Will: Is it they didn't do obvious cutaways and stuff like that? That where you like suddenly have a pair of
+[00:08:21] Will: Is it they didn't do obvious cutaways and stuff like that? That where you like suddenly have a pair of really different looking hands.
 
-[00:08:25] Will: really different looking hands.
-
-[00:08:25] Adam: No, no, no.
-
-[00:08:25] Adam: Um. So I will say I did have one bone to pick with the film, which is in a musical like this, you have the choice of do the songs are the songs produced in and of themselves, or do they occur within the sonic universe that you're in? Ah. And by that I mean, Glee did this in both ways. Sometimes in Glee, the the the there's huge amounts of compression on the singing as soon as they jump into a number, right? Um. In this. They went to songs that were in and of themselves. So occasionally, the the mix on the vocals of the songs in La La Land is so low because it's more like within.
+[00:08:25] Adam: No, no, no. Um. So I will say I did have one bone to pick with the film, which is in a musical like this, you have the choice of do the songs are the songs produced in and of themselves, or do they occur within the sonic universe that you're in? Ah. And by that I mean, Glee did this in both ways. Sometimes in Glee, the the the there's huge amounts of compression on the singing as soon as they jump into a number, right? Um. In this. They went to songs that were in and of themselves. So occasionally, the the mix on the vocals of the songs in La La Land is so low because it's more like within.
 
 [00:09:03] Will: You think that was the theater you were in? Maybe
 
@@ -314,11 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:11:03] Adam: he comes with real chops in the singing and dancing department.
 
-[00:11:07] Will: Yes, is he a like Britney Spears?
-
-[00:11:09] Will: Yeah,
-
-[00:11:09] Will: mouseketeer.
+[00:11:07] Will: Yes, is he a like Britney Spears? Yeah, mouseketeer.
 
 [00:11:09] Adam: Yeah, J T. Justin Timberlake. Yeah, Gosling starts out.
 
@@ -448,9 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:14:44] Adam: like, let's. What about a movie that takes place that shows how the Death Star plans were obtained?
 
-[00:14:50] Norm: I don't think that's giving him enough credit because while John Knoll has a story credit,
-
-[00:14:50] Norm: what he actually did was come up with a seven-page treatment
+[00:14:50] Norm: I don't think that's giving him enough credit because while John Knoll has a story credit, what he actually did was come up with a seven-page treatment
 
 [00:14:56] Adam: Right.
 
@@ -474,11 +448,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:16:01] Norm: That's right. It's a Star Wars story and it's set in that universe, but it is not a episode one, two, three, four, five, six, seven.
 
-[00:16:09] Adam: Well, so I'm going to make an admission here, and even though I said I I try not to watch the trailers, and I didn't watch any Rogue One trailers for the last eight, you know,
-
-[00:16:17] Adam: month and a half,
-
-[00:16:19] Adam: I did give in, and I on Wednesday it said, " What are the reviewers saying about Rogue One?" And I just wanted to see those one paragraph encapsulations,
+[00:16:09] Adam: Well, so I'm going to make an admission here, and even though I said I I try not to watch the trailers, and I didn't watch any Rogue One trailers for the last eight, you know, month and a half, I did give in, and I on Wednesday it said, " What are the reviewers saying about Rogue One?" And I just wanted to see those one paragraph encapsulations,
 
 [00:16:27] Norm: yeah, like the Rotten Tomatoes,
 
@@ -522,9 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:18:56] Adam: Ben Mendelsohn gets his own sort of dark
 
-[00:18:59] Will: imperial theme.
-
-[00:18:59] Will: His is so good.
+[00:18:59] Will: imperial theme. His is so good.
 
 [00:19:00] Norm: We’ve gone, we’ve gone three minutes, guys.
 
@@ -578,9 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:20:08] Norm: like Vader and Tarkin. And it wasn't bad.
 
-[00:20:10] Adam: this film did this very bold thing that hasn't been revealed in the press up till very recently,
-
-[00:20:15] Adam: which is they brought Peter Cushing back from the dead and make him a actually major character in this movie.
+[00:20:10] Adam: this film did this very bold thing that hasn't been revealed in the press up till very recently, which is they brought Peter Cushing back from the dead and make him a actually major character in this movie.
 
 [00:20:19] Norm: major character,
 
@@ -638,11 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:22:00] Adam: you're absolutely right.
 
-[00:22:01] Norm: [unclear: You’re absolutely right / And I bet / …]. It’s better than if they recast it, and it's better than if they had just done
-
-[00:22:05] Norm: ma…
-
-[00:22:01] Norm: heavy makeup, which may have looked more practical, but it comes across as okay. It's Tarkin.
+[00:22:01] Norm: [unclear: You’re absolutely right / And I bet / …]. It’s better than if they recast it, and it's better than if they had just done ma… heavy makeup, which may have looked more practical, but it comes across as okay. It's Tarkin.
 
 [00:22:10] Adam: So I have also heard. Let me just say, I've also heard from friends on the production that Lucas really likes this film.
 
@@ -702,11 +664,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:23:44] Norm: Well, yeah, you're right. So they,
 
-[00:23:45] Will: I think that was makeup. Yeah, I think I think most of them were practical.
-
-[00:23:49] Will: or.
-
-[00:23:49] Will: Shots from the old movie.
+[00:23:45] Will: I think that was makeup. Yeah, I think I think most of them were practical. or. Shots from the old movie.
 
 [00:23:50] Norm: They had, yeah, the fan service elements of it and bringing back the old characters. They did it in three ways. You had Leia and Tarkin.
 
@@ -848,9 +806,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:28:39] Norm: whoa.
 
-[00:28:40] Will: So this is happening.
-
-[00:28:41] Will: Going into this,
+[00:28:40] Will: So this is happening. Going into this,
 
 [00:28:42] Norm: This is happening.
 
@@ -862,9 +818,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:28:50] Adam: No, apparently you're a little bit of a misanthrope. [unclear: Well / Will],
 
-[00:28:53] Will: look, I've I've been to a few movies.
-
-[00:28:54] Will: Adam, I know how this works.
+[00:28:53] Will: look, I've I've been to a few movies. Adam, I know how this works.
 
 [00:28:55] Norm: But also, it's a Disney film, so I think, yeah, I expected people to die. But even though my brain knew it was gonna happen, I still wanted, like, okay, maybe, maybe it can happen. Maybe one will survive. Well, and it one by one to the very end when they're watching the explosion, I'm like, oh, it's really gonna happen. Yeah,
 
@@ -882,11 +836,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:29:49] Will: what's a lampshade element?
 
-[00:29:50] Norm: Like she has it.
-
-[00:29:50] Norm: her father…
-
-[00:29:50] Norm: Her mother gives it to her in the beginning, and thank goodness she didn't whip it out at the end. This is going to charge the satellite.
+[00:29:50] Norm: Like she has it. her father… Her mother gives it to her in the beginning, and thank goodness she didn't whip it out at the end. This is going to charge the satellite.
 
 [00:29:57] Adam: This is the way I'll defeat the Skeksis.
 
@@ -940,11 +890,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:32:04] Adam: the Vader fight, where Vader is
 
-[00:32:06] Norm: intimidating,
-
-[00:32:06] Norm: and
-
-[00:32:08] Norm: walking,
+[00:32:06] Norm: intimidating, and walking,
 
 [00:32:08] Adam: absolutely terrifyingly mowing his way through a bunch of rebels,
 
@@ -964,9 +910,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:32:36] Adam: Yeah.
 
-[00:32:33] Norm: I remember watching that in theaters and people going crazy when Yoda
-
-[00:32:33] Norm: cheered when Yoda brought out a lightsaber,
+[00:32:33] Norm: I remember watching that in theaters and people going crazy when Yoda cheered when Yoda brought out a lightsaber,
 
 [00:32:41] Unknown speaker: ping pong Yoda,
 
@@ -1032,9 +976,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:34:49] Adam: I agree. I agree. I agree. And
 
-[00:34:49] Will: but
-
-[00:34:51] Will: I didn't care.
+[00:34:49] Will: but I didn't care.
 
 [00:34:51] Adam: She sold it, and I loved the bit where she's talking to the guys, and they're all actually wearing like World War II helmets.
 
@@ -1080,9 +1022,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:36:10] Will: Star Wars.
 
-[00:36:11] Adam: C-3PO
-
-[00:36:11] Adam: and R2-D2 are Kurosawa characters,
+[00:36:11] Adam: C-3PO and R2-D2 are Kurosawa characters,
 
 [00:36:11] Unknown speaker: Yeah, yeah, um.
 
@@ -1148,9 +1088,7 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:37:50] Unknown speaker: Pinewood.
 
-[00:37:50] Will: Pinewood.
-
-[00:37:50] Will: The the so, the Jedha is the is the highlight I think for me
+[00:37:50] Will: Pinewood. The the so, the Jedha is the is the highlight I think for me
 
 [00:37:58] Adam: because the Masada Masada is I believe what Jedha is based upon because it's effectively looks almost identical.
 
@@ -1354,21 +1292,13 @@ Episode URL: https://www.youtube.com/watch?v=YrLF1hZqTwk
 
 [00:45:41] Adam: I think so
 
-[00:45:42] Will: it's just it's just an hour and a half of
-
-[00:45:44] Will: Norm
+[00:45:42] Will: it's just it's just an hour and a half of Norm
 
 [00:45:44] Adam: absolutely
 
-[00:45:44] Will: flexing
+[00:45:44] Will: flexing um okay Norm anything what should people look for What are you doing?
 
-[00:45:47] Will: um okay Norm anything what should people look for
-
-[00:45:47] Will: What are you doing?
-
-[00:45:50] Norm: Oh my God
-
-[00:45:50] Norm: we have a lot I mean we're ending the year really strong we had. Just this week, Adam's visit to the Lion King musical. We have some stuff. We have actually a new one-day build that Adam did last week with Michael Stevens. So that's going to pop on the site this week, and all our favorite things next week.
+[00:45:50] Norm: Oh my God we have a lot I mean we're ending the year really strong we had. Just this week, Adam's visit to the Lion King musical. We have some stuff. We have actually a new one-day build that Adam did last week with Michael Stevens. So that's going to pop on the site this week, and all our favorite things next week.
 
 [00:46:07] Adam: All right,
 

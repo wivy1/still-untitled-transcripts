@@ -44,9 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:01:48] Simone: There's a head
 
-[00:01:48] Will: swirl.
-
-[00:01:49] Will: That's my move. Yeah. It's it's a whole up. It's a whole body performance over here.
+[00:01:48] Will: swirl. That's my move. Yeah. It's it's a whole up. It's a whole body performance over here.
 
 [00:01:52] Adam: Yeah. So you were talking about sacking somebody.
 
@@ -94,9 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:03:42] Adam: A GIF. Yeah.
 
-[00:03:42] Simone: [unclear: GIFs / The GIF].
-
-[00:03:48] Simone: That's my livelihood, dude.
+[00:03:42] Simone: [unclear: GIFs / The GIF]. That's my livelihood, dude.
 
 [00:03:50] Will: What?
 
@@ -130,19 +126,11 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:04:48] Unknown speaker: Oh, yeah.
 
-[00:04:48] Adam: [unclear: asked Jerry Seinfeld / asked Jerry Seinfeld… asked Jerry Seinfeld], " How do you write a joke?" And he had this lovely thing he said, which was, " Well, when I go to the pool, he says I like to hold my breath and stand under water as long as possible. It's like my favorite thing to do." And he says, " When I write a joke, I do the opposite. I I take the punchline and I want to keep it up in the air as long as
+[00:04:48] Adam: [unclear: asked Jerry Seinfeld / asked Jerry Seinfeld… asked Jerry Seinfeld], " How do you write a joke?" And he had this lovely thing he said, which was, " Well, when I go to the pool, he says I like to hold my breath and stand under water as long as possible. It's like my favorite thing to do." And he says, " When I write a joke, I do the opposite. I I take the punchline and I want to keep it up in the air as long as possible." And and this is to illustrate this even further. In the beginning days of my friendship with Bill Prady, who's one of the co-creator of Big Bang Theory, and Steve Molaro over there, who's now the showrunner, I was hanging out on set, and Bill Prady was complaining to me that we had done an episode about ninjas. He's like, " There are 
 
-[00:05:12] Adam: possible."
+[00:05:13] Will: no ninjas." You had done an episode
 
-[00:05:13] Adam: And and this is to illustrate this even further. In the beginning days of my friendship with Bill Prady, who's one of the co-creator of Big Bang Theory, and Steve Molaro over there, who's now the showrunner, I was hanging out on set, and Bill Prady was complaining to me that we had done an episode about ninjas. He's like, " There are 
-
-[00:05:13] Will: no ninjas."
-
-[00:05:36] Will: You had done an episode
-
-[00:05:36] Adam: about ninjas.
-
-[00:05:38] Adam: [unclear: Yeah / Okay]. He said, " You guys did an episode about ninjas. There are no ninjas. The ninja line was broken in the 18th century. It's ludicrous for you to do. It's like doing an episode about Minutemen."
+[00:05:36] Adam: about ninjas. [unclear: Yeah / Okay]. He said, " You guys did an episode about ninjas. There are no ninjas. The ninja line was broken in the 18th century. It's ludicrous for you to do. It's like doing an episode about Minutemen."
 
 [00:05:47] Will: Okay.
 
@@ -178,9 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:07:28] Adam: I was like, I was laughing.
 
-[00:07:48] Simone: But I've always been confused about the expression " balls deep." Do we want to dive 
-
-[00:07:48] Simone: into
+[00:07:48] Simone: But I've always been confused about the expression " balls deep." Do we want to dive  into
 
 [00:07:53] Will: this? No, we can't talk about that one here. We can talk about
 
@@ -196,19 +182,11 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:08:05] Simone: We talked about this on the podcast before.
 
-[00:08:06] Adam: The balls to the wall is so an elevator when it's going down has a little parallelograms of these steel balls on a. On a on a thing that basically, as it's spinning faster, they go out and they slow it down, the centrifugal force.
-
-[00:08:06] Adam: Wow.
-
-[00:08:06] Adam: And so it's called a governor. And when you say we're going to go balls out, that means you're going as fast as the governor will allow you to go.
+[00:08:06] Adam: The balls to the wall is so an elevator when it's going down has a little parallelograms of these steel balls on a. On a on a thing that basically, as it's spinning faster, they go out and they slow it down, the centrifugal force. Wow. And so it's called a governor. And when you say we're going to go balls out, that means you're going as fast as the governor will allow you to go.
 
 [00:08:06] Simone: [unclear: But / But I love balls / But I love balls to the wall].
 
-[00:08:06] Adam: and I believe balls to the wall
-
-[00:08:29] Adam: is the same thing.
-
-[00:08:30] Adam: [unclear: Well, the problem / I just picture it].
+[00:08:06] Adam: and I believe balls to the wall is the same thing. [unclear: Well, the problem / I just picture it].
 
 [00:08:33] Will: Yeah, like I've been doing that wrong all this time. Who knew? My poor wife.
 
@@ -222,9 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:08:45] Adam: We promised. We promised last week that Simone would tell a story, and let me just preface this story by saying, um, I I found Simone's amazing videos online, and then we started corresponding, and you became part of the tested family, and then you moved to San Francisco, and you were here for like two months before you revealed to me this story. Which I found astounding that you could keep it to yourself for that long.
 
-[00:09:16] Simone: I was worried I was going to insult you.
-
-[00:09:19] Simone: You
+[00:09:16] Simone: I was worried I was going to insult you. You
 
 [00:09:19] Adam: never know.
 
@@ -234,17 +210,11 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:09:24] Will: nice job.
 
-[00:09:24] Simone: And I almost started crying because my my friend Tobias and I walked down the street here in the Mission, and we passed you, and I didn't see you. And he was like, Simone, did you see who that was? And I was like, What?
-
-[00:09:56] Simone: What who?
-
-[00:09:56] Simone: It was like, One of the MythBusters guys. And I was like, Which one? Which one? He's like, I don't know, [unclear: one of them / Wasn’t one of them]. And I was like, [unclear: Was it Adam / Was it Adam? Was it Adam]? I got so upset, but I did. Yeah, so I was a huge. Huge fan girl, and I applied to be a volunteer on the show three times, and that was one of one of the things that I was excited about moving to the Bay Area. That I was going to be on MythBusters.
+[00:09:24] Simone: And I almost started crying because my my friend Tobias and I walked down the street here in the Mission, and we passed you, and I didn't see you. And he was like, Simone, did you see who that was? And I was like, What? What who? It was like, One of the MythBusters guys. And I was like, Which one? Which one? He's like, I don't know, [unclear: one of them / Wasn’t one of them]. And I was like, [unclear: Was it Adam / Was it Adam? Was it Adam]? I got so upset, but I did. Yeah, so I was a huge. Huge fan girl, and I applied to be a volunteer on the show three times, and that was one of one of the things that I was excited about moving to the Bay Area. That I was going to be on MythBusters.
 
 [00:09:56] Unknown speaker: Wow!
 
-[00:10:18] Adam: When you moved to the Bay Area. This was before a couple of years ago.
-
-[00:10:21] Adam: You lived here for a couple of years.
+[00:10:18] Adam: When you moved to the Bay Area. This was before a couple of years ago. You lived here for a couple of years.
 
 [00:10:21] Simone: Yeah, so. This was three years ago that I moved, and I started doing like Shitty Robots one and a half years ago. So it was it was prior to that, but right before I was going to move from the Bay Area, I I got a spot, and I was so excited. And I don't have a driver's license, so I had to get up at five a.m. to like do public transportation.
 
@@ -310,9 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:12:00] Simone: So excited.
 
-[00:12:00] Will: She was one of the grocery store customers
-
-[00:12:00] Will: [unclear: That’s the / I think it was / …] last season, right?
+[00:12:00] Will: She was one of the grocery store customers [unclear: That’s the / I think it was / …] last season, right?
 
 [00:12:00] Adam: No.
 
@@ -324,9 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:12:07] Simone: Yeah, I think
 
-[00:12:07] Adam: so.
-
-[00:12:10] Adam: Okay, it might have been. Oh yeah, you're right. You're right. You're right. Because we made like 8,000 labeled cans of like, [unclear: Oh, my God / …].
+[00:12:07] Adam: so. Okay, it might have been. Oh yeah, you're right. You're right. You're right. Because we made like 8,000 labeled cans of like, [unclear: Oh, my God / …].
 
 [00:12:17] Simone: yeah, it was wild. I mean,
 
@@ -502,9 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:17:28] Will: you're gonna wake up one morning. Because I grew up in the mountains of Tennessee, where it actually like it's not it's not Scandinavia cold, but it gets snowy and 
 
-[00:17:28] Adam: cold.
-
-[00:17:37] Adam: Simone wakes up every morning and chips the ice off of her bare feet in order to clomp to the bathroom.
+[00:17:28] Adam: cold. Simone wakes up every morning and chips the ice off of her bare feet in order to clomp to the bathroom.
 
 [00:17:43] Simone: Like when I was living on a houseboat in Stockholm.
 
@@ -516,9 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:17:43] Simone: Yeah, it got yeah totally gets frozen in. And also, like I I came to a point when I realized it was colder in my kitchen than in my [unclear: refrigerator / ref- refrigerator]. So I realized I could just turn 
 
-[00:17:43] Adam: it off.
-
-[00:18:02] Adam: The refrigerator was was a heater.
+[00:17:43] Adam: it off. The refrigerator was was a heater.
 
 [00:18:04] Simone: Yeah, the refrigerator was definitely a heater.
 
@@ -538,13 +500,9 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:18:35] Simone: there are a lot of issues around that. I mean, especially because I always, I mean, it freezes in, which is actually actually really nice because then it stops rocking and it's just like still.
 
-[00:18:42] Adam: I like the rocking,
+[00:18:42] Adam: I like the rocking, but you were describing to us in one of our early phone calls back at the beginning of of our association. You were saying we're frozen in right now, and if you think it's quiet, you said we're hearing these cracks in the ice moving across the river that are making the whole boat 
 
-[00:18:42] Adam: but you were describing to us in one of our early phone calls back at the beginning of of our association. You were saying we're frozen in right now, and if you think it's quiet, you said we're hearing these cracks in the ice moving across the river that are making the whole boat 
-
-[00:18:42] Simone: vibrate.
-
-[00:18:57] Simone: Yeah, it's it's either that. I mean, sometimes you can hear it. Almost sounds like whales because the the ice gets these cracks and it's, but then as soon as it starts cracking up, it's just like scraping against a hull, and it's actually really loud.
+[00:18:42] Simone: vibrate. Yeah, it's it's either that. I mean, sometimes you can hear it. Almost sounds like whales because the the ice gets these cracks and it's, but then as soon as it starts cracking up, it's just like scraping against a hull, and it's actually really loud.
 
 [00:19:11] Will: Is it metal hull?
 
@@ -612,9 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:22:14] Will: In all the states, yeah. Well, because it's it's it's you know it's kind of centrally located on the east on the east coast. So it's a few hours. It's a 10-hour drive from D.C. or five hours from Atlanta, and all of North Carolina is. It's easy to get to, and it's really really gorgeous. But yeah, it's it's it's it's really it's really sad. Brutal. A lot of, I mean, it's it's the community as always. They do has pulled together in a really lovely way, and the Dollywood Foundation is giving money to everybody whose houses got burned down until they get back settled. And like, it's people are taking care of each other, which is always the kind of heartwarming thing that comes out of stuff like this.
 
-[00:22:50] Adam: Our our our our holiday, our thoughts and wishes out to those folks
-
-[00:22:55] Adam: down there.
+[00:22:50] Adam: Our our our our holiday, our thoughts and wishes out to those folks down there.
 
 [00:22:55] Simone: Yeah.
 
@@ -628,9 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:23:01] Will: just finished by singing Hallelujah and call it a 
 
-[00:23:01] Adam: day.
-
-[00:23:03] Adam: I don't think that we should
+[00:23:01] Adam: day. I don't think that we should
 
 [00:23:05] Unknown speaker: slaughter.
 
@@ -648,17 +602,13 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:23:17] Simone: I don't know. I try. [unclear: You should be / …]. I've done it once before. [unclear: It’s fun / It’s, It’s fun], but um, but I'm I'm excited because I got like a a woodworker slash space nerd.
 
-[00:23:17] Will: Mm-hmm. [unclear: And / Mm-hmm / …].
-
-[00:23:17] Will: That's pretty good.
+[00:23:17] Will: Mm-hmm. [unclear: And / Mm-hmm / …]. That's pretty good.
 
 [00:23:17] Simone: Yeah. Yeah. I'm thinking. I'm I'm just thinking of what I should make him.
 
 [00:23:31] Will: [unclear: Oh, and / Oh, good], right now all the woodworkers slash space nerds are really. Oh my god! I'm gonna get a robot. It's gonna be so 
 
-[00:23:31] Adam: shitty.
-
-[00:23:37] Adam: I am I am participating in the Imgur Secret Santa.
+[00:23:31] Adam: shitty. I am I am participating in the Imgur Secret Santa.
 
 [00:23:41] Simone: Yeah, there's one of those.
 
@@ -670,19 +620,13 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:23:46] Simone: Lucky
 
-[00:23:46] Will: you.
+[00:23:46] Will: you. How's that? How's that? We get. I don't. What are you? I have no 
 
-[00:23:47] Will: How's that? How's that? We get. I don't. What are you? I have no 
-
-[00:23:47] Adam: common ground there.
-
-[00:23:50] Adam: Drawing a total blank. Actually, I already figured out their gift, and it's so cool. I'm gonna make two of them because I gotta I gotta make one for myself too. I'm gonna I'm gonna do it as a build on Tested.
+[00:23:47] Adam: common ground there. Drawing a total blank. Actually, I already figured out their gift, and it's so cool. I'm gonna make two of them because I gotta I gotta make one for myself too. I'm gonna I'm gonna do it as a build on Tested.
 
 [00:24:03] Simone: So yeah, I was thinking about that too. 
 
-[00:24:03] Adam: I was like, I
-
-[00:24:03] Adam: You should totally.
+[00:24:03] Adam: I was like, I You should totally.
 
 [00:24:05] Simone: want to do it as a build.
 
@@ -704,15 +648,9 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:24:34] Simone: Norm,
 
-[00:24:35] Will: I my Kickstarter funded last week.
+[00:24:35] Will: I my Kickstarter funded last week. Thank you. Yay. [unclear: Congratulations. So we’re very excited / …].
 
-[00:24:38] Will: Thank you. Yay. [unclear: Congratulations. So we’re very excited / …].
-
-[00:24:38] Adam: Congratulations! Congratulations!
-
-[00:24:41] Adam: We've been
-
-[00:24:41] Adam: stumping for it here on the podcast. I’m really glad. That’s [unclear: fantastic / fantastic. Fantastic].
+[00:24:38] Adam: Congratulations! Congratulations! We've been stumping for it here on the podcast. I’m really glad. That’s [unclear: fantastic / fantastic. Fantastic].
 
 [00:24:45] Unknown speaker: [unclear: It’s / …] how
 
@@ -732,13 +670,9 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:25:01] Simone: The medium post is
 
-[00:25:01] Adam: coming.
+[00:25:01] Adam: coming. [unclear: This is / Yeah. It’s just] amazing. How many
 
-[00:25:02] Adam: [unclear: This is / Yeah. It’s just] amazing. How many
-
-[00:25:02] Will: of those I’ve read.
-
-[00:25:04] Will: But but so first, I have to say that. I had no idea how difficult the the the crowdfunding campaigns are actually in practice. Like we we have covered a lot of them, tested over the years, and I had like you looked at it and you are like, oh, this is like a feature length article with a video, right? And then it's absolutely way more work than a feature length article with a video.
+[00:25:02] Will: of those I’ve read. But but so first, I have to say that. I had no idea how difficult the the the crowdfunding campaigns are actually in practice. Like we we have covered a lot of them, tested over the years, and I had like you looked at it and you are like, oh, this is like a feature length article with a video, right? And then it's absolutely way more work than a feature length article with a video.
 
 [00:25:27] Simone: So, in what ways is it more work? Like, what were the surprising parts?
 
@@ -768,9 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:27:03] Will: which is the the super cool thing, and I've never really done like I've never been in a position to do that before, so it's it's really exciting.
 
-[00:27:03] Adam: That's cool.
-
-[00:27:11] Adam: Congratulations! I can’t wait to see how how it goes.
+[00:27:03] Adam: That's cool. Congratulations! I can’t wait to see how how it goes.
 
 [00:27:15] Will: So we have stretch goals.
 
@@ -864,15 +796,11 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:29:10] Will: Okay,
 
-[00:29:10] Adam: [unclear: my whole life / my whole life. My whole life] we did. Really, yeah, it wasn't something I grew up doing. And then MythBusters did a a week long, like eight days worth of an episode in Telluride, Colorado, which is unbelievable skiing. Um, and we had a day off, and so some of the mountain rescue people were like, " Well, you know, we can take you out skiing." So I thought that was great. So I'm on the I turned I pick it up pretty quickly. I'm going down a blue route. I'm having a lot of fun. I'm falling, and I fall like a drunk. So you know, I'm not getting hurt. [unclear: But the the / Yeah. Yeah. Yeah. Yeah. Yeah. The] second time I fall, I look back up the hill, and I can see that the mountain rescue people, the two who are like with me, shadowing me, are like practically losing their lunch, nauseous, watching me. Fall and I realized, oh my God, they've been told don't let him get hurt. Like I'm ruining their day by careening down this hill. So I got to the bottom and I was like, I think I'm good. And they were like,
-
-[00:29:10] Adam: [unclear: Oh / oh, this call / oh, that’s cool].
+[00:29:10] Adam: [unclear: my whole life / my whole life. My whole life] we did. Really, yeah, it wasn't something I grew up doing. And then MythBusters did a a week long, like eight days worth of an episode in Telluride, Colorado, which is unbelievable skiing. Um, and we had a day off, and so some of the mountain rescue people were like, " Well, you know, we can take you out skiing." So I thought that was great. So I'm on the I turned I pick it up pretty quickly. I'm going down a blue route. I'm having a lot of fun. I'm falling, and I fall like a drunk. So you know, I'm not getting hurt. [unclear: But the the / Yeah. Yeah. Yeah. Yeah. Yeah. The] second time I fall, I look back up the hill, and I can see that the mountain rescue people, the two who are like with me, shadowing me, are like practically losing their lunch, nauseous, watching me. Fall and I realized, oh my God, they've been told don't let him get hurt. Like I'm ruining their day by careening down this hill. So I got to the bottom and I was like, I think I'm good. And they were like, [unclear: Oh / oh, this call / oh, that’s cool].
 
 [00:30:09] Simone: you broke Adam Savage. [unclear: Exactly / …].
 
-[00:30:10] Will: He was your responsibility.
-
-[00:30:10] Will: I've had that responsibility before. The don't break Adam Savage job. It is not. It's not a fun job. So thank you for appreciating that.
+[00:30:10] Will: He was your responsibility. I've had that responsibility before. The don't break Adam Savage job. It is not. It's not a fun job. So thank you for appreciating that.
 
 [00:30:20] Adam: I'm like a toddler.
 
@@ -884,9 +812,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:30:36] Simone: I would have broken
 
-[00:30:36] Adam: Adam Savage.
-
-[00:30:38] Adam: Yeah, I just have an eye patch.
+[00:30:36] Adam: Adam Savage. Yeah, I just have an eye patch.
 
 [00:30:41] Simone: That would be cool. You could rock an eye patch.
 
@@ -902,9 +828,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:31:09] Will: Just can't even. Was do you do like cattywampus? Yeah,
 
-[00:31:12] Adam: no, [unclear: I look like Quasimodo. My hair / I look like Quasimodo. I look like you’re / I put a cloth of Moda on it. It’s terrible. It’s] melting off my face.
-
-[00:31:12] Adam: Um,
+[00:31:12] Adam: no, [unclear: I look like Quasimodo. My hair / I look like Quasimodo. I look like you’re / I put a cloth of Moda on it. It’s terrible. It’s] melting off my face. Um,
 
 [00:31:16] Will: What's what's going on in Toronto and Washington? Anything you can talk about?
 
@@ -928,9 +852,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:32:23] Will: It’s stuff from his house,
 
-[00:32:23] Adam: right?
-
-[00:32:24] Adam: Yeah, the designers that he loves, and then [unclear: the the / the the the] I said this last week, but the LACMA brought pieces out of its permanent collection that augmented and helped deepen the commentary. Just [unclear: a great look / to look / a great. Really cool]. LACMA is an amazing place. I went there twice in two days and was not remotely bored. It's a fantastic museum.
+[00:32:23] Adam: right? Yeah, the designers that he loves, and then [unclear: the the / the the the] I said this last week, but the LACMA brought pieces out of its permanent collection that augmented and helped deepen the commentary. Just [unclear: a great look / to look / a great. Really cool]. LACMA is an amazing place. I went there twice in two days and was not remotely bored. It's a fantastic museum.
 
 [00:32:44] Will: I've never I've never like gone in there and come out and be like, well, that was a waste of time.
 
@@ -944,9 +866,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:33:00] Adam: there's like there's like 80 street lamps in this tight grid. It's a sculpture by Chris Burden, and it's really really cool. And you can almost not take a bad picture of it. I will show you guys a picture, and then because it's rude to do that without 
 
-[00:33:00] Will: sharing,
-
-[00:33:15] Will: we’ll
+[00:33:00] Will: sharing, we’ll
 
 [00:33:17] Adam: make sure we post this online so that you guys can see. Come on, where is this
 
@@ -956,9 +876,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:33:28] Will: [unclear: This is this is a this is some really compelling / This is a this is some really compelling] content.
 
-[00:33:30] Adam: Thrilling, yeah. This is this is content happening right in front of you. There we go. Yeah, that is the Chris Burden street lamp sculpture
-
-[00:33:38] Adam: in the rain.
+[00:33:30] Adam: Thrilling, yeah. This is this is content happening right in front of you. There we go. Yeah, that is the Chris Burden street lamp sculpture in the rain.
 
 [00:33:39] Simone: Oh wow!
 
@@ -972,9 +890,7 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:33:46] Adam: New media. This is why television is dying.
 
-[00:33:46] Simone: Yeah,
-
-[00:33:49] Simone: yeah. Right there. Let’s listen to us looking at him, scrolling on his phone.
+[00:33:46] Simone: Yeah, yeah. Right there. Let’s listen to us looking at him, scrolling on his phone.
 
 [00:33:55] Will: My favorite thing to do when I'm listening to podcasts is to yell at the radio in my car.
 
@@ -1024,15 +940,11 @@ Episode URL: https://www.youtube.com/watch?v=kFgTI5uR1eE
 
 [00:34:43] Adam: It's my. I think my favorite, weirdly, right now, it's so hard to choose, but I'm really digging Kelly Clarkson doing " 
 
-[00:34:43] Will: It’s Quiet Uptown."
-
-[00:34:50] Will: [unclear: It’s so good / It’s so good. It’s so good].
+[00:34:43] Will: It’s Quiet Uptown." [unclear: It’s so good / It’s so good. It’s so good].
 
 [00:34:53] Simone: I have no idea what you're talking 
 
-[00:34:53] Adam: about.
-
-[00:34:54] Adam: I'll explain after the podcast. [unclear: And Simone / Yeah. Um, And Simone] is still awesome.
+[00:34:53] Adam: about. I'll explain after the podcast. [unclear: And Simone / Yeah. Um, And Simone] is still awesome.
 
 [00:34:58] Simone: Oh, thank you.
 

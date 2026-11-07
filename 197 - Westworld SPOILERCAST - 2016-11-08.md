@@ -38,9 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:01:43] Adam: No, it's not about travel.
 
-[00:01:44] Norm: We’ve done that many times, and we will continue talking about travel.
-
-[00:01:44] Norm: It’s true.
+[00:01:44] Norm: We’ve done that many times, and we will continue talking about travel. It’s true.
 
 [00:01:47] Will: Did you guys talk about the show last week?
 
@@ -104,9 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:03:47] Norm: your pile is of four or seven, yeah, as opposed to 30, you have a lot of small piles to make, and you can't stack them your way.
 
-[00:03:54] Will: I like the small piles. The small piles are very soothing.
-
-[00:03:54] Will: to me.
+[00:03:54] Will: I like the small piles. The small piles are very soothing. to me.
 
 [00:03:57] Adam: We um we uh I'll tweet this in a few minutes, but um Mrs. Julia and I. This is us at the table last night.
 
@@ -144,9 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:05:06] Norm: Sushi chef, sea shoes.
 
-[00:05:08] Adam: You know what the most difficult tongue twister of all is, and this is disputed. I mean, you know, because
-
-[00:05:08] Adam: it’s subjective.
+[00:05:08] Adam: You know what the most difficult tongue twister of all is, and this is disputed. I mean, you know, because it’s subjective.
 
 [00:05:12] Will: Betty bought some butter, but she said [unclear: the spreader butter better than the butter. I’m like the butter better / this butter’s bitter, bitter, bitter, bitter, bitter, bitter, bitter / this butter’s better, better, better, better, better, better, better],
 
@@ -244,9 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:08:38] Will: It it it actually feels like a like one of the open world video games that are very popular now, like GTA or or or Skyrim or something like that.
 
-[00:08:46] Adam: So, go ahead [unclear: Norm / Don].
-
-[00:08:47] Adam: Aside from the time travel aspect of Terminator, any film in which you have a human acting robot is a is a chance to play with all levels of allegory in terms of what it means to be conscious, what it means to be a person, and how we view the other. Blade Runner is, I think, one of the more sophisticated. Explorations of that, in terms of it being, I think it can be viewed as a racial allegory. It can be viewed as a Christian allegory, religious allegory. It can be viewed as a Buddhist allegory about what is consciousness. And I am actually thrilled because Westworld seems to be rolling up its sleeves and diving about as deep into this iconography as I can possibly imagine.
+[00:08:46] Adam: So, go ahead [unclear: Norm / Don]. Aside from the time travel aspect of Terminator, any film in which you have a human acting robot is a is a chance to play with all levels of allegory in terms of what it means to be conscious, what it means to be a person, and how we view the other. Blade Runner is, I think, one of the more sophisticated. Explorations of that, in terms of it being, I think it can be viewed as a racial allegory. It can be viewed as a Christian allegory, religious allegory. It can be viewed as a Buddhist allegory about what is consciousness. And I am actually thrilled because Westworld seems to be rolling up its sleeves and diving about as deep into this iconography as I can possibly imagine.
 
 [00:09:28] Norm: So the show, the modern show, HBO's show, created by Jonathan Nolan and Lisa Joy, who writing partners, I believe also they're married. Jonathan
 
@@ -382,9 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:15:45] Will: So they they have a series of activities that they do every day. They have dialogue interactions with other non-player characters.
 
-[00:15:45] Adam: Right.
-
-[00:16:04] Adam: They and you can interrupt these loops and join in, and
+[00:15:45] Adam: Right. They and you can interrupt these loops and join in, and
 
 [00:16:07] Will: yeah, they can trigger quests. They can approach you and try to get you to trigger a quest. And literally, the only difference between GTA and Westworld in that at that level of conception is that you know GTA happens in 2D on a screen, and Westworld is happens in the real world with with robots.
 
@@ -450,13 +440,9 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:19:56] Will: It’s because of the weird sexposition stuff that they do in that show.
 
-[00:19:56] Adam: constantly.
+[00:19:56] Adam: constantly. yeah, and let's talk about sexy. Real sexy is something like, and this is old, and I give my age here, but like the Big Easy is a sexy movie. There's almost, I don't think there's any nudity in that film, but it's two characters falling in love, and it's sexy, and it's that's awesome.
 
-[00:19:59] Adam: yeah, and let's talk about sexy. Real sexy is something like, and this is old, and I give my age here, but like the Big Easy is a sexy movie. There's almost, I don't think there's any nudity in that film, but it's two characters falling in love, and it's sexy, and it's that's awesome.
-
-[00:20:13] Norm: But there's also a third difference. There’s nudity, and then there’s sexy, and then there's
-
-[00:20:17] Norm: sexualizing. And this does nudity for storytelling.
+[00:20:13] Norm: But there's also a third difference. There’s nudity, and then there’s sexy, and then there's sexualizing. And this does nudity for storytelling.
 
 [00:20:20] Adam: This does nudity without sexualizing it, and and it's not sexy, and that's dis, and that's jarring to see. Well, Thandie Newton has entire scenes in which she is completely naked, and there's also there's there's dicks in this movie like all over the place. There's you haven't even seen nothing.
 
@@ -510,9 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:22:46] Adam: He does say as much, and I think that is actually. Yeah, it’s a good…
 
-[00:22:50] Will: my point is that he's that’s neither a force for good. Neither a force for good nor evil. It's just it's a he's the guy who goes out and finds his own weird goal on top of
-
-[00:22:58] Will: this other game layer.
+[00:22:50] Will: my point is that he's that’s neither a force for good. Neither a force for good nor evil. It's just it's a he's the guy who goes out and finds his own weird goal on top of this other game layer.
 
 [00:22:58] Norm: There's purpose on top of that.
 
@@ -608,13 +592,9 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:26:46] Unknown: Wow. Oh yeah,
 
-[00:26:46] Norm: and and then she realizes that you know it's futile.
+[00:26:46] Norm: and and then she realizes that you know it's futile. because like.
 
-[00:26:46] Norm: because like.
-
-[00:26:46] Will: I’ve been here before.
-
-[00:26:57] Will: So, so I mean, the, the, like at the core of it, this is about dehumanizing people and free will, right? The humans, the humans are clearly the monsters,
+[00:26:46] Will: I’ve been here before. So, so I mean, the, the, like at the core of it, this is about dehumanizing people and free will, right? The humans, the humans are clearly the monsters,
 
 [00:27:06] Adam: right?
 
@@ -696,9 +676,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:30:19] Norm: To digest,
 
-[00:30:19] Will: At least.
-
-[00:30:20] Will: so I can think about it and then roll back and watch the like. If I if if there is like like the second episode, I'd watch the first. I'd watched it before. I watched it again last night. I am gonna go back and pick some certain bits of that Mm-hmm. Because I want to see like the the the interaction between. I can't remember the programmer's name, but he's the he's from Hunger. He's the guy from Hunger Games. He played Beetee in Hunger Games.
+[00:30:19] Will: At least. so I can think about it and then roll back and watch the like. If I if if there is like like the second episode, I'd watch the first. I'd watched it before. I watched it again last night. I am gonna go back and pick some certain bits of that Mm-hmm. Because I want to see like the the the interaction between. I can't remember the programmer's name, but he's the he's from Hunger. He's the guy from Hunger Games. He played Beetee in Hunger Games.
 
 [00:30:40] Adam: Yeah. Yeah, he's one of the Hemsworths. He's right.
 
@@ -768,9 +746,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:32:14] Norm: Yeah,
 
-[00:32:14] Will: please,
-
-[00:32:17] Will: please do,
+[00:32:14] Will: please, please do,
 
 [00:32:17] Adam: yes, vote,
 
@@ -874,9 +850,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:36:00] Adam: So they own your
 
-[00:36:01] Will: well half of it.
-
-[00:36:01] Will: at least.
+[00:36:01] Will: well half of it. at least.
 
 [00:36:01] Norm: They own your DNA.
 
@@ -964,9 +938,7 @@ Episode URL: https://www.youtube.com/watch?v=akOhCJCxgdw
 
 [00:38:09] Will: You think he's a host? I assumed he was a visitor.
 
-[00:38:11] Norm: No, no, no.
-
-[00:38:11] Norm: it's revealed in episode six that he is. He is Anthony Hopkins as young boy created by his partner as a gift to him, and the face opens up and everything.
+[00:38:11] Norm: No, no, no. it's revealed in episode six that he is. He is Anthony Hopkins as young boy created by his partner as a gift to him, and the face opens up and everything.
 
 [00:38:20] Will: Oh, it’s pretty fucked up.
 

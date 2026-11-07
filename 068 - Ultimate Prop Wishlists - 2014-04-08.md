@@ -400,9 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:12:58] Norm: But but the idea was that yeah, as as I was holding it, we were talking about, uh, what are the things, um, that are on your all time wish list for, uh, props from movies or TV shows to own, um.
 
-[00:12:58] Will: Because
-
-[00:13:23] Will: this was immediately added to your list when you do exist,
+[00:12:58] Will: Because this was immediately added to your list when you do exist,
 
 [00:13:23] Adam: right?
 
@@ -848,9 +846,7 @@ Episode URL: https://www.youtube.com/watch?v=vo1MRz113Qc
 
 [00:28:00] Norm: Things that you can Put on your desk.
 
-[00:28:44] Adam: I mean, that's the problem for me. Why I've never made an Ark of the Covenant because it's giant and it's just it's way. There's literally nowhere I could put it in here.
-
-[00:28:52] Adam: You know, I achieved the Terminator last year. I definitely want a. Well, there’s also furniture, right? I mean, I’m. I’m. We’re going to do a build on this.
+[00:28:44] Adam: I mean, that's the problem for me. Why I've never made an Ark of the Covenant because it's giant and it's just it's way. There's literally nowhere I could put it in here. You know, I achieved the Terminator last year. I definitely want a. Well, there’s also furniture, right? I mean, I’m. I’m. We’re going to do a build on this.
 
 [00:28:52] Will: Yeah,
 

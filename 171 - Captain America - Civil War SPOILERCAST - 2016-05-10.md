@@ -12,9 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:01:27] Adam: Good morning.
 
-[00:01:29] Will: Hello, nerds.
-
-[00:01:28] Will: Good morning.
+[00:01:29] Will: Hello, nerds. Good morning.
 
 [00:01:29] Norm: Well, to everyone out there.
 
@@ -38,9 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:01:55] Adam: Precisely.
 
-[00:01:55] Norm: John Hurt and on board a space station.
-
-[00:01:59] Norm: With cancer?
+[00:01:55] Norm: John Hurt and on board a space station. With cancer?
 
 [00:01:59] Will: Was that John Hurt?
 
@@ -404,9 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:14:06] Adam: Oh, oh, so it's pre Washington.
 
-[00:14:08] Norm: Uh, it. I mean, you have to do his entire life, or his.
-
-[00:14:08] Norm: It goes through like at least 30 years in
+[00:14:08] Norm: Uh, it. I mean, you have to do his entire life, or his. It goes through like at least 30 years in
 
 [00:14:13] Adam: I see.
 
@@ -484,9 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:16:30] Norm: I don't think you can watch the movie.
 
-[00:16:38] Will: Yeah, you can.
-
-[00:16:34] Will: People came out of that movie and were like, " I'm Team Iron Man."
+[00:16:38] Will: Yeah, you can. People came out of that movie and were like, " I'm Team Iron Man."
 
 [00:16:36] Adam: Really?
 
@@ -510,9 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:17:12] Will: Right.
 
-[00:17:15] Adam: You see what I'm saying? You're actually thinking that there's going to be a separation between between people who go
-
-[00:17:21] Adam: for the image and splash of Iron Man and agree with his politics, and I don't think that there's.
+[00:17:15] Adam: You see what I'm saying? You're actually thinking that there's going to be a separation between between people who go for the image and splash of Iron Man and agree with his politics, and I don't think that there's.
 
 [00:17:26] Will: I think either you feel Iron Man deep in your heart. Yeah, exactly.
 
@@ -546,9 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:18:20] Will: but I think the characters were true to themselves though.
 
-[00:18:23] Adam: I totally agree. The thing that I just felt was that the stakes weren't quite as high.
-
-[00:18:28] Adam: Well, to me personally, now my son, my 17-year-old son, and was like, " Oh, I got totally weepy at the end." He like really bought in and loved, loved the spit out of it.
+[00:18:23] Adam: I totally agree. The thing that I just felt was that the stakes weren't quite as high. Well, to me personally, now my son, my 17-year-old son, and was like, " Oh, I got totally weepy at the end." He like really bought in and loved, loved the spit out of it.
 
 [00:18:37] Will: I can't imagine crying at a Marvel movie.
 
@@ -630,9 +618,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:21:28] Will: Yes, absolutely.
 
-[00:21:28] Adam: Yeah,
-
-[00:21:28] Adam: totally.
+[00:21:28] Adam: Yeah, totally.
 
 [00:21:29] Norm: And that's what I left with this movie, and I felt like the Winter Soldier, the sum of the parts, it flowed so well that had both great individual moments and was great. It's a cohesive piece, and plus, that was where it was a genre change from the World War II action adventure movie to spy thriller. This one, a little bit of a genre change because it's a big ensemble movie. But because we all agree that the movie is individually, the individual moments are better than some parts. I think we can just call out our favorite moments and just take turns, like Spider-Man.
 
@@ -696,11 +682,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:23:13] Norm: There's a lot of the wisecracking, and that's I think Marvel's understood that about Spider-Man. What they Brought in about Spider-Man in this movie was how naive and young he is, and like he all he like Paul Rudd, both were great comedic relief because they played the parts of the audience. They were both excited to be there.
 
-[00:23:33] Adam: And Paul Rudd,
-
-[00:23:33] Adam: yeah.
-
-[00:23:33] Adam: I love him, big fan, big fan. Hey.
+[00:23:33] Adam: And Paul Rudd, yeah. I love him, big fan, big fan. Hey.
 
 [00:23:36] Norm: And grabs his shoulders, which was an impromptu moment. They wrote that like that morning. It was it that they like because Paul Rudd, likable guy.
 
@@ -814,9 +796,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:28:54] Adam: Yeah,
 
-[00:28:54] Will: like like that could have been John McClane jumping the motorcycle into the F-35 at the end of Die Hard four.
-
-[00:29:02] Will: Yeah, Die Hard four.
+[00:28:54] Will: like like that could have been John McClane jumping the motorcycle into the F-35 at the end of Die Hard four. Yeah, Die Hard four.
 
 [00:29:03] Adam: There's a Die Hard four. Yeah,
 
@@ -872,13 +852,9 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:30:40] Norm: They've done the de aging. If you saw Ant Man, right? They they do digital de aging. They did it with
 
-[00:30:45] Will: Paul Rudd.
+[00:30:45] Will: Paul Rudd. No, Michael Douglas. Michael Douglas.
 
-[00:30:45] Will: No, Michael Douglas. Michael Douglas.
-
-[00:30:50] Norm: Michael Douglas.
-
-[00:30:51] Norm: And they've done the the digital aging with Hayley Atwell in the Winter Soldier, and so it's it's amazing what they can do.
+[00:30:50] Norm: Michael Douglas. And they've done the the digital aging with Hayley Atwell in the Winter Soldier, and so it's it's amazing what they can do.
 
 [00:30:58] Will: They so
 
@@ -902,9 +878,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:31:57] Norm: So I think that's where it falls apart a little bit because while it did its job absolutely of making you after wanting to watch after watching the movie wanting to watch a Black Panther movie and a Spider Man movie, your money is ready to be out there.
 
-[00:32:08] Adam: Totally.
-
-[00:32:09] Adam: No, no, no,
+[00:32:08] Adam: Totally. No, no, no,
 
 [00:32:10] Norm: yeah, that's as their job in and the business of making movies. They did that. The idea of bringing Spider Man in, the whole idea is that. Spider-Man's supposed to be the emotional center of the movie. Like he's supposed to be the one that gets tugged between both sides.
 
@@ -1002,9 +976,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:35:08] Norm: Oh my god,
 
-[00:35:09] Adam: She did it like
-
-[00:35:09] Adam: three times in this movie,
+[00:35:09] Adam: She did it like three times in this movie,
 
 [00:35:10] Norm: like in that first scene where where they're chasing Crossbones and his crew, like and that market fight scene.
 
@@ -1054,9 +1026,7 @@ Episode URL: https://www.youtube.com/watch?v=kF8zh5FVYsQ
 
 [00:37:15] Adam: I'm on Sunday around midday.
 
-[00:37:16] Will: Yeah. So um, I don't know if that's final final yet, but that's the latest time and date I have. I’ll see you there.
-
-[00:37:22] Will: Yes.
+[00:37:16] Will: Yeah. So um, I don't know if that's final final yet, but that's the latest time and date I have. I’ll see you there. Yes.
 
 [00:37:22] Adam: All right.
 

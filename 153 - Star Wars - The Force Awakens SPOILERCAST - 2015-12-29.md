@@ -52,9 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:01:01] Adam: That's right.
 
-[00:01:23] Will: Yeah,
-
-[00:01:24] Will: I found that really hard to watch on small screens.
+[00:01:23] Will: Yeah, I found that really hard to watch on small screens.
 
 [00:01:24] Adam: Yes,
 
@@ -176,9 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:05:32] Will: No, by Katie Notop—Notopoulos.
 
-[00:05:36] Norm: How so?
-
-[00:05:36] Norm: What did she write?
+[00:05:36] Norm: How so? What did she write?
 
 [00:05:36] Will: She tweeted something that had the spoiler, the big one.
 
@@ -218,9 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:06:27] Adam: we haven't.
 
-[00:06:27] Norm: We haven’t.
-
-[00:06:27] Norm: What's our best? Yeah, we we held all our conversations for this for you guys. There are a lot of things, little details you want to call out. A lot of things about the experience. So let's start off by talking about the things we liked.
+[00:06:27] Norm: We haven’t. What's our best? Yeah, we we held all our conversations for this for you guys. There are a lot of things, little details you want to call out. A lot of things about the experience. So let's start off by talking about the things we liked.
 
 [00:06:43] Will: I loved the characters. Like I loved the new characters specifically.
 
@@ -588,11 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:25:14] Will: because he owns BB-8, right?
 
-[00:25:15] Adam: He was supposed to die in the
-
-[00:25:16] Adam: original
-
-[00:25:17] Adam: screenplay.
+[00:25:15] Adam: He was supposed to die in the original screenplay.
 
 [00:25:17] Will: [unclear: Oh, really / Yeah, he was, oh, really, and they found a way]. In
 
@@ -604,9 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:25:38] Will: Who’s Greg Grunberg?
 
-[00:25:38] Adam: Greg Grunberg is one of Abrams'
-
-[00:25:45] Adam: best friends.
+[00:25:38] Adam: Greg Grunberg is one of Abrams' best friends.
 
 [00:25:46] Norm: He’s his good luck charm. He's
 
@@ -708,9 +696,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:28:26] Adam: I saw the lightsaber going to Rey instead of Kylo Ren coming from.
 
-[00:28:26] Will: Oh,
-
-[00:28:31] Will: everybody in the theater knew that it was going to go to Rey.
+[00:28:26] Will: Oh, everybody in the theater knew that it was going to go to Rey.
 
 [00:28:33] Adam: All of those beats, all those beats were clearly. I think sometimes we get like people see movies like that. I've been reading some comments, and people think, " Well, that's bad screenwriting." If I saw it coming, and I understand sometimes surprises are good, but all you've got to do is watch strictly ballroom, which is to me this one of the great examples of a film in which every story beat is telegraphed about half an hour beforehand, and it does not matter. It is totally enjoyable all the way through because story has to do with a contract between the between the storyteller and the listener, and that contract includes beats that you know. That sometimes you know are totally going to happen, and yet that all they need to do is happen satisfyingly.
 
@@ -866,11 +852,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:33:55] Adam: I get so much shit for saying Han.
 
-[00:33:57] Will: Han Han
-
-[00:33:58] Will: dies at the end
-
-[00:33:59] Will: of the
+[00:33:57] Will: Han Han dies at the end of the
 
 [00:33:59] Adam: All over my all over my Mythbusters.
 
@@ -952,9 +934,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:36:51] Adam: That's amazing. I had no idea. I love that.
 
-[00:36:53] Will: So did like Ben Ben Burtt wasn't involved at all in like the sound.
-
-[00:36:53] Will: and the [unclear: pulling] and all that stuff, or no?
+[00:36:53] Will: So did like Ben Ben Burtt wasn't involved at all in like the sound. and the [unclear: pulling] and all that stuff, or no?
 
 [00:36:57] Norm: I'm not sure who the the the sound engineers were.
 
@@ -972,11 +952,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:38:09] Adam: Yeah,
 
-[00:38:09] Norm: and scratching, and she had a doll and with a helmet. Yeah, it's a photography trick. Foreground, background work together. Should we talk about gripes at all? And I want to talk speculation at the very end.
-
-[00:38:24] Norm: I have
-
-[00:38:24] Norm: one gripe.
+[00:38:09] Norm: and scratching, and she had a doll and with a helmet. Yeah, it's a photography trick. Foreground, background work together. Should we talk about gripes at all? And I want to talk speculation at the very end. I have one gripe.
 
 [00:38:25] Adam: Okay,
 
@@ -1018,9 +994,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:39:33] Will: It was a planet-sized Death Star instead of a moon-sized Death Star.
 
-[00:39:37] Adam: And wasn't
-
-[00:39:37] Adam: Star Killer one of Luke's early names?
+[00:39:37] Adam: And wasn't Star Killer one of Luke's early names?
 
 [00:39:40] Norm: Star Star Killer was one of Luke's early names.
 
@@ -1062,11 +1036,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:41:17] Will: Really, where's Max von Sydow?
 
-[00:41:18] Norm: So Max von
-
-[00:41:19] Norm: Sydow was in the first.
-
-[00:41:20] Norm: He's in the first five. So
+[00:41:18] Norm: So Max von Sydow was in the first. He's in the first five. So
 
 [00:41:21] Adam: he's the one who gives the thing to Poe. Oh,
 
@@ -1154,11 +1124,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:44:23] Will: Oh,
 
-[00:44:23] Adam: with the stormtroopers turning around and walking away
-
-[00:44:31] Adam: again, and
-
-[00:44:32] Adam: then he destroys the whole thing and goes, Was there anything else?
+[00:44:23] Adam: with the stormtroopers turning around and walking away again, and then he destroys the whole thing and goes, Was there anything else?
 
 [00:44:35] Will: I mean, that's that's that's one of the jokes. That's got to be the joke of the Empire, right? Is like you you go serve on Darth Vader's spaceship. Pretty good chance you're going to get choked to death, right?
 
@@ -1328,9 +1294,7 @@ Episode URL: https://www.youtube.com/watch?v=YA0tozLIEHc
 
 [00:48:57] Adam: Maybe he hired those aliens from AI to work on Topoka to make some.
 
-[00:49:01] Will: If she's a
-
-[00:49:04] Will: clone, though, then how did the midi-chlorians get inside her?
+[00:49:01] Will: If she's a clone, though, then how did the midi-chlorians get inside her?
 
 [00:49:08] Adam: To stop with the midi-chlorians! Oh my goodness! I'm just going to punch you in the face.
 

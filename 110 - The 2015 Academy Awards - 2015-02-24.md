@@ -144,9 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:05:44] Will: I'm gonna I'm gonna go see that one night this week. I'm I want I want to see that.
 
-[00:05:48] Adam: Yeah, maybe I should take my kids tonight.
-
-[00:05:50] Adam: Just just go. It's still playing, right? Barely.
+[00:05:48] Adam: Yeah, maybe I should take my kids tonight. Just just go. It's still playing, right? Barely.
 
 [00:05:52] Will: I think it's in IMAX still, even.
 
@@ -388,9 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:13:41] Adam: right,
 
-[00:13:41] Norm: which I thought was a good performance.
-
-[00:13:38] Norm: Eddie Redmayne.
+[00:13:41] Norm: which I thought was a good performance. Eddie Redmayne.
 
 [00:13:44] Will: he played he played Alan Turing right.
 
@@ -516,9 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:17:34] Adam: Yeah, totally.
 
-[00:17:34] Will: Like, like they could have cut it any time after the the Ed Norton Emma Stone scene on the roof, and you would have been like, " This is a fine movie. This is good. We're good.”
-
-[00:17:55] Will: You know, I am sorry, not not there in the in the in the rafters, right?
+[00:17:34] Will: Like, like they could have cut it any time after the the Ed Norton Emma Stone scene on the roof, and you would have been like, " This is a fine movie. This is good. We're good.” You know, I am sorry, not not there in the in the in the rafters, right?
 
 [00:17:55] Norm: Right.
 
@@ -754,9 +748,7 @@ Episode URL: https://www.youtube.com/watch?v=XoeqVLD7Oto
 
 [00:26:27] Adam: positive, negative, indifferent.
 
-[00:26:27] Will: Oh yeah,
-
-[00:26:38] Will: and the Kodak.
+[00:26:27] Will: Oh yeah, and the Kodak.
 
 [00:26:38] Adam: The—
 

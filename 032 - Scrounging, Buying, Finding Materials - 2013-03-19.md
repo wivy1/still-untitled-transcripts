@@ -30,9 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:00:24] Norm: Oh, rewind on YouTube, press the rewind button,
 
-[00:00:26] Adam: Right?
-
-[00:00:27] Adam: It's like the oh, it's the YouTube thing where the first third has to be, uh, totally useless.
+[00:00:26] Adam: Right? It's like the oh, it's the YouTube thing where the first third has to be, uh, totally useless.
 
 [00:00:31] Will: It's 30 seconds.
 
@@ -54,9 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:01:12] Norm: And also, can be expensive.
 
-[00:01:13] Adam: It also can be expensive.
-
-[00:01:14] Adam: You go to S. H. Frank here, and you want to buy stuff by the hide or the half hide, and it's that's like $100. It's real money.
+[00:01:13] Adam: It also can be expensive. You go to S. H. Frank here, and you want to buy stuff by the hide or the half hide, and it's that's like $100. It's real money.
 
 [00:01:20] Will: So it's where you can get human leather.
 
@@ -130,9 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:04:45] Adam: carfuls of crap. Yeah, if you go to um,
 
-[00:04:48] Norm: And now, and
-
-[00:04:48] Norm: they probably buy it at in bulk, yeah, at a cheaper rate than you could buy individually.
+[00:04:48] Norm: And now, and they probably buy it at in bulk, yeah, at a cheaper rate than you could buy individually.
 
 [00:04:52] Adam: And usually a manufacturer is buying things in sheet form or large amounts of it, and they don't need the scraps that are the cutoffs. So I also got, when I was in my early 20s here in San Francisco in the early '90s, I got tons of stuff by going to like a sheet metal fabrication place and asking for scraps, and they would just sell them to me for like, you know what, $1 a pound or something like that.
 
@@ -602,9 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=4NmM7zGhLuk
 
 [00:26:19] Adam: Thanks for your comments and comments and good reviews on on iTunes.
 
-[00:26:23] Will: Bad reviews too. I mean, we like reviews just in general. So as always, thanks guys, and we'll be back next Tuesday with another episode of the show.
-
-[00:26:30] Will: Bye.
+[00:26:23] Will: Bad reviews too. I mean, we like reviews just in general. So as always, thanks guys, and we'll be back next Tuesday with another episode of the show. Bye.
 
 [00:26:30] Unknown speaker: Bye.
 

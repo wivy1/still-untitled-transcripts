@@ -26,11 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:00:34] Mark: Oh, that is true. Yeah, for Chronicle Collectibles.
 
-[00:00:37] Norm: That’s right.
-
-[00:00:37] Norm: Which is like the the toy, the stop motion puppet that was impossible to turn into a toy.
-
-[00:00:37] Norm: Well, they did.
+[00:00:37] Norm: That’s right. Which is like the the toy, the stop motion puppet that was impossible to turn into a toy. Well, they did.
 
 [00:00:43] Adam: Somehow they did. Yeah.
 
@@ -62,9 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:01:59] Mark: Yeah, there's there. I think. Like fully articulated ones, they're essentially one-sixth scale. There was anywhere from like 7 to 11 of them, or something like that. But in different in different various stages of decay and
 
-[00:01:59] Adam: right, right.
-
-[00:02:14] Adam: So for different shots and scenes,
+[00:01:59] Adam: right, right. So for different shots and scenes,
 
 [00:02:16] Norm: and taking that apart, having an intimate relationship with that piece of movie history, something you enjoyed because we're all cut from the same cloth. You a huge fan of not just RoboCop,
 
@@ -76,9 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:02:31] Adam: Let's talk about something that happened to me recently.
 
-[00:02:36] Mark: Oh, okay.
-
-[00:02:36] Mark: Do tell.
+[00:02:36] Mark: Oh, okay. Do tell.
 
 [00:02:37] Adam: I was lucky enough to be among the early people to see a screening of Denis Villeneuve's new sequel to Blade Runner, Blade Runner to 2049.
 
@@ -92,9 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:02:54] Adam: No, I am under. I am actually under a specific embargo, and I will. Discuss nothing about characters, nothing about plot, nothing about really nothing about the substance of the film in this podcast. So to talk about, there is like not even going to be remote spoilers.
 
-[00:03:13] Norm: Yes,
-
-[00:03:13] Norm: this is a spoiler-free cast.
+[00:03:13] Norm: Yes, this is a spoiler-free cast.
 
 [00:03:14] Adam: I am not even going to tell you that there are whether there are reveals here or there or whatever. It's literally we're not discussing the plot at all.
 
@@ -118,23 +108,17 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:04:19] Adam: You’ve already seen the love scene. Shit's gotten weird.
 
-[00:04:21] Mark: She, you know, at that point, it's like too late.
-
-[00:04:21] Mark: He’s twisted for life, but in all the right ways.
+[00:04:21] Mark: She, you know, at that point, it's like too late. He’s twisted for life, but in all the right ways.
 
 [00:04:27] Adam: But you know, like your mom's French, right?
 
-[00:04:28] Mark: No, actually, no.
-
-[00:04:28] Mark: my dad is French Canadian. My mom is Irish Scottish Canadian.
+[00:04:28] Mark: No, actually, no. my dad is French Canadian. My mom is Irish Scottish Canadian.
 
 [00:04:28] Adam: Oh,
 
 [00:04:28] Mark: and so
 
-[00:04:35] Adam: I was going to say, if she was French, she'd be like, ah,
-
-[00:04:37] Adam: Who cares?
+[00:04:35] Adam: I was going to say, if she was French, she'd be like, ah, Who cares?
 
 [00:04:37] Mark: she's just sitting in the corner with the Gauloises. Whatever, he'll get over it.
 
@@ -142,9 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:04:48] Mark: But coincidentally, I am from the same town that Denis Villeneuve is from.
 
-[00:04:48] Adam: Interesting.
-
-[00:04:53] Adam: And you know, obviously, you and I both being Blade Runner geeks, we've been being asked for the last couple of years that this film has been in production. If we're excited, and the answer is we've been provisionally excited, but we've been disappointed so many times by big reboots of franchises that meant a lot to us.
+[00:04:48] Adam: Interesting. And you know, obviously, you and I both being Blade Runner geeks, we've been being asked for the last couple of years that this film has been in production. If we're excited, and the answer is we've been provisionally excited, but we've been disappointed so many times by big reboots of franchises that meant a lot to us.
 
 [00:05:12] Norm: Reboots or sequels or forced sequels. I mean, the fact that
 
@@ -154,9 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:05:27] Adam: He'd done several smaller films like Prisoners, and then Sicario.
 
-[00:05:32] Mark: Sicario was the one.
-
-[00:05:32] Mark: Yeah.
+[00:05:32] Mark: Sicario was the one. Yeah.
 
 [00:05:33] Norm: He's like a Canadian. He's Canadian, right? So he did a Canadian film,
 
@@ -286,9 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:17:36] Mark: and you show up. You. This isn't a spoiler, but you show up in the second.
 
-[00:17:36] Adam: Yes, yeah,
-
-[00:17:41] Adam: I show up in the second film, which is with Dave Bautista, and it's set in 2048. He plays a character named Sapper, and he is selling some nematode worms to a guy named the Sultan. And I am one of the background players.
+[00:17:36] Adam: Yes, yeah, I show up in the second film, which is with Dave Bautista, and it's set in 2048. He plays a character named Sapper, and he is selling some nematode worms to a guy named the Sultan. And I am one of the background players.
 
 [00:17:41] Norm: Yes,
 
@@ -308,9 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:18:35] Unknown speaker: For the short films.
 
-[00:18:35] Mark: Like, did did you feel his
-
-[00:18:42] Mark: presence, or was he there in spirit?
+[00:18:35] Mark: Like, did did you feel his presence, or was he there in spirit?
 
 [00:18:44] Adam: He was there in spirit. Yeah. He executive produced this film, but he was not on set in Budapest when I was there at all. The the the second film, the the which right, I can talk about this because it's actually happened, was an incredible set built. I'm not kidding. In a matter of two days flat.
 
@@ -334,9 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:22:20] Adam: No, high speed and scary and like neck snapping and chains. But I mean, it is a dance, right? It is this dance with like 100 moves in less than 20 seconds, and all of them have their parts to play. And he's like, I mean, he's a giant.
 
-[00:22:20] Mark: Yeah, he
-
-[00:22:36] Mark: looks like a bear.
+[00:22:20] Mark: Yeah, he looks like a bear.
 
 [00:22:37] Adam: He is, but he's incredibly facile with his. Yeah, it was really a genuine treat.
 
@@ -346,9 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:23:37] Norm: right? And Spectre, you know, he had the menacing presence, but maybe not the depth in the front role,
 
-[00:23:37] Adam: Right. Right.
-
-[00:23:43] Adam: I mean, so people keep casting him as the big heavy, yeah. And the fact is, I think he can do a lot more. And it was lovely to meet him and talk to him, and you know, he's he's very familiar with San Francisco. We had lots to talk about.
+[00:23:37] Adam: Right. Right. I mean, so people keep casting him as the big heavy, yeah. And the fact is, I think he can do a lot more. And it was lovely to meet him and talk to him, and you know, he's he's very familiar with San Francisco. We had lots to talk about.
 
 [00:23:56] Mark: Oh, lovely, great.
 
@@ -360,9 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:24:02] Mark: I'll brace myself.
 
-[00:24:04] Adam: It's great. No, I'm here to say it's it's it's. I don't want to oversell it. I'm nervous about overselling it. But as after I wipe the tears from my eyes at the end, I am sufficiently blown away that I cannot wait to see it again. It has all the sensitivity and poetic, metaphorical depth that the original does, if not more.
-
-[00:24:35] Adam: I mean, there are times in which the imagery and the execution of the of the narrative is so is so metaphorical. It feels like I'm watching the film equivalent of a novel, of a real piece of literature, not not just something for my visual entertainment. There are aspects of it that I'm still unpacking in my head in terms of in in terms of what they mean and how they fit together. The performances are phenomenal. It is like I mean, I was saying to people, I'm provisionally excited because it's the best director I could imagine, the best DP I could imagine. And Harrison Ford's in it, and Ryan Gosling is the best guy I could imagine playing another another Blade Runner.
+[00:24:04] Adam: It's great. No, I'm here to say it's it's it's. I don't want to oversell it. I'm nervous about overselling it. But as after I wipe the tears from my eyes at the end, I am sufficiently blown away that I cannot wait to see it again. It has all the sensitivity and poetic, metaphorical depth that the original does, if not more. I mean, there are times in which the imagery and the execution of the of the narrative is so is so metaphorical. It feels like I'm watching the film equivalent of a novel, of a real piece of literature, not not just something for my visual entertainment. There are aspects of it that I'm still unpacking in my head in terms of in in terms of what they mean and how they fit together. The performances are phenomenal. It is like I mean, I was saying to people, I'm provisionally excited because it's the best director I could imagine, the best DP I could imagine. And Harrison Ford's in it, and Ryan Gosling is the best guy I could imagine playing another another Blade Runner.
 
 [00:24:35] Mark: Yeah.
 
@@ -394,9 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:28:10] Norm: Another thing is that you don't. You said you don't need to see the original.
 
-[00:28:10] Adam: You really don't.
-
-[00:28:15] Adam: They really crafted it so that you don't. But if you know the film, if you know the original well. And the better that you know the original, the more small tips of the hat there are. I'm not even going to say they're Easter eggs because they're not nearly so obvious.
+[00:28:10] Adam: You really don't. They really crafted it so that you don't. But if you know the film, if you know the original well. And the better that you know the original, the more small tips of the hat there are. I'm not even going to say they're Easter eggs because they're not nearly so obvious.
 
 [00:28:32] Norm: Woven into the tapestry.
 
@@ -460,11 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:32:52] Unknown speaker (Mark or Norm): No owl shot.
 
-[00:32:53] Adam: No owl shot, man. And it's that's. I really respect that. I really like. I love the subtlety of.
-
-[00:32:53] Adam: It.
-
-[00:32:53] Adam: It's clear that the the guiding hand of a master artist and a vision that is trans. That transports you somewhere else, which is what was so amazing about Blade Runner. Its vision of the future was so immersive and so complete. This film feels of the same kind and the same piece. I don't know whether this is a classic. I don't know how it's going to weather, but I cannot wait to see it again. I really like. I'm itching to sit down.
+[00:32:53] Adam: No owl shot, man. And it's that's. I really respect that. I really like. I love the subtlety of. It. It's clear that the the guiding hand of a master artist and a vision that is trans. That transports you somewhere else, which is what was so amazing about Blade Runner. Its vision of the future was so immersive and so complete. This film feels of the same kind and the same piece. I don't know whether this is a classic. I don't know how it's going to weather, but I cannot wait to see it again. I really like. I'm itching to sit down.
 
 [00:33:32] Norm: What is your relationship with a movie like this? We're in the pre watching it. You’re in post now. So are you in the future?
 
@@ -550,9 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=eQ9F3U3Pax8
 
 [00:39:08] Mark: Can't wait.
 
-[00:39:10] Norm: Awesome.
-
-[00:39:10] Norm: All right.
+[00:39:10] Norm: Awesome. All right.
 
 [00:39:10] Unknown speaker: Looking forward to it.
 

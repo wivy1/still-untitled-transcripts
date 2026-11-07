@@ -10,9 +10,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:00:09] Adam: I'm Adam.
 
-[00:00:09] Norm: I'm Norm.
-
-[00:00:13] Norm: Maniacal.
+[00:00:09] Norm: I'm Norm. Maniacal.
 
 [00:00:14] Adam: Actually, Lin-Manuel said that he makes a. It's an Amadeus reference at the end of. Of course, it is.
 
@@ -30,9 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:00:43] Norm: No, it's
 
-[00:00:46] Will: three times. It's three times.
-
-[00:00:47] Will: It's like part of a medley in one of them, though.
+[00:00:46] Will: three times. It's three times. It's like part of a medley in one of them, though.
 
 [00:00:49] Norm: No, it's three. Yeah,
 
@@ -94,9 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:03:31] Norm: That is a reasonable distance. It's not cross country.
 
-[00:03:31] Adam: No, it's just far enough.
-
-[00:03:36] Adam: But yeah, so
+[00:03:31] Adam: No, it's just far enough. But yeah, so
 
 [00:03:37] Will: so okay for East Coast people, they're thinking, oh, Los Angeles is how far away? 368 miles. It's about a five-hour drive. It's
 
@@ -122,9 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:04:19] Adam: I so one point we're moving stuff back and forth all weekend. Yeah, the whole weekend was about this move, and at one point I am like, I am getting, I am pissed off, and I am not yelling, but I am super mad, and my son goes, I don't understand why you are being so irrational because you are being irrational right now, and I said, I am freaked out that you are leaving, and he went, Oh, okay.
 
-[00:04:19] Will: Yeah, I mean,
-
-[00:04:44] Will: It's it's one of those things they don't
+[00:04:19] Will: Yeah, I mean, It's it's one of those things they don't
 
 [00:04:45] Norm: have that perspective. It's a great new adventure for them.
 
@@ -138,13 +130,9 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:04:59] Adam: Yes, yeah, yeah.
 
-[00:04:59] Will: and and yeah, I remember getting in the car. And
+[00:04:59] Will: and and yeah, I remember getting in the car. And did you drive him down, or did he drive himself?
 
-[00:04:59] Will: did you drive him down, or did he drive himself?
-
-[00:04:59] Adam: No,
-
-[00:05:11] Adam: he drove himself.
+[00:04:59] Adam: No, he drove himself.
 
 [00:05:11] Norm: That's even worse. Yeah, you had the help of the moving. You facilitated.
 
@@ -162,11 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:05:34] Adam: I my first car was a Volvo station wagon because it was the it could fit a four by eight of plywood in the back.
 
-[00:05:41] Will: Drew, we we have a friend Drew who is actually the white guy blinking meme. You've seen the white guy blinking on the internet?
-
-[00:05:41] Will: Oh yeah, yeah, yeah.
-
-[00:05:41] Will: That's our friend Drew. Shout out to Drew and Cloth Map. He makes awesome travel documentaries about video game stuff. But he bought a pickup truck, and it was this like a swarm of people. When he said, " Hey, guys, I got a new car. I got a pickup truck," like 15 people we'd never seen before came out. We're like, " Hey, what are you doing next weekend?"
+[00:05:41] Will: Drew, we we have a friend Drew who is actually the white guy blinking meme. You've seen the white guy blinking on the internet? Oh yeah, yeah, yeah. That's our friend Drew. Shout out to Drew and Cloth Map. He makes awesome travel documentaries about video game stuff. But he bought a pickup truck, and it was this like a swarm of people. When he said, " Hey, guys, I got a new car. I got a pickup truck," like 15 people we'd never seen before came out. We're like, " Hey, what are you doing next weekend?"
 
 [00:06:06] Adam: I we just were talking about how what a what a what a what a violent question. What are you doing tomorrow? Is.
 
@@ -190,9 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:06:54] Norm: holding your phone up, but not to videotape. But still, the AR can give you the fancy something to look at. Yeah,
 
-[00:06:54] Adam: Oh, look, I got a Pokémon.
-
-[00:07:00] Adam: Oh come on!
+[00:06:54] Adam: Oh, look, I got a Pokémon. Oh come on!
 
 [00:07:01] Norm: It's obscuring the the parts that I don't want to see of this play.
 
@@ -202,9 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:07:15] Adam: that was that was Thing Two.
 
-[00:07:15] Will: Really,
-
-[00:07:18] Will: he did that.
+[00:07:15] Will: Really, he did that.
 
 [00:07:18] Adam: Yeah,
 
@@ -242,11 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:08:23] Norm: Right. The degree of empathy that kids have at that stage is still very self centered.
 
-[00:08:28] Adam: And look, it's it's
-
-[00:08:30] Adam: you know a huge it's the biggest thing that's ever happened to them after being born at that point.
-
-[00:08:34] Adam: It is, and it's so exciting. It's so exciting. It I am I I'm so proud of them. I could burst. It is. It's funny that makes me feel older than turning 50, three weeks ago or a month a month ago.
+[00:08:28] Adam: And look, it's it's you know a huge it's the biggest thing that's ever happened to them after being born at that point. It is, and it's so exciting. It's so exciting. It I am I I'm so proud of them. I could burst. It is. It's funny that makes me feel older than turning 50, three weeks ago or a month a month ago.
 
 [00:08:49] Will: Yeah, I can't even imagine.
 
@@ -322,9 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:10:55] Norm: ever,
 
-[00:10:55] Adam: ever."
-
-[00:10:55] Adam: Her or Frances McDormand.
+[00:10:55] Adam: ever." Her or Frances McDormand.
 
 [00:10:57] Will: I I think I can handle Frances McDormand's more in the my mom scale.
 
@@ -352,11 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:11:23] Will: Yes,
 
-[00:11:23] Adam: I will. I will. It's a the bucket list for one of my bucket list is to have dinner with Frances McDormand and you know
-
-[00:11:31] Adam: and Joel,
-
-[00:11:31] Adam: Coen.
+[00:11:23] Adam: I will. I will. It's a the bucket list for one of my bucket list is to have dinner with Frances McDormand and you know and Joel, Coen.
 
 [00:11:32] Will: Yeah, why not?
 
@@ -436,9 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:13:32] Will: God, that movie's good. Everybody should like
 
-[00:13:33] Adam: run to go see it.
-
-[00:13:35] Adam: It'll make you feel awesome about the world. If you want a pick me up, especially after reading the news on any given day, that's your there is your palate cleanser.
+[00:13:33] Adam: run to go see it. It'll make you feel awesome about the world. If you want a pick me up, especially after reading the news on any given day, that's your there is your palate cleanser.
 
 [00:13:44] Will: Yeah.
 
@@ -548,9 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:18:27] Adam: Yeah, but not nearly as disturbing as again all the vomiting in Spirited Away.
 
-[00:18:33] Will: So the vomiting.
-
-[00:18:34] Will: I don't think the vomiting will bother her. I think it's creepy.
+[00:18:33] Will: So the vomiting. I don't think the vomiting will bother her. I think it's creepy.
 
 [00:18:36] Adam: Unhinge friends of my kids because I introduced my kids to it so early. They were like, " Yeah, cool, that's happening." Yeah, their friends would be like, "
 
@@ -568,9 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:19:05] Adam: yeah, really dark. Yeah, there was an article about. I saw that when it came out.
 
-[00:19:10] Norm: Yeah,
-
-[00:19:11] Norm: and there are parts of it just just sticking your brain. The
+[00:19:10] Norm: Yeah, and there are parts of it just just sticking your brain. The
 
 [00:19:13] Adam: borrowers and the rescuers; those are two different movies.
 
@@ -586,9 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:19:27] Norm: rescuers.
 
-[00:19:26] Adam: Yeah.
-
-[00:19:28] Adam: I saw that when it came out too,
+[00:19:26] Adam: Yeah. I saw that when it came out too,
 
 [00:19:29] Will: and and like those movies, there's there's violence against kids. Like they they kidnap children in that movie, and the mice have to save them. And is like that was intense.
 
@@ -664,9 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:24:17] Adam: Yeah, that was how they were built.
 
-[00:24:17] Norm: Right, but
-
-[00:24:19] Norm: they wouldn't. It wouldn't. I mean, when you look at the chair and there are photos of it from the exhibit, it is
+[00:24:17] Norm: Right, but they wouldn't. It wouldn't. I mean, when you look at the chair and there are photos of it from the exhibit, it is
 
 [00:24:24] Adam: it's straight up and down in both axes. And I had to I had to go and do that in order to
 
@@ -676,9 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:24:54] Will: you're doing. You're you're doing like archaeology in place, right? Yeah. It's it's like it's like the NASA folks who've gone through and recreated the Saturn V, so they could build the SLS to figure out how we did stuff on the Saturn V, so they can apply that to the SLS.
 
-[00:24:54] Norm: Yes.
-
-[00:25:09] Norm: Very Sherlock Holmes.
+[00:24:54] Norm: Yes. Very Sherlock Holmes.
 
 [00:25:10] Will: That's very cool.
 
@@ -700,9 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:26:32] Adam: You're welcome to borrow it anytime you want.
 
-[00:26:32] Will: No, I mean
-
-[00:26:35] Will: your bedroom, man. Like put it behind the shower curtain and the with the mirror. I don't know
+[00:26:32] Will: No, I mean your bedroom, man. Like put it behind the shower curtain and the with the mirror. I don't know
 
 [00:26:40] Adam: when. When I'm just going to ignore this and move on.
 
@@ -714,9 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:26:58] Norm: Wow!
 
-[00:26:58] Adam: And so I immediately
-
-[00:27:02] Adam: grabbed those pieces and cut them into smaller chunks.
+[00:26:58] Adam: And so I immediately grabbed those pieces and cut them into smaller chunks.
 
 [00:27:07] Norm: You see the world a different way, Adam, because you saw the packing material for something that contained something awesome.
 
@@ -728,15 +682,9 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:27:14] Will: I mean, but I mean, this is it, right? This is finding the Graflex flashlight for Luke's lightsaber.
 
-[00:27:14] Adam: Totally.
+[00:27:14] Adam: Totally. I just love going through that as many times as I can because I find it so deeply satisfying.
 
-[00:27:21] Adam: I just love going through that as many times as I can because I find it so deeply satisfying.
-
-[00:27:25] Will: The cockpit light that's R2-D2's.
-
-[00:27:25] Will: Yes.
-
-[00:27:25] Will: Yeah, you're doing archaeology.
+[00:27:25] Will: The cockpit light that's R2-D2's. Yes. Yeah, you're doing archaeology.
 
 [00:27:29] Adam: Yes. What you mean to refer to is that R2-D2's little moving light is the reading lamp from a Vickers Viscount 1970s airplane.
 
@@ -790,15 +738,11 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:28:53] Norm: Yes.
 
-[00:28:55] Will: That's as good a place as any. What's on the site this week?
-
-[00:28:55] Will: Tom.
+[00:28:55] Will: That's as good a place as any. What's on the site this week? Tom.
 
 [00:28:56] Norm: Speaking of which, yes, go watch that video. We visited FBFX. They shipped that life-size Adam foam Adam. So, what wasn't in the video was how that was carved. That they have a giant robot arm, like an industrial robot.
 
-[00:29:09] Adam: But we just didn't get we didn't get footage of that being carving.
-
-[00:29:12] Adam: So we have to get them to send us some of that.
+[00:29:09] Adam: But we just didn't get we didn't get footage of that being carving. So we have to get them to send us some of that.
 
 [00:29:13] Norm: Yeah, yeah. So that actually is they they they use a multi-axis robot arm. to mill out
 
@@ -820,9 +764,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:29:42] Adam: Clearly, they are.
 
-[00:29:42] Will: Absolutely. the the army in China
-
-[00:29:42] Will: the Terracotta Army
+[00:29:42] Will: Absolutely. the the army in China the Terracotta Army
 
 [00:29:52] Adam: that's how I'm going to be buried among like 3 600 versions of myself
 
@@ -842,9 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=0E6rjLSWniQ
 
 [00:30:18] Will: I'm still playing pubg almost every night I like that battle royale
 
-[00:30:21] Norm: will the live live streams we have
-
-[00:30:24] Norm: talked about this on Twitch we'll talk about in another episode
+[00:30:21] Norm: will the live live streams we have talked about this on Twitch we'll talk about in another episode
 
 [00:30:27] Will: all right hey
 

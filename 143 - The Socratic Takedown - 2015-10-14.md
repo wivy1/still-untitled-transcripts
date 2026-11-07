@@ -24,9 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:01:35] Adam: No, that's great, and it that'll work until they're like in until they're well until they're in school, and then it's going to be like you're getting up at you know the boys went to Miraloma up here in San Francisco, and Miraloma had something like a 7:50 a.m. start.
 
-[00:01:50] Will: What?
-
-[00:01:51] Will: Why would you do that?
+[00:01:50] Will: What? Why would you do that?
 
 [00:01:53] Norm: I had 7:15
 
@@ -220,9 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:06:47] Will: this is a rent, don't buy.
 
-[00:06:51] Norm: Oh boy!
-
-[00:06:52] Norm: This phone is garbage. I decided.
+[00:06:51] Norm: Oh boy! This phone is garbage. I decided.
 
 [00:06:55] Will: The thing that I like
 
@@ -280,9 +276,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:09:05] Adam: Another Socratic takedown. Um,
 
-[00:09:08] Norm: I just—
-
-[00:09:08] Norm: Socratic takedown.
+[00:09:08] Norm: I just— Socratic takedown.
 
 [00:09:10] Will: Well, I know what we're going to call this episode.
 
@@ -540,9 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:20:35] Adam: a huge resistance
 
-[00:20:36] Norm: that type of
-
-[00:20:37] Norm: intelligence.
+[00:20:36] Norm: that type of intelligence.
 
 [00:20:38] Adam: And the the author here, Carl Safina, is really working, I think, in a kind of origin of species way to build a case that that is an unscientific way to not ascribe any emotional content to the community or any actually informational, deep informational content. Ie, what is it to be empathetic? What is it to actually be able to genuinely communicate in context? He points out in one of the bits, dolphins that if a dolphin baby is playing with you after a certain period of time, the mom is going to come over and say, " This is enough. I need my child's attention," and she will give you a tail smack. A dolphin researcher that works with dolphins found that when one of her interns was playing too long with the dolphin baby, the mother dolphin would come up to the researcher and give her a smack. That means the dolphin understands the human hierarchy.
 
@@ -634,9 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=BnT9WWkUbnc
 
 [00:25:17] Adam: I don't know. The Marquee? I don't know. I have to come up with a name for the for the for the giant phone. Um. Oh. Oh. Wait. Last thing about this, I will tell you. I had a wonderful experience on this big screen, which is Hail Caesar, the new Coen Brothers movie. The trailer is out, and it is one of the great trailers ever made.
 
-[00:25:35] Will: They do good trailers.
-
-[00:25:35] Will: usually.
+[00:25:35] Will: They do good trailers. usually.
 
 [00:25:36] Adam: They really do good trailers.
 

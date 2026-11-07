@@ -112,9 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:04:52] Adam: yams with marshmallow topping.
 
-[00:04:55] Will: I don’t like the marshmallow.
-
-[00:04:55] Will: I like look. I'll go. I'll go. I'll go hog on a green bean casserole, but the marshmallow yams, not so much. We were just a sliced sweet potatoes with some brown sugar on top.
+[00:04:55] Will: I don’t like the marshmallow. I like look. I'll go. I'll go. I'll go hog on a green bean casserole, but the marshmallow yams, not so much. We were just a sliced sweet potatoes with some brown sugar on top.
 
 [00:05:05] Adam: No, I like the I like the full yams. I love love Pecan pie too.
 
@@ -136,13 +134,9 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:05:25] Kayte: Wow.
 
-[00:05:25] Will: And you end up with a really like perfectly cooked thigh, perfectly cooked breast, and the entirety of the stuffing goes underneath the turkey. 
+[00:05:25] Will: And you end up with a really like perfectly cooked thigh, perfectly cooked breast, and the entirety of the stuffing goes underneath the turkey.  So it all gets the turkey drips into it. Not great for your people.
 
-[00:05:25] Will: So it all gets the turkey drips into it. Not great for your people.
-
-[00:05:25] Kayte: No, no, no.
-
-[00:06:13] Kayte: I mean, my my family loves it.
+[00:05:25] Kayte: No, no, no. I mean, my my family loves it.
 
 [00:06:15] Will: But it it makes the whole all the stuffing taste like the stuffing that goes inside the turkey's butt.
 
@@ -368,9 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:18:55] Adam: Actually, the other part of this story is that as I bought that TV, it was the only time I have ever said, " Do you know who I am?"
 
-[00:18:55] Will: Wow.
-
-[00:19:04] Will: And this is an important lesson, Adam.
+[00:18:55] Will: Wow. And this is an important lesson, Adam.
 
 [00:19:05] Adam: [unclear: No / I know], and it’s because it's because I was buying the television at Best Buy, and the guys at Best Buy are awesome. And then he's like, " Oh yeah, we'll set you up with this TV." And this other guy comes over and he goes, " Hey, are you going to plug that TV into the wall?" And I'm like, that's the plan. He’s like, [unclear: you’re going to need a power scrubber for that / you’re going to need a power scrubber, you’re going to need a power scrubber for that]. And I'm like, no, I won't. It's got a transformer built right in. And he goes, no, you really need a power scrubber. And I said, who do you think you're talking to?
 
@@ -516,9 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:27:42] Will: The the Netflix just put the first few seasons up, the ones that you couldn't get in the U.S. until recently.
 
-[00:27:42] Kayte: Yes,
-
-[00:27:48] Kayte: and I can't wait to do those.
+[00:27:42] Kayte: Yes, and I can't wait to do those.
 
 [00:27:49] Will: They're they're very interesting. It's it's funny. It's really fun watching the kind of evolution of that.
 
@@ -550,9 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:28:21] Will: Yep. [unclear: ∅ / The, um].
 
-[00:28:21] Adam: Plus, he
-
-[00:28:22] Adam: loves treats.
+[00:28:21] Adam: Plus, he loves treats.
 
 [00:28:24] Unknown speaker (Kayte then Adam or Kayte or Will): [unclear: Yeah. Treats / Yeah. He loves treats].
 
@@ -610,9 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:30:27] Will: But, like, it always seems fast. Like, it always seems fascinating. I am sure that the food is is like by the time you get served or whatever, it's going to be you are going to look at cold, cold, cold meals, 
 
-[00:30:27] Adam: Yeah, that’s got to.
-
-[00:30:42] Adam: be really intense too.
+[00:30:27] Adam: Yeah, that’s got to. be really intense too.
 
 [00:30:44] Will: But, but I think it's got to be super intense. Like, it's always fun. One of the things when we used to go to the the coffee convention, the Specialty Coffee Convention of America, where you have like the world's best baristas making coffee, is the most interesting coffee I've ever had. Is when baristas are showing off for for their peers, right?
 
@@ -644,9 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=L9K_IBjkaKI
 
 [00:32:00] Will: it's when you watch Big Brother, Survivor, or something like that. And I love Survivor, just to be clear. I like Big Brother. Like, I think the best job in the world is to design puzzles for Big Brother Survivor because it seems like a blast.
 
-[00:32:14] Kayte: [unclear: I’ll / Yeah. I’ll]
-
-[00:32:14] Kayte: help you do that sometimes.
+[00:32:14] Kayte: [unclear: I’ll / Yeah. I’ll] help you do that sometimes.
 
 [00:32:14] Will: Let’s. I mean, look. Okay. But but they like those puzzles are designed to break people down and make them as small and as hurt and as broken as they can.
 

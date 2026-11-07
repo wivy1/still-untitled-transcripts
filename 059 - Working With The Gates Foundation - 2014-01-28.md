@@ -14,9 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:00:09] Will: Norm, you just bought concert tickets.
 
-[00:00:10] Norm: I know.
-
-[00:00:10] Norm: I was in between podcasts.
+[00:00:10] Norm: I know. I was in between podcasts.
 
 [00:00:11] Adam: really
 
@@ -266,9 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=FBaM1JfMOvs
 
 [00:10:33] Norm: For you to say that,
 
-[00:10:34] Adam: right? So yeah,
-
-[00:10:35] Adam: no, no, no. I mean, we we you're
+[00:10:34] Adam: right? So yeah, no, no, no. I mean, we we you're
 
 [00:10:37] Will: right. Just to be clear, I thought I was busy, and then we met you and and Jamie, and and that's a level of busy that I didn't think existed. So like we're talking orders of magnitude.
 

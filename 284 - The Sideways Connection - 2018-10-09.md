@@ -18,9 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:00:13] Kishore: I have been on this podcast before. I'm becoming the New York correspondent for this podcast because every time I'm on, we seem to talk about New York experiences.
 
-[00:00:20] Adam: Oh, fascinating.
-
-[00:00:21] Adam: Well, and we just got back from New York Comic Con.
+[00:00:20] Adam: Oh, fascinating. Well, and we just got back from New York Comic Con.
 
 [00:00:24] Norm: Quite a New York experience, in fact.
 
@@ -30,9 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:01:09] Adam: Hilarious.
 
-[00:01:10] Kishore: I saw Annalee only for 30 seconds at this con, but I was stuck in one of those rivers of people being pushed along through the exhibit floor, and I passed by her and I was like, Hi, Annalee! Hi, Annalee! 
-
-[00:01:10] Kishore: Like you, like when you’re just caught in a flow.
+[00:01:10] Kishore: I saw Annalee only for 30 seconds at this con, but I was stuck in one of those rivers of people being pushed along through the exhibit floor, and I passed by her and I was like, Hi, Annalee! Hi, Annalee!  Like you, like when you’re just caught in a flow.
 
 [00:01:26] Adam: [unclear: Well / Oh, well], and when I stepped into, so we were just prior to boarding when I stepped up next to you guys, and we all know what a shit fight it is to fly in the U.S. and that if you're anywhere remotely close to starting to board, everyone just crowds the gate, right? So I tend to try and stay back until the very last second, and so there I was, kind of. Oh, it looks like they're just about to start processing, and I step up, and I notice pink hair to my right, and my scanners, peripheral scanners, go. The peripheral scanners. Are achieving a 70% likelihood that that is Charlie Jane Anders, and then I heard you going, " I think he's in disguise." And you and Annalee were kind of making fun of me, and you tapped me on the shoulder, and I turned around, and it was the three of you.
 
@@ -104,9 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:07:13] Adam: [unclear: Sure, yeah / Yeah, of course],
 
-[00:07:13] Norm: it's the gnome that travels the world.
-
-[00:07:16] Norm: In that respect, but New York. All right, let's let's try to recap as best we can because we're in the the post convention glow where we had so much fun.
+[00:07:13] Norm: it's the gnome that travels the world. In that respect, but New York. All right, let's let's try to recap as best we can because we're in the the post convention glow where we had so much fun.
 
 [00:07:25] Adam: I don't want to. I don't want to be the buzzkill at the end of this. So at the beginning of this, I'm going to say personally, while New York Comic Con was amazing and I saw a lot of my favorite people in the world and got to hang out with most of them and even threw a little party in my room and that was awesome. Saturday, the day that Brett Kavanaugh, Supreme Court Justice, was confirmed and voted on, was a really rough day for me. I was very upset about that. I'm unhappy about that appointment, and you may be happy, and that's your prerogative. But I found Saturday kind of. I was my buzz was killed on Saturday.
 
@@ -144,9 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:10:07] Adam: Yeah, yeah, it’s totally true.
 
-[00:10:07] Norm: If
-
-[00:10:09] Norm: you’re lucky enough to have the time, because some people are there working, you know, 12, 14 hours, or or you know, they're they're not staying in the city. But if you're lucky enough to be in the city, we had a good time because sure, Joey, and I, you know, walked through New York Saturday night.
+[00:10:07] Norm: If you’re lucky enough to have the time, because some people are there working, you know, 12, 14 hours, or or you know, they're they're not staying in the city. But if you're lucky enough to be in the city, we had a good time because sure, Joey, and I, you know, walked through New York Saturday night.
 
 [00:10:24] Adam: Saturday at the end of the at the end of my requirements, I was walking over to the Hammerstein Ballroom, and I was at the talent exit there on 34th Street. And and by the way, a big tip of the hat to the crew that runs New York Comic Con. They run it like a Swiss watch. I found everyone that we dealt with there to be incredibly professional and amazing. We got to where we needed to go in plenty of time. It was There was no stress put upon us by anything to do with the con itself. All the stress we endured was self self generated.
 
@@ -178,11 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:12:50] Norm: So anything catch your eye? You only had one eye exposed.
 
-[00:12:53] Adam: We only had one eye exposed. And frankly, the Deathstroke mask that I had was a left eye open, which is difficult for me because I'm right eye dominant. So my my I kept on banging into people, and I kept on apologizing. People were very nice. They were like, " It's I was like, sorry." They’re like, " It’s
-
-[00:13:07] Adam: Comic Con."
-
-[00:13:10] Adam: Look, I I continue. I noticed that New York this year. I noticed that New York has a much stronger superhero theme. There's a lot more focus on superheroes specifically over San Diego Comic Con, but there's also a lot of great superhero mashups. I saw I saw a couple of female M'Baku's, which I thought was a really great a great mashup there, a gender gender bent costume. I love the really weird, you know, like I love the pink Darth Vaders. I love you know that kind of stuff.
+[00:12:53] Adam: We only had one eye exposed. And frankly, the Deathstroke mask that I had was a left eye open, which is difficult for me because I'm right eye dominant. So my my I kept on banging into people, and I kept on apologizing. People were very nice. They were like, " It's I was like, sorry." They’re like, " It’s Comic Con." Look, I I continue. I noticed that New York this year. I noticed that New York has a much stronger superhero theme. There's a lot more focus on superheroes specifically over San Diego Comic Con, but there's also a lot of great superhero mashups. I saw I saw a couple of female M'Baku's, which I thought was a really great a great mashup there, a gender gender bent costume. I love the really weird, you know, like I love the pink Darth Vaders. I love you know that kind of stuff.
 
 [00:13:43] Kishore: Does any part of you get jaded after going to so many Comic Cons about just like the wealth of costumes?
 
@@ -204,11 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:15:16] Adam: I had not realized that my mom has never been to a con. She's been out of town both of the last two New York Comic Cons when we were there, and so she came out on Saturday to see my panel. She was very proud. She's awesome, and yeah, you took her around. Tell me about what my mom's experience at Comic Con was like.
 
-[00:15:34] Kishore: We walked around for an hour and a half. She got there a little bit early for your panel, and so we had this time to sort of kill [unclear: them / him]. Like, what do you want to see? Do you want to see the artists? Do you are you interested in the in the collectibles? And even before that sentence was finished, I knew that it was wrong. And so,
-
-[00:15:49] Kishore: but
-
-[00:15:50] Kishore: like before we even get in, you're like, I want to see the costumes. I want to go where the energy is, and so we start walking around. And I'm used to you know walking around with Norm a little bit, where he'll stop people for photos and and stuff. She stops. Everyone in costume for photos.
+[00:15:34] Kishore: We walked around for an hour and a half. She got there a little bit early for your panel, and so we had this time to sort of kill [unclear: them / him]. Like, what do you want to see? Do you want to see the artists? Do you are you interested in the in the collectibles? And even before that sentence was finished, I knew that it was wrong. And so, but like before we even get in, you're like, I want to see the costumes. I want to go where the energy is, and so we start walking around. And I'm used to you know walking around with Norm a little bit, where he'll stop people for photos and and stuff. She stops. Everyone in costume for photos.
 
 [00:16:07] Norm: Really, every single person.
 
@@ -310,9 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:25:03] Norm: interesting.
 
-[00:25:03] Adam: It’s
-
-[00:25:04] Adam: Excalibur, and they they my Twitter followers were very correct in pointing out to me that they took that sword directly from the comic book. That it is a sort of a Viking style design to the to the to the guard of the of the sword, and it is definitely a build I am going to tackle this year.
+[00:25:03] Adam: It’s Excalibur, and they they my Twitter followers were very correct in pointing out to me that they took that sword directly from the comic book. That it is a sort of a Viking style design to the to the to the guard of the of the sword, and it is definitely a build I am going to tackle this year.
 
 [00:25:22] Kishore: as the resident Hellboy fan here in the office. Are you psyched about this this reboot?
 
@@ -352,9 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:28:00] Kishore: Don't put it low on your list.
 
-[00:28:02] Norm: I think
-
-[00:28:02] Norm: it's it's three three villains. James Franco is a villain, and
+[00:28:02] Norm: I think it's it's three three villains. James Franco is a villain, and
 
 [00:28:06] Adam: Thomas Haden Church.
 
@@ -386,9 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:28:41] Kishore: What is Sandra Oh doing in that movie?
 
-[00:28:42] Norm: No, she’s not.
-
-[00:28:42] Norm: I’m saying, if she was, from Sideways, yes.
+[00:28:42] Norm: No, she’s not. I’m saying, if she was, from Sideways, yes.
 
 [00:28:43] Kishore: I thought you were being for real.
 
@@ -432,9 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=YX7oys5Ss3M
 
 [00:31:06] Adam: Expo, because I had only been to big cons before that, and I thought the little one was just this little con was a beautiful jewel of of of all these different subgenres. I had no idea.
 
-[00:31:16] Kishore: I
-
-[00:31:16] Kishore: love the subtle ways they iterate forward too. So I have a number of cosplay friends that would talk about New York Comic Con being tough because people are taking trains in, and like, where do you get into your costume
+[00:31:16] Kishore: I love the subtle ways they iterate forward too. So I have a number of cosplay friends that would talk about New York Comic Con being tough because people are taking trains in, and like, where do you get into your costume
 
 [00:31:27] Adam: right
 

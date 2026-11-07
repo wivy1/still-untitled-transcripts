@@ -32,9 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:00:51] Adam: But the other one is the Ice-T interview, and it's also been memory holed. You can't find it.
 
-[00:00:58] Will: Wow,
-
-[00:00:58] Will: Really?
+[00:00:58] Will: Wow, Really?
 
 [00:00:58] Adam: have I not talked about this?
 
@@ -44,9 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:01:01] Unknown (Adam or Will): if I've ever heard this one.
 
-[00:01:01] Adam: Okay, so this is it's from a long, long, long time ago. I mean, like maybe the late '90s. And she has Ice T on, and she's talking to him, and he's super smart, right? He's, I mean, a brilliant creator, and also like really, really able to talk about the cultural impact and the reasons and the, you know, I love hearing Ice T talk about.
-
-[00:01:25] Adam: this stuff.
+[00:01:01] Adam: Okay, so this is it's from a long, long, long time ago. I mean, like maybe the late '90s. And she has Ice T on, and she's talking to him, and he's super smart, right? He's, I mean, a brilliant creator, and also like really, really able to talk about the cultural impact and the reasons and the, you know, I love hearing Ice T talk about. this stuff.
 
 [00:01:25] Will: He is self-aware in a way that a lot of music musicians aren't.
 
@@ -122,9 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:04:45] Adam: He also, I'll tell you, having been interviewed by him a couple of times, and I've gotten to see. Look, I'm very aware that people like. Krasny sometimes don't have a high level of familiarity with the people that they're interviewing.
 
-[00:04:58] Will: How could they?
-
-[00:04:58] Will: Well, they interview so many people; it's not like they can. Exactly, they don't have a 20-person research staff.
+[00:04:58] Will: How could they? Well, they interview so many people; it's not like they can. Exactly, they don't have a 20-person research staff.
 
 [00:05:02] Adam: It's a, it's a, it's a fire hose of material he's got to manage, and so he wasn't crazy familiar with MythBusters. He knew us as local heroes and that kind of stuff. So I got to see the degree to which his team does great research for him and works with him, and how he, like, even between ad breaks or whatever you call it, station IDs, he is. It's beautiful to watch that machine operate. Well, right, him and his team are a fantastic unit in terms of taking new information and getting a really substantive interview out of a subject he might not have even met before,
 
@@ -138,9 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:05:58] Unknown speaker: Really?
 
-[00:05:59] Norm: No,
-
-[00:05:59] Norm: it is because he takes calls.
+[00:05:59] Norm: No, it is because he takes calls.
 
 [00:06:00] Adam: Oh, it's actually broadcast live. He takes calls. Oh, okay. Sorry, because the live to tape or live and live to tape are effectively the same thing because they record like Craig Ferguson's show was done that way.
 
@@ -148,9 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:06:14] Adam: Yeah, they record it as if they're live, and that's always a higher energy than when they're recording, knowing that they'll edit. And I'll tell you that, like when I first started doing interviews for MythBusters, and you do these radio tours as well as the television stuff, and the radio tours are like get on the phone at six in the morning and do 25 interviews for three hours
 
-[00:06:32] Will: for Windows releases and
-
-[00:06:32] Will: stuff.
+[00:06:32] Will: for Windows releases and stuff.
 
 [00:06:33] Adam: super fun. I find them super fun.
 
@@ -202,9 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:09:02] Adam: there's that, and then there's the morning zoo shows. Do tend to redound to the Can you bust the myth about my ex-wife? You know, the humor humor hasn't changed for some of these shows in 30 or 40 years.
 
-[00:09:16] Will: For
-
-[00:09:16] Will: That voice, Adam.
+[00:09:16] Will: For That voice, Adam.
 
 [00:09:16] Adam: What's that?
 
@@ -280,9 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:11:25] Adam: Tell no, I was under my name." And so I called a cab. There was a cab right there at the hotel. I got in the cab. I said, " Hey, how fast can you get to the airport? Because I'm really late. My flight leaves in 50 minutes." Five zero
 
-[00:11:40] Will: So you're 10 minutes
-
-[00:11:40] Will: from the well. Your carry on, I assume.
+[00:11:40] Will: So you're 10 minutes from the well. Your carry on, I assume.
 
 [00:11:43] Adam: I was
 
@@ -294,9 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:11:50] Adam: And there's no traffic.
 
-[00:11:52] Will: I have.
-
-[00:11:53] Will: I'm shaking my head.
+[00:11:52] Will: I have. I'm shaking my head.
 
 [00:11:53] Adam: I was just. I was so. I don't look. You know. I'm. I'm. You know. I wasn't going to yell at him, and he was doing his job. People have a comfort zone that they're driving in. That was fine, and in the end. I made the flight,
 
@@ -380,9 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:14:50] Adam: Yeah. No. No. And especially like SFOs can be really.
 
-[00:14:55] Will: You have to
-
-[00:14:55] Will: go all the way to rental car return if you go the wrong direction,
+[00:14:55] Will: You have to go all the way to rental car return if you go the wrong direction,
 
 [00:14:57] Adam: right? Yeah. Yeah. Jesus Christ.
 
@@ -448,9 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:17:19] Will: Okay.
 
-[00:17:20] Adam: Okay,
-
-[00:17:21] Adam: those those situations are. I love it when you find someone who's willing to join you on the journey of getting you there all the time.
+[00:17:20] Adam: Okay, those those situations are. I love it when you find someone who's willing to join you on the journey of getting you there all the time.
 
 [00:17:32] Will: Those people made me a customer for life. Those people made me a customer for life because that guy recklessly drove to get me to the airport on time and let me be cheap and not pay $1,000
 
@@ -476,9 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:18:10] Will: Okay.
 
-[00:18:10] Adam: Not sure.
-
-[00:18:12] Adam: It was in Berkeley. I don't think it was recorded. Yeah, um, but but there are a lot of interviews he did publicly for this book, and it's wonderful. In fact, I'd say the the deepest dive that I've yet heard is on, Ezra Klein's show,
+[00:18:10] Adam: Not sure. It was in Berkeley. I don't think it was recorded. Yeah, um, but but there are a lot of interviews he did publicly for this book, and it's wonderful. In fact, I'd say the the deepest dive that I've yet heard is on, Ezra Klein's show,
 
 [00:18:31] Will: okay,
 
@@ -486,9 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:18:43] Will: The the chapters that Chris Hadfield answered, where he asked Chris Hadfield questions in that book, are exceptional.
 
-[00:18:50] Adam: Well, that was the best part of the interview. Is his going through like he said he called Chris Hadfield with the goal to get Chris Hadfield to hang up on him by asking him ever more absurd aviation questions, and so he opened with, " If you had to land a plane and there's no roads and there's no parking lots and no flat land around you, is there a crop that is better than others?" And not only did he take this. Question seriously, but Chris had actual protocols in his head about which crops are better
-
-[00:19:17] Adam: to land in at which times of year. Like corn is good, but only until May, right? Like, and it got it went it went nuts from there. Like, there was no question too absurd for Chris not to have considered it already as part of surviving in the air. Like
+[00:18:50] Adam: Well, that was the best part of the interview. Is his going through like he said he called Chris Hadfield with the goal to get Chris Hadfield to hang up on him by asking him ever more absurd aviation questions, and so he opened with, " If you had to land a plane and there's no roads and there's no parking lots and no flat land around you, is there a crop that is better than others?" And not only did he take this. Question seriously, but Chris had actual protocols in his head about which crops are better to land in at which times of year. Like corn is good, but only until May, right? Like, and it got it went it went nuts from there. Like, there was no question too absurd for Chris not to have considered it already as part of surviving in the air. Like
 
 [00:19:34] Will: the the moments that we had with Chris, like at the the green room at Comic Con and stuff like that, we had like an hour, and I was just grilling him. I was like, " Am I asking too many questions?" It's like I don't care how many times I'm going to get to talk to him. It's he's it's it captures that. Randall did a really amazing job of capturing that kind of access.
 
@@ -534,9 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:21:51] Norm: There are so many different spacesuits.
 
-[00:21:53] Adam: Yeah.
-
-[00:21:54] Adam: Oh really? I'm really curious about if any of those are going to come on the market.
+[00:21:53] Adam: Yeah. Oh really? I'm really curious about if any of those are going to come on the market.
 
 [00:21:58] Norm: Yes, if you can watch it in on the biggest screen possible, on IMAX or Dolby, I recommend doing that.
 
@@ -568,9 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:22:20] Adam: okay. Don't don't. I don't.
 
-[00:22:21] Norm: That's it. Really, all I want to say. Nothing. That's that's it. Go watch it.
-
-[00:22:25] Norm: Highly recommended.
+[00:22:21] Norm: That's it. Really, all I want to say. Nothing. That's that's it. Go watch it. Highly recommended.
 
 [00:22:24] Adam: J Lo is one of my heroes.
 
@@ -586,9 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:22:42] Adam: Oh, because everyone wanted to see the dress that was taped to her bosom.
 
-[00:22:43] Norm: Everyone was
-
-[00:22:45] Norm: Everyone was googling at that time. Just Google text search.
+[00:22:43] Norm: Everyone was Everyone was googling at that time. Just Google text search.
 
 [00:22:48] Adam: Wow.
 
@@ -636,9 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:24:58] Will: Yeah. So I had a sick wife and kid this weekend.
 
-[00:25:01] Adam: Sorry.
-
-[00:25:01] Adam: Lots of phlegm. Lots of snot.
+[00:25:01] Adam: Sorry. Lots of phlegm. Lots of snot.
 
 [00:25:03] Will: Other, other, the other. [unclear: not the good / Oh, the good]. So we they were resting yesterday, and I watched. Well, I watched the rest of boys this weekend.
 
@@ -722,9 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:27:09] Adam: especially in War of the Worlds. He's terrifying.
 
-[00:27:11] Will: Yeah.
-
-[00:27:13] Will: Um. And and he's just such a. Feckless goofball,
+[00:27:11] Will: Yeah. Um. And and he's just such a. Feckless goofball,
 
 [00:27:16] Adam: yeah,
 
@@ -764,9 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:28:37] Will: Like it's that that that role. Her name is Annie Savoy, I think. Is just it's such a she's so full of shit.
 
-[00:28:45] Adam: Yep,
-
-[00:28:46] Adam: and and actually the stuff that I found held up the least were the things that were the big selling points of the movie back when it came out. So his speech about I'll tell you what I believe in is unwatchable to me now.
+[00:28:45] Adam: Yep, and and actually the stuff that I found held up the least were the things that were the big selling points of the movie back when it came out. So his speech about I'll tell you what I believe in is unwatchable to me now.
 
 [00:28:57] Will: It's it's I mean you you look at it and it's still a a piece of film history that is the thing that everybody remembers from that movie,
 
@@ -804,9 +768,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:29:48] Norm: He didn't. I know Jim Lovell wanted him to play.
 
-[00:29:50] Adam: The thing is, is that Jim Lovell during Apollo 13 looked exactly like
-
-[00:29:55] Adam: Kevin Costner.
+[00:29:50] Adam: The thing is, is that Jim Lovell during Apollo 13 looked exactly like Kevin Costner.
 
 [00:29:55] Norm: exactly right.
 
@@ -942,9 +904,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:33:59] Adam: All three Emmys.
 
-[00:34:01] Norm: Yes,
-
-[00:34:01] Norm: writing best. Show and actress, I believe,
+[00:34:01] Norm: Yes, writing best. Show and actress, I believe,
 
 [00:34:05] Adam: and performer of the year.
 
@@ -1030,17 +990,13 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:35:48] Norm: And I believe you don't need tickets to New York Comic Con to go to Anime Fest.
 
-[00:35:50] Adam: That's correct.
-
-[00:35:51] Adam: You don't need a Comic Con pass for that.
+[00:35:50] Adam: That's correct. You don't need a Comic Con pass for that.
 
 [00:35:53] Norm: Yeah. So that's going to be next Friday, October I want to say fourth or so.
 
 [00:35:56] Will: I started a new podcast.
 
-[00:35:58] Adam: Yes, I tweeted about
-
-[00:35:58] Adam: it.
+[00:35:58] Adam: Yes, I tweeted about it.
 
 [00:35:59] Will: you did. Thank you so much.
 
@@ -1062,9 +1018,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:36:38] Adam: Okay, all right,
 
-[00:36:39] Will: Dot town.
-
-[00:36:40] Will: Content dot town.
+[00:36:39] Will: Dot town. Content dot town.
 
 [00:36:41] Adam: I also would be remiss if I didn't say my regular New York Comic Con panel is Saturday morning, where I will be interviewed by my friend and amazing science communicator Kyle Hill.
 
@@ -1136,11 +1090,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:38:06] Adam: Oh wow.
 
-[00:38:06] Will: Which also is disturbing, but not anything approaching this.
-
-[00:38:11] Will: Yeah,
-
-[00:38:11] Will: it was. It's. It was. It's just. I thought when you were talking about this, I was like, " Oh, it's like Brightburn. It's going to be scary, yada yada."
+[00:38:06] Will: Which also is disturbing, but not anything approaching this. Yeah, it was. It's. It was. It's just. I thought when you were talking about this, I was like, " Oh, it's like Brightburn. It's going to be scary, yada yada."
 
 [00:38:19] Adam: Right.
 
@@ -1152,9 +1102,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:38:23] Norm: It's right
 
-[00:38:24] Adam: because it brings late stage capitalistic corporate venality into the mix with pure unadulterated psychopathic evil.
-
-[00:38:33] Adam: Well,
+[00:38:24] Adam: because it brings late stage capitalistic corporate venality into the mix with pure unadulterated psychopathic evil. Well,
 
 [00:38:33] Norm: and
 
@@ -1246,9 +1194,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:41:03] Norm: Yeah. Who in the comic books was drawn to look like Simon Pegg, and which is why Simon Pegg is in the. The show as his
 
-[00:41:08] Adam: father, Oh, I didn't realize that. Nice.
-
-[00:41:09] Adam: Yes, and how wonderful is it to see Karl Urban getting such a meaty, fat, delightful role to sink his teeth into.
+[00:41:08] Adam: father, Oh, I didn't realize that. Nice. Yes, and how wonderful is it to see Karl Urban getting such a meaty, fat, delightful role to sink his teeth into.
 
 [00:41:17] Norm: His whole speech about the Spice Girls was hilarious,
 
@@ -1326,9 +1272,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:42:46] Adam: leftovers.
 
-[00:42:47] Norm: Leftovers.
-
-[00:42:47] Norm: Yeah, so I'm gonna, you know, I'm gonna give it a chance.
+[00:42:47] Norm: Leftovers. Yeah, so I'm gonna, you know, I'm gonna give it a chance.
 
 [00:42:50] Adam: The thing that I always know that I'm gonna get with Damon Lindelof's productions is a genuine emotion. He's really interested in character and emotional arcs, and it's always going to be deep. I'm one of the fans who loves the ending of Lost. I know that not everybody does. I've watched it twice. Yeah, big fan. I'm really excited.
 
@@ -1378,9 +1322,7 @@ Episode URL: https://www.youtube.com/watch?v=Ubord-BXEqs
 
 [00:44:06] Will: Make some prosthetic gills.
 
-[00:44:07] Adam: Yeah,
-
-[00:44:08] Adam: I couldn't do it better than they did it, man. That's some excellent makeup work.
+[00:44:07] Adam: Yeah, I couldn't do it better than they did it, man. That's some excellent makeup work.
 
 [00:44:11] Will: I mean, the the production on that thing was incredible.
 

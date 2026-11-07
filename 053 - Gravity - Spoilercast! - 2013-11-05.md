@@ -328,9 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:11:37] Will: All I was going to say is that if you're going to pick nits at that level, you just should turn off now because you're not going to have fun with the movie.
 
-[00:11:43] Adam: Yeah, it’s
-
-[00:11:43] Adam: totally true.
+[00:11:43] Adam: Yeah, it’s totally true.
 
 [00:11:44] Will: It's it's a, it's a science fiction movie. If that's the kind of thing that
 
@@ -376,9 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:13:04] Will: the best B movie, highest production value. It is intentionally bad.
 
-[00:13:08] Adam: I think I've seen the last 20 minutes of it. Oh, it's so good, right?
-
-[00:13:10] Adam: Hilary Swank, right?
+[00:13:08] Adam: I think I've seen the last 20 minutes of it. Oh, it's so good, right? Hilary Swank, right?
 
 [00:13:12] Norm: Yeah,
 
@@ -566,9 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:23:34] Will: Taking the pieces apart, putting them back together in a different way.
 
-[00:23:36] Adam: I cannot wait to get the Cinefex about this movie.
-
-[00:23:39] Adam: I'm going to read it twice. I was—I just want to say one other thing is that apparently Sandra Bullock, who, if you know her, apparently says, " Call me Sandy," and is every bit as nice and sweet as you could imagine. I know a couple people who know her. Was a machine and would sit in that chair in the box for nine hours at a stretch to get her to get her stuff in. I mean, you only ever see two people on two people in this movie. It is her and Clooney, and Clooney's gone halfway through the movie. This whole movie is her in every single shot, and she just kills it. I
+[00:23:36] Adam: I cannot wait to get the Cinefex about this movie. I'm going to read it twice. I was—I just want to say one other thing is that apparently Sandra Bullock, who, if you know her, apparently says, " Call me Sandy," and is every bit as nice and sweet as you could imagine. I know a couple people who know her. Was a machine and would sit in that chair in the box for nine hours at a stretch to get her to get her stuff in. I mean, you only ever see two people on two people in this movie. It is her and Clooney, and Clooney's gone halfway through the movie. This whole movie is her in every single shot, and she just kills it. I
 
 [00:24:16] Will: yeah
 
@@ -732,9 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:30:43] Will: The only difference is when you get it from them, it's a static camera because they can't give you an extra astronaut to aim and float with them.
 
-[00:30:49] Adam: Right, right, right.
-
-[00:30:51] Adam: The ultimate Steadicam. Oh my god! Zero gravity.
+[00:30:49] Adam: Right, right, right. The ultimate Steadicam. Oh my god! Zero gravity.
 
 [00:30:53] Will: Okay, so she's on the space station. I felt like they did a really wonderful job replicating. I mean, Norm and I have walked around the mock up in Houston.
 
@@ -814,9 +806,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:33:14] Adam: His his knowledge that it's time to let go and his delivery of that really, you know, there’s a thing that about movie stars at at that caliber, and I guess he is, you know, the top one. Um, they just know when to not do, you know, just to it's too much, and not to overact, not to oversell, but just to let the moment take it.
 
-[00:33:37] Will: The difference between that and Cliffhanger.
-
-[00:33:41] Will: No!
+[00:33:37] Will: The difference between that and Cliffhanger. No!
 
 [00:33:42] Adam: The buckle that
 
@@ -890,9 +880,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:36:49] Adam: the fastest
 
-[00:36:49] Will: bullet.
-
-[00:36:49] Will: There's some hinky science there too. We're not going to get into that.
+[00:36:49] Will: bullet. There's some hinky science there too. We're not going to get into that.
 
 [00:36:52] Adam: Yeah,
 
@@ -906,9 +894,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:37:03] Norm: And they, they, NASA has shown like what happens when something traveling at that speed hits the side of ISS. It's just a big dent; doesn't go through, but you do see lots of dents.
 
-[00:37:13] Adam: Right.
-
-[00:37:13] Adam: You see lots of dents. There's a reason for that cloth covering helps to actually slow down the objects. Just imagine. It is a terrifying bit that reveal of his of his damaged face.
+[00:37:13] Adam: Right. You see lots of dents. There's a reason for that cloth covering helps to actually slow down the objects. Just imagine. It is a terrifying bit that reveal of his of his damaged face.
 
 [00:37:24] Norm: Well, and also the the other astronauts inside the space shuttle
 
@@ -1156,9 +1142,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:46:22] Adam: Infinitely better for people who wear glasses. Nice wide field of view, super light. Don't you don't spend your whole time kind of
 
-[00:46:27] Will: doing this shit.
-
-[00:46:27] Will: They still do the radial polarization, so if you tend to tilt your head while you watch the movie, then don't do that.
+[00:46:27] Will: doing this shit. They still do the radial polarization, so if you tend to tilt your head while you watch the movie, then don't do that.
 
 [00:46:32] Adam: It's going to make texting really difficult while the film is happening because you only see your phone
 
@@ -1206,9 +1190,7 @@ Episode URL: https://www.youtube.com/watch?v=4_OF7pFn2r0
 
 [00:47:51] Adam: I was thinking of the Sunday morning 10:30.  show.
 
-[00:47:53] Will: Okay,
-
-[00:47:53] Will: that works too.
+[00:47:53] Will: Okay, that works too.
 
 [00:47:53] Adam: Okay,
 

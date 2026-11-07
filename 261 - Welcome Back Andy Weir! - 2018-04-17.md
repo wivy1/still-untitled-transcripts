@@ -206,11 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:09:39] Adam: Normal planes. So,
 
-[00:09:41] Andy: but um, in that episode, you did the um, you did you had these wire work guys who put you in a harness that kind of, I mean, it wasn't perfect, but it was like pretty good at that. And what I was trying to figure out is how do you how how would you run in zero g because this is a situation that hasn't come up in the real world before where people are in a pressurized environment. And moving around, so you don't have an EVA suit on or anything like that, but it's still one six G. I'm like, what kind of traction would you get
-
-[00:09:41] Andy: with shoes?
-
-[00:09:41] Andy: And I want to run because there's some action elements in the story. How do I run? Would I just like Fred Flintstone? My not not able to get traction.
+[00:09:41] Andy: but um, in that episode, you did the um, you did you had these wire work guys who put you in a harness that kind of, I mean, it wasn't perfect, but it was like pretty good at that. And what I was trying to figure out is how do you how how would you run in zero g because this is a situation that hasn't come up in the real world before where people are in a pressurized environment. And moving around, so you don't have an EVA suit on or anything like that, but it's still one six G. I'm like, what kind of traction would you get with shoes? And I want to run because there's some action elements in the story. How do I run? Would I just like Fred Flintstone? My not not able to get traction.
 
 [00:10:19] Adam: You get bigger strides.
 
@@ -218,9 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:10:25] Norm: Higher ceilings.
 
-[00:10:25] Andy: Jazz.
-
-[00:10:25] Andy: Yeah,
+[00:10:25] Andy: Jazz. Yeah,
 
 [00:10:26] Adam: you bump your head.
 
@@ -418,9 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:19:41] Adam: ladies where are you going ladies
 
-[00:19:41] Norm: oh
-
-[00:19:44] Norm: Impulse is non-warp.
+[00:19:41] Norm: oh Impulse is non-warp.
 
 [00:19:44] Andy: Adam there were no ladies here
 
@@ -440,11 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:20:50] Andy: yeah, details.
 
-[00:20:51] Adam: We just did an unauthorized commentary of Galaxy Quest,
-
-[00:20:51] Adam: which
-
-[00:20:51] Adam: encompasses all of that in the scene where Tony Shalhoub has to figure out how to use the thing. Yeah. What did you say? Inside Out.
+[00:20:51] Adam: We just did an unauthorized commentary of Galaxy Quest, which encompasses all of that in the scene where Tony Shalhoub has to figure out how to use the thing. Yeah. What did you say? Inside Out.
 
 [00:21:03] Andy: It exploded. But yeah, so I just need consistency and some things that I'm a picky little poo when it comes to fiction. One thing that drives me crazy is when the economic model doesn't work out.
 
@@ -458,11 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:21:32] Adam: How does that work as an economy?
 
-[00:21:33] Andy: As an economy, yeah, it's like wait a minute, you're mining helium three from the moon and you have like a whole bunch of people doing it. That why why don't you have robots doing it?
-
-[00:21:33] Andy: Right.
-
-[00:21:33] Andy: Like why you know why or the reasons for colonizing? It's like oh we colonized because Earth was overpopulated. I'm like really did you did you try colonizing the ocean or Antarctica or anywhere else? It's any literally any location on Earth is easier to get to than any location on the moon, right?
+[00:21:33] Andy: As an economy, yeah, it's like wait a minute, you're mining helium three from the moon and you have like a whole bunch of people doing it. That why why don't you have robots doing it? Right. Like why you know why or the reasons for colonizing? It's like oh we colonized because Earth was overpopulated. I'm like really did you did you try colonizing the ocean or Antarctica or anywhere else? It's any literally any location on Earth is easier to get to than any location on the moon, right?
 
 [00:21:58] Adam: Right.
 
@@ -522,9 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=5GXbVWJxi2Q
 
 [00:23:46] Norm: Yeah, thanks for putting me on the spot.
 
-[00:23:48] Andy: Yeah, Norm.
-
-[00:23:49] Andy: You are the one asking the questions.
+[00:23:48] Andy: Yeah, Norm. You are the one asking the questions.
 
 [00:23:49] Norm: Ant Man and Wasp.
 

@@ -16,9 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:00:06] Will: Uh, today we're talking about books.
 
-[00:00:09] Adam: We just did it.
-
-[00:00:10] Adam: We were spontaneously talking about books for the last 20 minutes, and we figured we might as well turn on the microphone and actually record this.
+[00:00:09] Adam: We just did it. We were spontaneously talking about books for the last 20 minutes, and we figured we might as well turn on the microphone and actually record this.
 
 [00:00:16] Will: Norm says, "Hey, we should make a podcast of this."
 
@@ -184,9 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:11:09] Norm: It's about the bicycle.
 
-[00:11:11] Adam: Yes. Yes.
-
-[00:11:12] Adam: Yeah. Um, it's wonderful. I'm a huge Eggers fan. I've I've read them. I've read everything. I'm sort of annoyed at how prolific he is.
+[00:11:11] Adam: Yes. Yes. Yeah. Um, it's wonderful. I'm a huge Eggers fan. I've I've read them. I've read everything. I'm sort of annoyed at how prolific he is.
 
 [00:11:20] Will: So so Eggers is some when Heartbreaking Work of Staggering Genius was going around. I picked that up and I read the first third, maybe half.
 
@@ -296,19 +292,13 @@ Episode URL: https://www.youtube.com/watch?v=XotEzQ2q6hU
 
 [00:15:21] Will: Everybody says it was a weak outing for him, and I thought it was fantastic.
 
-[00:15:24] Adam: It's not a weak outing.
-
-[00:15:24] Adam: No.
-
-[00:15:24] Adam: It's beautiful. You've got so much more to look forward to: Dance, Dance, Dance, and Norwegian Wood, and the Great Sheep Chase, and Kafka on the Beach, and oh my God, the, um, the the the Wind Up Bird Chronicles. Literally, read them in that order because Wind Up Bird Chronicles is earth shatteringly great.
+[00:15:24] Adam: It's not a weak outing. No. It's beautiful. You've got so much more to look forward to: Dance, Dance, Dance, and Norwegian Wood, and the Great Sheep Chase, and Kafka on the Beach, and oh my God, the, um, the the the Wind Up Bird Chronicles. Literally, read them in that order because Wind Up Bird Chronicles is earth shatteringly great.
 
 [00:15:42] Will: Okay.
 
 [00:15:42] Adam: And I am look if you've listened to this at all, you know that I'm prone to hyperbole.
 
-[00:15:47] Will: No.
-
-[00:15:49] Will: No.
+[00:15:47] Will: No. No.
 
 [00:15:49] Adam: But find me someone who doesn't like Wind Up Bird Chronicles. It's there. There are scenes from that book that stick with me almost on a weekly basis.
 

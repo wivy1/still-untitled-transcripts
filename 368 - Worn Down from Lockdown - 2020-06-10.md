@@ -14,9 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:00:06] Adam: Hi guys.
 
-[00:00:07] Norm: Hey Will. How's your Tuesday treating you?
-
-[00:00:09] Norm: You're in a black void today. I was looking forward to seeing what fancy background.
+[00:00:07] Norm: Hey Will. How's your Tuesday treating you? You're in a black void today. I was looking forward to seeing what fancy background.
 
 [00:00:13] Will: Oh, you want a background? Okay, hold on. Let's see. We got.
 
@@ -138,9 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:16:46] Adam: Yeah.
 
-[00:16:46] Will: Stuff like that.
-
-[00:16:46] Will: It's like it's little. Does it have an impact on anything? No, but it means I'm probably buying less paper towels.
+[00:16:46] Will: Stuff like that. It's like it's little. Does it have an impact on anything? No, but it means I'm probably buying less paper towels.
 
 [00:16:52] Adam: We, we, we. Both my wife and I grew up in households in the '70s where paper towels were the napkins, not the spill.
 
@@ -196,9 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:19:59] Adam: Totally historic. A private, private company got in cooperation with NASA, got two human beings into space. It's completely amazing.
 
-[00:20:12] Will: It's, it's, it's funny. We, the last. I mean, obviously, the last time that happened was in 1981. I remember sitting around at age six watching that. My daughter's about the same age. We sat down and watched it. She was really, really bored with the whole thing, right up until the moment the rocket launched, and then it was the most cool thing in the world.
-
-[00:20:31] Will: I was like, " Oh, just wait! You're about to see some really cool business." The video is much better now than it was when we were kids. When I was a kid,
+[00:20:12] Will: It's, it's, it's funny. We, the last. I mean, obviously, the last time that happened was in 1981. I remember sitting around at age six watching that. My daughter's about the same age. We sat down and watched it. She was really, really bored with the whole thing, right up until the moment the rocket launched, and then it was the most cool thing in the world. I was like, " Oh, just wait! You're about to see some really cool business." The video is much better now than it was when we were kids. When I was a kid,
 
 [00:20:37] Norm: I've never seen. I mean, I've never seen daytime, a rocket launch. I think the the one I went for InSight a couple years ago was through haze, and so we could hear it but not see it. But I hear that. The brightness of it is something that you cannot really communicate, even with video. Just how bright that rocket is,
 
@@ -206,9 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:21:19] Adam: Yeah, and it was it was inspiring as a lesson in what human beings can do when they work collaboratively. I, you know, I I really I I believe in that message. I believe I believe in exploration, and I believe in in in that mission. And it was really exciting to see it to see it work. It's just super gratifying.
 
-[00:21:41] Norm: Yeah,
-
-[00:21:42] Norm: you guys, uh, watching anything? So anytime,
+[00:21:41] Norm: Yeah, you guys, uh, watching anything? So anytime,
 
 [00:21:45] Adam: we we we just spent the last couple of days burning through two of my favorite David Mamet films.
 
@@ -228,9 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:22:50] Adam: Ronin, I can't give any—
 
-[00:22:52] Norm: You don't like Ronin?
-
-[00:22:53] Norm: That's that's the Mamet film that you don't like?
+[00:22:52] Norm: You don't like Ronin? That's that's the Mamet film that you don't like?
 
 [00:22:55] Adam: Ronin, Ronin does Ronin commits this. This cardinal sin, which is the the I I have a friend who can't abide movies that have the title of the movie in the movie.
 
@@ -254,9 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:24:09] Will: Joey did one of these. He did one of these for Screened years ago. Yeah. Oh god. I feel like this was a Screened segment, maybe, but I don't know.
 
-[00:24:17] Norm: When it happens in the movie, I always turn to Danica and I say, "
-
-[00:24:20] Norm: That's the name of the movie."
+[00:24:17] Norm: When it happens in the movie, I always turn to Danica and I say, " That's the name of the movie."
 
 [00:24:24] Unknown speaker, possibly Norm or Adam: That's the name of the movie.
 
@@ -354,9 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=imRaVL4L-yQ
 
 [00:33:09] Will: learn a skill, make something, you know, whatever, do something, make fight entropy.
 
-[00:33:17] Adam: It's lovely to see you guys again this week.
-
-[00:33:20] Adam: as always.
+[00:33:17] Adam: It's lovely to see you guys again this week. as always.
 
 [00:33:20] Will: Yeah, see all next week. Yes, Norm. What's on the site this week?
 

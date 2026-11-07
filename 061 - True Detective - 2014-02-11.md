@@ -26,9 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:00:27] Norm: And there,
 
-[00:00:31] Will: I can't believe what you did with the R2. You know, he looks so much better now.
-
-[00:00:34] Will: Oh,
+[00:00:31] Will: I can't believe what you did with the R2. You know, he looks so much better now. Oh,
 
 [00:00:34] Adam: You guys are such bastards. Um, what I what what you are seeing is the new sword and upright thingy rack that I built for the back of the couch this weekend.
 
@@ -84,9 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:02:05] Adam: and he talked specifically about the sword fight from Rob Roy, which includes a broadsword against a rapier.
 
-[00:02:05] Norm: Yeah,
-
-[00:02:16] Norm: and you would think the broadsword would just smash.
+[00:02:05] Norm: Yeah, and you would think the broadsword would just smash.
 
 [00:02:18] Adam: Well, and it was a whole thing about the difference between the two blades, and we haven't talked about this, but I have a lovely replica of Inigo Montoya's sword from Princess Bride, and I the the the blade from it, which is sitting right behind Norm there, was a piece of stamped chrome shit. So I sent it to a rapier maker to remake the blade as a real rapier blade, and when I got it back, it terrified me about rapiers because
 
@@ -248,9 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:06:17] Will: The one that Costanza hit on. She was the NBC executive's daughter on Seinfeld. Enjoying
 
-[00:06:17] Norm: the view, Costanza.
-
-[00:06:17] Norm: I remember her from Starship Troopers.
+[00:06:17] Norm: the view, Costanza. I remember her from Starship Troopers.
 
 [00:06:33] Will: Yeah, and also
 
@@ -776,9 +770,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:21:35] Norm: yeah I mean that's yeah. That's how. That's the PG, the Dick Wolf way to talk about that topic. In True Detective, that stuff, I I don't think I don't know if it's in the episode you watch, but there was a Fincher-esque montage where you see a lot of photos and stuff.
 
-[00:21:35] Adam: Well,
-
-[00:22:04] Adam: I thought the credits are amazing.
+[00:21:35] Adam: Well, I thought the credits are amazing.
 
 [00:22:04] Norm: The opening, the opening credits.
 
@@ -818,9 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:22:38] Will: Only I thought there was 10
 
-[00:22:38] Norm: or 10 episodes of the season. He's the showrunner, lead writer, and so it's it's not like one of those shows. Like when you talk to Vince Gilligan, you know they did at Writers' Room, they had their plot points and
-
-[00:23:21] Norm: made stuff
+[00:22:38] Norm: or 10 episodes of the season. He's the showrunner, lead writer, and so it's it's not like one of those shows. Like when you talk to Vince Gilligan, you know they did at Writers' Room, they had their plot points and made stuff
 
 [00:23:21] Adam: Eight episodes, oh.
 
@@ -846,9 +836,7 @@ Episode URL: https://www.youtube.com/watch?v=7mX6rE2Tp0s
 
 [00:24:28] Unknown speaker: Mm-hmm.
 
-[00:24:30] Norm: Mm-hmm.
-
-[00:24:20] Norm: In the very first episode, he walks out of a car and he looks around Louisiana like this, this like strip mall, and he talks about how it looks like the memory of a town. This it looks like the memory of how someone will remember a town,
+[00:24:30] Norm: Mm-hmm. In the very first episode, he walks out of a car and he looks around Louisiana like this, this like strip mall, and he talks about how it looks like the memory of a town. This it looks like the memory of how someone will remember a town,
 
 [00:24:20] Will: but the interaction with him and Woody Harrelson when he gets when he gets in his darkest places is brilliant.
 

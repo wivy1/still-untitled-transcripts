@@ -570,9 +570,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:24:14] Adam: Yeah.
 
-[00:24:14] Norm: Yeah.
-
-[00:24:18] Norm: Feels more comic booky.
+[00:24:14] Norm: Yeah. Feels more comic booky.
 
 [00:24:19] Will: Yeah. Marvel feels much more comic booky, and and and frankly, the DC stuff feels more like a graphic novel. But I think that's a lot harder to pull off and execute.
 
@@ -716,9 +714,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:32:16] Adam: And I have a Peltier junction. I just didn't get around to trying that out. Running a little radiator system past it,
 
-[00:32:16] Will: right?
-
-[00:32:23] Will: You're gonna have to put like a chill plate or something on it in order for that to work right. But it means you'll be able to do it presumably with a lot less water in the in the system,
+[00:32:16] Will: right? You're gonna have to put like a chill plate or something on it in order for that to work right. But it means you'll be able to do it presumably with a lot less water in the in the system,
 
 [00:32:30] Adam: and that would be very cool. I'd really like to try that system perhaps next year with the with the two that I've got.
 
@@ -840,9 +836,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:37:43] Norm: Yes.
 
-[00:37:43] Adam: The fact that they have transporters
-
-[00:37:45] Adam: Oh yeah. Transport a photon torpedo onto their bridge. They
+[00:37:43] Adam: The fact that they have transporters Oh yeah. Transport a photon torpedo onto their bridge. They
 
 [00:37:48] Will: transport a little bit of antimatter
 
@@ -980,9 +974,7 @@ Episode URL: https://www.youtube.com/watch?v=oAl8rnpONfQ
 
 [00:44:25] Adam: So great.
 
-[00:44:25] Will: $12.
-
-[00:44:25] Will: Yeah. And then I spray painted it silver and tan. So yeah,
+[00:44:25] Will: $12. Yeah. And then I spray painted it silver and tan. So yeah,
 
 [00:44:36] Adam: it looked really, really terrific.
 

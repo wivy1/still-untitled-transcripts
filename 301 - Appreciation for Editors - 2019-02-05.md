@@ -68,15 +68,9 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:02:42] Will: fabulous. If you ever go to the Captain Cook again, there’s a fabulous breakfast that they do there.
 
-[00:02:47] Adam: Oh no, we ate the breakfast there.
+[00:02:47] Adam: Oh no, we ate the breakfast there. [unclear: Was fantastic / It was fantastic].
 
-[00:02:47] Adam: [unclear: Was fantastic / It was fantastic].
-
-[00:02:48] Will: The
-
-[00:02:48] Will: poached
-
-[00:02:48] Will: eggs with the salmon hash.
+[00:02:48] Will: The poached eggs with the salmon hash.
 
 [00:02:50] Adam: Oh no, I didn't have that.
 
@@ -86,15 +80,11 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:02:56] Norm: Okay,
 
-[00:02:57] Adam: that was the second time we went. You know the one thing Ketchikan needs? A bridge.
-
-[00:03:04] Adam: [unclear: That’s that’s where the / That’s where the supposed]
+[00:02:57] Adam: that was the second time we went. You know the one thing Ketchikan needs? A bridge. [unclear: That’s that’s where the / That’s where the supposed]
 
 [00:03:05] Will: Bridge to nowhere?
 
-[00:03:05] Adam: Bridge to nowhere
-
-[00:03:05] Adam:  was canceled by Sarah Palin. But there is an island where you land, and you have to take a ferry to the mainland.
+[00:03:05] Adam: Bridge to nowhere was canceled by Sarah Palin. But there is an island where you land, and you have to take a ferry to the mainland.
 
 [00:03:05] Will: [unclear: Oh / Well], there you go.
 
@@ -180,9 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:07:49] Norm: So do it with your eyes open.
 
-[00:07:49] Adam: [unclear: I would / You] vomit
-
-[00:07:49] Adam: immediately.
+[00:07:49] Adam: [unclear: I would / You] vomit immediately.
 
 [00:07:51] Will: Yeah. So so this is the interesting thing. She said some people are way more sensitive to one than others, to the point that like she said, she can only do one of them like a half a turn before she's like, " I don't want to do this anymore. This is bad."
 
@@ -268,13 +256,9 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:12:59] Adam: Nice.
 
-[00:12:59] Will: And that that's something like that. That is a it's good for listening exercises because I think at least Adam, you and I probably have problems listening sometimes. 
+[00:12:59] Will: And that that's something like that. That is a it's good for listening exercises because I think at least Adam, you and I probably have problems listening sometimes.  Norm’s a much better listener than either of us..
 
-[00:12:59] Will: Norm’s a much better listener than either of us..
-
-[00:13:38] Adam: Actively recovering mansplainer. Sorry,
-
-[00:13:38] Adam: what was that, Norm?
+[00:13:38] Adam: Actively recovering mansplainer. Sorry, what was that, Norm?
 
 [00:13:40] Norm: I fill the hole.
 
@@ -288,11 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:13:56] Will: That's what I did.
 
-[00:13:57] Adam: Yeah. I mean,
-
-[00:13:58] Adam: I’ve been
-
-[00:13:59] Adam: much more vocal about my about the social anxiety that I have and didn't acknowledge for a long, long, long.
+[00:13:57] Adam: Yeah. I mean, I’ve been much more vocal about my about the social anxiety that I have and didn't acknowledge for a long, long, long.
 
 [00:14:04] Will: You’re not supposed to talk about that stuff, Adam? Jeez.
 
@@ -338,25 +318,17 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:16:35] Adam: Well, and obviously, it's got a ton of the same DNA that MythBusters does because it's because it's me.
 
-[00:16:40] Will: Yeah, of
-
-[00:16:40] Will: course.
+[00:16:40] Will: Yeah, of course.
 
 [00:16:40] Adam: And that's just in my bones about the way that I tell stories, but yes,
 
 [00:16:47] Will: there is an opportunity to kind of do something different too [unclear: ∅ / right]?
 
-[00:16:50] Adam: Well, not
-
-[00:16:50] Adam: [unclear: an opportunity / an oppor]. It’s, I think of it as less an opportunity than a requirement,
+[00:16:50] Adam: Well, not [unclear: an opportunity / an oppor]. It’s, I think of it as less an opportunity than a requirement,
 
 [00:16:55] Will: right?
 
-[00:16:55] Adam: But also, we've just made decisions to film certain things in different ways, and to choose to cover different aspects of the narrative, and then once it's in the edit suite, then a show comes out of that, and we're not sure what that show is going to feel like,
-
-[00:16:55] Adam: right?
-
-[00:16:55] Adam: Like that's the that's the the coolest part to me, is that you do your best on set, and then. In post, this show comes out of it, and the fact is that the first rough cut of post I talked about this the last time with Junior. The first rough cut out of post always unhinges me because it's not a show yet; 
+[00:16:55] Adam: But also, we've just made decisions to film certain things in different ways, and to choose to cover different aspects of the narrative, and then once it's in the edit suite, then a show comes out of that, and we're not sure what that show is going to feel like, right? Like that's the that's the the coolest part to me, is that you do your best on set, and then. In post, this show comes out of it, and the fact is that the first rough cut of post I talked about this the last time with Junior. The first rough cut out of post always unhinges me because it's not a show yet; 
 
 [00:16:55] Will: right?
 
@@ -380,17 +352,9 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:18:56] Will: Well, it's like you have a found footage film. Like you find the editor walks into a room. There's a bunch of footage, and they have to figure out how to glue it all together. Right,
 
-[00:19:02] Norm: but
+[00:19:02] Norm: but it's it's not just about reviewing takes and picking out the best take from your perspective as an editor, but also what she says she reviews like the the minutes before takes begin and the minutes after just to feel the energy on set and what's said between the actors, between the directors and the crew, just so that's how she absorbs. The tone,
 
-[00:19:02] Norm: it's it's not just about reviewing takes and picking out the best take from your perspective as an editor, but also what she says she reviews like the the minutes before takes begin and the minutes after just to feel the energy on set and what's said between the actors, between the directors and the crew, just so that's how she absorbs. The tone,
-
-[00:19:22] Adam: and if you're if you're curious about this process at all, I strongly recommend you try filming something on your phone, a few shots that you lay out. Okay, I need this, this, this, this, and then try cutting them together in in in iMovie. Just 
-
-[00:19:22] Adam: incredibly
-
-[00:19:22] Adam:  simple, and it'll give you this gargantuan amount of respect for editors because the the amount of of finesse you can have in the pacing of a story just by choosing between one frame and the next frame for cutting, and the way a set of cuts pace together, and when you take a series of shots and you find a way to cut them together that you don't notice the cuts are happening, but you're just experiencing a story. Holy cow! That is it's 
-
-[00:19:22] Adam: [unclear: magic / magical].
+[00:19:22] Adam: and if you're if you're curious about this process at all, I strongly recommend you try filming something on your phone, a few shots that you lay out. Okay, I need this, this, this, this, and then try cutting them together in in in iMovie. Just  incredibly simple, and it'll give you this gargantuan amount of respect for editors because the the amount of of finesse you can have in the pacing of a story just by choosing between one frame and the next frame for cutting, and the way a set of cuts pace together, and when you take a series of shots and you find a way to cut them together that you don't notice the cuts are happening, but you're just experiencing a story. Holy cow! That is it's  [unclear: magic / magical].
 
 [00:20:07] Will: Yeah,
 
@@ -412,9 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:20:21] Norm: Cutting edge. There you go. Yes. Thank you.
 
-[00:20:23] Adam: I like the way you guys workshop that.
-
-[00:20:23] Adam: between the two brains..
+[00:20:23] Adam: I like the way you guys workshop that. between the two brains..
 
 [00:20:25] Norm: Yes.
 
@@ -466,13 +428,9 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:25:27] Adam: No, the dialogue's still terrible. It's just less terrible when you can kind of put it in your own head. You're not listening to people.
 
-[00:25:32] Norm: I wish it was like a localization where
+[00:25:32] Norm: I wish it was like a localization where like they took the Japanese and they translated it back.
 
-[00:25:35] Norm: like they took the Japanese and they translated it back.
-
-[00:25:37] Will: Oh,
-
-[00:25:38] Will: I um, you, I think you were the one who told me that the the the not Janet on the good place in the second season.
+[00:25:37] Will: Oh, I um, you, I think you were the one who told me that the the the not Janet on the good place in the second season.
 
 [00:25:44] Adam: Oh, bad Janet.
 
@@ -480,9 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:25:45] Adam: I love her so much.
 
-[00:25:46] Will: No, no, no, no.
-
-[00:25:46] Will: not bad Janet. Bad Janet [unclear: ∅ / uh]. Good Janet's boyfriend. I can't remember his name. Is
+[00:25:46] Will: No, no, no, no. not bad Janet. Bad Janet [unclear: ∅ / uh]. Good Janet's boyfriend. I can't remember his name. Is
 
 [00:25:50] Adam: Oh, oh.
 
@@ -536,9 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:28:01] Adam: Wow.
 
-[00:28:02] Will: Have you
-
-[00:28:02] Will: Have you watched all the Presidents Men and then followed it up with The Post?
+[00:28:02] Will: Have you Have you watched all the Presidents Men and then followed it up with The Post?
 
 [00:28:02] Adam: No.
 
@@ -552,17 +506,11 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:28:24] Will: Yeah.
 
-[00:28:25] Adam: When the hell is someone gonna go
-
-[00:28:26] Adam: on the record in this story?
+[00:28:25] Adam: When the hell is someone gonna go on the record in this story?
 
 [00:28:28] Will: Okay, so the documentary, the editing documentary is cutting edge. Anything else?
 
-[00:28:35] Adam: Has Tony, has Tony Zhou
-
-[00:28:35] Adam: ever done a thing on editing? He must have done a thing on editing in Every Frame a Painting. I’m just not calling
-
-[00:28:42] Adam: [unclear: one / the one / anyone] up to my head.
+[00:28:35] Adam: Has Tony, has Tony Zhou ever done a thing on editing? He must have done a thing on editing in Every Frame a Painting. I’m just not calling [unclear: one / the one / anyone] up to my head.
 
 [00:28:42] Norm: [unclear: Yeah, yeah / Yeah].
 
@@ -574,9 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:29:06] Norm: yes, when he's in the institution, and it's the last time you see Midge. I think she walks out from the institution, and then he he talks about how he's obsessed.
 
-[00:29:17] Adam: But, but
-
-[00:29:17] Adam: this this whole scene is involves all these camera angles, and Hitchcock is doing all of the storytelling by the choice of angles and the way he's cutting and pacing the scene. And I was trying, I was watching at Foreign Cinema last night, and trying [unclear: ∅ / to] remember who had done a piece because I wanted to go watch that again.
+[00:29:17] Adam: But, but this this whole scene is involves all these camera angles, and Hitchcock is doing all of the storytelling by the choice of angles and the way he's cutting and pacing the scene. And I was trying, I was watching at Foreign Cinema last night, and trying [unclear: ∅ / to] remember who had done a piece because I wanted to go watch that again.
 
 [00:29:31] Will: It's distracting when they play a movie that's too good at Foreign Cinema.
 
@@ -588,9 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:29:42] Unknown speaker: That’s amazing..
 
-[00:29:46] Norm: I'll tell you a Vertigo story.
-
-[00:29:49] Norm: uh, okay.
+[00:29:46] Norm: I'll tell you a Vertigo story. uh, okay.
 
 [00:29:49] Adam: Just before, but one point we went there three times in a month, and that month they were playing Wong Kar Wai's " In the Mood for Love," which I don't know if you've seen it. You've seen it.
 
@@ -620,13 +564,9 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:31:01] Norm: you're being evoked in the back in the corner of your eye.
 
-[00:31:12] Adam: Having your nohito
+[00:31:12] Adam: Having your nohito and yeah, yeah, yeah.
 
-[00:31:13] Adam: and yeah, yeah, yeah.
-
-[00:31:13] Will: Like
-
-[00:31:13] Will: well, it's Inception, right? They're Incept they're Incepting a feeling into you with food, and then they're also glomming onto a movie that's spectacular. Often,
+[00:31:13] Will: Like well, it's Inception, right? They're Incept they're Incepting a feeling into you with food, and then they're also glomming onto a movie that's spectacular. Often,
 
 [00:31:22] Norm: I watched Vertigo recently. Was on TV with my housemates who had not seen it before,
 
@@ -662,9 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:32:35] Norm: The TV show?
 
-[00:32:35] Will: The TV show,
-
-[00:32:36] Will: and I think you told me it starts slow and then it gets okay, and that's that's accurate. That's all. That's all I got. It's I got no feedback other than that. It's okay.
+[00:32:35] Will: The TV show, and I think you told me it starts slow and then it gets okay, and that's that's accurate. That's all. That's all I got. It's I got no feedback other than that. It's okay.
 
 [00:32:46] Adam: That's it.
 
@@ -734,9 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:35:18] Adam: Yes. Yeah.
 
-[00:35:18] Norm: Also, Poseidon
-
-[00:35:18] Norm: Adventure,
+[00:35:18] Norm: Also, Poseidon Adventure,
 
 [00:35:20] Unknown speaker (Adam or Will): Poseidon Adventure,
 
@@ -772,9 +708,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:36:35] Will: I mean, he.
 
-[00:36:35] Adam: This
-
-[00:36:35] Adam: is on a continuum.
+[00:36:35] Adam: This is on a continuum.
 
 [00:36:37] Will: Yeah, I mean, I guess if you have Cary Grant over here, then Gene Hackman is a like a low level chud.
 
@@ -830,9 +764,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:38:21] Will: I didn't see the movie
 
-[00:38:21] Adam: [unclear: In a / ∅]
-
-[00:38:22] Adam: Louisiana courtroom.
+[00:38:21] Adam: [unclear: In a / ∅] Louisiana courtroom.
 
 [00:38:22] Will: Maybe
 
@@ -840,9 +772,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:38:26] Will: Really?
 
-[00:38:26] Adam: Yeah.
-
-[00:38:27] Adam: About that,
+[00:38:26] Adam: Yeah. About that,
 
 [00:38:27] Will: who knew?
 
@@ -852,9 +782,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:38:36] Adam: We made so they'd shot in a they'd shot in a a landmark courtroom in New Orleans, and then they replicated that courtroom on Treasure Island for a bunch of extra scenes. And when they did the 13 radiators that they that were in the original courtroom, it was it was cheaper to have us build them from scratch than it was to ship like 1,800 pounds of radiators from wherever they were around the country.
 
-[00:38:36] Will: Wow.
-
-[00:39:02] Will: Well, I guess that's I mean no better place to stop that
+[00:38:36] Will: Wow. Well, I guess that's I mean no better place to stop that
 
 [00:39:07] Norm: [unclear: on / than] the radiators from the coldest part of the country right now.
 
@@ -870,19 +798,13 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:39:31] Will: don’t.
 
-[00:39:32] Adam: Yeah,
-
-[00:39:32] Adam: I was
-
-[00:39:32] Adam: just reading about injuries happening as a result of this.
+[00:39:32] Adam: Yeah, I was just reading about injuries happening as a result of this.
 
 [00:39:34] Will: Don't throw the boiling water at each other. Don't if you spin if you try to do the new kind of spinning.
 
 [00:39:34] Adam: Yeah.
 
-[00:39:34] Will: Make sure you have a spotter.
-
-[00:39:41] Will: Maybe don’t do it
+[00:39:34] Will: Make sure you have a spotter. Maybe don’t do it
 
 [00:39:41] Adam: while you're driving. I'm just gonna go out there and say that.
 
@@ -912,9 +834,7 @@ Episode URL: https://www.youtube.com/watch?v=Npj_3gzWIoM
 
 [00:40:34] Norm: If you've been watching the video, you'll notice that I am wearing the new tested T-shirt, which is available now on Cotton Bureau. I'll put a link in the description.
 
-[00:40:44] Will: It’s very
-
-[00:40:44] Will: good,
+[00:40:44] Will: It’s very good,
 
 [00:40:45] Norm: but it was designed by one of you out there, [unclear: listener of this podcast or watcher of viewers / listening to this podcast or review, watch or review, or / I listen to this podcast or watch a review or] Karen, who goes by those nerdy design sketches. She does amazing sketch art, and we worked with her to design this. It's available for the next two weeks on Cotton Bureau, or you can find a link below.
 

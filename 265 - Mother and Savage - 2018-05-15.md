@@ -116,9 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=VihllKaZHnM
 
 [00:06:04] Karen Savage: so it's a long family name, but we just thought Adam was a great name, and I hadn't heard hardly anybody who named their child that, and I was felt so happy. And when you were about four, I was out in Washington Square Park, and I said Adam, and five little boys turned around.
 
-[00:06:19] Adam: Oh.
-
-[00:06:20] Adam: It was a popular name. I hate it when I choose a name. I, we, Julie and I labored for, we, not weeks, but at least days on what to name our second dog, who ended up being named Maggie, only to discover at the end of that year that it was the most popular dog name that year.
+[00:06:19] Adam: Oh. It was a popular name. I hate it when I choose a name. I, we, Julie and I labored for, we, not weeks, but at least days on what to name our second dog, who ended up being named Maggie, only to discover at the end of that year that it was the most popular dog name that year.
 
 [00:06:37] Norm: Yeah, yeah, that information's out there now, right? And and and you you're also informed by many things. You're informed by like the people you grew up with and their names and the associations you have with them, and then also pop culture. There's a lot of things that names become fashionable, and we all share that same pop culture, and it's tough. We're in a position where we know seven people having children this year, and only one of them is one of the same gender, and so. We only have one potential overlap.
 
@@ -196,9 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=VihllKaZHnM
 
 [00:13:04] Norm: wow!
 
-[00:13:05] Adam: I am. I, I, I went through a whole spider web phase, um, and I think it was so. We had a house on Cape Cod where we still go on the summers, where I grew up going every summer, and I had an uncle Paul who had a carpentry shop, and one of the things you did when you were there is you went by Uncle Paul's and you made puppets and you made things, and at one point he had me make a wooden frame and put nails around the perimeter and use string to make a star pattern and then weave your own spider web, and so I made tons and tons and tons of spider webs, and since you told me that, I do have a memory of using some yarn of like, could it have been Mia Goldman that was babysitting us at that point if I was that young?
-
-[00:13:49] Adam: I can't.
+[00:13:05] Adam: I am. I, I, I went through a whole spider web phase, um, and I think it was so. We had a house on Cape Cod where we still go on the summers, where I grew up going every summer, and I had an uncle Paul who had a carpentry shop, and one of the things you did when you were there is you went by Uncle Paul's and you made puppets and you made things, and at one point he had me make a wooden frame and put nails around the perimeter and use string to make a star pattern and then weave your own spider web, and so I made tons and tons and tons of spider webs, and since you told me that, I do have a memory of using some yarn of like, could it have been Mia Goldman that was babysitting us at that point if I was that young? I can't.
 
 [00:13:50] Karen Savage: I don't think so, but it was. What was amazing about it, and I can't believe I didn't take a picture of it, was that it was it was so beautifully done, and it was. How hard is that? It's extremely difficult to write Happy Mother's Day in the middle of a spider web.
 
@@ -312,9 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=VihllKaZHnM
 
 [00:23:45] Karen Savage: Absolutely. You know, I just have to tell a little aside story about that incident when Thing Two drank too much. There was a friend who was with Thing One and Thing Two.
 
-[00:23:56] Adam: It was Thing. One who drank too much.
-
-[00:23:58] Adam: Everybody drank, but yeah.
+[00:23:56] Adam: It was Thing. One who drank too much. Everybody drank, but yeah.
 
 [00:24:00] Karen Savage: In any case, the friend apparently had taken a first aid course; was very knowledgeable, and he knew that it was important to keep Thing Two on his side. So, if he vomited, he wouldn't inhale his vomit, and that was a wonderful thing. And he later on said that he'd done that. And his mother said, when she heard about this, " Well, that's kind of wonderful that you used your first aid training." He said, " Oh no, it wasn't first aid training. I learned that on Breaking Bad."
 
@@ -324,9 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=VihllKaZHnM
 
 [00:24:36] Norm: There you go. That's some good parenting advice. I feel like this is the deepest episode of this podcast yet.
 
-[00:24:44] Adam: It is, you know, it the degree to which your kids open up your own vulnerability is astounding, and what you do with that vulnerability is is the choice that you constantly make with. Kids, you know, all of your anger at them when they screw up is masked terror at their future, and it's that exact thing that Robin Williams said so articulately. It's like half of you sees your kid accepting the Nobel Prize, and the other half sees them going, " Do you want fries with that?"
-
-[00:25:19] Adam: And and you bounce between both of these extremes constantly. And then, frankly, you know, the thing I feel like I learned from you guys is what really screws people out of life. What the the it's true that everyone suffers. It is not true that everyone suffers equally. That is the tragedy of human existence. And the people that really suffer are the people I think who did not feel like they were loved. And I knew no matter how badly I was going to screw up, my kids weren't going to suffer that illusion that they weren't loved, as I was not. You know, I knew deeply that you guys held me incredibly close the whole time.
+[00:24:44] Adam: It is, you know, it the degree to which your kids open up your own vulnerability is astounding, and what you do with that vulnerability is is the choice that you constantly make with. Kids, you know, all of your anger at them when they screw up is masked terror at their future, and it's that exact thing that Robin Williams said so articulately. It's like half of you sees your kid accepting the Nobel Prize, and the other half sees them going, " Do you want fries with that?" And and you bounce between both of these extremes constantly. And then, frankly, you know, the thing I feel like I learned from you guys is what really screws people out of life. What the the it's true that everyone suffers. It is not true that everyone suffers equally. That is the tragedy of human existence. And the people that really suffer are the people I think who did not feel like they were loved. And I knew no matter how badly I was going to screw up, my kids weren't going to suffer that illusion that they weren't loved, as I was not. You know, I knew deeply that you guys held me incredibly close the whole time.
 
 [00:25:55] Norm: Yeah, it's like what Mister Rogers said. You know, the greatest thing you can do is let someone know. That they can be loved and that they have the capacity for love,
 
@@ -354,9 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=VihllKaZHnM
 
 [00:29:21] Karen Savage: I had kept myself together. This had been like five hours or six hours since you had hurt had this injury, and Adam and I had both been very brave that whole afternoon. We were both scared to death because you felt that any moment he could move and then be paralyzed. It was a genuine fear, and we had both kept ourselves together—not a tear, not a fear—until I got to that hospital desk and had to say, " Oh my God, he was born here 18 years ago," and burst into tears and dropped to the floor.
 
-[00:29:53] Adam: Wow! Wow!
-
-[00:29:56] Adam: There you go. Happy Mother's Day!
+[00:29:53] Adam: Wow! Wow! There you go. Happy Mother's Day!
 
 [00:29:58] Norm: Yeah, Happy Mother's Day, friend. Thank you so much for joining us.
 

@@ -88,9 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:01:30] Will: What's the Stairway to Heaven scene?
 
-[00:01:31] Adam: Okay, this is a little bit of a derail, but it's a good story.
-
-[00:01:34] Adam: So, one of the key scenes in Almost Famous that Cameron Crowe wrote into the film is, uh, the kid, in order to convince his mom that rock and roll has soul and is a real art form, plays her Stairway to Heaven, and in the film, it was supposed to happen in real time. So that they basically—the movie stops while you look at him and Frances McDormand listening to the song in real time. The whole—and Crowe was like, "It was my favorite scene in the movie. It made it through all 50 drafts of the script. And if you had asked me at the beginning and at the end what scene is going to be the soul of this movie, I would have said that scene." And the moment they got in the editing room, he's like, "It's got to go. It totally doesn't work. It's too—"
+[00:01:31] Adam: Okay, this is a little bit of a derail, but it's a good story. So, one of the key scenes in Almost Famous that Cameron Crowe wrote into the film is, uh, the kid, in order to convince his mom that rock and roll has soul and is a real art form, plays her Stairway to Heaven, and in the film, it was supposed to happen in real time. So that they basically—the movie stops while you look at him and Frances McDormand listening to the song in real time. The whole—and Crowe was like, "It was my favorite scene in the movie. It made it through all 50 drafts of the script. And if you had asked me at the beginning and at the end what scene is going to be the soul of this movie, I would have said that scene." And the moment they got in the editing room, he's like, "It's got to go. It totally doesn't work. It's too—"
 
 [00:02:18] Will: It's not in the director's cut.
 
@@ -122,9 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=ImU7qbC60b4
 
 [00:03:11] Will: The Looper director.
 
-[00:03:11] Norm: Rian, Rian.
-
-[00:03:12] Norm: Syncing up, having additional audio tracks, or, you know, tell you to find things that maybe they can get rights to, or be more interesting later, and then syncing it up.
+[00:03:11] Norm: Rian, Rian. Syncing up, having additional audio tracks, or, you know, tell you to find things that maybe they can get rights to, or be more interesting later, and then syncing it up.
 
 [00:03:21] Adam: That's amazing. You know, I, I also like the fact that when the Coen brothers did a director's cut of, um, Blood Simple, the director's cut is actually shorter.
 

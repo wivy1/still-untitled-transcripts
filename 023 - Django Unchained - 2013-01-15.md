@@ -250,9 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:11:53] Adam: They start winding, and I don't even think he's thinking, "I'm going to engender a deep conversation about race," but I think he thinks about it in a way that's novel and interesting and different than most people do, and on a deeper level. I think he, I think he has said in the past that the, that the post-analysis of his scripts where he sees the meta-analysis often happens long after he's shot the movie.
 
-[00:12:13] Norm: Mm-hmm.
-
-[00:12:14] Norm: And there was an interview when—
+[00:12:13] Norm: Mm-hmm. And there was an interview when—
 
 [00:12:16] Adam: For him.
 
@@ -454,9 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=3S75mKzy968
 
 [00:23:01] Adam: I couldn't help myself.
 
-[00:23:01] Norm: Um, so—
-
-[00:23:03] Norm: Roger Ebert had a really good theory about the Schultz character, and that he is, he's kind of like a magician in that world. He's deus ex machina because he kind of wanders in. You know, the movie starts off, and it's a great description of the, uh, the chain of slaves walking because they're like a human locomotive because they're breathing. It's like the steam.
+[00:23:01] Norm: Um, so— Roger Ebert had a really good theory about the Schultz character, and that he is, he's kind of like a magician in that world. He's deus ex machina because he kind of wanders in. You know, the movie starts off, and it's a great description of the, uh, the chain of slaves walking because they're like a human locomotive because they're breathing. It's like the steam.
 
 [00:23:21] Adam: Yeah.
 

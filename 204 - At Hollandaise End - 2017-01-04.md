@@ -110,9 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:02:25] Norm: So it's it's plugged into your water.
 
-[00:02:25] Adam: Yeah, it's
-
-[00:02:27] Adam: It's literally plumbed into the house, and we were lucky enough to purchase the house where the previous owners had decided to do this.
+[00:02:25] Adam: Yeah, it's It's literally plumbed into the house, and we were lucky enough to purchase the house where the previous owners had decided to do this.
 
 [00:02:33] Will: Did you did you have go take? So I got kind of into coffee a few years ago, and where I ended up with espresso was that on my budget, what I was spending, I should just give up on espresso and learn to brew really good coffee, which is what I ended up doing.
 
@@ -218,9 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:06:39] Adam: Um, um, New Year's,
 
-[00:06:39] Will: yeah,
-
-[00:06:39] Will: Happy New Year!
+[00:06:39] Will: yeah, Happy New Year!
 
 [00:06:39] Adam: Happy New Year!
 
@@ -318,9 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:09:58] Will: like four four minutes. Yeah, we were talking about we we we had an extended conversation about uh you know three and a half year olds laying down on the floor of the grocery store screaming, " Daddy, don't touch me." She's like, " Yeah, no, they all do that. It's what happens when they you know when they when they have free will but no self control, and it just you know eventually it implodes." So
 
-[00:10:15] Adam: you pushed me.
-
-[00:10:15] Adam: One of my sons once said, "
+[00:10:15] Adam: you pushed me. One of my sons once said, "
 
 [00:10:17] Will: Yeah, Daddy, stop touching me. You're hurting me on the floor of Target is the all time worst.
 
@@ -354,9 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:11:10] Adam: well, so she came. This is one of those situations where we're driving in the car, and my mom goes, " um, is it possible to do your podcast with those those microphones right in front of your face?" And it's one of those things where someone asks you a question, you realize is they're not actually asking you the root question; they're asking you a question that's halfway to the solution they've come up with in their heads. Yes, and it's I am always flummoxed by that kind of question because I can hear the problem halfway being solved, but I also am aware that I haven't heard the original problem.
 
-[00:11:10] Will: Yeah.
-
-[00:11:45] Will: So this is this is one of those things. that took me a really really long time to realize when I was working with people who are who are I am going to say creatives, but. Like people who do creative work for a living, right? When I was working at the magazine, it took me two or three years to realize you don't say, " Hey, I think we should change this typeface to be a little bit bigger, or the lettering needs to change on this headline."
+[00:11:10] Will: Yeah. So this is this is one of those things. that took me a really really long time to realize when I was working with people who are who are I am going to say creatives, but. Like people who do creative work for a living, right? When I was working at the magazine, it took me two or three years to realize you don't say, " Hey, I think we should change this typeface to be a little bit bigger, or the lettering needs to change on this headline."
 
 [00:12:03] Norm: What do you think about that typeface?
 
@@ -378,9 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:12:48] Will: Yeah, it's it's it's like yeah, it was like I said, it was a revelation. I I was 30 years old when I realized this. I was like, oh, right. I've been doing this wrong my entire life.
 
-[00:12:59] Adam: None of this is by way of paying out my mom. Yeah,
-
-[00:13:01] Adam: My mom just likes seeing our beautiful faces.
+[00:12:59] Adam: None of this is by way of paying out my mom. Yeah, My mom just likes seeing our beautiful faces.
 
 [00:13:04] Will: At least yours and Norm's.
 
@@ -414,9 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:13:47] Norm: and that you can hear the sound changes as you move away from the mic.
 
-[00:13:47] Will: Yes.
-
-[00:13:51] Will: So the other question we get about this stuff when your mom didn't ask this one is why do we wear headphones? And it's specifically so that you you if you’re, if you turn to talk to Norm you learn and you learn which way to aim to
+[00:13:47] Will: Yes. So the other question we get about this stuff when your mom didn't ask this one is why do we wear headphones? And it's specifically so that you you if you’re, if you turn to talk to Norm you learn and you learn which way to aim to
 
 [00:13:51] Adam: yeah
 
@@ -440,9 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:14:41] Adam: That was really that was um, we felt from our vantage point like that was the best party we've ever been able been uh, been, uh lucky enough to throw. The the crowd was phenomenal. Um, it was super celebratory. Uh, it Just I loved hearing people meeting new people. That's my favorite thing: putting people together.
 
-[00:14:41] Norm: Yeah.
-
-[00:15:00] Norm: Totoro got hugs.
+[00:14:41] Norm: Yeah. Totoro got hugs.
 
 [00:15:02] Adam: Totoro got lots of hugs.
 
@@ -488,9 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:15:51] Will: and it's it's made in America, not the people versus OJ Simpson.
 
-[00:15:51] Adam: That's correct.
-
-[00:15:54] Adam: It's which is. Also amazing, Ryan Murphy's * The People vs. O.J. Simpson* is astounding, and if you and as a companion piece to * Made in America*, you get to really see how unbelievable the cast of * The People vs. O.J. Simpson* really is. And I want to call out Sarah Paulson's Marsha Clark.
+[00:15:51] Adam: That's correct. It's which is. Also amazing, Ryan Murphy's * The People vs. O.J. Simpson* is astounding, and if you and as a companion piece to * Made in America*, you get to really see how unbelievable the cast of * The People vs. O.J. Simpson* really is. And I want to call out Sarah Paulson's Marsha Clark.
 
 [00:16:14] Will: Oh, she's awesome, though!
 
@@ -656,9 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:25:40] Will: Well, there's a difference between melodrama and drama, right?
 
-[00:25:40] Norm: Yeah,
-
-[00:25:44] Norm: I really also liked that at the end of the documentary, they didn't go and say, " Okay, this thing happened 20 years ago, and this is all everything that built up in L.A. and look, it's happening again." Like they didn't need to explicitly say that. It was about at the end about the case and about OJ Simpson, and you can the parallels that you can draw today—they're there, but they don't need to be explicitly said.
+[00:25:40] Norm: Yeah, I really also liked that at the end of the documentary, they didn't go and say, " Okay, this thing happened 20 years ago, and this is all everything that built up in L.A. and look, it's happening again." Like they didn't need to explicitly say that. It was about at the end about the case and about OJ Simpson, and you can the parallels that you can draw today—they're there, but they don't need to be explicitly said.
 
 [00:26:04] Adam: No, they don't. And in fact, post the the the post the denouement of OJ's final conviction for armed robbery and kidnapping,
 
@@ -686,9 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:27:23] Adam: good, but which is Ryan Murphy's People Versus Those, is is is talking about melodrama. It's much more melodrama, but man, it's great.
 
-[00:27:23] Will: Cool.
-
-[00:27:31] Will: Can we talk about La La Land?
+[00:27:23] Will: Cool. Can we talk about La La Land?
 
 [00:27:32] Adam: Yes, that was what I was going to segue to next.
 
@@ -812,9 +792,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:31:45] Adam: spoilers
 
-[00:31:46] Will: Uh, minor, minor. Minor spoilers. Minor, minor. So there's a scene in the trailer where they she sees him getting sacked. She walks into this club. She sees him getting sacked, and then they walk up and in the trailer they kiss. And you're like, oh, this is this is that it's that kind of movie. I love that kind of movie. I'm just In the actual film, they showed a different they showed a different take of that of that action, and it was your expectation is so strong. Oh, this is the meet cute, right? They're going to come up, they're going to meet each other, it’s, and then we're going to see a love story that goes on for the next hour and a half, and and it doesn't happen, and like it's that kind of playing with expectations is something that just like Joss Whedon does really well in the Avengers movies, um, and and it's it's so neat to see that happening in other places because it’s really rewards you for for paying attention in a way that a lot of modern media kind of doesn’t, which I which I like. I, I was I really liked the movie a lot.
-
-[00:31:46] Will: [unclear: I thought it was crazy / I thought it was great].
+[00:31:46] Will: Uh, minor, minor. Minor spoilers. Minor, minor. So there's a scene in the trailer where they she sees him getting sacked. She walks into this club. She sees him getting sacked, and then they walk up and in the trailer they kiss. And you're like, oh, this is this is that it's that kind of movie. I love that kind of movie. I'm just In the actual film, they showed a different they showed a different take of that of that action, and it was your expectation is so strong. Oh, this is the meet cute, right? They're going to come up, they're going to meet each other, it’s, and then we're going to see a love story that goes on for the next hour and a half, and and it doesn't happen, and like it's that kind of playing with expectations is something that just like Joss Whedon does really well in the Avengers movies, um, and and it's it's so neat to see that happening in other places because it’s really rewards you for for paying attention in a way that a lot of modern media kind of doesn’t, which I which I like. I, I was I really liked the movie a lot. [unclear: I thought it was crazy / I thought it was great].
 
 [00:32:37] Adam: I also loved the tension of the of the of that last song, um, and so bigger spoiler: um, the end of the film is is, uh, Ryan Gosling in his club playing a song that Emma Watson is in the audience watching with her husband and
 
@@ -882,9 +860,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:36:02] Norm: Netflix's The Crown, and I enjoyed the hell out of it.
 
-[00:36:02] Will: Yeah.
-
-[00:36:08] Will: Really? Okay. Corgies?
+[00:36:02] Will: Yeah. Really? Okay. Corgies?
 
 [00:36:10] Norm: Uh, no, no. This is, uh, set in the '40s, '50s. Uh, this is post-war. This is as Queen Elizabeth is ascending. Yeah.
 
@@ -974,9 +950,7 @@ Episode URL: https://www.youtube.com/watch?v=Y0114XPjgQ4
 
 [00:37:39] Norm: A.K.A. History.
 
-[00:37:57] Will: Yeah.
-
-[00:37:57] Will: Oh, interesting.
+[00:37:57] Will: Yeah. Oh, interesting.
 
 [00:37:57] Adam: I also want to say a shout out. A lot of splash was made in the last couple of weeks by the new Blade Runner trailer. Which is really beautiful and really exciting.
 

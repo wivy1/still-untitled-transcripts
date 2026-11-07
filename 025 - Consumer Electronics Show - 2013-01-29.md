@@ -536,9 +536,7 @@ Episode URL: https://www.youtube.com/watch?v=eVDTWxhcjFQ
 
 [00:15:14] Will: Right, I mean, what the hell do they do it for now? Is it, is it all website?
 
-[00:15:18] Adam: Who knows?
-
-[00:15:19] Adam: I heard. I remember hearing that lots of people would attend CES and be calling home, "I got to stay an extra day here at the, because there's some meetings and some things."
+[00:15:18] Adam: Who knows? I heard. I remember hearing that lots of people would attend CES and be calling home, "I got to stay an extra day here at the, because there's some meetings and some things."
 
 [00:15:28] Will: Well, it was. Yeah, it was real. It was. It was real weird.
 

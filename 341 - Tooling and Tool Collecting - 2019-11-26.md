@@ -206,9 +206,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:11:20] Adam: wow,
 
-[00:11:21] Norm: And just hang out. And I didn't even realize there's that's like a real person. I thought it was
-
-[00:11:24] Norm: a company. Yeah,
+[00:11:21] Norm: And just hang out. And I didn't even realize there's that's like a real person. I thought it was a company. Yeah,
 
 [00:11:25] Adam: how thrilling!
 
@@ -286,9 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:15:26] Zach: And it and it all matters if it's cast or you know all the different flavors of acrylic,
 
-[00:15:29] Adam: yeah, yeah, yeah.
-
-[00:15:30] Adam: It’s the extruded that that that sands much better because it doesn't melt as fast,
+[00:15:29] Adam: yeah, yeah, yeah. It’s the extruded that that that sands much better because it doesn't melt as fast,
 
 [00:15:34] Zach: right? And the cast smells worse.
 
@@ -444,9 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=rW-hhSm2_fQ
 
 [00:21:37] Norm: Oh, My God, that's that's a cool story right there. That's a that's a ripe for dramatization.
 
-[00:21:40] Adam: There was a mid
-
-[00:21:41] Adam: Legendarily within the company, there was like a midnight. I can say all this because the company imploded. That tool is probably I.
+[00:21:40] Adam: There was a mid Legendarily within the company, there was like a midnight. I can say all this because the company imploded. That tool is probably I.
 
 [00:21:49] Zach: It's somebody’s doorstop right now.
 

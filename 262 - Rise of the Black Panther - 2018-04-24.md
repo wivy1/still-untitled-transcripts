@@ -26,9 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=qMMDoAAltNA
 
 [00:00:59] Norm: You're a senior writer at io9.
 
-[00:01:01] Evan: Yeah,
-
-[00:01:01] Evan: I am.
+[00:01:01] Evan: Yeah, I am.
 
 [00:01:02] Norm: And you also are currently writing, or maybe you're all written, but the ongoing or recently released Rise of the Black Panther miniseries.
 
@@ -56,9 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=qMMDoAAltNA
 
 [00:04:52] Norm: In World War Two,
 
-[00:04:53] Evan: and that's established lore, right? It was it was writers before me had written a meeting between Steve Rogers and the Black Panther in the 1940s, right? So all I did was I encapsulated that scene, but what I wanted to do that was new was show the repercussions of that moment inside Wakanda, which you'd never seen before. So, like the after the after that encounter happens, we show T'Chaka, T'Challa's dad, as an adult, and he's talking to an elder tribal member who basically says, " Yeah, your your your dad never should have given that white boy our our vibranium because now people know this exists and they're going to come for us." And it shows like political repercussions and the attitudes of Wakanda towards the outside world. And then T'Challa wanted to change them. I ramble, so
-
-[00:05:40] Evan: You just got to interject.
+[00:04:53] Evan: and that's established lore, right? It was it was writers before me had written a meeting between Steve Rogers and the Black Panther in the 1940s, right? So all I did was I encapsulated that scene, but what I wanted to do that was new was show the repercussions of that moment inside Wakanda, which you'd never seen before. So, like the after the after that encounter happens, we show T'Chaka, T'Challa's dad, as an adult, and he's talking to an elder tribal member who basically says, " Yeah, your your your dad never should have given that white boy our our vibranium because now people know this exists and they're going to come for us." And it shows like political repercussions and the attitudes of Wakanda towards the outside world. And then T'Challa wanted to change them. I ramble, so You just got to interject.
 
 [00:05:42] Adam: So I'm curious about that. So I want to talk about the shift from from writing criticism and chronicling comic books to actually writing them. Early on in the Still Untitled podcast, we were talking about a franchise film that had come out, and I made an offhand comment about the quality of the special effects, and then the Special effects supervisor, who it turned out that I knew and I wasn't paying attention, wrote to me and said, " I'd love to hear your specific problems with the special effects because I respect your opinion." And I realized, shit, I'm not paying enough attention.
 
@@ -66,17 +62,13 @@ Episode URL: https://www.youtube.com/watch?v=qMMDoAAltNA
 
 [00:06:15] Adam: Right, these people are listening. I'm not just bloviating out into the void. However, the internet is a very reasonable conduit for bloviating into the void, and there's a lot more different kinds of criticism. There's all this snark, and there's all this. So, how do you? I'm curious, like as someone who loves comic books and still might review some of your friend's work and take it to task, the the balance between going from that to being a creator.
 
-[00:06:42] Evan: So, I have super funny and super relevant experience. I wrote a review of a movie about a year and change ago that I had problems with, and
-
-[00:06:55] Evan: the one the reason I had to write the review of this movie is because our usual film critic Germain Lussier was tied up and he couldn't go to a screening, so it fell on me. In the course of writing this review, some other friends I have were like, " Hey, you know, mutual friend of ours wrote on this," and I was like, " Oh, okay." And I mentioned to this person, I was like, " Well, okay. Well, I'm going to try and be fair. I'm not going to try and be mean." And I recently had a conversation with a friend who worked on the movie, and I was like, " You know, I hope you understand." He's like, " Of course, I understand." He's like, " Look, we know when people are being mean just to be mean, right?
+[00:06:42] Evan: So, I have super funny and super relevant experience. I wrote a review of a movie about a year and change ago that I had problems with, and the one the reason I had to write the review of this movie is because our usual film critic Germain Lussier was tied up and he couldn't go to a screening, so it fell on me. In the course of writing this review, some other friends I have were like, " Hey, you know, mutual friend of ours wrote on this," and I was like, " Oh, okay." And I mentioned to this person, I was like, " Well, okay. Well, I'm going to try and be fair. I'm not going to try and be mean." And I recently had a conversation with a friend who worked on the movie, and I was like, " You know, I hope you understand." He's like, " Of course, I understand." He's like, " Look, we know when people are being mean just to be mean, right?
 
 [00:07:38] Adam: Right? Right?
 
 [00:07:38] Evan: We know when people are not being substantive, right? So, you know, it is a weird place to find myself in, and it's even weirder because you know, I'm but a mere human, so I look at criticism of my own work. Now that I have actual creative work out in the world, I wonder what people think about it. So you see the positives and the negatives, you know, but it is a weird thing making that shift because I feel like. Ultimately, I'm I'm just trying to write the kind of comic book that I would enjoy, right? Like, you know, I know, I know that I'm delivering a denser than average comic book compared to the norm right now. But, but I, that's what I grew up loving, and that's what I feel like. I have a lot of different considerations. I feel like one, $4 is a lot for a single issue of a comic, right? I want people to feel like they're they're getting their money's worth. Two, like when I think about the nature of the characters I'm writing, like I had a conversation with some other friends of mine, some other critics. She was like, you know, Black Panther and Wakandans they hold forth, right? They they extempor they extemporize
 
-[00:08:50] Norm: Give
-
-[00:08:50] Norm: speeches, yeah,
+[00:08:50] Norm: Give speeches, yeah,
 
 [00:08:51] Evan: right, right. And I feel like you know, I I've got to be true to my understanding of the character in that way, you know, and also I feel like you know, this is part. This is a project that is kind of intentionally geared towards people who might have never. Read this character in comics before. Who might have seen the movie? I was like, " Hey, I wonder what else is out there." And you know, that that kind of requires me to make sure that people are understanding each issue on its own strength, you know, without having read you know 40 years of comics before it. But I also want the people who've read 40 years of comics to enjoy it, you know. And one of the great things about the feedback I've been getting is people like, " I see what you are doing there. You you did that thing where you mentioned this thing, and from that issue, I am like, 'Yeah, you are right. You did, you did.' But the other interesting thing has been just two days ago, I got a tweet. So the latest issue of the series is Rise of the Black Panther number four, which is focusing on Doctor Doom. And minor spoilers for for anybody who hasn't read it. Sorry, but at one point, Doom gives T'Challa like this aperitif made out of an extinct berry, which he basically resurrected through magic and science. And T'Challa was like, " This is great." But somebody on Twitter pinged me and said, " Watch out! That's the Berry drink from Fantastic Four Annual Number Two, written in 1960, whatever, written by Stan Lee and Jack Kirby." And I'm like, " You know what?" I responded to the guy on Twitter. I was like, " This wasn't even top of mind for me. Like, it's not like I'm going to make this reference. I just happened to coincidentally, like, I guess it bubbled up from like my subconscious, but the same kind of thing." And I was like, " God damn, you really can't escape this stuff."
 
@@ -86,9 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=qMMDoAAltNA
 
 [00:10:39] Norm: [unclear: Work and? / any of your work?]
 
-[00:10:39] Evan: It's, I, I, I.
-
-[00:10:51] Evan: You guys will appreciate this with tested and and and and the science stuff. No, and yes. On one hand, before I started doing any writing, I read as much Black Panther as I could. On the other hand, you know, I did have I availed myself of research. At Marvel, at one point, because one of my main questions was, you know, vibranium in the comics absorbs energy and vibration, right? So how do they mine it?
+[00:10:39] Evan: It's, I, I, I. You guys will appreciate this with tested and and and and the science stuff. No, and yes. On one hand, before I started doing any writing, I read as much Black Panther as I could. On the other hand, you know, I did have I availed myself of research. At Marvel, at one point, because one of my main questions was, you know, vibranium in the comics absorbs energy and vibration, right? So how do they mine it?
 
 [00:11:27] Adam: Carefully coaxing it,
 
@@ -148,11 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=qMMDoAAltNA
 
 [00:17:33] Adam: You can curse on this podcast.
 
-[00:17:34] Evan: Yeah, thank you. Calls calls the country where my parents came from, the the the country that forms part of my identity a shithole. He calls Haiti and other countries a shithole, and I'm like, well, Wakanda is not real, but what Wakanda is is an amalgamation of survival strategies that Black diasporan peoples have created and maintained so that they can survive in a system that is built to deny them rights and franchise. So Wakanda is not real, but it draws on real things, real cultural practices. And am I going to put that in my Black Panther series that I'm writing in 2018? Fuck yes. Um. Um. You know, Donald J. Trump may never read * Rise of the Black Panther*, but
-
-[00:18:23] Evan: valorizing
-
-[00:18:27] Evan: the struggles of Black people throughout time is part of what makes Wakanda such an energetic fictional concept. And there's no way I wouldn't do that. You know, but also the thing that's great about the movie and what I feel like people like me and Ta-Nehisi and other writers are trying to do with Black Panther stories written in the latter day is, you know, let's not center it on the stereotypes of the past. Let's not let's have it be about Black glory and accomplishment, and and and not, you know, one of the things about the movie and the comics is that, you know, so often when you see mainstream media portrayals of Africa, it's sickness, unrest, corruption. Turmoil, and you know, those are overwhelmingly, I think, the tropes that follow portrayals of Africa in mainstream media. And what's great about this this moment that Black Panther is is creating is that it doesn't have to be like that, you know. Like, you know, I kind of treat Killmonger like a refugee in in um in Rise of Black Panther. But he's a refugee from America, you know. He's he's repatriating. He's not coming back to like, you know, food shortages and illness and whatnot. He's coming back to an idealized version of of of what Black people can achieve or could have achieved without colonialism. And his his psychological problem is he has an ideological vision for for Wakanda that was perverted by his time outside of Wakanda. So that, how do you reconcile that? So
+[00:17:34] Evan: Yeah, thank you. Calls calls the country where my parents came from, the the the country that forms part of my identity a shithole. He calls Haiti and other countries a shithole, and I'm like, well, Wakanda is not real, but what Wakanda is is an amalgamation of survival strategies that Black diasporan peoples have created and maintained so that they can survive in a system that is built to deny them rights and franchise. So Wakanda is not real, but it draws on real things, real cultural practices. And am I going to put that in my Black Panther series that I'm writing in 2018? Fuck yes. Um. Um. You know, Donald J. Trump may never read * Rise of the Black Panther*, but valorizing the struggles of Black people throughout time is part of what makes Wakanda such an energetic fictional concept. And there's no way I wouldn't do that. You know, but also the thing that's great about the movie and what I feel like people like me and Ta-Nehisi and other writers are trying to do with Black Panther stories written in the latter day is, you know, let's not center it on the stereotypes of the past. Let's not let's have it be about Black glory and accomplishment, and and and not, you know, one of the things about the movie and the comics is that, you know, so often when you see mainstream media portrayals of Africa, it's sickness, unrest, corruption. Turmoil, and you know, those are overwhelmingly, I think, the tropes that follow portrayals of Africa in mainstream media. And what's great about this this moment that Black Panther is is creating is that it doesn't have to be like that, you know. Like, you know, I kind of treat Killmonger like a refugee in in um in Rise of Black Panther. But he's a refugee from America, you know. He's he's repatriating. He's not coming back to like, you know, food shortages and illness and whatnot. He's coming back to an idealized version of of of what Black people can achieve or could have achieved without colonialism. And his his psychological problem is he has an ideological vision for for Wakanda that was perverted by his time outside of Wakanda. So that, how do you reconcile that? So
 
 [00:20:10] Norm: Does that make him a more interesting character, right?
 
@@ -188,9 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=qMMDoAAltNA
 
 [00:26:01] Adam: what was that like?
 
-[00:26:02] Evan: It. So I haven't talked about this publicly, but I finished the sixth and last issue of it a little while ago, which means at some point in the near future, I won't be getting art. From amazing art, and it is this an emotional crash that I am going to need, like to go sit on the beach somewhere.
-
-[00:26:02] Evan: And deal with it.
+[00:26:02] Evan: It. So I haven't talked about this publicly, but I finished the sixth and last issue of it a little while ago, which means at some point in the near future, I won't be getting art. From amazing art, and it is this an emotional crash that I am going to need, like to go sit on the beach somewhere. And deal with it.
 
 [00:26:17] Norm: And what's that collaboration like?
 
@@ -210,9 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=qMMDoAAltNA
 
 [00:29:19] Adam: This I'm assuming this will radically change the next time you critique a comic.
 
-[00:29:24] Evan: Yeah, yeah,
-
-[00:29:24] Evan: it already has. Yeah, it already has. Like you know, I remember when Ta-Nehisi started writing his Panther run, he's like the colors, man, the colors. He's got he's got a great great colorist, Laura Martin, on his initial run. I don't know if she's still doing the book, but one of the best in the business. And I'm like, yo, man, I've been reading comics my whole life. I know what you're talking about. You're like, whatever, just calm down, right? Then my pages start to come in. You're like, oh my god, the colors. He's like, see. But you learn so much about how a colorist can draw your eye subconsciously across the page. You know, I remember I got issue two in, and the colorist on the series is a brilliant guy, Stephane Paitreau, and the first page. It was a big fight scene in the first page of issue two, and I'm like, he's doing a thing, and look, he's got the light source there so that your eye goes here, and I'm like, and guys, I didn't write any of that.
+[00:29:24] Evan: Yeah, yeah, it already has. Yeah, it already has. Like you know, I remember when Ta-Nehisi started writing his Panther run, he's like the colors, man, the colors. He's got he's got a great great colorist, Laura Martin, on his initial run. I don't know if she's still doing the book, but one of the best in the business. And I'm like, yo, man, I've been reading comics my whole life. I know what you're talking about. You're like, whatever, just calm down, right? Then my pages start to come in. You're like, oh my god, the colors. He's like, see. But you learn so much about how a colorist can draw your eye subconsciously across the page. You know, I remember I got issue two in, and the colorist on the series is a brilliant guy, Stephane Paitreau, and the first page. It was a big fight scene in the first page of issue two, and I'm like, he's doing a thing, and look, he's got the light source there so that your eye goes here, and I'm like, and guys, I didn't write any of that.
 
 [00:30:17] Adam: This is so we're on Tested often covering the making of movies, and we love pointing out that from the director, the director is thought of as the creative center of the film, but below him is an army of thousands of people, all of them involved in the storytelling, all of them invested in the narrative, and it's you're explaining that the same thing exists in comics.
 
@@ -274,9 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=qMMDoAAltNA
 
 [00:33:26] Norm: And thank you out there for listening. We'll see you next week.
 
-[00:33:31] Adam: Thanks, guys.
-
-[00:33:31] Adam: Thank you.
+[00:33:31] Adam: Thanks, guys. Thank you.
 
 [00:33:31] Evan: Bye.
 

@@ -54,9 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:01:03] Will: Just take over a local bar and have beers and chat for a little bit.
 
-[00:01:03] Norm: And if you
-
-[00:01:14] Norm: can't make it, it's okay because we're filming everything, and it will be on. But
+[00:01:03] Norm: And if you can't make it, it's okay because we're filming everything, and it will be on. But
 
 [00:01:18] Adam: we're not going to show that immediately.
 
@@ -386,9 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:14:51] Will: Wow, that's interesting.
 
-[00:15:06] Adam: And I don’t think that—
-
-[00:14:51] Adam: I'm really glad because Benicio del Toro made that role very creepy and upsetting, and I thought that's what it required.
+[00:15:06] Adam: And I don’t think that— I'm really glad because Benicio del Toro made that role very creepy and upsetting, and I thought that's what it required.
 
 [00:15:14] Will: I assume the Collector will show up in the future installments of Guardians of the Galaxy,
 
@@ -522,9 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:19:07] Adam: Right.
 
-[00:19:07] Norm: Yeah.
-
-[00:19:16] Norm: Kevin Feige, producer Joss Whedon. Yes.
+[00:19:07] Norm: Yeah. Kevin Feige, producer Joss Whedon. Yes.
 
 [00:19:19] Adam: So what I'm interested in is, like, I feel like there is a tremendous amount of unity across the board in terms of the enjoyment factor I get out of Winter Soldier and Avengers and Guardians,
 
@@ -566,9 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:20:27] Norm: for studios back then. I mean, there was no one unified structure. You had producers who championed their projects, directors who had their vision, and but Kevin Feige of Marvel is the guy who's who has had the vision since Iron Man, the first Iron Man with with Jon Favreau, and you credit both those guys for being fans who had the foresight to seed in the things then then to explore and tap into you know rich tapestry of characters.
 
-[00:20:54] Will: But I thought that all the I thought that the great Avengers initiative, not the one in the movie, but the but the thing that resulted in Thor and Captain America and then Avengers, and then you know, I thought that was all a result of the massive success of Iron Man. I thought that I thought the massive success of Iron Man made this what seemed like at the time an insane. Multi-year.
-
-[00:21:12] Will: Plan.
+[00:20:54] Will: But I thought that all the I thought that the great Avengers initiative, not the one in the movie, but the but the thing that resulted in Thor and Captain America and then Avengers, and then you know, I thought that was all a result of the massive success of Iron Man. I thought that I thought the massive success of Iron Man made this what seemed like at the time an insane. Multi-year. Plan.
 
 [00:21:12] Adam: Well, Iron Man was a slow burner. The studio didn't think it was a low,
 
@@ -680,9 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:24:53] Will: It’s so good.
 
-[00:24:53] Adam: I was like wow that's like it's like four three levels to that it's so fucking brilliant oh my god
-
-[00:25:02] Adam: I I I wanted to pause the movie just to enjoy that moment for an extra like 40 seconds
+[00:24:53] Adam: I was like wow that's like it's like four three levels to that it's so fucking brilliant oh my god I I I wanted to pause the movie just to enjoy that moment for an extra like 40 seconds
 
 [00:25:06] Norm: and the fact they got it you know they could have got the Rock they could have got any well known big dude. They got an unknown.
 
@@ -712,9 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:26:35] Norm: Gamora.
 
-[00:26:35] Adam: Gamora says that, and I was like, I was actually like, I'm a little mad. I haven't heard that line before. It's a great line. Of course, it's a it's a beautiful.
-
-[00:26:45] Adam: This is where the movie kicks into Act Three,
+[00:26:35] Adam: Gamora says that, and I was like, I was actually like, I'm a little mad. I haven't heard that line before. It's a great line. Of course, it's a it's a beautiful. This is where the movie kicks into Act Three,
 
 [00:26:47] Norm: and then Nebula from Doctor Who. Karen
 
@@ -808,9 +796,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:29:00] Will: Yeah, and there's multiple things going on at the same time. You're cutting back and forth between two or three different different activities at the same time. You feel like all of the the the throwaway characters are actually real characters. You know, the ones that are exploding constantly. And and the big net thing is the dumbest thing I've ever seen,
 
-[00:29:00] Adam: But it was really pretty.
-
-[00:29:18] Adam: The big which,
+[00:29:00] Adam: But it was really pretty. The big which,
 
 [00:29:19] Will: the big net that the that the defending ships make.
 
@@ -858,11 +844,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:31:44] Will: I can imagine because if you do it the wrong way, it looks like a goofy rag doll in bad 2000s animation.
 
-[00:31:48] Adam: Really hard. The two hardest shots apparently were that one and Hulk smashing.
-
-[00:31:52] Adam: Punch, punching,
-
-[00:31:53] Adam: turning into the Hulk and punching the the thing, the big dragon thing.
+[00:31:48] Adam: Really hard. The two hardest shots apparently were that one and Hulk smashing. Punch, punching, turning into the Hulk and punching the the thing, the big dragon thing.
 
 [00:31:59] Will: Oh, like jumping!
 
@@ -924,9 +906,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:33:47] Norm: Just voiced.
 
-[00:33:47] Adam: Okay.
-
-[00:33:48] Adam: Just voiced.
+[00:33:47] Adam: Okay. Just voiced.
 
 [00:33:48] Will: Yeah. I mean, he
 
@@ -942,9 +922,7 @@ Episode URL: https://www.youtube.com/watch?v=7L1Ny40zlUo
 
 [00:33:58] Adam: Spoiler cast.
 
-[00:33:58] Will: It’s a spoiler cast.
-
-[00:34:00] Will: Wow. We are Groot.
+[00:33:58] Will: It’s a spoiler cast. Wow. We are Groot.
 
 [00:34:01] Adam: We are Groot.
 

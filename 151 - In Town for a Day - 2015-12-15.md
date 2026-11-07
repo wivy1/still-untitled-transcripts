@@ -236,9 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:12:12] Will: expansion into space
 
-[00:12:13] Norm: They have almost
-
-[00:12:14] Norm: only one conceit, which is a thruster system, a mechanism for traveling, um, um, making travel between Earth and Mars as far as you could go, not take eight months.
+[00:12:13] Norm: They have almost only one conceit, which is a thruster system, a mechanism for traveling, um, um, making travel between Earth and Mars as far as you could go, not take eight months.
 
 [00:12:27] Will: Well, what what their conceit is, and he gets into this in the book, but it's hard science fiction, which is what you you pointed out.
 
@@ -398,11 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:20:09] Adam: Okay.
 
-[00:20:09] Will: Um, but it's, it's a, it's, I they did a really good job. The the thing that I love is that they kept a lot of the small details that really help set the world. For example, the thing Norman pointed out: the the asteroid miners are all taller and skinnier. They have a very they have a patois,
-
-[00:20:25] Will: right?
-
-[00:20:37] Will: They have a different dialect. It's a little hard to follow at first. Um, and then they do a lot of hand gestures and they do a lot of speaking with hands. And they're they're actually seems like they're actually carrying those hand gestures through because you know if you live in spacesuits, 
+[00:20:09] Will: Um, but it's, it's a, it's, I they did a really good job. The the thing that I love is that they kept a lot of the small details that really help set the world. For example, the thing Norman pointed out: the the asteroid miners are all taller and skinnier. They have a very they have a patois, right? They have a different dialect. It's a little hard to follow at first. Um, and then they do a lot of hand gestures and they do a lot of speaking with hands. And they're they're actually seems like they're actually carrying those hand gestures through because you know if you live in spacesuits, 
 
 [00:20:37] Adam: Right.
 
@@ -674,9 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:30:25] Adam: I didn't realize that.
 
-[00:30:25] Will: That’s.
-
-[00:30:25] Will: On the on the iPad right now, which Apple applications use the pencil? Just notes.
+[00:30:25] Will: That’s. On the on the iPad right now, which Apple applications use the pencil? Just notes.
 
 [00:30:32] Adam: Oh, is it really just notes?
 
@@ -696,9 +688,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:30:46] Adam: we got to fix that.
 
-[00:30:48] Will: It's they just released 9.2
-
-[00:30:49] Will: this morning.
+[00:30:48] Will: It's they just released 9.2 this morning.
 
 [00:30:50] Adam: Oh, did they?
 
@@ -818,9 +808,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:33:57] Will: Gene is reading that right now.
 
-[00:33:59] Adam: It's I was blown away.
-
-[00:34:02] Adam: I really enjoyed the spit out of it.
+[00:33:59] Adam: It's I was blown away. I really enjoyed the spit out of it.
 
 [00:34:03] Will: We we have started watching Star Warses.
 
@@ -876,9 +864,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:35:39] Will: I have Friday four o'clock at the Japan. Town.
 
-[00:35:41] Adam: Or it's Saturday. Saturday is my final performance of the tour. Right.
-
-[00:35:44] Adam: Yeah.
+[00:35:41] Adam: Or it's Saturday. Saturday is my final performance of the tour. Right. Yeah.
 
 [00:35:44] Will: Yeah. Friday at four, I still have Japan Town seats. Oh. Yeah. Upstairs.
 
@@ -916,9 +902,7 @@ Episode URL: https://www.youtube.com/watch?v=3mg-c5no2_M
 
 [00:36:43] Norm: Oh yeah.
 
-[00:36:43] Adam: No. Yes.
-
-[00:36:44] Adam: They're out. Yes. They're beautiful.
+[00:36:43] Adam: No. Yes. They're out. Yes. They're beautiful.
 
 [00:36:47] Norm: Yes. Um.
 

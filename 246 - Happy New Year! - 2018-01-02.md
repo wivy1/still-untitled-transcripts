@@ -210,9 +210,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:07:47] Will: Did you do down 101, or did you do down 5?
 
-[00:07:49] Adam: We did down 101 this time. So we took
-
-[00:07:51] Adam: from Portland. We went due west and then south down to Gold Beach. Oh man! We stayed that night in Gold Beach, and then we thought. We would have a choice about how to get home, but from Gold Beach,
+[00:07:49] Adam: We did down 101 this time. So we took from Portland. We went due west and then south down to Gold Beach. Oh man! We stayed that night in Gold Beach, and then we thought. We would have a choice about how to get home, but from Gold Beach,
 
 [00:07:51] Will: nope,
 
@@ -320,9 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:11:47] Will: If you hit a patch of real ice, there's not a lot you can do, right?
 
-[00:11:51] Adam: There’s not a lot you like momentum.
-
-[00:11:54] Adam: This is the thing: is you have to drive expecting at any second your car is about to careen out of control. So you need to be going at a Speed and at a trajectory that you can have options from. So it's always pumping the brakes, always like adjusting your. I mean, yeah, it was
+[00:11:51] Adam: There’s not a lot you like momentum. This is the thing: is you have to drive expecting at any second your car is about to careen out of control. So you need to be going at a Speed and at a trajectory that you can have options from. So it's always pumping the brakes, always like adjusting your. I mean, yeah, it was
 
 [00:12:09] Will: okay, Dad. Whatever, combat driving through Portland,
 
@@ -376,9 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:13:17] Adam: That is a really, really great question
 
-[00:13:18] Norm: this year
-
-[00:13:19] Norm: that you gave this year.
+[00:13:18] Norm: this year that you gave this year.
 
 [00:13:20] Will: I, I put together a Barbie Dream House, Norm.
 
@@ -416,15 +410,9 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:14:54] Adam: dude. I got socks for Christmas, and I'm so my like my my family knows. Get me some Paul Smith socks, and I'm the happiest man alive.
 
-[00:15:01] Will: I want like warm, thick, wooly, fuzzy socks.
+[00:15:01] Will: I want like warm, thick, wooly, fuzzy socks. I'll be really happy. Yeah,
 
-[00:15:04] Will: I'll be really happy.
-
-[00:15:05] Will: Yeah,
-
-[00:15:05] Norm: yeah,
-
-[00:15:05] Norm: those aren't cheap either. Those are
+[00:15:05] Norm: yeah, those aren't cheap either. Those are
 
 [00:15:07] Adam: no, no, they're not.
 
@@ -438,9 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:15:32] Norm: not just creatures,
 
-[00:15:32] Adam: but not
-
-[00:15:33] Adam: just creatures, but characters, and these are people you haven't met the likes of before.
+[00:15:32] Adam: but not just creatures, but characters, and these are people you haven't met the likes of before.
 
 [00:15:38] Norm: Because I see the trailer, and and Michael Shannon is in it, You know, and and I just see Michael Shannon from Boardwalk Empire.
 
@@ -650,11 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:23:28] Norm: they oh the upscaling's been okay. I mean, because the graininess I you sometimes see, but it's fine.
 
-[00:23:33] Adam: A friend of mine was teaching a film class at SF State, and he he knows Walter Murch and brought Walter Murch in to give a lecture to the students. If you don't know who Walter Murch is, look him up. He's an absolute legend and a genius. And Walter Murch came in, and they the college's video projector. Walter Murch looked at it and was like. No, we can't show my movie on this. He's like, it's upscaled and it's making my movie look like a soap opera. It's over sharpening it, and unless we can down
-
-[00:23:33] Adam: crank it.
-
-[00:23:33] Adam: there's no reason to watch an old movie on this this terrible upscaling projector.
+[00:23:33] Adam: A friend of mine was teaching a film class at SF State, and he he knows Walter Murch and brought Walter Murch in to give a lecture to the students. If you don't know who Walter Murch is, look him up. He's an absolute legend and a genius. And Walter Murch came in, and they the college's video projector. Walter Murch looked at it and was like. No, we can't show my movie on this. He's like, it's upscaled and it's making my movie look like a soap opera. It's over sharpening it, and unless we can down crank it. there's no reason to watch an old movie on this this terrible upscaling projector.
 
 [00:24:07] Norm: Yeah, you don't. You only need to tweak and tune, and and that's part of the joy of like buying. It's part of the frustration and joy. Like people are spending money on these TVs these days. I'm sure a significant portion of those people don't even have the HDR enabled or something, right?
 
@@ -708,9 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:25:56] Adam: Oh.
 
-[00:25:56] Will: Oh,
-
-[00:26:00] Will: he's the villain.
+[00:25:56] Will: Oh, he's the villain.
 
 [00:26:01] Adam: He's the villain. Jeff Daniels is a is an undersung, even though he's becoming more culturally sung. Like he’s an amazing actor.
 
@@ -836,9 +816,7 @@ Episode URL: https://www.youtube.com/watch?v=4pYzkkIgW44
 
 [00:30:48] Adam: Awesome.
 
-[00:30:48] Will: I think I did Alice Waters cream spinach because that's the That's the classic that we always do.
-
-[00:30:52] Will: Yeah, yeah. Let's see some cakes, some beef stew, and then my yeah. It's Kenji. Thank you so much,
+[00:30:48] Will: I think I did Alice Waters cream spinach because that's the That's the classic that we always do. Yeah, yeah. Let's see some cakes, some beef stew, and then my yeah. It's Kenji. Thank you so much,
 
 [00:31:01] Adam: absolutely, and joy, and happy New Year, everybody. Happy New Year, happy New Year, Merry Christmas, Happy Holidays, Kwanzaa, Hanukkah, whatever you're going to celebrate, whatever you celebrate, it Festivus,
 

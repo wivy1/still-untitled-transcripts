@@ -50,9 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:02:38] Will: Is it oilcloth, Adam?
 
-[00:02:40] Adam: It is. It does feel like a waxed canvas with leather accents, and I'm trying to see if somebody put a maker's mark in this. I I feel like somebody made this for me, or Okay, we got to figure out who gave this to me because it's got this little Lone Star here in the corner.
-
-[00:03:01] Adam: And if somebody out there made this or sent this to me, I would like to thank you because it's my new favorite thing.
+[00:02:40] Adam: It is. It does feel like a waxed canvas with leather accents, and I'm trying to see if somebody put a maker's mark in this. I I feel like somebody made this for me, or Okay, we got to figure out who gave this to me because it's got this little Lone Star here in the corner. And if somebody out there made this or sent this to me, I would like to thank you because it's my new favorite thing.
 
 [00:03:09] Will: That's awesome.
 
@@ -100,9 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:07:13] Norm: Yeah, and this is '40.
 
-[00:07:14] Adam: Yeah, this is '40. Yeah,
-
-[00:07:16] Adam: this is 1940. Do you know how old Cary Grant was when he made this?
+[00:07:14] Adam: Yeah, this is '40. Yeah, this is 1940. Do you know how old Cary Grant was when he made this?
 
 [00:07:19] Will: Looks like he was like 27,
 
@@ -242,9 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:13:34] Karen (Adam's mother): Okay.
 
-[00:13:35] Adam: Yeah, we're we're we're moving our way
-
-[00:13:37] Adam: towards the super darkness
+[00:13:35] Adam: Yeah, we're we're we're moving our way towards the super darkness
 
 [00:13:38] Karen (Adam's mother): because that's.
 
@@ -280,9 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:15:59] Adam: As he's meeting the fiance and pretending he's mistaking the fiance for somebody else, he's doing all of these levels of stuff. They're both having like two conversations each, and then there's two other characters that are attempting to speak. And Cary, both Cary Grant and Rosalind Russell's complete mastery of every little beat. I've been watching 30 Rock, and one of my favorite things about 30 Rock is watching how well actors like Alec Baldwin hit every comedy note with just the perfect amount of inflection, like like Yo-Yo Ma. And watching Cary Grant and Rosalind Russell going back and forth, having these conversations at a speed which seems impossible. One of the things I was grateful for, Norm, was that you told me to turn on subtitles, and
 
-[00:16:46] Will: Yes.
-
-[00:16:47] Will: So, so I didn't, I didn't turn on subtitles. My favorite scene was the when when Cary Grant comes to the press room in the Hall of Justice.
+[00:16:46] Will: Yes. So, so I didn't, I didn't turn on subtitles. My favorite scene was the when when Cary Grant comes to the press room in the Hall of Justice.
 
 [00:16:54] Adam: Yeah.
 
@@ -384,9 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:21:52] Norm: I mean, it's it's a very cynical right plot, and the the cynicism in the politics, in the journalism, in the justice system. I mean, that's just the base again for yeah. Like these two, this this ex husband and wife to to have their back and forth.
 
-[00:22:11] Adam: Yes, I found myself I found myself fascinated by the woman killing herself in the middle of the suicide in the middle of the film, and I found myself wondering I found myself wondering if it didn't have to do with the fact that it's 1940 and Europe is falling apart at that moment in time,
-
-[00:22:33] Adam: and the film the film references Hitler and the Nazis and the Red Scare, all of it of a piece. So there's a way in which I'm finding myself wondering if there's a a feeling, a sort of a cultural feeling of societal instability that plays into the acceptability of a suicide in the middle of a screwball comedy,
+[00:22:11] Adam: Yes, I found myself I found myself fascinated by the woman killing herself in the middle of the suicide in the middle of the film, and I found myself wondering I found myself wondering if it didn't have to do with the fact that it's 1940 and Europe is falling apart at that moment in time, and the film the film references Hitler and the Nazis and the Red Scare, all of it of a piece. So there's a way in which I'm finding myself wondering if there's a a feeling, a sort of a cultural feeling of societal instability that plays into the acceptability of a suicide in the middle of a screwball comedy,
 
 [00:22:52] Norm: right? So you're saying
 
@@ -548,9 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=33f-0do3VG8
 
 [00:37:49] Norm: Barry Lyndon. Yeah,
 
-[00:37:52] Adam: yeah, I know Barry Lyndon. It's so Barry Lyndon's such a brutal, brutal, brutal movie.
-
-[00:37:59] Adam: All right, I think that's as good a place as any to wrap it up.
+[00:37:52] Adam: yeah, I know Barry Lyndon. It's so Barry Lyndon's such a brutal, brutal, brutal movie. All right, I think that's as good a place as any to wrap it up.
 
 [00:38:01] Norm: Yes, we'll take suggestions for other movies and you know things that you think we should watch, things that might be in the Criterion collection, old movies.
 

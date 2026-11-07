@@ -28,9 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:01:11] Adam: I totally agree. It's like every weekend I look up and I'm like, it's the weekend already.
 
-[00:01:16] Simone: Yeah, but also days of the week are moving faster.
-
-[00:01:21] Simone: Yeah, but also like the day of the week is losing meaning a little bit. Yeah,
+[00:01:16] Simone: Yeah, but also days of the week are moving faster. Yeah, but also like the day of the week is losing meaning a little bit. Yeah,
 
 [00:01:26] Adam: you know we're holding the weekends pretty sacred here, and like sleeping in on Saturdays and Sundays like with purpose.
 
@@ -42,9 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=N02xowDuu04
 
 [00:02:24] Unknown speaker: Yes.
 
-[00:02:25] Simone: And with the dog that's barking at everything.
-
-[00:02:28] Simone: Scraps, do you want to come here inside? Do you want to come here? Um, so yeah, there just hasn't been that much to tell, and I feel like I've just gone silent.
+[00:02:25] Simone: And with the dog that's barking at everything. Scraps, do you want to come here inside? Do you want to come here? Um, so yeah, there just hasn't been that much to tell, and I feel like I've just gone silent.
 
 [00:02:38] Adam: Well, I mean, and that's actually that's actually what I'm curious about because I'm feeling the same way, right? I everything is a sort of a, a, a, a, a motivation zapper, and right now we're in a heat wave. It's like 85 degrees in my office right here. I don't know if you're suffering through it, Simone. Is it?
 

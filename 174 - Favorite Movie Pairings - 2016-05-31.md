@@ -90,9 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:02:23] Adam: Oh God, no, no,
 
-[00:02:23] Will: No.
-
-[00:02:24] Will: he must have been like seventeen.
+[00:02:23] Will: No. he must have been like seventeen.
 
 [00:02:25] Adam: This is way. This is like '81.
 
@@ -166,9 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:04:06] Adam: Yes, that's correct.
 
-[00:04:06] Will: Okay.
-
-[00:04:11] Will: So it is Judge Reinhold.
+[00:04:06] Will: Okay. So it is Judge Reinhold.
 
 [00:04:11] Unknown speaker: Judge Reinhold.
 
@@ -198,9 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:04:40] Adam: Yes. Okay. Yes. Um. So it's lovely to see a movie where they're not sure if it's going to be a giant or not, right? Because Beverly Hills Cop two suffers from what I remember suffers from like this is going to be even bigger.
 
-[00:04:53] Will: I I watched that and it. It's charmingly even bigger.
-
-[00:04:56] Will: Right,
+[00:04:53] Will: I I watched that and it. It's charmingly even bigger. Right,
 
 [00:04:56] Norm: it's like Lethal Weapon. There's an earnestness in the first one,
 
@@ -390,9 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:10:38] Will: I don't think it's.
 
-[00:10:38] Adam: I don't think it's good, but he has a really huge like Clint Eastwood. You can watch Dirty Harry.
-
-[00:10:52] Adam: Do you want to know what peak Stallone is? This has to be over the top.
+[00:10:38] Adam: I don't think it's good, but he has a really huge like Clint Eastwood. You can watch Dirty Harry. Do you want to know what peak Stallone is? This has to be over the top.
 
 [00:10:56] Will: the The climbing movie, no cliffhanger.
 
@@ -454,11 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:12:08] Norm: catch-up notebook.
 
-[00:12:11] Will: Wow.
-
-[00:12:11] Will: Yeah.
-
-[00:12:11] Will: Okay, so should we? I think we need to. If we're going to change topics, we need to shift gears. This is the time for it to happen.
+[00:12:11] Will: Wow. Yeah. Okay, so should we? I think we need to. If we're going to change topics, we need to shift gears. This is the time for it to happen.
 
 [00:12:19] Adam: I think it's time to shift gears, but I am sure in this thread we'll get some suggestions for other movies, other arcs of the action movie to pay attention to, and I'd love to hear the suggestions
 
@@ -654,9 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:18:34] Norm: It was in Chicago second, and this is the only West Coast stop.
 
-[00:18:34] Will: Oh, really?
-
-[00:18:37] Will: It’s not going to be Portland or Seattle or LA?
+[00:18:34] Will: Oh, really? It’s not going to be Portland or Seattle or LA?
 
 [00:18:38] Norm: No, here through Labor Day.
 
@@ -828,9 +814,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:25:59] Will: Where do they go?
 
-[00:25:59] Norm: Where do these sneeze go?
-
-[00:25:59] Norm: I know.
+[00:25:59] Norm: Where do these sneeze go? I know.
 
 [00:26:04] Adam: Right.
 
@@ -864,9 +848,7 @@ Episode URL: https://www.youtube.com/watch?v=ZfyqdcsbFSE
 
 [00:27:14] Adam: It's going to be awesome.
 
-[00:27:14] Will: Awesome.
-
-[00:27:15] Will: So that'll do it for us this week. Norm
+[00:27:14] Will: Awesome. So that'll do it for us this week. Norm
 
 [00:27:15] Adam: I think so.
 

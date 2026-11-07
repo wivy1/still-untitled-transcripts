@@ -60,9 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:03:11] Adam: Well, I mean, also because you know I'm white.
 
-[00:03:13] Will: You were probably in the front of the plane too.
-
-[00:03:16] Will: They're okay with those. They have to get through another 100 people before they get to you.
+[00:03:13] Will: You were probably in the front of the plane too. They're okay with those. They have to get through another 100 people before they get to you.
 
 [00:03:21] Adam: Exactly. Anyway, I arrived at 7:30 in the morning and immediately crawled into bed and slept until noon with the dogs. With the dogs,
 
@@ -70,9 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:03:30] Adam: Were beside themselves. Huxley was like making all those like dog noises of extreme, extreme satisfaction.
 
-[00:03:39] Will: I when I go away for like three days, I come back and Chloe. There's nobody that is more excited to see. My daughter's excited to see me, but Chloe Bananas is thrilled every single time I hit.
-
-[00:03:39] Will: the door.
+[00:03:39] Will: I when I go away for like three days, I come back and Chloe. There's nobody that is more excited to see. My daughter's excited to see me, but Chloe Bananas is thrilled every single time I hit. the door.
 
 [00:03:48] Adam: Maggie has trouble breathing. She's like
 
@@ -128,9 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:06:07] Will: I thought you were going to say ASMR dog videos.
 
-[00:06:07] Adam: Oh.
-
-[00:06:10] Adam: But I think it's it's it's ripe for taking uh it's ripe for taking that gallop and blue screening it and you know
+[00:06:07] Adam: Oh. But I think it's it's it's ripe for taking uh it's ripe for taking that gallop and blue screening it and you know
 
 [00:06:10] Norm: yes
 
@@ -210,9 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:08:44] Adam: It's totally true. This is totally true. So it has been a little bit slow. We're going to shoot a one day build later on this week, but I specifically scheduled it for later in the week to kind of keep on. Getting the shop back into some
 
-[00:08:44] Will: order. It's not
-
-[00:08:57] Will: shooting shape right now.
+[00:08:44] Will: order. It's not shooting shape right now.
 
 [00:08:58] Adam: No,
 
@@ -264,9 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:11:16] Adam: like times a million.
 
-[00:11:17] Norm: It's ridiculous.
-
-[00:11:18] Norm: Smiles nonstop.
+[00:11:17] Norm: It's ridiculous. Smiles nonstop.
 
 [00:11:19] Adam: He's like a he's like a Warner Brothers cartoon of a cute kid. Oh, like he's like a platonic ideal of cute.
 
@@ -310,9 +300,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:13:07] Norm: Oh, I don't know.
 
-[00:13:07] Will: So with the Museum of Tolerance,
-
-[00:13:08] Will: you have to drive by the Museum of Tolerance sign to go from Pasadena to LA.
+[00:13:07] Will: So with the Museum of Tolerance, you have to drive by the Museum of Tolerance sign to go from Pasadena to LA.
 
 [00:13:11] Adam: Yeah, the freeway, the it's like the oldest freeway in LA, the one between LA and Pasadena, and I love it.
 
@@ -326,11 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:13:32] Norm: they make the silicone masks and he did a incredibly surreal rendition of Ren and Stimpy
 
-[00:13:51] Adam: oh really
-
-[00:13:52] Adam: I saw that yeah
-
-[00:13:52] Adam: it's nightmare fuel
+[00:13:51] Adam: oh really I saw that yeah it's nightmare fuel
 
 [00:13:53] Norm: nightmare he did it in one week
 
@@ -362,9 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:14:37] Norm: and piece of orca, and in talking them, yeah, like you can be a fantastic sculptor, like Mike Hill, fantastic sculptor, but you. Dressing up your portraits, your characters, and that's tough. And there's research, just as much obsession and research as you are a prop maker going into making a hand prop as there is in making a portrait
 
-[00:14:37] Adam: Right.
-
-[00:15:16] Adam: to make sure the cloth is right and it sits right.
+[00:14:37] Adam: Right. to make sure the cloth is right and it sits right.
 
 [00:15:18] Will: I was going to say, yeah. So do they sculpt, they they put actual, they make a dummy and then they put the they dress the dummy. They don't like sculpt the cloth.
 
@@ -376,9 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:15:33] Will: He did he did he did a show of his collection. Did you did you go to it or anything?
 
-[00:15:33] Adam: I did.
-
-[00:15:37] Adam: I went to the last day at LACMA.
+[00:15:33] Adam: I did. I went to the last day at LACMA.
 
 [00:15:38] Will: I feel like we've talked about this maybe. Yeah, but I was bummed I missed that, it was amazing
 
@@ -434,9 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:17:39] Will: Well, when when Frank came up and did we did a week of build with the with the sculpt. I think you bought those at Monsterpalooza too.
 
-[00:17:39] Adam: Yeah,
-
-[00:17:39] Adam: exactly. Yeah,
+[00:17:39] Adam: Yeah, exactly. Yeah,
 
 [00:17:39] Will: like it was. It is. I was skeptical when you said, " Hey, this is a thing we should do," and we did it, and it was the one of the most fun things that we did.
 
@@ -548,9 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:23:17] Adam: Yeah.
 
-[00:23:17] Will: My my wife went and saw that before I did because with the kids sometimes we split up and go see movies separately. And I was just like she was exploding and she's like you have to go see this movie tomorrow you can't you can't wait you got to go
-
-[00:23:31] Will: I got to talk to somebody
+[00:23:17] Will: My my wife went and saw that before I did because with the kids sometimes we split up and go see movies separately. And I was just like she was exploding and she's like you have to go see this movie tomorrow you can't you can't wait you got to go I got to talk to somebody
 
 [00:23:32] Adam: I am also going to go see Hamilton tonight.
 
@@ -780,9 +756,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:31:43] Adam: and he's wonderful. He's always a great actor, but he is also basically the major and he are two Japanese dissident homeless dissidents who were like. Captured and their brains sucked out and put into robots. There were white people, and that's never explored in the film.
 
-[00:31:43] Norm: Yeah,
-
-[00:32:03] Norm: which there could be something there.
+[00:31:43] Norm: Yeah, which there could be something there.
 
 [00:32:04] Adam: Could be something terrific to play with there.
 
@@ -950,9 +924,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:38:33] Adam: Well, here's the thing I get hopeful for is Denis Villeneuve doing Blade Runner 2049, which I get more and more excited about. He's also in pre-production for the Dune film.
 
-[00:38:33] Norm: Yeah.
-
-[00:38:44] Norm: What?
+[00:38:33] Norm: Yeah. What?
 
 [00:38:44] Adam: Yeah.
 
@@ -1094,9 +1066,7 @@ Episode URL: https://www.youtube.com/watch?v=WcCdRi3H7Cs
 
 [00:44:21] Will: Yeah, I mean, is that raccoon has personality? I apologize. I'm so sorry.
 
-[00:44:21] Adam: Oh, that's yeah.
-
-[00:44:31] Adam: This has been three white guys discussing the problems of the world. Oh, excuse me.
+[00:44:21] Adam: Oh, that's yeah. This has been three white guys discussing the problems of the world. Oh, excuse me.
 
 [00:44:35] Will: Wow. I'm just gonna.
 

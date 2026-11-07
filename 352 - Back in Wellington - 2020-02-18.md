@@ -42,9 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=iGx4hqg9mqk
 
 [00:02:50] Adam: This is this is my perfect story about how small and Perfect New Zealand is.
 
-[00:02:55] Richard Taylor: Yeah,
-
-[00:02:57] Richard Taylor: no, absolutely. And Tania came to the rescue because we needed some counterbalance on the trailer.
+[00:02:55] Richard Taylor: Yeah, no, absolutely. And Tania came to the rescue because we needed some counterbalance on the trailer.
 
 [00:03:02] Adam: Yeah,
 
@@ -78,9 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=iGx4hqg9mqk
 
 [00:05:03] Johnny Fraser-Allen: Nice.
 
-[00:05:07] Adam: At least I'm good in a crisis. It is always so great to get down. It's been about it's been about 10 months since the
-
-[00:05:14] Adam: last time I was here, and there's been, as always, a lot going on.
+[00:05:07] Adam: At least I'm good in a crisis. It is always so great to get down. It's been about it's been about 10 months since the last time I was here, and there's been, as always, a lot going on.
 
 [00:05:19] Richard Taylor: Yeah, we've been very, very busy. Huge number of projects have gone past. On average, we design on over 50 projects a year through our design studio, and we manufacture on average about seven major film, television, or location-based experience projects a year. So, in the 10 months since you were last here, a lot has happened.
 
@@ -120,9 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=iGx4hqg9mqk
 
 [00:08:05] Richard Taylor: and the robot could not be um realised if it wasn't through the connection of a physical actor in a suit working with the actress.
 
-[00:08:15] Adam: And there's a lot of people that watch this movie that don't even realise that there's an actor
-
-[00:08:18] Adam: in the suit. They think it must be CG because we're we're we're immune to that.
+[00:08:15] Adam: And there's a lot of people that watch this movie that don't even realise that there's an actor in the suit. They think it must be CG because we're we're we're immune to that.
 
 [00:08:22] Norm: Even at Comic Con, right? You brought the suit to Comic Con, and I think I chatted with people who saw the suit behind the glass, and they thought it was just like a maquette.
 
@@ -144,19 +138,13 @@ Episode URL: https://www.youtube.com/watch?v=iGx4hqg9mqk
 
 [00:09:52] Johnny Fraser-Allen: was worked on by the person.
 
-[00:09:52] Richard Taylor: Yeah, the guys at uh Amalgamated Dynamics build the suits that they wear. Rick Baker's another excellent example,
-
-[00:10:00] Richard Taylor: of course.
-
-[00:10:01] Richard Taylor: Most famously in the De Laurentiis King Kong, where he saved the movie. In fact, he was the movie because of his suit-wearing capabilities. And I think you find many of the effects guys of the world have ultimately, at some point, been in suits that have ended up in the films.
+[00:09:52] Richard Taylor: Yeah, the guys at uh Amalgamated Dynamics build the suits that they wear. Rick Baker's another excellent example, of course. Most famously in the De Laurentiis King Kong, where he saved the movie. In fact, he was the movie because of his suit-wearing capabilities. And I think you find many of the effects guys of the world have ultimately, at some point, been in suits that have ended up in the films.
 
 [00:10:19] Adam: Lon Chaney Jr.
 
 [00:10:20] Richard Taylor: Of course, yeah, most significantly,
 
-[00:10:22] Adam: yeah.
-
-[00:10:24] Adam: It gives them an intimacy with the suit and an ability to to push it to its limit that an actor might not be able to find necessarily.
+[00:10:22] Adam: yeah. It gives them an intimacy with the suit and an ability to to push it to its limit that an actor might not be able to find necessarily.
 
 [00:10:32] Richard Taylor: Yeah, even my wife Tania was. In fact, I think I was telling Adam recently on a on a discussion we were having that Tania built the suit of Uncle Les in Braindead, and then had to wear it, which is the one where the spine has been ripped out of the back of Les's body and the head's bobbing around. So. Tania spent the whole day gripping her ankles, bent double at the stomach, waddling around in her suit. Ultimately, became very unwell. But but you know you do you do what you got to do.
 
@@ -252,11 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=iGx4hqg9mqk
 
 [00:29:01] Richard Taylor: cosplays, art projects, helmets, yeah, art projects. I know it's lovely. I I feel very fortunate that we can actually offer people that environment, and you know, and then there's people such as David Tremont, of course, who you've kindly supported so significantly with your comments on his books and so on. Who is always in here because that is literally the lifeblood that flows through him. If he's not touching the tools and he's at the materials building something, then uh he's not feeling fulfilled. And you know, I I am here at pretty extreme hours, as you can imagine. And David is never not at his desk. Come New Year's Day, Christmas Day, his birthday, he'll be there at the desk building, and that that's neat.
 
-[00:29:48] Johnny Fraser-Allen: Yeah,
-
-[00:29:49] Johnny Fraser-Allen: I trick myself into that. I'm taking a break because. Saturdays is my break day, and I use Saturday to build a Star Wars spaceport in my garage.
-
-[00:29:57] Johnny Fraser-Allen: But that still work, and I'm still like I'm, and I, I probably stress over that more than the stuff I should be doing because it needs to be perfect or whatever. But that's my that's my weekend treat to myself. But I'm still going to be doing something.
+[00:29:48] Johnny Fraser-Allen: Yeah, I trick myself into that. I'm taking a break because. Saturdays is my break day, and I use Saturday to build a Star Wars spaceport in my garage. But that still work, and I'm still like I'm, and I, I probably stress over that more than the stuff I should be doing because it needs to be perfect or whatever. But that's my that's my weekend treat to myself. But I'm still going to be doing something.
 
 [00:30:09] Adam: It's your refueling.
 
@@ -266,9 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=iGx4hqg9mqk
 
 [00:30:13] Richard Taylor: To a much bigger, much bigger capacity.
 
-[00:30:15] Adam: Every Monday morning, these guys come in and I point, I said, I built some stuff over the weekend. I didn't film it. I'm sorry. Um, I want to say I have this feeling, and I have not told you this, Richard, but we spend a lot of time chatting and doing podcasts in this room where we have all these amazing collectibles around. And I want to say the prevailing thing I think of as I walk through and look at each collectible is I think about the final paint job. I think about the sculpt and the detail and all that. But for me, that any one of these, the most fun part is those last washes. that take your paint job and
-
-[00:30:50] Adam: bring it all together.
+[00:30:15] Adam: Every Monday morning, these guys come in and I point, I said, I built some stuff over the weekend. I didn't film it. I'm sorry. Um, I want to say I have this feeling, and I have not told you this, Richard, but we spend a lot of time chatting and doing podcasts in this room where we have all these amazing collectibles around. And I want to say the prevailing thing I think of as I walk through and look at each collectible is I think about the final paint job. I think about the sculpt and the detail and all that. But for me, that any one of these, the most fun part is those last washes. that take your paint job and bring it all together.
 
 [00:30:51] Richard Taylor: Yeah, and I actually think it was the signature that we brought to the collectibles. Business, you know, there are incredible artists in the collectibles business, and uh but when we had the opportunity to get into this business, when we got a chance to collaborate with sideshow on the early Lord of the Rings collectibles, which are actually right behind your head by total chance, it was exactly the desire that we had had to bring that the world onto the characters, the mud of the world onto the characters, the pigments that we then carried through to the collectibles, and uh people weren't really doing that at the time. People wanted to collect beautiful, shiny, perfect collectibles, so that that was a nice opportunity to do something really special. And I agree. I go down and enjoy art directing that final pass when I when I get the chance.
 
@@ -352,9 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=iGx4hqg9mqk
 
 [00:38:22] Norm: The ASMR tactile feel.
 
-[00:38:22] Richard Taylor: For me, it's tin foil milk bottle tops,
-
-[00:38:29] Richard Taylor: which we used to get. Remember, on the top in the back of your teeth. We used to challenge each other because you know, with with really crappy fillings, which probably you guys of your youth, specifically my generation, we got those terrible amalgam fillings, and you chew on a piece of tin foil.
+[00:38:22] Richard Taylor: For me, it's tin foil milk bottle tops, which we used to get. Remember, on the top in the back of your teeth. We used to challenge each other because you know, with with really crappy fillings, which probably you guys of your youth, specifically my generation, we got those terrible amalgam fillings, and you chew on a piece of tin foil.
 
 [00:38:48] Adam: So I, when I was a kid, the Spy Who Loved Me was the first James Bond film I saw, and I came home and I took a pack of Wrigley's gum, which came in the silver foil, each. Piece of gum, and I took a silver foil, and I sculpted it on my upper teeth. I took a piece of foil, sculpted on my bottom teeth, and I'm like, I just, ah, and then I literally started to shriek as the tin foil and my fillings, and it was basically like filling your mouth full of nine volt batteries.
 

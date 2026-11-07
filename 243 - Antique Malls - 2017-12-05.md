@@ -30,9 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=2XqEZH4KUEA
 
 [00:02:37] Norm: you don't hate the idea of talking on the phone, like
 
-[00:02:40] Adam: No, I hate the latency
-
-[00:02:42] Adam: and the lag and the bullshit of the modern phone.
+[00:02:40] Adam: No, I hate the latency and the lag and the bullshit of the modern phone.
 
 [00:02:46] Will: Right. So this is one of those things. Like, remember in the '80s when when when Murphy Candice Bergen was on TV talking about how you could hear a pin drop on the phone.
 

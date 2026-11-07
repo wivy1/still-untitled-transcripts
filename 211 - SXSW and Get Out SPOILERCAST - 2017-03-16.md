@@ -92,9 +92,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:09:26] Adam: And last week I kind of complained that I thought it wasn't as good as the first one, and I'm I I watched some behind the scenes stuff, and honestly, I, I I realized the action is meticulously crafted. It's just it's I have a difficult time caring when I'm not as into the drama.
 
-[00:09:42] Will: The the sequence in the tunnels coming out of the Italy assassination, especially where where like it was neat to see him do an assassination right. That was yeah like see him working and and that at that point he wasn't under the eight ball. Things went kind of sour there,
-
-[00:09:56] Will: but not in a way that could have been planned.
+[00:09:42] Will: The the sequence in the tunnels coming out of the Italy assassination, especially where where like it was neat to see him do an assassination right. That was yeah like see him working and and that at that point he wasn't under the eight ball. Things went kind of sour there, but not in a way that could have been planned.
 
 [00:09:56] Adam: Yeah,
 
@@ -104,9 +102,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:09:56] Will: Yeah. But but yeah, I I don't know. I I enjoyed it. I thought it was good. I'll I'll see the third one.
 
-[00:09:56] Adam: Okay. Yeah. No.
-
-[00:10:18] Adam: I will totally see the third one. Um, I before we started talk before we start to talk about um another movie that you and I both want to get to. Um, I want to tell you that I've had a couple of lovely headphone experiences on this tour.
+[00:09:56] Adam: Okay. Yeah. No. I will totally see the third one. Um, I before we started talk before we start to talk about um another movie that you and I both want to get to. Um, I want to tell you that I've had a couple of lovely headphone experiences on this tour.
 
 [00:10:18] Will: Ooh.
 
@@ -158,11 +154,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:13:49] Will: I was um, I, I like they're they're really compelling. I they don't stay in my ears, which is which is unfortunate.
 
-[00:13:56] Adam: That's some people. People have that,
-
-[00:13:56] Adam: and I know
-
-[00:13:56] Adam: they make some silicone overshoes for them. That, but yeah, they luckily they fit my ears just fine.
+[00:13:56] Adam: That's some people. People have that, and I know they make some silicone overshoes for them. That, but yeah, they luckily they fit my ears just fine.
 
 [00:14:06] Will: I saw somebody posted a picture this morning from the East Coast blizzard, which is when we're recording this, and it's like I dropped my AirPod, and it was just a picture of all white. You know, can you you guys see anything? It's not, it's gone, lost in the snow. I'll find it when the rain stops. Oh, oh, yeah, yeah. So let's see. Before we talk about the other thing, we're going to talk about that everybody else already knows because it's probably going to be in the title. If I had to guess, yeah. I watched a fascinating documentary called Ants on a Shrimp, or Ants Ants on the Shrimp. Maybe it's yeah about a restaurant called Noma in in Copenhagen, and it's on I think HBO or Hulu. I'm not sure which one, and it's it's totally worth watching. I'm not going to say anything else. It's it's fascinating. It's a fascinating look into some of the people who are the best in the world at the thing that they do. So
 
@@ -396,9 +388,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:33:12] Adam: Oh, but when she when she the the hypnotism is really really fascinating. She talks about hypnotism not being like a coin at the you know pocket watch at the end of a chain, but more like any kind of anchor. And you immediately realize she's stirring her tea, and the sound of her teaspoon hitting the teacup is this eerie. I mean, it's very clear what they're doing, what she's doing to you, the audience. But then the way that they depict the hypnotism taking hold, he has paralysis, and she says to him a phrase that I now will always, forever find terrifying. Now you're in the sunken place.
 
-[00:33:12] Will: Yeah.
-
-[00:33:51] Will: Well, and so the depiction of that was really really neatly done. Like the yeah, you see from his perspective, the whole story is told from his perspective basically. But you see from his perspective, his viewpoint as a screen receding from his view, and then it cuts to the shot of him 20 feet below the the screen, kind of floating in space.
+[00:33:12] Will: Yeah. Well, and so the depiction of that was really really neatly done. Like the yeah, you see from his perspective, the whole story is told from his perspective basically. But you see from his perspective, his viewpoint as a screen receding from his view, and then it cuts to the shot of him 20 feet below the the screen, kind of floating in space.
 
 [00:34:09] Adam: Right in a blank, in a sort of a blank universe, weightless, looking at the screen floating far away from him, which has the tableau of the room in it. So he's like recessed back behind his eyes.
 
@@ -426,9 +416,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:35:23] Adam: Right, right, right. Yes, I was told there would be staplers. Yes.
 
-[00:35:26] Will: Oh, yeah, yeah. I was told. I was told that. Yeah.
-
-[00:35:33] Will: So, I don't even know where to start with this.
+[00:35:26] Will: Oh, yeah, yeah. I was told. I was told that. Yeah. So, I don't even know where to start with this.
 
 [00:35:35] Adam: You well, so my my son felt that the the most terrifying moment in the film was the party is happening. Everyone's mingling around. There's like 30 some odd people, and a cup. And our main character goes upstairs to sort of chill out for a minute. And when he leaves the main floor, the entire party stops, and you realize that the entire party is a bit of theater just for his benefit.
 
@@ -486,9 +474,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:41:28] Will: You realize I'm not going to give you the keys, right? Is
 
-[00:41:28] Adam: so yeah.
-
-[00:42:11] Adam: That moment is awful. I uh. Of course, everyone sees it coming, but that doesn't make it any less awful. And horror movies are full of horror movies. Traditionally, are full of moments in which the main character is doing something, and you are saying to yourself, " Why are you doing that? Don't go in there! Come on!
+[00:41:28] Adam: so yeah. That moment is awful. I uh. Of course, everyone sees it coming, but that doesn't make it any less awful. And horror movies are full of horror movies. Traditionally, are full of moments in which the main character is doing something, and you are saying to yourself, " Why are you doing that? Don't go in there! Come on!
 
 [00:42:30] Will: Don't run up the stairs. It's the classic. Right. Yeah.
 
@@ -592,9 +578,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:50:27] Will: Now I'm excited to hear the internet tell us what we got wrong. So
 
-[00:50:30] Adam: yeah,
-
-[00:50:30] Adam: I'm sure we got some things wrong. But I, I think that's. I think we've overstayed our welcome. I think that's a great place to end. Um, thanks for thanks for making the time today, Will.
+[00:50:30] Adam: yeah, I'm sure we got some things wrong. But I, I think that's. I think we've overstayed our welcome. I think that's a great place to end. Um, thanks for thanks for making the time today, Will.
 
 [00:50:41] Will: Of course,
 

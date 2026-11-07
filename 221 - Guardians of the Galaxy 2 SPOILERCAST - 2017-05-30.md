@@ -76,9 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:02:16] Will: Yeah,
 
-[00:02:16] Adam: exactly.
-
-[00:02:16] Adam: That's the best.
+[00:02:16] Adam: exactly. That's the best.
 
 [00:02:16] Will: Um, so speaking of tricks,
 
@@ -94,9 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:02:24] Will: at the same time.
 
-[00:02:26] Norm: Whoa,
-
-[00:02:26] Norm: it's been a while.
+[00:02:26] Norm: Whoa, it's been a while.
 
 [00:02:28] Will: Well, you know, superhero movies only come out 12 months a year now, so it's it's tough to tough
 
@@ -110,9 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:02:46] Adam: Turn off the podcast
 
-[00:02:46] Norm: Until
-
-[00:02:47] Norm: you've seen it.
+[00:02:46] Norm: Until you've seen it.
 
 [00:02:47] Will: I like that we have a fourth chair.
 
@@ -134,9 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:03:02] Adam: Yes, Monday morning.
 
-[00:03:02] Will: Norm, you saw it a couple weeks ago, and it
-
-[00:03:02] Will: came out.
+[00:03:02] Will: Norm, you saw it a couple weeks ago, and it came out.
 
 [00:03:12] Norm: it's been a couple weeks ago. Yeah, only the once though.
 
@@ -222,17 +214,13 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:08:27] Adam: oh. The thing about the Transformers trailer, I know we're driving off the road here, but the thing about the Transformers trailer I find hilarious is all these shots of Marky Mark like rolling out of the way while giant building size monsters roll around him, and somehow it's basically. I was thinking, oh, this is the kind of movie ants would tell themselves living around humans. It's like every time an ant escapes, it's like I escape because I'm the chosen.
 
-[00:08:52] Will: And
-
-[00:08:54] Will: and the other thing, the plot that they set up in that trailer is literally the same exact plot from I think. All four pre-existing Transformers movies.
+[00:08:52] Will: And and the other thing, the plot that they set up in that trailer is literally the same exact plot from I think. All four pre-existing Transformers movies.
 
 [00:09:03] Norm: There wasn't a plot in two of them, so
 
 [00:09:05] Will: listen,
 
-[00:09:05] Adam: fair.
-
-[00:09:06] Adam: Listen, you know,
+[00:09:05] Adam: fair. Listen, you know,
 
 [00:09:08] Will: those movies.
 
@@ -242,9 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:09:21] Norm: I, I, the I can't believe we're this is pivoting to Transformers talk, but that shot where you know you see Marky Mark do the slow motion and the amazing things tumbles, the CG thing tumbles and happens. That's got to be like, you know, film historians 50 years from now, 20 years from now, are going to look back and that's going to be a type of shot and a type of action sequence that is in all of Michael Bay's work. And so, from a history of filmmaking standpoint, like that's going to be like a chapter in a book on
 
-[00:09:21] Will: well, that's that's the end
-
-[00:09:50] Will: of the hard-boiled jump. That's the end of the John. That's that's the other end of the John Woo jump with the two guns.
+[00:09:21] Will: well, that's that's the end of the hard-boiled jump. That's the end of the John. That's that's the other end of the John Woo jump with the two guns.
 
 [00:09:54] Adam: And it's also Bollywood. You remember that famous Bollywood sequence in which the guy shoots at the SUV, which rolls, and as it's rolling over him, he. Pulls the bad guy out of the sunroof.
 
@@ -342,9 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:13:38] Will: Yes. So the Drax, like they did a really good, like they did they did right by every character in the movie, including the new characters. Um, what's Mantis?
 
-[00:13:47] Norm: Mantis.
-
-[00:13:47] Norm: Yeah.
+[00:13:47] Norm: Mantis. Yeah.
 
 [00:13:47] Will: And um, and Kurt Russell.
 
@@ -362,9 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:14:01] Adam: He is the living definition of charisma.
 
-[00:14:01] Will: Yeah.
-
-[00:14:04] Will: I yeah.
+[00:14:01] Will: Yeah. I yeah.
 
 [00:14:05] Adam: He's amazing.
 
@@ -390,9 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:14:54] Adam: Oh right!
 
-[00:14:54] Will: Yeah.
-
-[00:15:03] Will: Oh right! I forgot about that.
+[00:14:54] Will: Yeah. Oh right! I forgot about that.
 
 [00:15:05] Adam: That was the best de aging I have yet seen.
 
@@ -444,9 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:16:49] Will: I assume it was makeup, like like I that's that was my that was my take when I saw it.
 
-[00:16:54] Adam: So so, bookmark Brandy. I'm working at Industrial Light and Magic. It's 2002, probably 2001. And this new model maker we've hired, who's kind of a weird guy, he comes up to me randomly in the middle of a day, and he goes, " Adam, do you know the song 'Brandy'?" And I went, " The song 'Brandy,' you're a fine girl. What a good wife you'd be. That one from the '70s." I was like, " Yeah." Do you know what it's about? And I was like, " I think it's about a sailor who likes this girl in the seaside town, but he can't be with her because the sea is his lady." And he goes, " Yeah, I just never listened to it before." Maybe one of the most random conversations I have ever had.
-
-[00:17:46] Adam: I was expecting a like, " Oh, you're so vain. It's about Mick Jagger. No, it's about Warren Beatty. No, no, no. He was just literally listening to the lyrics for the first time.
+[00:16:54] Adam: So so, bookmark Brandy. I'm working at Industrial Light and Magic. It's 2002, probably 2001. And this new model maker we've hired, who's kind of a weird guy, he comes up to me randomly in the middle of a day, and he goes, " Adam, do you know the song 'Brandy'?" And I went, " The song 'Brandy,' you're a fine girl. What a good wife you'd be. That one from the '70s." I was like, " Yeah." Do you know what it's about? And I was like, " I think it's about a sailor who likes this girl in the seaside town, but he can't be with her because the sea is his lady." And he goes, " Yeah, I just never listened to it before." Maybe one of the most random conversations I have ever had. I was expecting a like, " Oh, you're so vain. It's about Mick Jagger. No, it's about Warren Beatty. No, no, no. He was just literally listening to the lyrics for the first time.
 
 [00:17:54] Will: Look, I, I am the guy who never listen. I like I know all the words to the song, never pay any attention to the lyrics.
 
@@ -496,9 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:19:28] Will: Gesundheit.
 
-[00:19:37] Adam: Excuse me.
-
-[00:19:39] Adam: I loved the fact that Drax laughed so much. Uh, this is something I've talked about before. People don't laugh in movies or television or media. In fact, I submit, as I have before, Julia Louis-Dreyfus is one of the few actresses that openly, ha, ha, ha, ha, laughs in Seinfeld, at New Adventures of Old Christine. Veep. She laughs, and to see Bautista getting, I got to meet him last year and and and spend a day with him, and I found him to be one of the nicest, most. Gentle, intelligent, amazing actors I've spent time with, and then to watch this film and watch how much he got to play with and do in the film—absolutely delightful. I actually I didn't mind that there wasn't a super badass in the group because I was so emotionally invested in each of the characters.
+[00:19:37] Adam: Excuse me. I loved the fact that Drax laughed so much. Uh, this is something I've talked about before. People don't laugh in movies or television or media. In fact, I submit, as I have before, Julia Louis-Dreyfus is one of the few actresses that openly, ha, ha, ha, ha, laughs in Seinfeld, at New Adventures of Old Christine. Veep. She laughs, and to see Bautista getting, I got to meet him last year and and and spend a day with him, and I found him to be one of the nicest, most. Gentle, intelligent, amazing actors I've spent time with, and then to watch this film and watch how much he got to play with and do in the film—absolutely delightful. I actually I didn't mind that there wasn't a super badass in the group because I was so emotionally invested in each of the characters.
 
 [00:20:31] Will: Yeah, I mean that's the thing.
 
@@ -570,9 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:22:44] Will: yes
 
-[00:22:44] Adam: I know Tilda isn't in this movie
-
-[00:22:50] Adam: but she, that was a planet
+[00:22:44] Adam: I know Tilda isn't in this movie but she, that was a planet
 
 [00:22:51] Will: she's already in the Marvel universe
 
@@ -684,9 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=JIZ8c6mEa4Q
 
 [00:26:11] Will: And and he said, well, this one time I was like, he referenced the other. The other cameos—it was so dumb.
 
-[00:26:16] Adam: Yeah, no, I know, I know. We had Michael Rooker on MythBusters many years ago for the zombie episode, and he like—I'm so happy for his for his.
-
-[00:26:27] Adam: Oh God,
+[00:26:16] Adam: Yeah, no, I know, I know. We had Michael Rooker on MythBusters many years ago for the zombie episode, and he like—I'm so happy for his for his. Oh God,
 
 [00:26:27] Will: rebirth, success! He's from Walking Dead.
 

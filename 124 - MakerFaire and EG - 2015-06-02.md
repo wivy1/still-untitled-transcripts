@@ -48,9 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:02:53] Will: I love you. You realize? You realize we're fans. She's gonna kill me. I aimed away.
 
-[00:02:58] Adam: That is, yeah.
-
-[00:03:00] Adam: At any rate, one of the things that I did recently was I was traveling, and then I came back, and we were up in Gold Country filming an episode.
+[00:02:58] Adam: That is, yeah. At any rate, one of the things that I did recently was I was traveling, and then I came back, and we were up in Gold Country filming an episode.
 
 [00:03:10] Will: Where is Gold? Hold on, Gold Country is like central,
 
@@ -68,11 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:03:41] Adam: Entertainment Gathering.
 
-[00:03:42] Will: Ah, I assumed Evil Geniuses, but I could be.
-
-[00:03:45] Will: Entertainment
-
-[00:03:46] Will: Gathering is probably better.
+[00:03:42] Will: Ah, I assumed Evil Geniuses, but I could be. Entertainment Gathering is probably better.
 
 [00:03:47] Norm: Like both of those things, is it kind of like I heard it's like TED.
 
@@ -96,9 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:06:03] Norm: when did you realize this?
 
-[00:06:05] Adam: That they were in the audience.
-
-[00:06:05] Adam: The morning I was performing.
+[00:06:05] Adam: That they were in the audience. The morning I was performing.
 
 [00:06:07] Will: Oh, before?
 
@@ -126,9 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:07:04] Will: Did you? So okay.
 
-[00:07:06] Adam: So I did the piece, and it is effectively a piece about how juggling. I learned to juggle because someone gave me " Juggling for the Complete Klutz."
-
-[00:07:06] Adam: This is the days.
+[00:07:06] Adam: So I did the piece, and it is effectively a piece about how juggling. I learned to juggle because someone gave me " Juggling for the Complete Klutz." This is the days.
 
 [00:07:15] Will: That's how I learned to juggle too.
 
@@ -246,13 +236,9 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:13:10] Will: I I didn't bring it.
 
-[00:13:10] Adam: Oh, okay.
+[00:13:10] Adam: Oh, okay. I'm going to drink this water now.
 
-[00:13:12] Adam: I'm going to drink this water now.
-
-[00:13:12] Will: Go ahead.
-
-[00:13:13] Will: Um, they they let's see what else we saw. We saw um robot like a Burning Man style robot destruction league type thing. Um, I can't remember what that was called. You you talked to those guys, Norman?
+[00:13:12] Will: Go ahead. Um, they they let's see what else we saw. We saw um robot like a Burning Man style robot destruction league type thing. Um, I can't remember what that was called. You you talked to those guys, Norman?
 
 [00:13:24] Norm: Yeah, Justin Gray. Justin Gray works there. There was also a lot of good presence. Google was there to show off a lot of their Google X projects, actually.
 
@@ -304,13 +290,9 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:14:53] Will: So they're going to put like
 
-[00:14:54] Norm: that'll do damage.
+[00:14:54] Norm: that'll do damage. They shot at a car.
 
-[00:14:56] Norm: They shot at a car.
-
-[00:14:56] Will: Yes, yeah.
-
-[00:14:57] Will: They shot at a car. Their goal is to have like a protective cage around the cockpit. Around. So they're two men. Two men drive those. One in the back is the driver. One in the front is the gunner. The gunner controls the two arms, which are independently aimable.
+[00:14:56] Will: Yes, yeah. They shot at a car. Their goal is to have like a protective cage around the cockpit. Around. So they're two men. Two men drive those. One in the back is the driver. One in the front is the gunner. The gunner controls the two arms, which are independently aimable.
 
 [00:15:09] Adam: I have to do this.
 
@@ -438,9 +420,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:18:55] Will: The the parking lot was open to makers and exhibitors and sponsors, and then they also ate some of the space from the parking lot and put more stuff there, which I thought was good.
 
-[00:18:55] Adam: Great.
-
-[00:19:08] Adam: I will tell you that having having appeared at almost all the Maker Faires so far, I think all of them.
+[00:18:55] Adam: Great. I will tell you that having having appeared at almost all the Maker Faires so far, I think all of them.
 
 [00:19:14] Will: Yeah.
 
@@ -474,9 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:20:24] Adam: that really stood out for you.
 
-[00:20:28] Will: I got to think about it for a minute.
-
-[00:20:29] Will: Norm,
+[00:20:28] Will: I got to think about it for a minute. Norm,
 
 [00:20:29] Norm: the R2 guys.
 
@@ -556,9 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=1rb2uechh7I
 
 [00:22:20] Will: but like the quality of the work in those in that big room that you probably don't get to walk around in there because I think it would be you'd be a hazard.
 
-[00:22:20] Adam: It's a problem.
-
-[00:22:37] Adam: I don't actually get to tour Maker Faire,
+[00:22:20] Adam: It's a problem. I don't actually get to tour Maker Faire,
 
 [00:22:38] Will: but it's we should put you in a stormtrooper costume so you can walk around one year. Um, they they have they have amazing. Like the quality in that room has gone up so much in the last 10 years, both because stuff's cheaper, like batteries, radios, motors, all that stuff is much less expensive. The internet has made a lot of stuff from China more readily available, and
 

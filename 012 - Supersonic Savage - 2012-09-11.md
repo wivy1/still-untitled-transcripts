@@ -130,9 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:06:02] Norm: And and flying and—
 
-[00:06:03] Adam: Flying the plane
-
-[00:06:04] Adam: In a seven G roll right? So he's like, "Come on, Adam, stay with me, stay." And how does he know how I'm doing? He's looking at me in this little convex rearview mirror, so he can see my state of consciousness in this tiny little mirror and fly the plane and maintain his own blood flow beautifully. These guys are amazing,
+[00:06:03] Adam: Flying the plane In a seven G roll right? So he's like, "Come on, Adam, stay with me, stay." And how does he know how I'm doing? He's looking at me in this little convex rearview mirror, so he can see my state of consciousness in this tiny little mirror and fly the plane and maintain his own blood flow beautifully. These guys are amazing,
 
 [00:06:25] Will: And they do this all five feet from each other's plane too, when they're in the airshow.
 
@@ -200,11 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:09:11] Will: What a—how incredibly low tech.
 
-[00:09:14] Adam: Right, right. It's and it's just yeah,
-
-[00:09:15] Adam: As long as I can see that,
-
-[00:09:16] Adam: I'm good. Here's the other thing: I've been in large pieces of equipment, and when they move, when you move around large things, there's always a little bit of settling, right? You move a crane, and it—right. Um the the F/A-18s they weigh 35,000 pounds with another 10,000 pounds in fuel or something like that. It's crazy amounts of metal and fuel. So this thing is like the heaviest vehicle I've ever been in, aside from a, a jet. And as he is telling me about aligning parts of the tick marks on the wing with the logo, he's doing it. And when he's doing it, it's he's going boop, boop, boop, and he's just moving. And so the whole plane's orientation to the other plane is moving precisely like 12 inches forward.
+[00:09:14] Adam: Right, right. It's and it's just yeah, As long as I can see that, I'm good. Here's the other thing: I've been in large pieces of equipment, and when they move, when you move around large things, there's always a little bit of settling, right? You move a crane, and it—right. Um the the F/A-18s they weigh 35,000 pounds with another 10,000 pounds in fuel or something like that. It's crazy amounts of metal and fuel. So this thing is like the heaviest vehicle I've ever been in, aside from a, a jet. And as he is telling me about aligning parts of the tick marks on the wing with the logo, he's doing it. And when he's doing it, it's he's going boop, boop, boop, and he's just moving. And so the whole plane's orientation to the other plane is moving precisely like 12 inches forward.
 
 [00:10:06] Will: He thinks it, and it happens almost.
 
@@ -254,9 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:13:12] Will: Right? Because it'll fall out from under you.
 
-[00:13:12] Adam: Yeah.
-
-[00:13:12] Adam: So you have to time your landing.
+[00:13:12] Adam: Yeah. So you have to time your landing.
 
 [00:13:14] Norm: What's the frequency like? What? How long is it in the valley?
 
@@ -324,9 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:18:24] Adam: Yeah, I really want one of those helmets. Those helmets are so cool. It had like a gold visor and everything. And they were like, "You want one of these helmets, don't you?" And I'm like, "Yes, I do." Hoping they give me one. They didn't.
 
-[00:18:34] Will: No.
-
-[00:18:34] Will: No, no, no, no.
+[00:18:34] Will: No. No, no, no, no.
 
 [00:18:35] Norm: The application.
 
@@ -334,9 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=9bZG8gCRwKI
 
 [00:18:38] Adam: Yes. Um, it was it yeah it was one of the very rarefied, totally unbelievable occurrences. Now they do do VIP flights in every city. Um, and as they say, even with other experienced pilots, if you're not the one flying, they can make you pass out, even if you're an experienced Blue Angel pilot.
 
-[00:18:57] Will: So they're accustomed.
-
-[00:18:58] Will: They know the limits of humanity, and yeah,
+[00:18:57] Will: So they're accustomed. They know the limits of humanity, and yeah,
 
 [00:19:00] Norm: Taking civilians up and they’re—
 

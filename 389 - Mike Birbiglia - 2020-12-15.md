@@ -16,9 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=Wf15R6uZloY
 
 [00:02:45] Mike Birbiglia: our camera, our camera four is here. Our camera four is here.
 
-[00:02:45] Adam: Nice.
-
-[00:02:48] Adam: Camera four is my favorite shot. That's my favorite.
+[00:02:45] Adam: Nice. Camera four is my favorite shot. That's my favorite.
 
 [00:02:50] Mike Birbiglia: Camera four is insane. Camera four is madness.
 
@@ -26,9 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=Wf15R6uZloY
 
 [00:03:04] Mike Birbiglia: I mean the. I mean I don't want to become an iPhone ad, but it's like the quality of the camera is almost like it's almost like what the hell's going on here.
 
-[00:03:15] Adam: And the microphone.
-
-[00:03:16] Adam: It's also-
+[00:03:15] Adam: And the microphone. It's also-
 
 [00:03:17] Mike Birbiglia: The microphone. Yeah.
 
@@ -58,11 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=Wf15R6uZloY
 
 [00:04:39] Adam: I love it. If I had notes, Mike, it would just be to maybe increase the distance from the desk to the back wall so you get a little better depth of field. But besides that,
 
-[00:04:48] Mike Birbiglia: yeah. No, I think you're absolutely right, and I think that that's something we can consider down the road. I mean, the fun, the funny thing, and I'm sure you deal with this a lot too, is like, is like it's also our office.
-
-[00:04:59] Mike Birbiglia: So like,
-
-[00:05:02] Mike Birbiglia: there has to be a functionality. It's like there's C-stands everywhere, and and and and and lights, and all these things, and it's like. And then we have to show up to work and like ship, you know, books. Like this is not a joke. Like I'm signing like hundreds of copies of my book today, and I know you've dealt with this with your book before, where you sign all these copies at once.
+[00:04:48] Mike Birbiglia: yeah. No, I think you're absolutely right, and I think that that's something we can consider down the road. I mean, the fun, the funny thing, and I'm sure you deal with this a lot too, is like, is like it's also our office. So like, there has to be a functionality. It's like there's C-stands everywhere, and and and and and lights, and all these things, and it's like. And then we have to show up to work and like ship, you know, books. Like this is not a joke. Like I'm signing like hundreds of copies of my book today, and I know you've dealt with this with your book before, where you sign all these copies at once.
 
 [00:05:24] Adam: You know, and it there's there's moments during it where I got tired and was like, ah, do I have to do this? And I just kept on thinking of each person opening it up and seeing a signature and being like, oh,
 
@@ -148,9 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=Wf15R6uZloY
 
 [00:16:27] Mike Birbiglia: It's beautiful. It's um. It really is like a piece of art unto itself. It's a world of toys. Um. That that when you open out the back, it's really yeah, it's really pretty. So so I I'm I'm one of these people who who believe yeah, it feels nice. I'm one of these people believes in sort of like the holding of the book and like you're so we were talking the signing of the book and just the the experience of it and so uh yeah and and so in terms of that it was you know Jen and I collaborating and that was that was very involved. I mean, as you know, writing a book. I mean, you just you go [oh, this is the hardest thing I've ever done. / oh, this is awesome. This is the hardest thing I've ever done.]
 
-[00:17:06] Adam: Yeah, it's
-
-[00:17:07] Adam: awful.
+[00:17:06] Adam: Yeah, it's awful.
 
 [00:17:08] Mike Birbiglia: And it's like, right. And writing a book with your wife is like going to therapy, but there's no therapist.
 
@@ -162,11 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=Wf15R6uZloY
 
 [00:18:04] Mike Birbiglia: Yeah, and I think ultimately, like we're the we're we're the better for it because I think that airing that is better than sort of letting it form cancer in your body. Form into form into tumors because that's what it does, as you know.
 
-[00:18:23] Norm: Well, I feel like a lot of parents. I'm I'm a new parent, relative new parent with a two year old, and so we watched the Netflix show right when our our son was one and a half or so, and so you know there are moments that we 100% identified with because we weren't journaling, right? We weren't we were in survival mode for the first six months. I feel
-
-[00:18:41] Norm: like the
-
-[00:18:41] Norm: vast majority of parents, you forget what happened last week or two weeks ago, but the shared experience. I'm sure people do it on social media and do it on Facebook groups or whatever. But watching your show and reading your book brought back, and it was like triggering in the right ways and all the you know the full spectrum of emotions, but It allowed us to talk about the things. Yeah. That we'd never talked about because we were in survival mode.
+[00:18:23] Norm: Well, I feel like a lot of parents. I'm I'm a new parent, relative new parent with a two year old, and so we watched the Netflix show right when our our son was one and a half or so, and so you know there are moments that we 100% identified with because we weren't journaling, right? We weren't we were in survival mode for the first six months. I feel like the vast majority of parents, you forget what happened last week or two weeks ago, but the shared experience. I'm sure people do it on social media and do it on Facebook groups or whatever. But watching your show and reading your book brought back, and it was like triggering in the right ways and all the you know the full spectrum of emotions, but It allowed us to talk about the things. Yeah. That we'd never talked about because we were in survival mode.
 
 [00:19:05] Mike Birbiglia: But I think it's—I think what happens is in in movies and TV and in books. I think so often what happens is what happens in a lot with a lot of topics, which is the flattening of the topic. So, in other words, like there's books where it's like it's the most joy having children, the most joy, and then there's books that are like it's horrible. And and and what I wanted to do was was was really get accurate with how I felt and and and and get really nuanced with that, so that I this sort of the middle thing where you're where you're going. I'm not sure. You know, like sometimes I feel horrible, sometimes I feel good. I don't know exactly how to feel about this. But it's wild, man. Because when you, I I didn't realize this until I wrote The New One. Is that Parenting, any book or show or anything about parenting, it's a third rail issue because people apparently a lot of people are parents. Like it's not a rare thing, and and with that, there's a lot of strong opinions about parenting, and a lot of the things that when people are critical of the book, I'm like, I think you're just being critical of me personally, and like my life choices and all this stuff, and it's like it really does hurt your feelings. But then you go, well, it's not about me; it's about it's about them and their experience with with the book and and the way it comes out is like you're a bad dad, and I'm I have to be like, no, no, I know I'm a good dad. I'm just being honest with you about the journey from being a bad dad to being a good dad, and and and so like I. You know, it's like any—it's weird. It's like any book or movie that has an epiphany, you can point to the pre-epiphany and go, " What a fucking jerk," you know. But it's like, no, you got to look at the post-epiphany guy.
 
@@ -230,9 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=Wf15R6uZloY
 
 [00:28:47] Mike Birbiglia: That's incredible. That's an incredible story. That's amazing. That really is. I mean, yeah, you know what's a great, and I think it comes out any day, if not this week. Like. Did you ever see Derek DelGaudio In and of Itself?
 
-[00:29:04] Adam: Oh my!
-
-[00:29:04] Adam: I saw it twice in LA and also off Broadway. Derek's a good friend,
+[00:29:04] Adam: Oh my! I saw it twice in LA and also off Broadway. Derek's a good friend,
 
 [00:29:08] Norm: and we just watched the documentary.
 
@@ -282,9 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=Wf15R6uZloY
 
 [00:34:28] Adam: I'm about to run out of power. I'll be right back.
 
-[00:34:30] Mike Birbiglia: Okay, sounds good.
-
-[00:35:15] Mike Birbiglia: You missed when I said this is an outrage. I will not stand for this.
+[00:34:30] Mike Birbiglia: Okay, sounds good. You missed when I said this is an outrage. I will not stand for this.
 
 [00:35:19] Adam: I literally got the plug in the computer, and the computer went boom, and I was like, " Yes!" and then it went boom, like Bugs Bunny, like Wile E. Coyote, who's my hero.
 
@@ -424,9 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=Wf15R6uZloY
 
 [00:47:00] Mike Birbiglia: Nice. Thank you, Adam. I oh, and speaking of which, and using Norm's idea, I'm going to write. This is for Adam, and we'll send this to you just so you.
 
-[00:47:11] Adam: Oh, lovely,
-
-[00:47:12] Adam: Mike! Thank you so much for coming on the podcast in the middle of your busy book tour.
+[00:47:11] Adam: Oh, lovely, Mike! Thank you so much for coming on the podcast in the middle of your busy book tour.
 
 [00:47:18] Mike Birbiglia: Love, Mike. Coming your way, Adam.
 

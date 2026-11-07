@@ -90,9 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=MlXcV8ZQbR4
 
 [00:14:08] Adam: I, I, we were we visited the scale of our war this morning.
 
-[00:14:08] Richard: Oh, did you? Oh,
-
-[00:14:13] Richard: yeah. Oh, that's. Great, I'm pleased about that.
+[00:14:08] Richard: Oh, did you? Oh, yeah. Oh, that's. Great, I'm pleased about that.
 
 [00:14:15] Adam: It's overwhelming in every possible way, and I'll even add, in addition to the ways in which it's purposefully overwhelming, I'm overwhelmed by every tiny detail that you guys had to scale up from the the the coarseness of the fabric and the canvas and the leather to the buttons to the scabs on the and the healed scabs on the arms and the skin of the of the soldiers.
 

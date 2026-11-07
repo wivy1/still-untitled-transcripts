@@ -74,9 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:02:34] Will: Yeah. Okay.
 
-[00:02:35] Adam: Wow.
-
-[00:02:36] Adam: That was a lot of information that didn't actually yield a lot of information.
+[00:02:35] Adam: Wow. That was a lot of information that didn't actually yield a lot of information.
 
 [00:02:40] Will: New phrase, I, it's not often you get a new phrase. So there you go.
 
@@ -244,9 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:08:34] Norm: Then we, before even going to New York Comic Con, we hit two places. One was the Met,
 
-[00:08:40] Adam: dude.
-
-[00:08:42] Adam: Dude. So in 1981, when I saw Excalibur with my dad and said I became obsessed with armor, my dad was like, " Well, we should go see the armor at the Metropolitan Museum of Art." And I'm like, " Suddenly, museums are interesting to me." Are you serious, Father? They have armor there, and he's like, " Yeah, they have a room with armor," and I didn't, I didn't know what I pictured, but if you walk into the armor room at the Met and you see those four mounted on horseback knights with mount with horses also wearing armor,
+[00:08:40] Adam: dude. Dude. So in 1981, when I saw Excalibur with my dad and said I became obsessed with armor, my dad was like, " Well, we should go see the armor at the Metropolitan Museum of Art." And I'm like, " Suddenly, museums are interesting to me." Are you serious, Father? They have armor there, and he's like, " Yeah, they have a room with armor," and I didn't, I didn't know what I pictured, but if you walk into the armor room at the Met and you see those four mounted on horseback knights with mount with horses also wearing armor,
 
 [00:09:12] Will: wow!
 
@@ -260,9 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:09:31] Will: Wait, is that the book about the kids that live in the museum for the summer?
 
-[00:09:34] Norm: Yeah,
-
-[00:09:34] Norm: and they find like the Michelangelo and yeah, that that book cover is that those four.
+[00:09:34] Norm: Yeah, and they find like the Michelangelo and yeah, that that book cover is that those four.
 
 [00:09:38] Adam: And so that's me at 14 seeing that room.
 
@@ -324,11 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:12:36] Norm: your jousting
 
-[00:12:37] Adam: shield on top of that, and if you get hit and it gets a pressure backwards, the clockwork mechanism on the breastplate sends your shield
-
-[00:12:45] Adam: flying high. So clearly, jousting was like pro wrestling, right?
-
-[00:12:51] Adam: It was.
+[00:12:37] Adam: shield on top of that, and if you get hit and it gets a pressure backwards, the clockwork mechanism on the breastplate sends your shield flying high. So clearly, jousting was like pro wrestling, right? It was.
 
 [00:12:51] Will: You mean it was all a work?
 
@@ -356,9 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:13:52] Will: it's always lovely to find out when. Well, I mean, because it's not like you've been formally trained in this stuff.
 
-[00:13:56] Adam: No, I am a serial dilettante.
-
-[00:13:57] Adam: So to find out that I actually have joined, I gathered some expertise is always fascinating to me.
+[00:13:56] Adam: No, I am a serial dilettante. So to find out that I actually have joined, I gathered some expertise is always fascinating to me.
 
 [00:14:03] Will: Well, that's awesome.
 
@@ -450,9 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:18:29] Will: Hmm.
 
-[00:18:30] Adam: She said,
-
-[00:18:30] Adam: " My fidelity at the desk is to write, and when I write out the work of people who admire writing that I love, that's important to me. I actually I do start to understand things about it that I don't get just from reading it, and that's real. and And I think that's it. I I like to joke that it took me five years of making sculptures that were kind of ripoffs of Giger's work in order to get Giger into my system enough to know what I needed and get the rest out of it.
+[00:18:30] Adam: She said, " My fidelity at the desk is to write, and when I write out the work of people who admire writing that I love, that's important to me. I actually I do start to understand things about it that I don't get just from reading it, and that's real. and And I think that's it. I I like to joke that it took me five years of making sculptures that were kind of ripoffs of Giger's work in order to get Giger into my system enough to know what I needed and get the rest out of it.
 
 [00:18:58] Will: Yeah,
 
@@ -540,9 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:21:40] Adam: Old feeling in you.
 
-[00:21:41] Norm: Yeah,
-
-[00:21:41] Norm: And it's a little bit of stress.
+[00:21:41] Norm: Yeah, And it's a little bit of stress.
 
 [00:21:42] Adam: it smells everything.
 
@@ -566,9 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:22:04] Will: That's so cool.
 
-[00:22:05] Adam: especially
-
-[00:22:05] Adam: the young actress that played Ripley, who got a scholarship from Ridley Scott to attend the the acting conservatory in New York City.
+[00:22:05] Adam: especially the young actress that played Ripley, who got a scholarship from Ridley Scott to attend the the acting conservatory in New York City.
 
 [00:22:12] Will: Oh, that's so good.
 
@@ -614,9 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:23:19] Will: That's awesome.
 
-[00:23:20] Adam: and I think
-
-[00:23:20] Adam: it was I did Moonwatcher's face,
+[00:23:20] Adam: and I think it was I did Moonwatcher's face,
 
 [00:23:22] Will: okay,
 
@@ -650,9 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:24:25] Unknown speaker: That's amazing.
 
-[00:24:25] Adam: but really more than that
-
-[00:24:25] Adam: , I'm thrilled and astounded.
+[00:24:25] Adam: but really more than that , I'm thrilled and astounded.
 
 [00:24:28] Will: It's a problem with having a smart audience and fan base.
 
@@ -664,9 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:25:01] Will: Mm-hmm.
 
-[00:25:01] Adam: I wanted it to
-
-[00:25:01] Adam: not quite feel like it was connected. And then I just wandered the floor yelling, " Sen, where are you, Sen? What have you done to me? I'm hungry. You better bring me some food. Yeah, and I just did that for 45 minutes.
+[00:25:01] Adam: I wanted it to not quite feel like it was connected. And then I just wandered the floor yelling, " Sen, where are you, Sen? What have you done to me? I'm hungry. You better bring me some food. Yeah, and I just did that for 45 minutes.
 
 [00:25:16] Will: Did you? Have you? Has the video gone up yet?
 
@@ -792,9 +768,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:30:53] Adam: you stayed in Weehawken. Did you visit the the Hamilton?
 
-[00:30:55] Norm: No,
-
-[00:30:56] Norm: we knew it was up the hill.
+[00:30:55] Norm: No, we knew it was up the hill.
 
 [00:30:58] Adam: What?
 
@@ -810,11 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:31:14] Adam: Beverly Downen, Downen Creative.
 
-[00:31:16] Norm: Yep, yep, and some cosplayers we had met before, but. Incredible work. I don't want to spoil too much of it, but there's
-
-[00:31:25] Norm: series of interviews coming.
-
-[00:31:25] Norm: Gobsmacking.
+[00:31:16] Norm: Yep, yep, and some cosplayers we had met before, but. Incredible work. I don't want to spoil too much of it, but there's series of interviews coming. Gobsmacking.
 
 [00:31:25] Adam: Yeah. So, Kristen Lomasney, part of our tested team, curated this this group of cosplayers, and each one bringing unbelievable skill and totally different approaches to some amazing costumes. I saw some really nifty techniques. For instance, Beverly Downen did a Hela costume. She did Hela without the headdress.
 
@@ -860,11 +830,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:33:36] Norm: I have some pictures.
 
-[00:33:36] Adam: You do. Again, we'll post pictures of this. An incredible effect
-
-[00:33:40] Adam: Wow.
-
-[00:33:40] Adam: for a very low cost, low impact creation.
+[00:33:36] Adam: You do. Again, we'll post pictures of this. An incredible effect Wow. for a very low cost, low impact creation.
 
 [00:33:45] Will: Oh my god, that's incredible!
 
@@ -944,9 +910,7 @@ Episode URL: https://www.youtube.com/watch?v=8M_N2Ry-W0I
 
 [00:37:57] Norm: pretty packed.
 
-[00:37:58] Adam: I got to see my mom.
-
-[00:37:58] Adam: My mom was in San Francisco last weekend, and then I got to see her this weekend in New York. So super treat to see her on two different coasts, and also get to see Joey Fameli on two different coasts because he was here this morning.
+[00:37:58] Adam: I got to see my mom. My mom was in San Francisco last weekend, and then I got to see her this weekend in New York. So super treat to see her on two different coasts, and also get to see Joey Fameli on two different coasts because he was here this morning.
 
 [00:38:09] Will: Oh, nice!
 

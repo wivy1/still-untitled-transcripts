@@ -58,9 +58,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:02:38] Will: So, so you're like doing lashings and all that stuff.
 
-[00:02:40] Adam: Lots and lots and lots of
-
-[00:02:41] Adam: lashing. I think we used 70 or 80 rolls. I can't quite remember the number.
+[00:02:40] Adam: Lots and lots and lots of lashing. I think we used 70 or 80 rolls. I can't quite remember the number.
 
 [00:02:45] Will: That's less than I would expect.
 
@@ -130,9 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:07:04] Adam: and then so just to recap, then we we drove through a miles worth of MythBuster props, and then we blew up a cement truck with more explosives than we've ever used before.
 
-[00:07:04] Norm: Wow.
-
-[00:07:12] Norm: So the first one, which was blowing up the RV,
+[00:07:04] Norm: Wow. So the first one, which was blowing up the RV,
 
 [00:07:12] Adam: yeah.
 
@@ -204,9 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:10:36] Will: You wouldn't feel it, Norm. But you'd feel it really quickly.
 
-[00:10:39] Adam: You'd be there'd be this, and then
-
-[00:10:42] Adam: your your jelly. Because what it will do is it will accelerate all the cells in your body at about 20,000 feet per second, but just the tiniest fraction of an inch. But it'll tear apart all the connective whatever inside of you and just turn you to a bag full of jelly, which arguably we already are, but
+[00:10:39] Adam: You'd be there'd be this, and then your your jelly. Because what it will do is it will accelerate all the cells in your body at about 20,000 feet per second, but just the tiniest fraction of an inch. But it'll tear apart all the connective whatever inside of you and just turn you to a bag full of jelly, which arguably we already are, but
 
 [00:11:01] Will: more so,
 
@@ -288,9 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:14:44] Will: You had a really other, not me.
 
-[00:14:46] Adam: Uh, sorry.
-
-[00:14:46] Adam: Just
+[00:14:46] Adam: Uh, sorry. Just
 
 [00:14:47] Will: to be clear,
 
@@ -322,9 +314,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:15:46] Will: Oh, that was the one that fired the shrapnel. Yeah. Oh my. So you guys get the full coverage when you get rental cars, I guess.
 
-[00:15:51] Adam: We do.
-
-[00:15:52] Adam: I just love the idea of the guy in the shop looking at this dent from above and going, " What did you do?
+[00:15:51] Adam: We do. I just love the idea of the guy in the shop looking at this dent from above and going, " What did you do?
 
 [00:15:58] Will: Walk away
 
@@ -432,9 +422,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:20:16] Adam: trucks, and trucks and trucks? And trucks.
 
-[00:20:16] Will: Yeah,
-
-[00:20:18] Will: constant ferrying back and forth.
+[00:20:16] Will: Yeah, constant ferrying back and forth.
 
 [00:20:19] Adam: Yeah, there was like a full week and a half of moving stuff.
 
@@ -654,9 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:29:13] Will: Okay, I was gonna say, yeah, we can see the lensing on that one too.
 
-[00:29:13] Adam: Yeah,
-
-[00:29:17] Adam: totally. It was amazing.
+[00:29:13] Adam: Yeah, totally. It was amazing.
 
 [00:29:18] Will: It was pretty incredible. I was a little disappointed when the credit, you the explosion went off. You showed all the replay shots of the explosion, and then the credits rolled. And I was like, oh man, they went out with a bang. That's amazing. And then, then you cut back because you had to look at the crater, and the crater was cool. But
 
@@ -680,15 +666,11 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:30:02] Adam: Yeah, no, it was absolutely amazing. That's one of my producers, Yvette is the one sweeping up in the background,
 
-[00:30:08] Norm: and you had Tory with a hand over the mouth, covering his beard, it's
-
-[00:30:12] Norm: like Chris covering over the beard that Chris Evans had to do.
+[00:30:08] Norm: and you had Tory with a hand over the mouth, covering his beard, it's like Chris covering over the beard that Chris Evans had to do.
 
 [00:30:15] Adam: Yeah, it was really was really fun. And sorry, just to finish out this amazing week, the other thing that happened was I went and did Colbert.
 
-[00:30:15] Will: Hold on, just yeah,
-
-[00:30:23] Will: you took your pants off on Colbert.
+[00:30:15] Will: Hold on, just yeah, you took your pants off on Colbert.
 
 [00:30:25] Adam: I did. Why? Look, when Stephen Colbert asks you to take your pants off, you say yes.
 
@@ -744,9 +726,7 @@ Episode URL: https://www.youtube.com/watch?v=UMdLWdUruXs
 
 [00:34:45] Will: I mean, just clear.
 
-[00:34:45] Adam: I'll just do it.
-
-[00:34:46] Adam: Yeah, I'm ready. I've already been. [unclear: making it on national television].
+[00:34:45] Adam: I'll just do it. Yeah, I'm ready. I've already been. [unclear: making it on national television].
 
 [00:34:48] Will: I've never been any more game. Yeah,
 

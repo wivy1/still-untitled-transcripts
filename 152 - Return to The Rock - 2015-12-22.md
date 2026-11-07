@@ -94,9 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=SqndNdkYKtg
 
 [00:06:58] Unknown speaker: Yeah,
 
-[00:06:58] Dave Miller: Pluto fans out there.
-
-[00:06:58] Dave Miller: So six months ago, all we had in our images was a dot, and now look at all these landscapes. Anyone see anything missing on Pluto that you would have expected? Craters. There's very few craters. What's causing that? That that says to us that that's a fresh sort of renewing landscape, but it's way you know it's in the deep deep freeze of the outer solar system. We it's something we're still trying to figure out what's going on with that's renewing that surface on on rather short timescales. Another thing, Hubble took another deep field image. So if you don't know what the deep fields are, we we turned Hubble to look at some of the darkest parts in the skies. Like I think the first deep field was in the was in the Big Dipper, which is one of the darker parts of the skies, and let it just sit there and sort of collect light for a long period of time. And what we see are thousands of galaxies.
+[00:06:58] Dave Miller: Pluto fans out there. So six months ago, all we had in our images was a dot, and now look at all these landscapes. Anyone see anything missing on Pluto that you would have expected? Craters. There's very few craters. What's causing that? That that says to us that that's a fresh sort of renewing landscape, but it's way you know it's in the deep deep freeze of the outer solar system. We it's something we're still trying to figure out what's going on with that's renewing that surface on on rather short timescales. Another thing, Hubble took another deep field image. So if you don't know what the deep fields are, we we turned Hubble to look at some of the darkest parts in the skies. Like I think the first deep field was in the was in the Big Dipper, which is one of the darker parts of the skies, and let it just sit there and sort of collect light for a long period of time. And what we see are thousands of galaxies.
 
 [00:07:53] Will: If you haven't seen these pictures, they're absolutely astounding. Yeah. If you if you want to feel the smallest you're ever going to feel in your life, imagine the darkest spot in the sky, and then you look at the picture of what's there, and it's it's just You know, it's it's breathtaking.
 
@@ -110,9 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=SqndNdkYKtg
 
 [00:09:39] Will: which means not too hot and not too cold.
 
-[00:09:40] Dave Miller: Yeah,
-
-[00:09:40] Dave Miller: not too hot to boil off the water, and it's not too cold to freeze it. It's just right, liquid water on the surface, and so when you take that 1% and you see how many we found, and you extrapolate that around the sky, we estimate there's 11 billion Earth-like planets in the habitable zones in our galaxy alone. So anyone know the Frank Drake equation? So you know it's when I first learned about it, it's it's the product of a bunch of numbers that leads you down to how many intelligent Civilizations could communicate with us, and it seemed like, well, who knows any of these parameters? You know, it's an interesting equation. But, but we've been marching along and starting to answer that. And one of the key ones that we're answering now is how many, you know, Earth-like planets—not only planets around other stars, which we think is on average is at least one—but how many Earth-like planets in a habitable zone are around each each Sun-like star. And so we're really starting to knock that down. And and and the the news is good. You know, we're still in the billions of billions of possibilities to look for intelligence.
+[00:09:40] Dave Miller: Yeah, not too hot to boil off the water, and it's not too cold to freeze it. It's just right, liquid water on the surface, and so when you take that 1% and you see how many we found, and you extrapolate that around the sky, we estimate there's 11 billion Earth-like planets in the habitable zones in our galaxy alone. So anyone know the Frank Drake equation? So you know it's when I first learned about it, it's it's the product of a bunch of numbers that leads you down to how many intelligent Civilizations could communicate with us, and it seemed like, well, who knows any of these parameters? You know, it's an interesting equation. But, but we've been marching along and starting to answer that. And one of the key ones that we're answering now is how many, you know, Earth-like planets—not only planets around other stars, which we think is on average is at least one—but how many Earth-like planets in a habitable zone are around each each Sun-like star. And so we're really starting to knock that down. And and and the the news is good. You know, we're still in the billions of billions of possibilities to look for intelligence.
 
 [00:10:42] Will: And the amazing thing about the way Kepler works is unlike the earlier methods, we found the first exoplanets with like gravitational wobble by, you know, seeing Jupiter-sized masses moving around.
 
@@ -122,9 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=SqndNdkYKtg
 
 [00:10:53] Dave Miller: Oh, you're not going to make me lose it.
 
-[00:10:55] Will: No, no, no, it’s okay.
-
-[00:10:56] Will: Go to Wikipedia, guys, if you want to find it.
+[00:10:55] Will: No, no, no, it’s okay. Go to Wikipedia, guys, if you want to find it.
 
 [00:10:58] Dave Miller: One of them is go take a Polaroid snapshot and bring it home. But okay, but there are there are a bunch of ways.
 
@@ -332,11 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=SqndNdkYKtg
 
 [00:22:35] Dave Miller: That's a good one for the chief scientist. Okay, yes, something like that. So we can measure those kind of particles, but we those kind of molecules, but we we don't have the and I don't know what they are.
 
-[00:22:44] Will: It wasn't designed
-
-[00:22:45] Will: to measure life.
-
-[00:22:46] Will: Cassini 12 years ago when we launched it wasn't designed, or 20 years ago when we launched it wasn't designed to. fly through the geyser.
+[00:22:44] Will: It wasn't designed to measure life. Cassini 12 years ago when we launched it wasn't designed, or 20 years ago when we launched it wasn't designed to. fly through the geyser.
 
 [00:22:51] Dave Miller: Yeah,
 
@@ -424,11 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=SqndNdkYKtg
 
 [00:30:26] Dave Miller: Thank you.
 
-[00:30:26] Will: The Google.
-
-[00:30:27] Will: The Google.
-
-[00:30:29] Will: That'll do it for us this week. We're on every Tuesday. If you enjoy this, we're on iTunes and all the other. Sorry, the internet podcasts.
+[00:30:26] Will: The Google. The Google. That'll do it for us this week. We're on every Tuesday. If you enjoy this, we're on iTunes and all the other. Sorry, the internet podcasts.
 
 [00:30:36] Adam: Exactly.
 

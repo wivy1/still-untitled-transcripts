@@ -14,9 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:00:04] Steph: I'm Steph.
 
-[00:00:06] Adam: Hey, Steph.
-
-[00:00:06] Adam: Welcome,
+[00:00:06] Adam: Hey, Steph. Welcome,
 
 [00:00:06] Steph: Hey, thanks.
 
@@ -118,9 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:02:28] Will: Wow.
 
-[00:02:28] Adam: It was a slog. It was really intense. I could not be happier. It's a very different book than I thought I was going to write. Even in the middle, I thought its structure would be.
-
-[00:02:28] Adam: Different.
+[00:02:28] Adam: It was a slog. It was really intense. I could not be happier. It's a very different book than I thought I was going to write. Even in the middle, I thought its structure would be. Different.
 
 [00:02:58] Will: I thought the recipe section in the middle was really well thought out and a pleasant surprise.
 
@@ -142,9 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:03:10] Adam: And they said, " Wow." Full disclosure: we're just not used to people of your stature being so cooperative.
 
-[00:03:37] Steph: You’re
-
-[00:03:37] Steph: making a good name for yourself. This is good for a branding purpose.
+[00:03:37] Steph: You’re making a good name for yourself. This is good for a branding purpose.
 
 [00:03:40] Adam: Look, as I said at the as I said at a what was it the reason rally? I want my tombstone to say he was nice to work with.
 
@@ -158,9 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:04:04] Will: Look, people are people are coming out to hear you talk about yourself. What more could you want?
 
-[00:04:10] Norm: They
-
-[00:04:10] Norm: asked at the right time. Yeah. That's the big takeaway.
+[00:04:10] Norm: They asked at the right time. Yeah. That's the big takeaway.
 
 [00:04:12] Steph: Well, I mean, the amazing thing about writing this book probably is that now you're going to get to hear people reflect your story back to you through their own eyes, which is probably really powerful and different than any of the other mediums that you choose to use, right?
 
@@ -168,9 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:05:30] Will: Um, there's a there's a line from that the trailer for Rocketman, the Elton John biop biopic. Is that what we say here? Yeah. Yeah. Um,
 
-[00:05:38] Norm: we’re
-
-[00:05:38] Norm: not biopic people.
+[00:05:38] Norm: we’re not biopic people.
 
 [00:05:40] Will: Where, where, where one of the one of the old like session musicians tells him, " Look, you got to kill the guy you were born to become the person you you want to be."
 
@@ -184,9 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:06:30] Will: Are you going to do different readings in each each town, or what? Do you do you have a strategy for this?
 
-[00:06:34] Adam: I, I
-
-[00:06:34] Adam:  haven't come up with one yet.
+[00:06:34] Adam: I, I haven't come up with one yet.
 
 [00:06:34] Will: Okay.
 
@@ -354,9 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:14:23] Steph: Everyone was wearing goggles. Yeah.
 
-[00:14:24] Will: Okay.
-
-[00:14:25] Will: That's really cool.
+[00:14:24] Will: Okay. That's really cool.
 
 [00:14:26] Adam: So Santa Fe was last year, and Chattanooga came to Santa Fe, and they they were really clear, like you got to come to Chattanooga.
 
@@ -470,9 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:25:13] Steph: route, right?
 
-[00:25:17] Adam: And I I really appreciate that.
-
-[00:26:28] Adam: Nick had another way when we started our interview. We were just shooting the breeze and kind of warming up, and he said, " What have you made lately?" And I said, " Oh, actually, this last weekend, I..." Came into my shop. There's this big under the sink cabinet in the island in my kitchen, and it was with these terrible sort of container store upright metal racks.
+[00:25:17] Adam: And I I really appreciate that. Nick had another way when we started our interview. We were just shooting the breeze and kind of warming up, and he said, " What have you made lately?" And I said, " Oh, actually, this last weekend, I..." Came into my shop. There's this big under the sink cabinet in the island in my kitchen, and it was with these terrible sort of container store upright metal racks.
 
 [00:26:49] Will: Oh, the wobbly ones.
 
@@ -554,9 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:31:17] Adam: Andrew showed me one of the couches he slept on when he pulled it all night.
 
-[00:31:21] Steph: Yeah, Andrew Coy was the was my colleague who, when I finished up, he carried on the work really amazingly around supporting the maker movement. He was the the other senior advisor for making, but yeah. So, I mean, it it it. One of the things that I am really happy about is that work continues. It, you know, whenever you know that at the end of, you know, in this case it was eight years that the work that you have been doing should carry on in some format. And so there was a lot of really intentional thinking put into, you know, before the end of the administration how to how to carry on some of this work. And you know, and and a lot of the the things that we're doing through Nation of Makers is is
-
-[00:32:07] Steph: to—
+[00:31:21] Steph: Yeah, Andrew Coy was the was my colleague who, when I finished up, he carried on the work really amazingly around supporting the maker movement. He was the the other senior advisor for making, but yeah. So, I mean, it it it. One of the things that I am really happy about is that work continues. It, you know, whenever you know that at the end of, you know, in this case it was eight years that the work that you have been doing should carry on in some format. And so there was a lot of really intentional thinking put into, you know, before the end of the administration how to how to carry on some of this work. And you know, and and a lot of the the things that we're doing through Nation of Makers is is to—
 
 [00:32:07] Adam: Absolutely.
 
@@ -566,9 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:32:25] Steph: Yeah. Oh, I mean, everybody should come to NomCon.
 
-[00:32:28] Adam: Everyone should come to NomCon in Chattanooga.
-
-[00:32:28] Adam: It's open. People can come. Yeah, absolutely. Okay. Oh, yeah. This is a conference where yeah, it's going to be. Last year was really great. It it felt like after having worked on on on Nation of Makers for a while, it felt great again. Like you said, to bring a group of people who already knew what we were doing and were aligned with the mission and talk about ways in which we could make that mission better.
+[00:32:28] Adam: Everyone should come to NomCon in Chattanooga. It's open. People can come. Yeah, absolutely. Okay. Oh, yeah. This is a conference where yeah, it's going to be. Last year was really great. It it felt like after having worked on on on Nation of Makers for a while, it felt great again. Like you said, to bring a group of people who already knew what we were doing and were aligned with the mission and talk about ways in which we could make that mission better.
 
 [00:32:50] Will: So, computer programmers, roboticists, 3D printers, laser cutters, sewers,
 
@@ -686,9 +666,7 @@ Episode URL: https://www.youtube.com/watch?v=nTYnuJon9Jc
 
 [00:38:51] Steph: Yeah, thank you for having me, guys. It's great, great to be here.
 
-[00:38:54] Will: Good.
-
-[00:38:54] Will: Nice job on your first podcast.
+[00:38:54] Will: Good. Nice job on your first podcast.
 
 [00:38:56] Unknown speaker (Steph or Adam): Thanks.
 

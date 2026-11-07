@@ -30,9 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:00:31] Norm: No visas required.
 
-[00:00:31] Adam: Right.
-
-[00:00:31] Adam: Yeah.
+[00:00:31] Adam: Right. Yeah.
 
 [00:00:31] Norm: Wow. You were in Baltimore previously.
 
@@ -156,9 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:08:13] Adam: There's no housing.
 
-[00:08:13] Norm: Yeah,
-
-[00:08:20] Norm: yeah, right, right, right.
+[00:08:13] Norm: Yeah, yeah, right, right, right.
 
 [00:08:21] Adam: But they built a set with this unbelievable view.
 
@@ -244,9 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:11:06] Norm: gets deployed because in San Francisco, where it plays, is in basically the the. We don't have a fairgrounds in in the city proper, so it's the parking lot of our local baseball stadium.
 
-[00:11:20] Adam: Oh yeah, yeah. That's where that's where they
-
-[00:11:22] Adam: always play.
+[00:11:20] Adam: Oh yeah, yeah. That's where that's where they always play.
 
 [00:11:22] Norm: Yes, so you know it's it's relatively large space, but typically when they travel around North America, it would be like San Mateo Fairgrounds or some like big open fairgrounds area. But there are no facilities. They bring their stage.
 
@@ -330,9 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:16:49] Adam: So, speaking of this, I would like to. So, Jen is working on this new production in a specific capacity, and part of our cohort is Jon Marcu, who's one of the lead builders on MythBusters Junior. Jon Marcu has worked on all of the American Beastmaster and American Ninja Warrior.
 
-[00:16:49] Jen: Oh really?
-
-[00:17:09] Jen: I didn't know that about him.
+[00:16:49] Jen: Oh really? I didn't know that about him.
 
 [00:17:10] Adam: And I, I, I want to bring him on the podcast because he was telling me some amazing stories about how those sets are constructed, about how that's built, how they're tested, how they're executed, how they're filmed. It's a really, really fascinating world to look into because, again, American Ninja Warrior is very franchised, and they can build that thing in many different places, and it has all these there's all these different configurations they can achieve. Totally fascinating. Again, the logistics of that scale of construction and execution and performance just it blows my mind. I'm really thrilled by it.
 
@@ -506,9 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:26:17] Adam: Tom Wolfe,
 
-[00:26:17] Jen: yeah. Who uh, he's he's writing about what like what is the right stuff? What uh, what does it take to be an astronaut? Like, what do you have? What type of personality? Um, and so it starts off talking about because a lot of them were fighter pilots, so it starts off talking about um the this really intense uh rigorous training that you have to go through as a fighter pilot and just how dangerous it is. And so he's talking about how they start off with a crew of like 20 people, this particular regiment, and just in training, they're not even in combat. Just in training, it is so dangerous. Like, if you make one little mistake, one little thing happens, and the crew whittles down to about eight people, and they keep going to funerals over and over again.
-
-[00:26:57] Jen: And it's just like it's you're immediately invested, and it's like thrilling. And I haven't even gotten to the part about the astronauts yet, but I highly, I highly recommend it.
+[00:26:17] Jen: yeah. Who uh, he's he's writing about what like what is the right stuff? What uh, what does it take to be an astronaut? Like, what do you have? What type of personality? Um, and so it starts off talking about because a lot of them were fighter pilots, so it starts off talking about um the this really intense uh rigorous training that you have to go through as a fighter pilot and just how dangerous it is. And so he's talking about how they start off with a crew of like 20 people, this particular regiment, and just in training, they're not even in combat. Just in training, it is so dangerous. Like, if you make one little mistake, one little thing happens, and the crew whittles down to about eight people, and they keep going to funerals over and over again. And it's just like it's you're immediately invested, and it's like thrilling. And I haven't even gotten to the part about the astronauts yet, but I highly, I highly recommend it.
 
 [00:26:57] Adam: Wow.
 
@@ -556,9 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:29:05] Norm: that'd be seven hours.
 
-[00:29:06] Adam: Yeah,
-
-[00:29:06] Adam: it would be, but you'd be getting this incredible scope of the American space program.
+[00:29:06] Adam: Yeah, it would be, but you'd be getting this incredible scope of the American space program.
 
 [00:29:10] Norm: Yeah,
 
@@ -600,9 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:30:17] Norm: I'm glad there's the costuming getting some recognition, at least, even though not on the Oscars. Yeah,
 
-[00:30:23] Jen: yeah,
-
-[00:30:23] Jen: I haven't seen First Man. I for the same reasons you're talking about, I really enjoyed Interstellar because it's a it's a movie about the human condition, and just happens to have this backdrop of of space travel. But it's it it's not it's a space movie, but it's not just a movie about space.
+[00:30:23] Jen: yeah, I haven't seen First Man. I for the same reasons you're talking about, I really enjoyed Interstellar because it's a it's a movie about the human condition, and just happens to have this backdrop of of space travel. But it's it it's not it's a space movie, but it's not just a movie about space.
 
 [00:30:38] Adam: Yeah, I agree. I I it's actually I I have huge issues with Interstellar.
 
@@ -610,11 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:30:44] Adam: Yeah, in execution, but it's the central plot idea, which is that love could somehow have a quantum dimension. I love that idea. That that's that's thrilling to me. I have no problem buying that.
 
-[00:30:57] Norm: That's science fiction, right?
-
-[00:30:57] Norm: Yeah,
-
-[00:30:57] Norm: that's like that's it's good storytelling.
+[00:30:57] Norm: That's science fiction, right? Yeah, that's like that's it's good storytelling.
 
 [00:31:00] Adam: Oh, do you know? Sorry. So there's this huge Chinese science fiction movie that's coming out, The Wandering Earth.
 
@@ -706,11 +688,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:33:24] Norm: Real time.
 
-[00:33:25] Adam: Right.
-
-[00:33:25] Adam: Yeah.
-
-[00:33:25] Adam: Exactly. Um. Yeah. He's a he's a almost a comic villain.
+[00:33:25] Adam: Right. Yeah. Exactly. Um. Yeah. He's a he's a almost a comic villain.
 
 [00:33:30] Norm: Yeah.
 
@@ -786,9 +764,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:35:50] Adam: Oh, yes.
 
-[00:35:50] Norm: old films about cities you live in
-
-[00:35:50] Norm: and because. Next time I go, I will watch those films before visiting the city.
+[00:35:50] Norm: old films about cities you live in and because. Next time I go, I will watch those films before visiting the city.
 
 [00:36:04] Adam: When you go to Cleveland,
 
@@ -804,9 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=oMrkL1K37N4
 
 [00:36:10] Adam: Yeah,
 
-[00:36:10] Norm: yeah.
-
-[00:36:12] Norm: All right, thanks a lot. I'll see everyone. We'll see you next time.
+[00:36:10] Norm: yeah. All right, thanks a lot. I'll see everyone. We'll see you next time.
 
 [00:36:14] Jen: Bye, guys.
 

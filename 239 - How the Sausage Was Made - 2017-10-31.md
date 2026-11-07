@@ -10,11 +10,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:00:09] Kishore: I'm Kishore.
 
-[00:00:09] Adam: Hey, Kishore.
-
-[00:00:12] Adam: Kishore,
-
-[00:00:12] Adam: I'm impressed that you have time to be here today, given that you are one of the busiest humans I know, and I can't believe what you organize while during this month.
+[00:00:09] Adam: Hey, Kishore. Kishore, I'm impressed that you have time to be here today, given that you are one of the busiest humans I know, and I can't believe what you organize while during this month.
 
 [00:00:22] Kishore: Do you want to know what my secret is? I actually don't have time to be here, but I'm here anyways.
 
@@ -102,9 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:05:18] Kishore: I was wondering if there's a wrestling connection.
 
-[00:05:19] Adam: Totally the same Albano family. Yeah, Lou Albano was famously Andre the Giant's manager, and shows up in a lot of Cyndi Lauper's early '80s videos. Anyway, Lou Albano's brother Vinny was my first inspirational art teacher, and Vinny was like, " Today we're going to have a contest. We're going to have a drawing contest. Everyone's going to draw something." And I was like, " I have no idea what to draw. All right, I'm just not even going to care about this contest. I'm just going to draw that wall." And I literally drew the wall, but I drew everything on the wall—the art and the coats and the coat hangers—and I won. Now, this is not to say that like that it doesn't matter that I won. What was interesting to me was that I did something that was just completely present. I wasn't thinking about a contest and something. Honest came out of that, and the same thing happened with the with the with the chair talk. Was that the audience got really quiet, and I was thinking I expected maybe some more laughs for this. Seriously, and then I realize it's because they're all there, like, wow, he goes
-
-[00:06:20] Adam: deep, man. That is. Even Simone came up afterwards and said, " I really, even knowing you, I didn't know that level of."
+[00:05:19] Adam: Totally the same Albano family. Yeah, Lou Albano was famously Andre the Giant's manager, and shows up in a lot of Cyndi Lauper's early '80s videos. Anyway, Lou Albano's brother Vinny was my first inspirational art teacher, and Vinny was like, " Today we're going to have a contest. We're going to have a drawing contest. Everyone's going to draw something." And I was like, " I have no idea what to draw. All right, I'm just not even going to care about this contest. I'm just going to draw that wall." And I literally drew the wall, but I drew everything on the wall—the art and the coats and the coat hangers—and I won. Now, this is not to say that like that it doesn't matter that I won. What was interesting to me was that I did something that was just completely present. I wasn't thinking about a contest and something. Honest came out of that, and the same thing happened with the with the with the chair talk. Was that the audience got really quiet, and I was thinking I expected maybe some more laughs for this. Seriously, and then I realize it's because they're all there, like, wow, he goes deep, man. That is. Even Simone came up afterwards and said, " I really, even knowing you, I didn't know that level of."
 
 [00:06:29] Norm: The talk always, as it happened, people were whispering. I think Physics Girl Danielle and we were all looking at each other, like nodding. This is this is happening. Yes, yes.
 
@@ -172,9 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:09:20] Kishore: I guess we have to find another reason to build a meat cannon
 
-[00:09:23] Norm: or launch anything.
-
-[00:09:23] Norm: With some pressure there.
+[00:09:23] Norm: or launch anything. With some pressure there.
 
 [00:09:24] Adam: It's not the first meat cannon that I have made.
 
@@ -220,9 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:11:59] Kishore: We cut a steel door the other day with one, but I didn't think it would get through that. Anyways,
 
-[00:12:04] Norm: enough about thermic lances.
-
-[00:12:04] Norm: Well, speaking of thermic lances, one of our other presenters had worked on the thermic lance, right? Is Alan worked on?
+[00:12:04] Norm: enough about thermic lances. Well, speaking of thermic lances, one of our other presenters had worked on the thermic lance, right? Is Alan worked on?
 
 [00:12:12] Kishore: Oh, Alan built one, and we we built a separate one. So Alan Pan, who was on Mythbusters: The Search, and he's sufficiently advanced and just an incredible inventor, and he's slightly obsessed with Thor right now,
 
@@ -284,9 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:15:27] Norm: Yeah,
 
-[00:15:27] Kishore: it was incredible. It was incredible experience, and it was only one sliver of my my science festival experience.
-
-[00:15:32] Kishore: so far
+[00:15:27] Kishore: it was incredible. It was incredible experience, and it was only one sliver of my my science festival experience. so far
 
 [00:15:32] Adam: I was thinking, when we’re there, I’m like, He seems pretty chill, but I'll bet you have like two or three other events happening simultaneously.
 
@@ -324,9 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:17:55] Kishore: even for this podcast.
 
-[00:17:55] Adam: Yes,
-
-[00:17:55] Adam: seriously,
+[00:17:55] Adam: Yes, seriously,
 
 [00:17:55] Kishore: because I listen to this podcast. There's been some strange stories told here.
 
@@ -454,9 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:24:36] Adam: Are you going out?
 
-[00:24:36] Kishore: Well, I have a six year old, so we're going trick or treating. I usually get forced into costumes that fit the theme that he's most interested in. So last year he went as a football player, so I went as a goalpost,
-
-[00:24:48] Kishore: and that was not fun to like stand like this for like blocks and blocks of blocks. But tonight he's going as a stormtrooper, much more in my wheelhouse. I'm going as.
+[00:24:36] Kishore: Well, I have a six year old, so we're going trick or treating. I usually get forced into costumes that fit the theme that he's most interested in. So last year he went as a football player, so I went as a goalpost, and that was not fun to like stand like this for like blocks and blocks of blocks. But tonight he's going as a stormtrooper, much more in my wheelhouse. I'm going as.
 
 [00:25:00] Adam: Do you want to borrow Jedi robe? I got one. That's a nice easy.
 
@@ -550,9 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:28:07] Kishore: Parents hit a little close to home for somebody like me.
 
-[00:28:10] Norm: You could watch that with your parents, with and that would be your communication for the month, right? Like, yeah. But
-
-[00:28:17] Norm: yeah,
+[00:28:10] Norm: You could watch that with your parents, with and that would be your communication for the month, right? Like, yeah. But yeah,
 
 [00:28:17] Adam: A little close to home,
 
@@ -638,9 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=JokMOh_zIcs
 
 [00:32:32] Adam: Yeah, I love it over there. I love it.
 
-[00:32:33] Norm: And if you haven't watched the video with Adam and Michael Stevens, just talking about their watches, you should watch it because
-
-[00:32:38] Norm: It’s really funny.
+[00:32:33] Norm: And if you haven't watched the video with Adam and Michael Stevens, just talking about their watches, you should watch it because It’s really funny.
 
 [00:32:41] Adam: we're going to do another one of those. We're clearly, clearly that that one has really resonated. So we're going to definitely do one more.
 

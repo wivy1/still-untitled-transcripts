@@ -94,9 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:03:54] Norm: Yes, from from India, I think West India. It was a a tiger mauling a man, but itself is. A sound box that supposedly plays the screech of a man dying.
 
-[00:03:54] Danica: Yeah. Exactly.
-
-[00:04:09] Danica: And the expression on the tiger's face, and the expression on the man's face, and the way they have it displayed is so beautiful. There was a mirror, so even though you're seeing the side view, you're seeing the man's tilted expression of anguish, which was awesome.
+[00:03:54] Danica: Yeah. Exactly. And the expression on the tiger's face, and the expression on the man's face, and the way they have it displayed is so beautiful. There was a mirror, so even though you're seeing the side view, you're seeing the man's tilted expression of anguish, which was awesome.
 
 [00:04:21] Adam: And it's weirdly mannerist, like it's not super realistic, so it also feels like you're looking at a carving of Rousseau painting.
 
@@ -136,9 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:07:41] Adam: Oh my gosh.
 
-[00:07:41] Norm: And.
-
-[00:07:41] Norm: Some miniatures, some costumes, but if you're looking for a more comprehensive film museum type experience between now and September, I have to give a shout out at the Barbican Center. They have an exhibit called Into the Unknown, which is just about the science fiction, and it has so many great things from science fiction film and and media books, TV. Mm-hmm. yeah.
+[00:07:41] Norm: And. Some miniatures, some costumes, but if you're looking for a more comprehensive film museum type experience between now and September, I have to give a shout out at the Barbican Center. They have an exhibit called Into the Unknown, which is just about the science fiction, and it has so many great things from science fiction film and and media books, TV. Mm-hmm. yeah.
 
 [00:08:06] Adam: Here’s a question. You're such a wonderful photographer. I'm curious if you have a different hat on on your honeymoon about documenting your trip than you do at Comic Con, and I'm further wondering if you would if you were thinking about posting a gallery on Tested so that people can see Norm's personal honeymoon photos.
 
@@ -146,9 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:08:34] Adam: That should listen. I think that's. I totally think we should post that.
 
-[00:08:38] Danica: I tweeted out just a small selection. It is a giant collection. It was amazing.
-
-[00:08:43] Danica: It was the look in his eyes, and every time we walked into a new section to see what was there, it was pure joy. Oh,
+[00:08:38] Danica: I tweeted out just a small selection. It is a giant collection. It was amazing. It was the look in his eyes, and every time we walked into a new section to see what was there, it was pure joy. Oh,
 
 [00:08:51] Norm: well, I think to answer your question, that was at the Barbican Center for this special exhibit, which I knew having read about it online. I would want to bring a DSLR. For the first half of the trip, I didn't bring the DSLR around and walking around because it's a little heavy. It's five pounds, and we want to do a lot of walking. And I just had the iPhone, and I wasn't happy with those photos. Yeah,
 
@@ -362,9 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:22:46] Norm: And Gal Gadot has done that role.
 
-[00:22:47] Danica: We had this conversation right after the film. I'm so happy that it was a woman director. Not that all men would handle the same way. Yeah. I mean, if you give it to Michael Bay, he's gonna do it a certain way. If
-
-[00:22:58] Danica: you're gonna give Zack Snyder doing it,
+[00:22:47] Danica: We had this conversation right after the film. I'm so happy that it was a woman director. Not that all men would handle the same way. Yeah. I mean, if you give it to Michael Bay, he's gonna do it a certain way. If you're gonna give Zack Snyder doing it,
 
 [00:22:59] Adam: Wonder Woman looks just like Megan Fox.
 
@@ -382,9 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:24:10] Norm: well, let's let's let's we got to end our story.
 
-[00:24:10] Adam: Yeah,
-
-[00:24:13] Adam: let's okay.
+[00:24:10] Adam: Yeah, let's okay.
 
 [00:24:13] Norm: I mean, at this point, we're we're going to talk.
 
@@ -452,11 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:26:06] Adam: I know.
 
-[00:26:07] Danica: Yeah.
-
-[00:26:08] Danica: To see to be at this end of her career and to see her ascend like this into such a role was just
-
-[00:26:08] Danica: Satisfying.
+[00:26:07] Danica: Yeah. To see to be at this end of her career and to see her ascend like this into such a role was just Satisfying.
 
 [00:26:14] Norm: the shot where she jumps and then slow motion turns around the three arrows, and it's like the it's right out of a comic book shot, like
 
@@ -512,13 +498,9 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:27:56] Adam: right? What she brings them and sets out that shock wave, right? And she starts to realize her true power, and then feeling complicated feelings about her true power, she goes off to think by herself, and at that moment the plane crashes and like World War One reaches Themyscira. I was like, really? You are going to go? It's just going to happen by happenstance, right? That's the one plot point that bothered.
 
-[00:28:22] Norm: Which in my head,
+[00:28:22] Norm: Which in my head, as I rewrite it, I think of as she is her power is awakening, and I love that, like the scene where she jumps and retrieves the armor, like that discovery of power when she's breaking, yes, slamming her hands into the side of the wall and feeling the delight, the joy on her face, right? Like I feel like as she her power awakened, it's like it was a mythological thing where then. Then that was Ares bringing the war.
 
-[00:28:23] Norm: as I rewrite it, I think of as she is her power is awakening, and I love that, like the scene where she jumps and retrieves the armor, like that discovery of power when she's breaking, yes, slamming her hands into the side of the wall and feeling the delight, the joy on her face, right? Like I feel like as she her power awakened, it's like it was a mythological thing where then. Then that was Ares bringing the war.
-
-[00:28:47] Adam: You're right. You're right. You're right. I just I just realized that they actually telegraphed throughout the film that the more Diana realizes her power, the easier she will be for Ares to find. That didn't occur to me, but of course that makes sense. That's the moment at which the
-
-[00:28:59] Adam: world will enter enter their world. The worlds will crash together.
+[00:28:47] Adam: You're right. You're right. You're right. I just I just realized that they actually telegraphed throughout the film that the more Diana realizes her power, the easier she will be for Ares to find. That didn't occur to me, but of course that makes sense. That's the moment at which the world will enter enter their world. The worlds will crash together.
 
 [00:29:03] Danica: I didn't have the same problem you did with her being alone and that because there had to be some pretext for her to be separated from all the other Amazons because she had to discover him alone and there had to be that conflict.
 
@@ -642,9 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:34:34] Adam: And and she's a really complicated character. Like you find, you you like her. Brill. You get that she's really brilliant. You understand that she is a woman alone in this man's world, and she's really messed up and evil and yet complex. And there's something about that damage that sets up something other than. She's scary. She's genuinely scary.
 
-[00:34:34] Danica: Yeah.
-
-[00:34:58] Danica: Because she enjoys.
+[00:34:34] Danica: Yeah. Because she enjoys.
 
 [00:34:59] Adam: Yeah. Yeah.
 
@@ -674,15 +654,11 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:35:36] Adam: Got their big breakthrough, you know, but they make everything that they're in better, and they make everyone they're acting opposite better.
 
-[00:36:05] Norm: So he's Ares, and he reveals himself after Diana kills Danny Huston's character, who
-
-[00:36:11] Norm: she thinks the general is Ares, and you know it's your classic: the meek man is actually the the big
+[00:36:05] Norm: So he's Ares, and he reveals himself after Diana kills Danny Huston's character, who she thinks the general is Ares, and you know it's your classic: the meek man is actually the the big
 
 [00:36:18] Danica: misdirection.
 
-[00:36:18] Norm: God,
-
-[00:36:19] Norm: yeah, yeah. I think it's. I don't think he was miscast in that role. I think they could have played with that being a facade and have another. And I think it would be okay to have a little bit of stunt casting because the thing that took me out of it was the flashback scenes where he talks about being thrown off of Olympus, and he's like. Naked and and buff, but it's still him with a ridiculous
+[00:36:18] Norm: God, yeah, yeah. I think it's. I don't think he was miscast in that role. I think they could have played with that being a facade and have another. And I think it would be okay to have a little bit of stunt casting because the thing that took me out of it was the flashback scenes where he talks about being thrown off of Olympus, and he's like. Naked and and buff, but it's still him with a ridiculous
 
 [00:36:40] Danica: mustache.
 
@@ -706,9 +682,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:38:07] Norm: And that was a
 
-[00:38:07] Adam: lovely bit.
-
-[00:38:08] Adam: Yeah.
+[00:38:07] Adam: lovely bit. Yeah.
 
 [00:38:08] Norm: They're circling each other, and there was in my head there was a perfect opportunity as they're circling each other for them to fade him away.
 
@@ -744,9 +718,7 @@ Episode URL: https://www.youtube.com/watch?v=CAZ5rQstxp4
 
 [00:38:49] Danica: It's only surprised for so long when
 
-[00:38:51] Norm: [unclear: you watch this scene / Tom Hardy?]
-
-[00:38:52] Norm: but yeah, like let him be like his true form.
+[00:38:51] Norm: [unclear: you watch this scene / Tom Hardy?] but yeah, like let him be like his true form.
 
 [00:38:54] Adam: And actually, yeah, that would be cool because Viggo, one of Viggo's early films, is in a film called Prophecy, where Christopher Walken plays the archangel Gabriel. Do you know this film?
 

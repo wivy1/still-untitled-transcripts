@@ -4,9 +4,7 @@
 **Duration:** 40m 1s  
 Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
-[00:00:25] Will: Welcome to Still Untitled the Adam Savage Project.
-
-[00:00:25] Will: I’m Will.
+[00:00:25] Will: Welcome to Still Untitled the Adam Savage Project. I’m Will.
 
 [00:00:29] Adam: I'm Adam.
 
@@ -48,11 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:03:04] Adam: And in addition, you're crowdsourcing. This discovery process—that's one of the things I find most exciting about this—is you're giving civilians a chance to to join in the journey.
 
-[00:03:15] Sarah: So yeah, so there are only a couple hundred of us space archaeologists around the world. Maybe maybe there's a couple thousand, but you know, you look look at where we've lived over the last you know several hundred thousand years.
-
-[00:03:26] Sarah: There are millions of people.
-
-[00:03:15] Sarah: There are millions and millions of archaeological sites out there to discover. And so, a couple years ago, I started an organization called GlobalXplorer, and it's an online citizen science crowdsourcing platform, and it allows anyone in the world to help look at satellite imagery and find sites. And we've had I think about 84,000, 85,000 people from over 100 countries, and they found almost 30,000 potential archaeological features in Peru alone.
+[00:03:15] Sarah: So yeah, so there are only a couple hundred of us space archaeologists around the world. Maybe maybe there's a couple thousand, but you know, you look look at where we've lived over the last you know several hundred thousand years. There are millions of people. There are millions and millions of archaeological sites out there to discover. And so, a couple years ago, I started an organization called GlobalXplorer, and it's an online citizen science crowdsourcing platform, and it allows anyone in the world to help look at satellite imagery and find sites. And we've had I think about 84,000, 85,000 people from over 100 countries, and they found almost 30,000 potential archaeological features in Peru alone.
 
 [00:03:53] Adam: And I mean, one of the things you were showing me last time I visited the lab in Alabama was that you could easily see from the satellite imagery a site that had already been discovered and looted. And that was the thing is like if there if there are details tell me if I'm wrong about this but if there are details that are visible from the ground someone has dug in to try and find stuff and what you're finding is all these really pristine potential sites that are pristine that no one has discovered yet
 
@@ -62,17 +56,13 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:04:44] Sarah: Right.
 
-[00:04:45] Norm: Can
-
-[00:04:45] Norm: we get a little bit of like a history lesson? Like before this satellite imagery was available, how did traditionally archaeologists choose what sites to explore [unclear: and and and and / and, and, and / And where are those sites?] where are those places located relative to where you're finding places now?
+[00:04:45] Norm: Can we get a little bit of like a history lesson? Like before this satellite imagery was available, how did traditionally archaeologists choose what sites to explore [unclear: and and and and / and, and, and / And where are those sites?] where are those places located relative to where you're finding places now?
 
 [00:04:59] Sarah: So so either archaeologists you know for the last couple hundred years they've you know they've been using things like the Bible or other written texts. You think about Heinrich Schliemann and how he found Troy, or you know they know local people tell them where sites are. But sometimes sites are found completely randomly. In Alexandria, Egypt, a donkey fell into a shaft, and this whole Greco-Roman period cemetery was discovered.
 
 [00:05:28] Adam: Wow!
 
-[00:05:28] Sarah: So yeah, a lot of things are still found completely by by chance. But
-
-[00:06:00] Sarah: what the satellites allow us to do is really pinpoint exactly where to go. And it's not it's not even a new technology per se. One of the first instances of an archaeologist using remotely sensed data was at Stonehenge in 1906.
+[00:05:28] Sarah: So yeah, a lot of things are still found completely by by chance. But what the satellites allow us to do is really pinpoint exactly where to go. And it's not it's not even a new technology per se. One of the first instances of an archaeologist using remotely sensed data was at Stonehenge in 1906.
 
 [00:05:49] Adam: Oh wow!
 
@@ -92,15 +82,11 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:07:55] Sarah: And and what's amazing too is it's beginning to be used by other fields aside from archaeology. You know, you look at the the search for dinosaur bones, and of course that's primarily geology. And if you can find specific chemical signatures in the satellite imagery of strata where there could be dinosaur bones, then that could help paleontologists. Pinpoint where to go and search because oftentimes, as as we know, those those things are found randomly as well.
 
-[00:08:23] Will: Are
-
-[00:08:23] Will: there like satellite based spectrographs, or are you just looking?
+[00:08:23] Will: Are there like satellite based spectrographs, or are you just looking?
 
 [00:08:26] Sarah: [unclear: so so? / So so / so?] There are hundreds of different satellites, of course, that are observing the Earth, and every satellite is taking a different kind of picture. So some satellites are purely visual, which is which is great. Think of like a Google Earth image; it's a visual color image. You can zoom in and zoom out, but a lot of satellites take pictures in different parts of the light spectrum, so the near, middle, far infrared, or thermal infrared, and there are even hyperspectral cameras that we can use. You attach them to to airplanes, and instead of getting say four, eight, 12, 15 bands within the light spectrum, you can get hundreds of bands. Oh wow! So geologists can use that data to say, right, you know, I want this particular. I'm looking for this particular kind of stone in the middle of nowhere because that could help me with prospecting for say oil, and you can get the exact Spectral signature of the type of geology
 
-[00:09:18] Will: or you can see
-
-[00:09:18] Will: that somebody brought stone from one place to another,
+[00:09:18] Will: or you can see that somebody brought stone from one place to another,
 
 [00:09:20] Unknown speaker: right?
 
@@ -114,9 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:10:19] Sarah: So this happened. This happened on my first excavation. So this was almost exactly 20 years ago at a site about two and a half hours northeast of Cairo, and I was working on a 4,200-year-old tomb, part of a cemetery, at a site called Mendes. And as I was excavating down, I started to come across this pot. And in archaeology, when you find a piece of something, your your instinct is to pull it out of the ground, but you have to override that because that could be connected to another thing. That could be connected to another thing. So all these pieces started seemed to line up, and it was a it was a beer jar from the Old Kingdom, so that that's that's over 4,000 years ago, kind of squished flat. So someone had left that there as an offering at the cemetery, and on the handle there was a thumbprint. And I had this moment where I just I looked down and I'm I'm totally dorking out because this is my first excavation and I didn't want to screw up but it's magical and amazing and I'm 20 years old 21 years old I can't believe I'm I'm here living my dream and I see this thumbprint and there was this moment of like I didn't know where I was almost like a a transcendent religious experience because I had this flash in my mind of the of the person who made the pot you know this I don't know a larger gentleman with a very thick thumbprint and I had a vision of him working in his potter's workshop at this village you know who did he make it for how much did they pay for it and it just it blew my mind that like you could have these moments still separated by this gulf of time
 
-[00:11:59] Adam: Right.
-
-[00:11:59] Adam: you can picture his shop you can picture there's a lovely bit in the videos for the Clickspring’s replication of the Antikythera mechanism. Where he said, he walks you down this path of how he builds this thing to replicate the one that's on the ship. But he says there are several other ways you could have done this that are easier than this. But this has a particular advantage, and he goes into the advantage. And he goes, all this is a long way of saying it's clear that this was built as part of a mature. It was a mature technology. This isn't the first one. It clearly came about because you could see that there's a history within this, and the maker's mark potentially being the thumbprint. The idea that you go down to the shop to purchase this beer mug. I mean, that's so thrilling.
+[00:11:59] Adam: Right. you can picture his shop you can picture there's a lovely bit in the videos for the Clickspring’s replication of the Antikythera mechanism. Where he said, he walks you down this path of how he builds this thing to replicate the one that's on the ship. But he says there are several other ways you could have done this that are easier than this. But this has a particular advantage, and he goes into the advantage. And he goes, all this is a long way of saying it's clear that this was built as part of a mature. It was a mature technology. This isn't the first one. It clearly came about because you could see that there's a history within this, and the maker's mark potentially being the thumbprint. The idea that you go down to the shop to purchase this beer mug. I mean, that's so thrilling.
 
 [00:12:42] Sarah: And and the this idea that you know every every every potter you know they had their own particular way of making something. Yeah, okay, you have 1,000 beer jars, but you know, you know, Joe made his with with a slightly thicker lip, which is great for when you're drinking. So I prefer to buy mine from him. And it just so often, you know, it's rare in antiquity that we get the names of. The people who, whose pieces and things were excavating. So, I think what it also taught me at a, at a very early age and an early part of my career was that ultimately, you know, archaeologists are empathy machines. You know, we're trying to connect people, not just us, but the people with whom we're communicating about our work, to people in the past, and kind of getting us to understand how little we've evolved and changed over time.
 
@@ -162,9 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:18:11] Will: wow! We've all seen the movie,
 
-[00:18:12] Norm: yes.
-
-[00:18:12] Norm: Will and I saw it at the same time.
+[00:18:12] Norm: yes. Will and I saw it at the same time.
 
 [00:18:13] Adam: Oh, do you mind if we talk a little bit about?
 
@@ -176,9 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:18:29] Sarah: Yeah, I've worked all over the world.
 
-[00:18:30] Will: So, I mean, I have to imagine that there's an amazing moment when you kind of first open up a tomb or or a dwelling or whatever that's been, like I said, unspoiled for 4, 3, 4 thousand years. What does that? What does that feel like? And and like what? Can you describe the sensations of just kind of going in there
-
-[00:18:30] Will: for the first time
+[00:18:30] Will: So, I mean, I have to imagine that there's an amazing moment when you kind of first open up a tomb or or a dwelling or whatever that's been, like I said, unspoiled for 4, 3, 4 thousand years. What does that? What does that feel like? And and like what? Can you describe the sensations of just kind of going in there for the first time
 
 [00:18:48] Adam: And like drinking the elixir?
 
@@ -186,19 +166,13 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:18:54] Adam: When you say the code [unclear: in / into] the book and it unlocks for you,
 
-[00:18:57] Will: the the biochemist always tests everything, tastes everything. 
-
-[00:18:57] Will: So I assume that the archaeologists are the same way.
+[00:18:57] Will: the the biochemist always tests everything, tastes everything.  So I assume that the archaeologists are the same way.
 
 [00:19:01] Sarah: Yeah, we we lick.
 
 [00:19:02] Will: You lick the rocks, right?
 
-[00:19:03] Sarah: And the bones. Yeah, yeah, we lick everything.
-
-[00:19:06] Sarah: Why do you?
-
-[00:19:06] Sarah: That's another conversation for another. Podcast clearly,
+[00:19:03] Sarah: And the bones. Yeah, yeah, we lick everything. Why do you? That's another conversation for another. Podcast clearly,
 
 [00:19:09] Will: okay.
 
@@ -248,11 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:22:57] Adam: said to the I said to the security guard, " So does this really drop down the shaft and get put in?"
 
-[00:23:03] Sarah: I worked I worked with Brendan Fraser on something about five or six years ago, and at one point he turned to me and he just I'm so sorry about the mummy. So sorry. I'm like, no,
-
-[00:23:13] Sarah: it was great.
-
-[00:23:14] Sarah: It's great. You made a librarian a heroine. Like, my field loves you.
+[00:23:03] Sarah: I worked I worked with Brendan Fraser on something about five or six years ago, and at one point he turned to me and he just I'm so sorry about the mummy. So sorry. I'm like, no, it was great. It's great. You made a librarian a heroine. Like, my field loves you.
 
 [00:23:18] Will: That's true. Yeah.
 
@@ -334,9 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:29:19] Will: Yes.
 
-[00:29:21] Adam: Like
-
-[00:29:21] Adam: really?
+[00:29:21] Adam: Like really?
 
 [00:29:21] Sarah: Yeah. It was looted. So everyone thinks it was intact.
 
@@ -352,9 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:29:55] Sarah: Oh, you know, they they were probably looted in part by the burial parties and then long since looted.
 
-[00:30:00] Adam: And am
-
-[00:30:00] Adam: I correct? It is a myth that Napoleon's men shot off the nose of the Sphinx.
+[00:30:00] Adam: And am I correct? It is a myth that Napoleon's men shot off the nose of the Sphinx.
 
 [00:30:04] Sarah: Yeah that that is that is a myth. It happened well before his
 
@@ -448,9 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:35:10] Will: Yeah, no
 
-[00:35:10] Norm: because they’re, they’re.
-
-[00:35:10] Norm: We’ll go into spoilers.
+[00:35:10] Norm: because they’re, they’re. We’ll go into spoilers.
 
 [00:35:12] Adam: We will go into spoilers. Okay, so we'll park. We'll park this right now. But Captain Marvel is terrific, and I
 
@@ -468,9 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:35:47] Norm: It's hour and a half, and there is just very few. I am just giving; I don't there are no spoilers, but the way it's presented, I want to spoil the way it's presented.
 
-[00:35:55] Sarah: Wait
-
-[00:35:55] Sarah: is it is it is it appropriate for for nerdy kids?
+[00:35:55] Sarah: Wait is it is it is it appropriate for for nerdy kids?
 
 [00:35:59] Will: Yes, I was gonna say it is. you told me probably my daughter, who's six, is maybe a little young and might be bored
 
@@ -504,11 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:37:07] Will: Cool.
 
-[00:37:08] Adam: oh gotta see that I'm super super excited about that there's so much to go over but I can't tell you about any of it because I've just had a couple of mind blowing weeks of filming the new show and again an announcement about what it's named and when it's going to air is going to happen very soon but I still can't reveal any details. Yeah, that's most of what. That's that's most of the
-
-[00:37:29] Adam: non-information
-
-[00:37:30] Adam: I have.
+[00:37:08] Adam: oh gotta see that I'm super super excited about that there's so much to go over but I can't tell you about any of it because I've just had a couple of mind blowing weeks of filming the new show and again an announcement about what it's named and when it's going to air is going to happen very soon but I still can't reveal any details. Yeah, that's most of what. That's that's most of the non-information I have.
 
 [00:37:29] Will: Cool story, yeah. Nice work. Really nailed that one.
 
@@ -516,9 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:37:33] Will: Keep the tease alive. I watched all of Umbrella Academy on Netflix last week.
 
-[00:37:39] Adam: I watched the first episode and I had no desire to watch the second
-
-[00:37:39] Adam: one
+[00:37:39] Adam: I watched the first episode and I had no desire to watch the second one
 
 [00:37:43] Will: It, it, the second episode is where it gets where it picks up.
 
@@ -532,9 +488,7 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:38:02] Adam: are that guy
 
-[00:38:02] Will: that guy in the spacesuit, and it's just it like it's it's a really it's like I I thought I was blown away by it.
-
-[00:38:02] Will: I thought it was really lovely.
+[00:38:02] Will: that guy in the spacesuit, and it's just it like it's it's a really it's like I I thought I was blown away by it. I thought it was really lovely.
 
 [00:38:09] Adam: I thought that Ellen Page was amazing, and I thought the guy that played the drug addicted son
 
@@ -546,15 +500,9 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:38:19] Adam: I felt what I felt like was scenery chewing. I, I, I, if you told me the second episode—
 
-[00:38:23] Will: it
+[00:38:23] Will: it earns the whole thing. Okay, I think I think it sticks the landing better than any any comic book. Thing I've seen in a long time
 
-[00:38:23] Will: earns the whole thing. Okay, I think I think it sticks the landing better than any any comic book. Thing I've seen in a long
-
-[00:38:23] Will: time
-
-[00:38:29] Adam: Then, totally willing to
-
-[00:38:29] Adam: go back in.
+[00:38:29] Adam: Then, totally willing to go back in.
 
 [00:38:30] Will: It's really good.
 
@@ -588,15 +536,9 @@ Episode URL: https://www.youtube.com/watch?v=Eg9s6wRrzzI
 
 [00:39:07] Adam: Oh, cool.
 
-[00:39:09] Will: See you all next week, Norm. Anything on the site this week? Anything
+[00:39:09] Will: See you all next week, Norm. Anything on the site this week? Anything exciting Do you know what day it is?
 
-[00:39:09] Will: exciting
-
-[00:39:13] Will: Do you know what day it is?
-
-[00:39:14] Norm: I have a child.
-
-[00:39:14] Norm: Yeah. I, I have a four-month-old. Okay. But there's some good stuff.
+[00:39:14] Norm: I have a child. Yeah. I, I have a four-month-old. Okay. But there's some good stuff.
 
 [00:39:18] Will: Okay. Good. Good. Yes. See you all next week.
 

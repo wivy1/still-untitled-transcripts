@@ -52,9 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:01:39] Adam: a book that you're excited about reading but you haven't read yet,
 
-[00:01:41] Will: Like this shrink-wrapped.
-
-[00:01:42] Will: Pile of shame.
+[00:01:41] Will: Like this shrink-wrapped. Pile of shame.
 
 [00:01:43] Norm: Yes, that's exactly it.
 
@@ -112,11 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:03:43] Will: it's really good
 
-[00:03:44] Adam: oh that's awesome
-
-[00:03:44] Adam: yeah
-
-[00:03:45] Adam: I love hearing that
+[00:03:44] Adam: oh that's awesome yeah I love hearing that
 
 [00:03:46] Will: good good science and like like my daughter loves it she doesn't care that she's learning stuff she's really it's really good
 
@@ -204,9 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:06:42] Will: The poor guy.
 
-[00:06:43] Norm: He was just in Breaking Bad, just that one season. Yeah,
-
-[00:06:43] Norm: Neo-Nazi.
+[00:06:43] Norm: He was just in Breaking Bad, just that one season. Yeah, Neo-Nazi.
 
 [00:06:46] Adam: he was amazing in Breaking Bad. Um,
 
@@ -314,9 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:10:24] Will: Scared the hell out of her.
 
-[00:10:25] Adam: Yeah.
-
-[00:10:25] Adam: So scares her. You can also see anger in her face at the violation of you shouldn't be doing that to me.
+[00:10:25] Adam: Yeah. So scares her. You can also see anger in her face at the violation of you shouldn't be doing that to me.
 
 [00:10:32] Will: Yeah.
 
@@ -374,9 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:11:58] Will: But but I mean. The I guess the question is the thing the thing is we're talking about Black Mirror. I'm thinking this is the closest thing we have to Twilight Zone now.
 
-[00:11:58] Adam: Oh yeah, no, like no doubt a
-
-[00:12:07] Adam: perfectly modern updated Twilight Zone.
+[00:11:58] Adam: Oh yeah, no, like no doubt a perfectly modern updated Twilight Zone.
 
 [00:12:09] Will: Yeah,
 
@@ -396,9 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:12:26] Will: Really good.
 
-[00:12:27] Adam: Yeah, better every time.
-
-[00:12:27] Adam: I'm not kidding.
+[00:12:27] Adam: Yeah, better every time. I'm not kidding.
 
 [00:12:28] Norm: Yeah, that's not the movie we're talking about.
 
@@ -432,9 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:13:17] Will: Hey, somebody scored a goal this weekend. Congratulations, guys!
 
-[00:13:21] Adam: Nifty head goal.
-
-[00:13:22] Adam: Ooh, own goal.
+[00:13:21] Adam: Nifty head goal. Ooh, own goal.
 
 [00:13:22] Will: But um, but yeah, the Natalie Portman thing, the Oprah talk was incredible.
 
@@ -472,9 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:14:14] Norm: Now the theaters will be packed. But hopefully, the theaters will be packed for The Shape of Water as well.
 
-[00:14:19] Adam: I really hope it gets a
-
-[00:14:21] Adam: second, second breath of legs for this because it's an amazing film, and I want to talk about it. Will and I want to spoil it.
+[00:14:19] Adam: I really hope it gets a second, second breath of legs for this because it's an amazing film, and I want to talk about it. Will and I want to spoil it.
 
 [00:14:26] Will: So yeah, it's fine. We can spoil away.
 
@@ -508,9 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:15:30] Norm: Monster. Monster.
 
-[00:15:30] Will: Okay. Okay.
-
-[00:15:31] Will: Monster. Good. Good. Good. Thank you.
+[00:15:30] Will: Okay. Okay. Monster. Good. Good. Good. Thank you.
 
 [00:15:33] Norm: And Guillermo del Toro has done, you know, as you see in Hellboy, Abe Sapien, which you know he didn't create, but is an underwater character, and he has said that he loves Abe Sapien, but that is not a monster creature.
 
@@ -524,9 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:15:54] Adam: as the performer,
 
-[00:15:54] Norm: yeah.
-
-[00:15:55] Norm: And so Shape of Water, an idea that. Actually, from his writing partner on The Strain, I believe, came up the idea. It said, " What if it was a love story between a creature and not the scientists, but of like the janitors in the place?" Or the
+[00:15:54] Norm: yeah. And so Shape of Water, an idea that. Actually, from his writing partner on The Strain, I believe, came up the idea. It said, " What if it was a love story between a creature and not the scientists, but of like the janitors in the place?" Or the
 
 [00:16:10] Will: people who have to take care of the people you don't see in the movie usually.
 
@@ -582,9 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:19:13] Adam: Totally, and and and he even said in the description of the little girl, it's like the little girl is walking. He says he described in an interview that she's walking with something that's obviously a metaphor for her heart.
 
-[00:19:23] Norm: And his his stories are they're all myths. They're all like modern myths, like monster films, vampire films, you know, Blade Two,
-
-[00:19:23] Norm: ghost stories.
+[00:19:23] Norm: And his his stories are they're all myths. They're all like modern myths, like monster films, vampire films, you know, Blade Two, ghost stories.
 
 [00:19:31] Will: Giant
 
@@ -854,15 +830,11 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:31:42] Norm: She teaches him sign language. She teaches him sign language.
 
-[00:31:43] Adam: Yeah,
-
-[00:31:43] Adam: there's that's that beautiful thing of her saying " egg." Yeah,
+[00:31:43] Adam: Yeah, there's that's that beautiful thing of her saying " egg." Yeah,
 
 [00:31:48] Norm: and apparently it's sign language, circa ASL, circa nineteen. 1960s,
 
-[00:31:48] Adam: which is different.
-
-[00:31:53] Adam: Cool little bit of Easter egg stuff.
+[00:31:48] Adam: which is different. Cool little bit of Easter egg stuff.
 
 [00:31:54] Norm: Yeah, so that had to be learned because ASL is an evolving language, and
 
@@ -900,9 +872,7 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:33:07] Will: Michael Shannon. Are you Michael Shannon from Walking Dead and
 
-[00:33:11] Norm: from Man of Steel,
-
-[00:33:12] Norm: Boardwalk Empire? Yeah,
+[00:33:11] Norm: from Man of Steel, Boardwalk Empire? Yeah,
 
 [00:33:15] Will: yeah,
 
@@ -948,8 +918,6 @@ Episode URL: https://www.youtube.com/watch?v=h3lCOFt3pGU
 
 [00:34:42] Adam: Yep.
 
-[00:35:03] Will: Okay. Well, safe travels, gentlemen. We'll see you when you're back, and this will be the last Still Untitled. Well, you guys will do Still Untitled. Yeah, yeah. I'll be away for a while. All right. See you guys next time. Thanks for watching.
-
-[00:35:03] Will: Bye.
+[00:35:03] Will: Okay. Well, safe travels, gentlemen. We'll see you when you're back, and this will be the last Still Untitled. Well, you guys will do Still Untitled. Yeah, yeah. I'll be away for a while. All right. See you guys next time. Thanks for watching. Bye.
 
 [00:35:03] Norm: Bye.

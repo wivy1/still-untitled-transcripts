@@ -118,11 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:07:17] Adam: Oh, go ahead.
 
-[00:07:21] Will: Well, I was just gonna say it depends on how big the plates are too. If you're if you're in like a 14 course French restaurant and and you have
-
-[00:00:00] Will: like, a big plate, you're going to get a lot of food.
-
-[00:07:27] Will: like you know a half a bite per course sometimes, sharing that how you're not going to dole that out six ways.
+[00:07:21] Will: Well, I was just gonna say it depends on how big the plates are too. If you're if you're in like a 14 course French restaurant and and you have like, a big plate, you're going to get a lot of food. like you know a half a bite per course sometimes, sharing that how you're not going to dole that out six ways.
 
 [00:07:34] Adam: I totally agree.
 
@@ -206,9 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:11:57] Norm: That's a really specific and yet diverse selection of options. I don't know if maybe someone out there can can help pick a jacket. I'll I'll tell you this: San Francisco's weather is so varied, also with our microclimates, that I don't think you are going to find one jacket that's going to fit all of our weather.
 
-[00:12:15] Will: You know, I I
-
-[00:12:15] Will: had one waxed cotton one for years that had a zip out liner that was perfect.
+[00:12:15] Will: You know, I I had one waxed cotton one for years that had a zip out liner that was perfect.
 
 [00:12:21] Adam: Yeah. You know, I I don't find. Let's see. I mean, I do drag out different jackets for different things. I've got a light raincoat for most days in San Francisco. It's not really a rain raincoat, but it's um, you know, it's like three quarter length and it's nice and light and it's black and I really like the the hang of it. I've got some heavier coats for when it gets cold, which is really pretty rare. I got a go to suede that I really like that I bought in Vegas. A couple of years ago, you know, maybe Will, what you should do is you should come over, and I'll pull out my jackets.
 
@@ -222,9 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:13:21] Norm: I think people are curious about fashion tastes and and you know, utility.
 
-[00:13:25] Adam: I have a lot of jackets.
-
-[00:13:25] Adam: When I said I have 30 jackets, I'm not covering my suit jackets. I'm not covering my blazers. That's that's a whole separate issue.
+[00:13:25] Adam: I have a lot of jackets. When I said I have 30 jackets, I'm not covering my suit jackets. I'm not covering my blazers. That's that's a whole separate issue.
 
 [00:13:33] Will: It's possible you have a jacket problem. We may may need to have a jacket intervention.
 
@@ -282,9 +274,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:15:46] Will: Mm-hmm.
 
-[00:15:47] Adam: and that's a terrible
-
-[00:15:47] Adam: , terrible crime. You can't do that.
+[00:15:47] Adam: and that's a terrible , terrible crime. You can't do that.
 
 [00:15:50] Will: Well, I mean, I have a little bit more around the middle than maybe you guys do. So I've got to be careful that I don't end up looking like the Michelin Man or something if I get too too too snug along the waistline.
 
@@ -350,11 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:20:23] Adam: You know, I have this thing that my jeans wear out pretty quickly in the knees, um, and as soon as they do, I really don't want to wear them anymore. I don't, I can't stand wearing jeans with big holes in the knees anymore.
 
-[00:20:37] Will: Well, the, we age out of that. It's no longer the '90s.
-
-[00:20:40] Will: Yeah, you're probably right.
-
-[00:20:40] Will: Yeah, the, um, the the yeah the the pair good pair of jeans. It's funny, Gina Gina went out and bought a pair of jeans for me once. We're probably, I mean, they probably weren't even very expensive. They were probably $30 more than the jeans I was normally buying, but they fit. So much better, and it became something that, like, you could squat down, you could bend over, you could walk around, you could jog. The whole thing it's a magical experience.
+[00:20:37] Will: Well, the, we age out of that. It's no longer the '90s. Yeah, you're probably right. Yeah, the, um, the the yeah the the pair good pair of jeans. It's funny, Gina Gina went out and bought a pair of jeans for me once. We're probably, I mean, they probably weren't even very expensive. They were probably $30 more than the jeans I was normally buying, but they fit. So much better, and it became something that, like, you could squat down, you could bend over, you could walk around, you could jog. The whole thing it's a magical experience.
 
 [00:21:02] Adam: It really is. It really is. Um, so, uh, back to New York just a little bit. I I got to spend a few hours yesterday with my friend Tom Sachs in his studio.
 
@@ -396,9 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:22:42] Adam: Yeah.
 
-[00:22:42] Norm: New York
-
-[00:22:42] Norm: , and I'm really curious what Detroit was like. And we hear so many stories about you know the state of Detroit and and a lot of just underground culture and maker movement in Detroit. Did you get to see any of that?
+[00:22:42] Norm: New York , and I'm really curious what Detroit was like. And we hear so many stories about you know the state of Detroit and and a lot of just underground culture and maker movement in Detroit. Did you get to see any of that?
 
 [00:22:55] Adam: Um, mostly from the audience. Um, we we rolled into Detroit a little bit late because of the winter and the long drive. Um, and it was very cold. There snow was. There was some snow flurries. Um, we were performing at the unbelievable Fox Theater in Detroit, which is one of the most beautiful theaters in the country. Um, and you know, I know that Detroit is in trouble. I know that there's a really vibrant maker and art movement in Detroit. And when you're up on stage, I think this is the third time we've performed there. When you're up on stage, you really, really feel, um, this wonderful community, uh, in that town. So unfortunately, we didn't get a time to get out and about in Detroit. Uh, I was still so spent from New York. I really needed some sleep. But, um, the audiences there are just it's it's hard to describe how much you feel that sort of simpatico. Need to make and need to modify, and you know, and I think that's the right thing. I think a city like Detroit, people flocking to it and bringing some real culture to it, is exactly a fantastic salve for the for the for the difficulties that that city is undergoing right now.
 
@@ -446,9 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=mlRpiUgYgIQ
 
 [00:28:56] Adam: You know, there's a famous story in my in my family of my mom. She's like, I don't ride the subway. I'm not going to ride the subway. It's too dangerous. Now, this is my mom who was in New York in the '60s, right? And my dad's like, Come on, we got to get uptown. It's faster. There's no cabs. It's raining. It's five o'clock. We got to take the subway. And again, this is probably like 1970. And she's like, Okay. And they get in the subway and they sit down. And just as they sit down, the cops chase, beat down, and arrest a guy right at my mom's feet. Like like handcuffs and blood on her shoes while she's sitting there. And she turns to my dad and she's like, That's why I don't ride the subway.
 
-[00:29:40] Will: Nope. Nope.
-
-[00:29:42] Will: I mean, just to be clear, this is when you didn't go to the Lower East Side because the Warriors would come out and play and kill everybody, right? This was this was a scary time in New York. Oh, we got stuck.
+[00:29:40] Will: Nope. Nope. I mean, just to be clear, this is when you didn't go to the Lower East Side because the Warriors would come out and play and kill everybody, right? This was this was a scary time in New York. Oh, we got stuck.
 
 [00:29:53] Adam: This is the time when Alphabet City was a very very rough neighborhood.
 

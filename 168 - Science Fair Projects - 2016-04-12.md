@@ -328,9 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=rhaNoBx39Jc
 
 [00:12:37] Will: Oh my god, this is going just worse, way worse than I imagined. Um, so so they reached out and wanted me to come talk about technology, and just they they never had anybody talk about technology, and they do weekly luncheons with like a speaker. So sometimes they have the conductor of the symphony come in. Sometimes they have you know it's usually arts and education.
 
-[00:13:02] Norm: focused.
-
-[00:13:02] Norm: It's kind of like a Commonwealth Club of California.
+[00:13:02] Norm: focused. It's kind of like a Commonwealth Club of California.
 
 [00:13:04] Will: It's very much like Commonwealth Club.
 
@@ -468,9 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=rhaNoBx39Jc
 
 [00:22:21] Adam: So you're saying I need to use a glowforge for printing documents?
 
-[00:22:23] Will: You need to use a laser cutter to print. 
-
-[00:22:30] Will: Yes, a thousand times.
+[00:22:23] Will: You need to use a laser cutter to print.  Yes, a thousand times.
 
 [00:22:30] Adam: Here's what you're gonna do: take a sheet of paper and put it. On the glowforge bed, and then sprinkle toner on it,
 
@@ -480,19 +476,13 @@ Episode URL: https://www.youtube.com/watch?v=rhaNoBx39Jc
 
 [00:22:42] Norm: Oh, handcrafted,
 
-[00:22:42] Will: right?
-
-[00:22:44] Will: I'm so into this.
-
-[00:22:44] Will: This is such a bad, dumb idea. You have a laser cutter right there. Do you have a laser cutter? A laser printer? We can bust open some toner.
+[00:22:42] Will: right? I'm so into this. This is such a bad, dumb idea. You have a laser cutter right there. Do you have a laser cutter? A laser printer? We can bust open some toner.
 
 [00:22:52] Adam: We, we, yeah, right there.
 
 [00:22:53] Will: Okay,
 
-[00:22:54] Adam: end up being the, like the Etsy, the Etsy bio of the shop that does this.
-
-[00:23:01] Adam: They all look like coal miners, right?
+[00:22:54] Adam: end up being the, like the Etsy, the Etsy bio of the shop that does this. They all look like coal miners, right?
 
 [00:23:01] Norm: Right, it's all black, and like hands, and
 
@@ -526,9 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=rhaNoBx39Jc
 
 [00:23:51] Adam: Perfect.
 
-[00:23:51] Will: Yeah.
-
-[00:23:55] Will: Yes. Some sort of canvas sack.
+[00:23:51] Will: Yeah. Yes. Some sort of canvas sack.
 
 [00:23:56] Adam: Absolutely.
 
@@ -540,9 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=rhaNoBx39Jc
 
 [00:24:03] Will: Her, uh, wake-up alarm clock robot is the funniest thing I've seen on YouTube in a long time.
 
-[00:24:08] Adam: It's the lipstick robot that I love too.
-
-[00:24:11] Adam: It's so subversive.
+[00:24:08] Adam: It's the lipstick robot that I love too. It's so subversive.
 
 [00:24:12] Norm: I like the internet arguing machine.
 

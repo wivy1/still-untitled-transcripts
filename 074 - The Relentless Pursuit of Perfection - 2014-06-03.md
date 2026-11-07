@@ -8,9 +8,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:00:00] Will: You have something to share with the class.
 
-[00:00:00] Adam: No, I don't.
-
-[00:00:02] Adam: Go start.
+[00:00:00] Adam: No, I don't. Go start.
 
 [00:00:07] Will: Welcome to Still Untitled, the Adam Savage Project. I'm Will.
 
@@ -20,9 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:00:12] Will: Did you guys see the thing on Laughing Squid today or yesterday, where um, uh, the, he, uh, what's his name? I broke down the visual difference in visual comedy and American comedies.
 
-[00:00:12] Adam: Oh, it was what's his name?
-
-[00:00:26] Adam: Edgar Wright.
+[00:00:12] Adam: Oh, it was what's his name? Edgar Wright.
 
 [00:00:27] Will: It's well, it was using Edgar Wright as
 
@@ -196,9 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:08:26] Norm: Portable sander. You're not maneuvering.
 
-[00:08:27] Will: Oh no! No no no!
-
-[00:08:28] Will: You're maneuvering the wood around it.
+[00:08:27] Will: Oh no! No no no! You're maneuvering the wood around it.
 
 [00:08:30] Adam: Yeah, you're moving wood around. It's on a huge stand. It weighs probably 300 pounds.
 
@@ -324,9 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:14:39] Norm: because that's not how it works.
 
-[00:14:43] Adam: No, you can't. But I mean, you you you know, it's like the number of times I've gotten to the end of machining something for three hours, I'm tapping with a 2-56 tap, which is a really fine little tap, and I'm going too fast because I'm impatient, and it's like I got five minutes left before I got to go meet somebody at dinner, and I snap the tap in this piece and thus lose six hours worth of work. I've done that. I think I did that four weeks ago. The the my solution on that front was because I was tapping I was tapping a hole for a screw that was dressing. I I ground the top of the tap. I took the screw that goes there. I cut off the head and glued
-
-[00:15:21] Adam: it over the tap.
+[00:14:43] Adam: No, you can't. But I mean, you you you know, it's like the number of times I've gotten to the end of machining something for three hours, I'm tapping with a 2-56 tap, which is a really fine little tap, and I'm going too fast because I'm impatient, and it's like I got five minutes left before I got to go meet somebody at dinner, and I snap the tap in this piece and thus lose six hours worth of work. I've done that. I think I did that four weeks ago. The the my solution on that front was because I was tapping I was tapping a hole for a screw that was dressing. I I ground the top of the tap. I took the screw that goes there. I cut off the head and glued it over the tap.
 
 [00:15:23] Unknown speaker: Oh no.
 
@@ -420,11 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:21:02] Will: or something like that, where you go in, there is a bunch of people working on stuff. Everybody's for the most part, like you said, pretty pretty open about what they're doing and like giving advice. Oh, hey, I, I've never used this before. You know, what do you what did what did you you know what should I know if I want to come in and do something like you are doing right now? And they're, everybody shares information, and as a result, everybody's stuff ends up better.
 
-[00:21:27] Adam: You know, and for anybody out there, frankly, and I want to speak to this because I said it at Maker Faire again. No secrets for anybody out there who gets asked how they do something because they came up with a really cool technique and they don't want to reveal it because somehow they feel that it's proprietary to them. And if someone else has that technique, they're going to do stuff that somehow infringes on them personally, or just
-
-[00:21:47] Adam: don't
-
-[00:21:49] Adam: keep your information a secret. How did you learn the stuff you did? You learned it from people that showed you what they knew. You've got to pay that back by showing other people the stuff that you figured out. It's really vital. It's the only way that that process works. You have to give back into that.
+[00:21:27] Adam: You know, and for anybody out there, frankly, and I want to speak to this because I said it at Maker Faire again. No secrets for anybody out there who gets asked how they do something because they came up with a really cool technique and they don't want to reveal it because somehow they feel that it's proprietary to them. And if someone else has that technique, they're going to do stuff that somehow infringes on them personally, or just don't keep your information a secret. How did you learn the stuff you did? You learned it from people that showed you what they knew. You've got to pay that back by showing other people the stuff that you figured out. It's really vital. It's the only way that that process works. You have to give back into that.
 
 [00:22:04] Will: And if you don't share, you get hit by a bus tomorrow. It's gone forever.
 
@@ -482,11 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:25:23] Norm: We're not just risk the the the burden of that first piece to be perfect.
 
-[00:25:27] Adam: And yeah, and you know when you're working on like it's like you know if I'm making some sort of space helmet and I'm cutting acrylic to size, the acrylic takes a while. You have to order it from what acrylicdomes.com, I think, and it takes a couple of weeks to get there. And if you screw up the one you have or you crack it, you're really boned for a while. So if I ever have a visor to order, I order two or three so that I've got the frangibles, the ones that I can, the ones that I can mess up. Yeah, removing that burden of having to make the perfect cut in the single piece, it's it's really key. And look, I also I recognize that not everyone can afford to do that, but
-
-[00:26:02] Adam: you know
-
-[00:26:02] Adam: you can afford to do it with small projects that you're doing. Make two sets of parts, cut two sets of pieces of plywood, cut two sets of plastic, laser cut two sets of the parts that you need so that you can really figure out how it should go.
+[00:25:27] Adam: And yeah, and you know when you're working on like it's like you know if I'm making some sort of space helmet and I'm cutting acrylic to size, the acrylic takes a while. You have to order it from what acrylicdomes.com, I think, and it takes a couple of weeks to get there. And if you screw up the one you have or you crack it, you're really boned for a while. So if I ever have a visor to order, I order two or three so that I've got the frangibles, the ones that I can, the ones that I can mess up. Yeah, removing that burden of having to make the perfect cut in the single piece, it's it's really key. And look, I also I recognize that not everyone can afford to do that, but you know you can afford to do it with small projects that you're doing. Make two sets of parts, cut two sets of pieces of plywood, cut two sets of plastic, laser cut two sets of the parts that you need so that you can really figure out how it should go.
 
 [00:26:14] Will: And then and then when it comes to hiding, when when you make the mistake, instead of saying, well, shit, I better throw that out and start over, do you know figure out? Can you cut the top of the tap off and glue the top of the screw on?
 
@@ -498,9 +482,7 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:27:24] Will: Like a nail file. Yeah,
 
-[00:27:24] Adam: yeah.
-
-[00:27:26] Adam: And I'm going. I mean, it's literally like one pass and looking, and then it gets so so subtle. Moving down through that, you know, from 80 grit all the way up to 400 grit, and then polishing something, it is—it's a whole set of processes that if you do it wrong, will take you five times as long.
+[00:27:24] Adam: yeah. And I'm going. I mean, it's literally like one pass and looking, and then it gets so so subtle. Moving down through that, you know, from 80 grit all the way up to 400 grit, and then polishing something, it is—it's a whole set of processes that if you do it wrong, will take you five times as long.
 
 [00:27:49] Will: Yeah, if you start with 220 instead of 80, it's going to take forever.
 
@@ -522,13 +504,9 @@ Episode URL: https://www.youtube.com/watch?v=GEbOGiPi48s
 
 [00:28:38] Unknown speaker: Yes.
 
-[00:28:32] Will: it's like, oh, this changes everything. I've sanded four times as much. Yes. Yeah. Anyway. Exactly. So I think that's a good. I think that's a good place to end.
+[00:28:32] Will: it's like, oh, this changes everything. I've sanded four times as much. Yes. Yeah. Anyway. Exactly. So I think that's a good. I think that's a good place to end. Anything else?
 
-[00:28:46] Will: Anything else?
-
-[00:28:47] Adam: I think that's a good place to end. I'll tell you something. Um, This is a great place for questions in the comments for this podcast. I'd love anyone to have specific questions about hiding crimes and workflow and stuff like that. I know there's stuff that we're not thinking about that would be fun to cover in this topic, and we can include it the next time.
-
-[00:29:05] Adam: We do some of that.
+[00:28:47] Adam: I think that's a good place to end. I'll tell you something. Um, This is a great place for questions in the comments for this podcast. I'd love anyone to have specific questions about hiding crimes and workflow and stuff like that. I know there's stuff that we're not thinking about that would be fun to cover in this topic, and we can include it the next time. We do some of that.
 
 [00:29:05] Will: Yeah, we we can we can actually if see this will go up, and it may not be the next one, but maybe the one after that.
 

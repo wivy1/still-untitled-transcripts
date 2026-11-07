@@ -230,9 +230,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:22:45] Adam: Ultimately, it is a bizarre, totally insane movie in which, like Anna Kendrick is the heroine, and she looks like she's 10 next to Ben Affleck, and they don't ever quite make them romantic, but they don't not. So there's times when it's weirdly both paternal and strangely romantic.
 
-[00:23:07] Norm: Oh, that's weird.
-
-[00:23:09] Norm: Okay.
+[00:23:07] Norm: Oh, that's weird. Okay.
 
 [00:23:09] Adam: Yeah.
 
@@ -354,9 +352,7 @@ Episode URL: No YouTube video (audio-only episode)
 
 [00:30:29] Adam: Oh, really? It's available now.
 
-[00:30:30] Will: No, no, no, no. The animated. We went home and watched
-
-[00:30:32] Will: the animated version.
+[00:30:30] Will: No, no, no, no. The animated. We went home and watched the animated version.
 
 [00:30:33] Adam: Right.
 

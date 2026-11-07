@@ -48,9 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:02:53] Adam: Hold on.
 
-[00:02:53] Will: Perfect.
-
-[00:02:56] Will: That's good.
+[00:02:53] Will: Perfect. That's good.
 
 [00:02:57] Norm: [unclear: Nutra second] flavor.
 
@@ -100,11 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:06:43] Will: I would give them grief about it, and then I talked to one of the guys who's like, " Look, they make us ask for the batteries. This is this is this was the moment that I realized the the the bad retail experience isn't usually because of the person working retail. Sometimes it is, but a lot of times it's institutional." And asking for your phone number when you buy batteries is a perfect example of that.
 
-[00:07:02] Adam: Nobody needs your phone number.
-
-[00:07:02] Adam: They're just gonna build their mailing list.
-
-[00:07:03] Adam: No, of course not. And I always, I've been saying, actually, my dad said that I was 15 and I was buying something with him, and I said, " And what's your address?" And my dad said, " You don't need that." And they were like, " Okay." And they, I mean, it's it's not their fight; they're not going to die on that hill. So I've been saying that ever since. The thing about the the the institutionalization is that it's just it makes me so mad. Was it Circuit City that fired all their older salesmen?
+[00:07:02] Adam: Nobody needs your phone number. They're just gonna build their mailing list. No, of course not. And I always, I've been saying, actually, my dad said that I was 15 and I was buying something with him, and I said, " And what's your address?" And my dad said, " You don't need that." And they were like, " Okay." And they, I mean, it's it's not their fight; they're not going to die on that hill. So I've been saying that ever since. The thing about the the the institutionalization is that it's just it makes me so mad. Was it Circuit City that fired all their older salesmen?
 
 [00:07:30] Will: Yes.
 
@@ -122,9 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:08:34] Adam: By the way, I also don't place that blame on the employee. Like,
 
-[00:08:37] Will: no, no. I mean, when you go to the Apple Store, the Apple employees know what they're talking about, or they can point you to someone who does. The problem with Radio Shack has always been that they don't. They never had the stuff that you need. If you just needed something, it was always way more expensive than you could get it literally anywhere else that sold that thing. And if you needed something in a hurry and you're willing to pay that premium, then they didn't have enough of it, or they didn't have the right thing, or they had something that was like one axis off or whatever. And I mean, like they couldn't. People always say, " Hey, people who make stuff should be supporting Radio Shack." But if you're making stuff and you're on any kind of budget, Radio Shack is not a good place to buy any of the stuff that they sell for makers, Arduinos,
-
-[00:09:17] Will: and components, whatever.
+[00:08:37] Will: no, no. I mean, when you go to the Apple Store, the Apple employees know what they're talking about, or they can point you to someone who does. The problem with Radio Shack has always been that they don't. They never had the stuff that you need. If you just needed something, it was always way more expensive than you could get it literally anywhere else that sold that thing. And if you needed something in a hurry and you're willing to pay that premium, then they didn't have enough of it, or they didn't have the right thing, or they had something that was like one axis off or whatever. And I mean, like they couldn't. People always say, " Hey, people who make stuff should be supporting Radio Shack." But if you're making stuff and you're on any kind of budget, Radio Shack is not a good place to buy any of the stuff that they sell for makers, Arduinos, and components, whatever.
 
 [00:09:18] Adam: And they did make the attempt to pivot towards makers. They brought in Arduino. They repackaged and rebranded all of their electronics drawers to be much easier to sift to navigate through. I found I I took note of that. I still noted that they were grossly under understocked. That it really felt like a token kind of thing. Like, right? I know there's an LED in this drawer, but it's not the one that I need, and it's not it's not a one that's useful.
 
@@ -232,15 +224,11 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:16:30] Will: The the fundamental problem with online purchasing versus catalogs or retail, and and it's funny I hadn't thought about catalogs. I always thought about catalogs as being closer to online. But I think you're probably right because you jam at least in like a McMaster-Carr situation, you're jamming so many things. Or Campmor, you're jamming so many things on one page because every inch of space is valuable.
 
-[00:16:49] Adam: Yeah.
-
-[00:16:50] Adam: Let me let me make it. There's a wonderful model makers catalog called Micro-Mark. There's another one called the Small Parts Catalog. Both of them, I recommend you go to their websites and order a catalog from each. They're delicious catalogs. Sit there; they're both probably about 50, 60 pages, and you can sit there and browse through every kind of tool and knife and little ball bearing and rods and you know rod ends and electronics and just fantastic, fantastic catalogs for learning about new ways that are being developed to make things in ways that the website's not necessarily going to lead you to, because websites are all what do you need to find here? It is
+[00:16:49] Adam: Yeah. Let me let me make it. There's a wonderful model makers catalog called Micro-Mark. There's another one called the Small Parts Catalog. Both of them, I recommend you go to their websites and order a catalog from each. They're delicious catalogs. Sit there; they're both probably about 50, 60 pages, and you can sit there and browse through every kind of tool and knife and little ball bearing and rods and you know rod ends and electronics and just fantastic, fantastic catalogs for learning about new ways that are being developed to make things in ways that the website's not necessarily going to lead you to, because websites are all what do you need to find here? It is
 
 [00:17:33] Will: well. I mean, they're they're they're very transactional. Like it's it's intentionally that way because they want you to find something, and their goal is to get you to click buy on something in as few clicks as possible and as less time because the more you click buy, the more money they make.
 
-[00:17:45] Adam: Exactly.
-
-[00:17:46] Adam: And I get that. And it's just I, I, I don't mean to say. You know, I'm not lamenting the good old days.
+[00:17:45] Adam: Exactly. And I get that. And it's just I, I, I don't mean to say. You know, I'm not lamenting the good old days.
 
 [00:17:54] Will: Well, you kind of are.
 
@@ -260,9 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:18:45] Will: their original thing.
 
-[00:18:46] Adam: Yeah.
-
-[00:18:49] Adam: Um. We've got a good Radio Shack up in Noe Valley here. Jamie and I both shop there frequently.
+[00:18:46] Adam: Yeah. Um. We've got a good Radio Shack up in Noe Valley here. Jamie and I both shop there frequently.
 
 [00:18:54] Norm: Yeah.
 
@@ -342,9 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=WcrD0uVxpTw
 
 [00:21:37] Norm: first to see how it looks.
 
-[00:21:38] Adam: Right.
-
-[00:21:38] Adam: So that when you're doing Skype calls,
+[00:21:38] Adam: Right. So that when you're doing Skype calls,
 
 [00:21:40] Norm: that's right.
 

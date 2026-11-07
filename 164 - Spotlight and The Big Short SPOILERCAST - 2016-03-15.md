@@ -226,9 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:08:24] Norm: which will be in print for that one one weekend, and they're doing it for nine months.
 
-[00:08:37] Adam: It's amazing.
-
-[00:08:38] Adam: It's an amazing investment from the Fourth Estate. It's an amazing level of trust that the organization has in Keaton and his team. And Michael Keaton is he's just amazing.
+[00:08:37] Adam: It's amazing. It's an amazing investment from the Fourth Estate. It's an amazing level of trust that the organization has in Keaton and his team. And Michael Keaton is he's just amazing.
 
 [00:08:49] Will: I mean, starting with Burton, the the Renaissance of Michael Keaton has been really good.
 
@@ -250,11 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:09:30] Norm: There you go. He also
 
-[00:09:31] Adam: I'm sorry, I am yelling because there is this point in All the President's Men when Jason Robards goes, "
-
-[00:09:37] Adam: When the hell is someone going to go on the record in this story?"
-
-[00:09:40] Adam: And this was like my best friend in high school, and I. That's like we always did that. We just call each other up and yell that into the phone, and then hang up.
+[00:09:31] Adam: I'm sorry, I am yelling because there is this point in All the President's Men when Jason Robards goes, " When the hell is someone going to go on the record in this story?" And this was like my best friend in high school, and I. That's like we always did that. We just call each other up and yell that into the phone, and then hang up.
 
 [00:09:47] Will: If you've never seen All the President's Men, yeah, by the way, it's totally one of the great films of the 20th century, absolutely,
 
@@ -464,9 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:18:51] Will: American Splendor,
 
-[00:18:53] Adam: 24 hour party people's masterful and does tons of breaking the fourth wall, and and Coogan is incredible. It's the first time I saw Steve Coogan,
-
-[00:19:01] Adam: and he's a genius.
+[00:18:53] Adam: 24 hour party people's masterful and does tons of breaking the fourth wall, and and Coogan is incredible. It's the first time I saw Steve Coogan, and he's a genius.
 
 [00:19:02] Will: It's it's a really it's a lovely film.
 
@@ -478,9 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:19:23] Will: He's no, he's comedy. Austin Powers.
 
-[00:19:25] Adam: Austin Powers. He's Talladega Nights.
-
-[00:19:27] Adam: He's a bunch of Will
+[00:19:25] Adam: Austin Powers. He's Talladega Nights. He's a bunch of Will
 
 [00:19:28] Will: Step Brothers. I think
 
@@ -516,9 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:20:57] Will: The second episode is pretty funny.
 
-[00:21:01] Adam: Okay.
-
-[00:21:02] Adam: I love everyone in it.
+[00:21:01] Adam: Okay. I love everyone in it.
 
 [00:21:02] Will: That's where I've gotten so far.
 
@@ -542,9 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=u53l1Ju6shg
 
 [00:21:37] Will: Yeah. Okay. So they don't have those. It's all leisure suits then. And it's it's it's it's it was some of the best cinematography I've seen on TV ever.
 
-[00:21:47] Adam: Absolutely gorgeous. I'll totally give you that.
-
-[00:21:49] Adam: I found dramatically. I wasn’t that into it.
+[00:21:47] Adam: Absolutely gorgeous. I'll totally give you that. I found dramatically. I wasn’t that into it.
 
 [00:21:50] Will: That's kind of like I was like this is this is intense for intense sake. This is a period I don't really care that much about. It's music I don't really care that much about. But the way it's shot was enough to get me to watch the second episode. And I'll probably go through and watch the other six or whatever.
 

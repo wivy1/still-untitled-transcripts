@@ -104,9 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:03:34] Will: Oh, I am so excited,
 
-[00:03:36] Norm: San Francisco. You never know what they film here. Hey, as well, we're recording this a week before
-
-[00:03:41] Norm: you are listening to this, but in San Francisco, as you are listening to this, they're filming The Matrix Four.
+[00:03:36] Norm: San Francisco. You never know what they film here. Hey, as well, we're recording this a week before you are listening to this, but in San Francisco, as you are listening to this, they're filming The Matrix Four.
 
 [00:03:46] Will: Wait, what?
 
@@ -124,9 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:04:02] Adam: If you are a tested listener and you are working on this production, I am coming for you. I want to cover all the awesome.
 
-[00:04:09] Norm: We don't even necessarily need to bring cameras.
-
-[00:04:10] Norm: Yeah, we can bring cameras, or even not bring cameras.
+[00:04:09] Norm: We don't even necessarily need to bring cameras. Yeah, we can bring cameras, or even not bring cameras.
 
 [00:04:13] Adam: We can just show up with coffee, if you want.
 
@@ -256,9 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:10:23] Unknown speaker (Will or Norm): Yeah.
 
-[00:10:23] Adam: But people, they see it on the street and immediately pull out their phones, like " Holy cow!" Like just watching it. But the best is children seeing it. Like it's not like children have a great scope of all the things that are going on in the world, but they see this thing on the street and like they can tell something really remarkable is happening in front of them, and their brains kind of like.
-
-[00:10:46] Adam: It's it's It's a smile of
+[00:10:23] Adam: But people, they see it on the street and immediately pull out their phones, like " Holy cow!" Like just watching it. But the best is children seeing it. Like it's not like children have a great scope of all the things that are going on in the world, but they see this thing on the street and like they can tell something really remarkable is happening in front of them, and their brains kind of like. It's it's It's a smile of
 
 [00:10:48] Will: it's the thing. It's the look on kids' faces they got when they get went to Maker Faire. Like you're walking around Maker Faire and a kid sees R2-D2 rolling up toward them,
 
@@ -352,9 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:15:38] Will: I so I haven't before we go on about criterion. I have real concerns about the apps built into TVs, especially on like low end models that are priced at an incredibly low low price range.
 
-[00:15:52] Adam: Yeah,
-
-[00:15:53] Adam: You think it's a way that people are going to end up paying more for cable and all that?
+[00:15:52] Adam: Yeah, You think it's a way that people are going to end up paying more for cable and all that?
 
 [00:15:56] Will: No, they're collecting data.
 
@@ -490,9 +482,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:21:38] Norm: Snowpiercer.
 
-[00:21:39] Adam: And Snowpiercer.
-
-[00:21:39] Adam: and he plays with all of your expectations all the time you meet a new character and you think oh I think they're kind of like this and then you find out oh no they're totally the opposite of that actually they're also like that
+[00:21:39] Adam: And Snowpiercer. and he plays with all of your expectations all the time you meet a new character and you think oh I think they're kind of like this and then you find out oh no they're totally the opposite of that actually they're also like that
 
 [00:21:53] Norm: there are two families in the film let's talk about the the the main protagonist family the
 
@@ -598,9 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:25:05] Will: But but like the whole thing is shot golden hour. It's all glow, and the whole house feels like you are in in a higher plane. Which I mean, I guess.
 
-[00:25:14] Norm: Well, there is a precision to it from the set design to the cinematography to even the acting that's not naturalist. Like they are very precise
-
-[00:25:23] Norm: in their characterizations. Everything, I imagine. I don't. I don't know. It's remind me of a David Fincher
+[00:25:14] Norm: Well, there is a precision to it from the set design to the cinematography to even the acting that's not naturalist. Like they are very precise in their characterizations. Everything, I imagine. I don't. I don't know. It's remind me of a David Fincher
 
 [00:25:29] Adam: Right.
 
@@ -618,9 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:25:47] Norm: God, it's so tough to talk about it without talking about the big moments.
 
-[00:25:50] Adam: So it's a film in which these two families intersect, and it is the intersection is mostly about class,
-
-[00:26:00] Adam: more than it is about sexuality or romance or friendship. However, those all play some role in it, but it's really deeply about class to me. That's what I took away from it, and I'm not actually sure what the film stance on class is. Right, that's the kind of the ambiguity that's baked right into the entire thing.
+[00:25:50] Adam: So it's a film in which these two families intersect, and it is the intersection is mostly about class, more than it is about sexuality or romance or friendship. However, those all play some role in it, but it's really deeply about class to me. That's what I took away from it, and I'm not actually sure what the film stance on class is. Right, that's the kind of the ambiguity that's baked right into the entire thing.
 
 [00:26:24] Norm: Uh. And or who who you are supposed to be rooting for?
 
@@ -704,9 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:28:25] Norm: And then the film goes in a completely different direction.
 
-[00:28:27] Adam: Oh my god! And that's only one of the ways the film goes in a completely different direction.
-
-[00:29:09] Adam: I think it's time to talk about spoilers.
+[00:28:27] Adam: Oh my god! And that's only one of the ways the film goes in a completely different direction. I think it's time to talk about spoilers.
 
 [00:29:10] Norm: Let's talk about spoilers.
 
@@ -914,9 +898,7 @@ Episode URL: https://www.youtube.com/watch?v=pqcqSq__-_U
 
 [00:36:49] Norm: I, I.
 
-[00:36:49] Will: Why is he hiding from creditors? In a anyway,
-
-[00:36:52] Will: I don't know.
+[00:36:49] Will: Why is he hiding from creditors? In a anyway, I don't know.
 
 [00:36:52] Norm: Yeah, fear, right?
 

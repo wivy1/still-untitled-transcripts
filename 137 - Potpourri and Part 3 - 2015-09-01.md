@@ -40,9 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:01:31] Adam: Alex, big heart, big love.
 
-[00:01:34] Will: If he’s listening to the audio version, you’re making a big heart right—
-
-[00:01:38] Will: over where your heart is not.
+[00:01:34] Will: If he’s listening to the audio version, you’re making a big heart right— over where your heart is not.
 
 [00:01:38] Adam: My heart, but my Vulcan heart.
 
@@ -318,9 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:12:48] Norm: Yes. Well, well. I know. I have an email to the founder, and we'll get you.
 
-[00:12:51] Adam: Let's let's get one over here.
-
-[00:12:52] Adam: I’m gonna ride it around.
+[00:12:51] Adam: Let's let's get one over here. I’m gonna ride it around.
 
 [00:12:53] Will: We we'll bring Jeremy over. We'll race. You guys can race.
 
@@ -436,9 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:16:18] Norm: Oh, he was Doob's friend in the beginning.
 
-[00:16:18] Adam: Yeah. So if you think of Doob as
-
-[00:16:21] Adam: Breitbart. I wasn't thinking that he was politically like a schmuck. I was just thinking of him as someone who was too happy at the echo chamber of his own voice to be a reliable.
+[00:16:18] Adam: Yeah. So if you think of Doob as Breitbart. I wasn't thinking that he was politically like a schmuck. I was just thinking of him as someone who was too happy at the echo chamber of his own voice to be a reliable.
 
 [00:16:32] Norm: Maybe it's not based on anyone.
 
@@ -544,9 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:21:48] Norm: I, we're not at a point in real life where if that was happening, if the the moon blew up and we had two years ago, I don't think we could do it.
 
-[00:22:04] Will: We talked about it a little bit. I don't know if you listened to the podcast, but did you feel like I I really left the end of part one thinking that the effort to build the ark, the cloud ark, was a panacea to to keep the
-
-[00:22:15] Will: keep the people on the ground [unclear: um,/—] from revolting from from to keep to keep chaos at bay as long as possible.
+[00:22:04] Will: We talked about it a little bit. I don't know if you listened to the podcast, but did you feel like I I really left the end of part one thinking that the effort to build the ark, the cloud ark, was a panacea to to keep the keep the people on the ground [unclear: um,/—] from revolting from from to keep to keep chaos at bay as long as possible.
 
 [00:22:22] Adam: To give people something to do and to something to focus. on.
 
@@ -650,11 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:28:29] Adam: Right, right, right. Interesting. You're right because they had a singular
 
-[00:28:32] Norm: yes, right. Yes, where you know the especially the sea people because their connection is that one are the cell phone photos,
-
-[00:28:32] Norm: yeah,
-
-[00:28:32] Norm: and that's something that could only be told over time, over time, and that's what they recognize, like. Fables from 5,000 years ago,
+[00:28:32] Norm: yes, right. Yes, where you know the especially the sea people because their connection is that one are the cell phone photos, yeah, and that's something that could only be told over time, over time, and that's what they recognize, like. Fables from 5,000 years ago,
 
 [00:28:47] Will: but also the CP the pingers wouldn't if they if they evolved to live in the water, they lose the ability to write, so their their tradition becomes oral at that point. I would think,
 
@@ -680,11 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:29:20] Will: If you ever read 2001, so the spoilers for 2001 here.
 
-[00:29:20] Adam: Spoiler alert!
-
-[00:29:25] Adam: Are you still listening?
-
-[00:29:27] Adam: Is this on? Is anybody here?
+[00:29:20] Adam: Spoiler alert! Are you still listening? Is this on? Is anybody here?
 
 [00:29:27] Will: At the end of 2001, it basically you know 2000 2001. The novel ends with I think because the novel is about Saturn, not Jupiter, but the the gist is the same, right?
 
@@ -782,11 +766,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:33:06] Norm: The different aspects of the the future looks like.
 
-[00:33:09] Will: So, so the one thing that I thought was interesting that he didn't get into at all is the the concept of a multi generation product project.
-
-[00:33:09] Will: Right.
-
-[00:33:09] Will: When you're talking about something that takes 5,000 years, you're looking at 50 or 60 generations or more
+[00:33:09] Will: So, so the one thing that I thought was interesting that he didn't get into at all is the the concept of a multi generation product project. Right. When you're talking about something that takes 5,000 years, you're looking at 50 or 60 generations or more
 
 [00:33:22] Norm: Right.
 
@@ -956,11 +936,7 @@ Episode URL: https://www.youtube.com/watch?v=fcb7_All1hY
 
 [00:38:38] Norm: Yes.
 
-[00:38:39] Adam: I also read Locked In, which is a terrific Michael Crichton style thriller.
-
-[00:38:39] Adam: Yeah.
-
-[00:38:39] Adam: And I also read Old Man's War, which I loved the shit out of.
+[00:38:39] Adam: I also read Locked In, which is a terrific Michael Crichton style thriller. Yeah. And I also read Old Man's War, which I loved the shit out of.
 
 [00:38:47] Will: Oh, Old Man's War is delightful. It's wonderful.
 

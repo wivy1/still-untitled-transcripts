@@ -36,9 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:00:56] Norm: That's right, and then also getting married and giving being efficient. Yeah. I considered for this recording because I knew we were going to record a couple. To bring the ring to wear on the follow-up one.
 
-[00:01:05] Rebecca: Oh, nice.
-
-[00:01:06] Rebecca: Yeah, because you're going to be married then!
+[00:01:05] Rebecca: Oh, nice. Yeah, because you're going to be married then!
 
 [00:01:07] Norm: But I decided not to because
 
@@ -54,11 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:01:14] Rebecca: Don't let him leave with that.
 
-[00:01:15] Norm: Is this the QMX one?
-
-[00:01:16] Norm: It is the QMX one.
-
-[00:01:17] Norm: It is the Starfleet Academy graduation ring.
+[00:01:15] Norm: Is this the QMX one? It is the QMX one. It is the Starfleet Academy graduation ring.
 
 [00:01:20] Unknown: Yeah,
 
@@ -204,9 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:05:01] Norm: To describe for people just listening to the audio, Need tuna.
 
-[00:05:09] Adam: Yes, this cat sat like a man relaxing on the street. I mean, look, the cat looked like a homeless person.
-
-[00:05:14] Adam: Right, very disturbing and weird. The anthropomorphic. The anthropomorphization of a cat looking sitting there like it was a homeless person asking for change was disturbing, hilarious, upsetting. It was all of these things. It was the worst. It was like the it's the upside down world of Disney animal personification. That's this is what you didn't see in Zootopia.
+[00:05:09] Adam: Yes, this cat sat like a man relaxing on the street. I mean, look, the cat looked like a homeless person. Right, very disturbing and weird. The anthropomorphic. The anthropomorphization of a cat looking sitting there like it was a homeless person asking for change was disturbing, hilarious, upsetting. It was all of these things. It was the worst. It was like the it's the upside down world of Disney animal personification. That's this is what you didn't see in Zootopia.
 
 [00:05:36] Rebecca: Yep.
 
@@ -572,9 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=eJZZa24_Ixc
 
 [00:22:35] Adam: Thanks, everybody.
 
-[00:22:36] Norm: Thank you.
-
-[00:22:37] Norm: No, it went great, right? Went so well.
+[00:22:36] Norm: Thank you. No, it went great, right? Went so well.
 
 [00:22:38] Rebecca: Yeah, it was so great.
 

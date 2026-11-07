@@ -50,31 +50,21 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:01:05] Simone: I have.
 
-[00:01:06] Adam: That's right, Of course you have. Of course you have.
-
-[00:01:06] Adam: I'm an idiot.
+[00:01:06] Adam: That's right, Of course you have. Of course you have. I'm an idiot.
 
 [00:01:08] Simone: And I wore your astronaut Apollo suit.
 
-[00:01:10] Adam: That's right.
-
-[00:01:10] Adam: I still have that wonderful picture.
+[00:01:10] Adam: That's right. I still have that wonderful picture.
 
 [00:01:11] Simone: It has so much of my sweat in it. I feel like if you ever need like a DNA swab, it's just yeah.
 
 [00:01:11] Adam: It's good to know.
 
-[00:01:11] Simone: Pull it out of there.
-
-[00:01:19] Simone: Yeah.
+[00:01:11] Simone: Pull it out of there. Yeah.
 
 [00:01:19] Norm: It occurs to me now that we probably it was it was a mad rush packing for this, but that's something we could have packed because as we're recording this today is on the 20th. That's 49th anniversary of the moon landing.
 
-[00:01:32] Adam: The moon landing. Um, and and uh, I totally forgot what I was going to say. I had
-
-[00:01:32] Adam: a...
-
-[00:01:32] Adam: I actually had a point, and I totally lost it. Sorry,
+[00:01:32] Adam: The moon landing. Um, and and uh, I totally forgot what I was going to say. I had a... I actually had a point, and I totally lost it. Sorry,
 
 [00:01:41] Simone: We were talking about sweat.
 
@@ -124,9 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:03:52] Adam: I think that that's exactly what it is I think that I I don't think that Chris is interested in becoming the greatest guitarist in the world I think he's really interested in the personal exploration and the social aspect of music I mean actually haven't spoken to him about it so I'm speaking for him without Without knowing his stance on it, but given how much I know he values community and working with the people around him, it strikes me that he exhibits that value with the desire to play music with his friends.
 
-[00:04:18] Simone: But I feel like they're also—they must have. That was one of the things we talked to to Cady about. Just because they must share so many random issues, and like meeting as an astronaut, meeting other astronauts must be like, oh my god, this thing that happened to me.
-
-[00:04:18] Simone: Yeah.
+[00:04:18] Simone: But I feel like they're also—they must have. That was one of the things we talked to to Cady about. Just because they must share so many random issues, and like meeting as an astronaut, meeting other astronauts must be like, oh my god, this thing that happened to me. Yeah.
 
 [00:04:18] Adam: The shit only they understand.
 
@@ -138,15 +126,9 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:04:57] Norm: So you would never see them do that, though. And Adam, he doesn’t want to be the greatest guitarist on Earth, off Earth. Off Earth, yes, exactly. I think it's he set the high bar.
 
-[00:05:06] Adam: You, when you talk about the pooping, last year I was at Johnson Space Center. I was at both Kennedy and Johnson, but it was Johnson that I was hanging out with Kjell Lindgren at the Neutral Buoyancy Lab, and he took me into the shuttle mockup and showed me just how tiny the living quarters are on
+[00:05:06] Adam: You, when you talk about the pooping, last year I was at Johnson Space Center. I was at both Kennedy and Johnson, but it was Johnson that I was hanging out with Kjell Lindgren at the Neutral Buoyancy Lab, and he took me into the shuttle mockup and showed me just how tiny the living quarters are on the shuttle. It's terrifying. It's like smaller than an Econo van. Yeah. And he's like, and here's the toilet, and you just get this curtain, and you have to use this video camera to aim the suction cup. You literally and there's this pause, and he goes, " Yeah, you get to know yourself better than you ever wanted to."
 
-[00:05:25] Adam: the shuttle.
-
-[00:05:26] Adam: It's terrifying. It's like smaller than an Econo van. Yeah. And he's like, and here's the toilet, and you just get this curtain, and you have to use this video camera to aim the suction cup. You literally and there's this pause, and he goes, " Yeah, you get to know yourself better than you ever wanted to."
-
-[00:05:43] Norm: Yeah,
-
-[00:05:43] Norm: That's a different type of out-of-body experience that not many people want.
+[00:05:43] Norm: Yeah, That's a different type of out-of-body experience that not many people want.
 
 [00:05:46] Simone: I feel like we should make a new product that is like on Earth impersonation of the ISS toilet, where you have a camera.
 
@@ -178,9 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:06:15] Adam: yeah, yeah,
 
-[00:06:15] Simone: in in that way. I mean, it's a lot of cute kids.
-
-[00:06:15] Simone: and you’re like, way to go.
+[00:06:15] Simone: in in that way. I mean, it's a lot of cute kids. and you’re like, way to go.
 
 [00:06:48] Adam: I love the kids in a superhero costume,
 
@@ -222,9 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:08:45] Norm: Yeah, we can reveal. I mean, people have already seen.
 
-[00:08:51] Adam: I was Wiley Post, the developer of
-
-[00:08:53] Adam: the very first spacesuit in 1934. Wiley Post is totally worth looking up. He wore a white eye patch.
+[00:08:51] Adam: I was Wiley Post, the developer of the very first spacesuit in 1934. Wiley Post is totally worth looking up. He wore a white eye patch.
 
 [00:08:59] Simone: Oh, really?
 
@@ -268,9 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:09:42] Simone: No.
 
-[00:09:42] Adam: But I was at the prop store of London booth, looking very closely at a full size Terminator they had, and you know, like I'm in my helmet and I bump up against the glass, and this guy goes, " Adam,"
-
-[00:09:56] Adam: and I'm like, " How did you guess?" And he's like, " Well, I saw you staring intently at the Terminator, and then I saw the detailing in your costume,
+[00:09:42] Adam: But I was at the prop store of London booth, looking very closely at a full size Terminator they had, and you know, like I'm in my helmet and I bump up against the glass, and this guy goes, " Adam," and I'm like, " How did you guess?" And he's like, " Well, I saw you staring intently at the Terminator, and then I saw the detailing in your costume,
 
 [00:09:56] Simone: Oh, man.
 
@@ -310,9 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:11:56] Norm: I didn't know that there was a bladder inside there. You didn't replicate the bladder.
 
-[00:11:56] Adam: I did not.
-
-[00:12:00] Adam: I just did the exterior, Link netting. That's what that term is called when you encase a bladder in in a in a fabric net.
+[00:11:56] Adam: I did not. I just did the exterior, Link netting. That's what that term is called when you encase a bladder in in a in a fabric net.
 
 [00:12:08] Simone: I wonder what it felt like to wear because it must have been so when the bladder started expanding. It must have been like when they take your blood pressure, but all over your body.
 
@@ -356,9 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:13:19] Simone: I thought we were getting an exclusive. We're just going to see when everybody else sees it.
 
-[00:13:23] Adam: No, I'm going to show it to you on my laptop right after this podcast.
-
-[00:13:26] Adam: You'll see it several hours before anyone else sees it.
+[00:13:23] Adam: No, I'm going to show it to you on my laptop right after this podcast. You'll see it several hours before anyone else sees it.
 
 [00:13:27] Simone: oh yeah, okay, I'll take several hours.
 
@@ -374,15 +346,11 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:14:13] Adam: And they're they're just becoming more and more awesome on camera every single day. Like we're just getting more, you know, more genuine awesomeness from them.
 
-[00:14:22] Norm: Yeah, yeah. I know you're still in production for that.
-
-[00:14:22] Norm: for a couple of months.
+[00:14:22] Norm: Yeah, yeah. I know you're still in production for that. for a couple of months.
 
 [00:14:24] Adam: Oh yeah, I'll be back. I'll be back the day after tomorrow, Monday. I'll be back on Monday.
 
-[00:14:24] Norm: Wow.
-
-[00:14:29] Norm: The other thing that we, by the time you listen to this, have revealed is a tested project, and we can finally talk about it. Back in January when we we visited New Zealand, it was a return trip to visit Weta workshop, and this time, in addition to covering some of the the things that the the products they make and the movies they've worked on, we're able to do something with them,
+[00:14:24] Norm: Wow. The other thing that we, by the time you listen to this, have revealed is a tested project, and we can finally talk about it. Back in January when we we visited New Zealand, it was a return trip to visit Weta workshop, and this time, in addition to covering some of the the things that the the products they make and the movies they've worked on, we're able to do something with them,
 
 [00:14:29] Adam: yeah,
 
@@ -396,9 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:15:18] Adam: I’m not sure we told you about this. So I took the suit of armor that I made last summer in Cornwall to New Zealand.
 
-[00:15:24] Simone: The
-
-[00:15:24] Simone: Big one.
+[00:15:24] Simone: The Big one.
 
 [00:15:25] Adam: Yes, because the movie that it's from, Excalibur, is super important to both Peter Jackson and Richard Taylor. And I thought, well, let's make the armor. Let me fight a monster. They could make a monster. We could do a prosthetic. We could have some blood effects, some fight choreography. We do some propage and some knife making, and that's exactly what we did. And Peter Jackson and Richard Taylor are in it, and they play themselves, and they're hilarious. It is, it is such a surreal and amazing thing. And Norman, Joey, and I were, I mean, directing this thing together in the middle of. This public park in the middle of Wellington, where they're like, oh yeah, over there's where Frodo was hiding from the Ringwraith, and the first shot from Lord of the Rings.
 
@@ -410,11 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:16:06] Norm: And when we got there, it was six days, one week to put it together, and to their credit, I mean, they are world class filmmakers in a special effects house. They were able to work with us. We were sitting in rooms like working on a script,
 
-[00:16:35] Adam: right?
-
-[00:16:35] Adam: Working
-
-[00:16:35] Adam: On a script. Peter sent Joey to his camera department.
+[00:16:35] Adam: right? Working On a script. Peter sent Joey to his camera department.
 
 [00:16:38] Norm: Yeah, pick out a camera.
 
@@ -438,13 +400,9 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:17:24] Unknown speaker: Yes.
 
-[00:17:26] Adam: That's why Richard Taylor is the moderator because he was he was he made this all he helped us really put this all together and made it happen.
+[00:17:26] Adam: That's why Richard Taylor is the moderator because he was he was he made this all he helped us really put this all together and made it happen. Yeah.
 
-[00:17:34] Adam: Yeah.
-
-[00:17:34] Simone: That's
-
-[00:17:34] Simone: Exciting.
+[00:17:34] Simone: That's Exciting.
 
 [00:17:35] Adam: Those are the things we're talking about.
 
@@ -528,11 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=h60pUerTJk4
 
 [00:20:34] Adam: Good.
 
-[00:20:34] Simone: I mean, I'm just excited, like having spent one and a half months at home and
-
-[00:20:41] Simone: moping
-
-[00:20:41] Simone: and just being out, feeling some sort of normalcy. Not that Comic Con is normalcy, but but just I don't know,
+[00:20:34] Simone: I mean, I'm just excited, like having spent one and a half months at home and moping and just being out, feeling some sort of normalcy. Not that Comic Con is normalcy, but but just I don't know,
 
 [00:20:49] Adam: hanging out with your friends.
 

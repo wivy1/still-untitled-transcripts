@@ -60,9 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:02:47] Adam: It's one of the algorithms he runs that makes him such a great engineer.
 
-[00:02:51] Norm: Right. Right.
-
-[00:02:53] Norm: Also, he's contrarian.
+[00:02:51] Norm: Right. Right. Also, he's contrarian.
 
 [00:02:51] Kishore: I wonder how you. I wonder how you grow up with that mindset.
 
@@ -174,9 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:09:02] Kishore: This this one really broke me.
 
-[00:09:03] Adam: Really,
-
-[00:09:04] Adam: I've never seen that.
+[00:09:03] Adam: Really, I've never seen that.
 
 [00:09:04] Kishore: It's the scene where like Belloq stands up and is like flustered that they got away, and you like you look down and it's like it's clearly not even a mannequin there. It's just a hat and a coat sitting in the front seat.
 
@@ -494,13 +490,9 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:22:29] Adam: Well, I also think that's part of a longer tradition in modern magic of being really clear about. The open about the deceit, and Derren Brown's particular brilliance in my mind is taking classic tricks and doing beautiful and amazing mods. I haven't seen the Netflix special now. I didn't even know it was there. I can't wait to watch it. One of there's a classic old trick called " Out of This World," in which you hand a deck of cards to someone and ask them to mentally to sort the cards into red and blue, red and black, without looking at the cards. So you make two piles blind, and the magician then turns those piles over and shows that you have done it correctly. Right? This is a a wonderful reveal. It's a great trick. Watching it in the hands of a good magician is just delightful, and the surprise is incredible. Derren Brown's version of " Out of This World" from years and years ago was he handed you a bunch of photographs and you put them into piles of people you liked and people you didn't like, and when you were done, he turned them over and you could see that all the people you didn't like were deceased. And all the ones you did were alive.
 
-[00:23:34] Norm: What?
+[00:23:34] Norm: What? Wow!
 
-[00:23:35] Norm: Wow!
-
-[00:23:36] Adam: I know that is the kind of narrative flourish he brings.
-
-[00:24:53] Adam: So where were we?
+[00:23:36] Adam: I know that is the kind of narrative flourish he brings. So where were we?
 
 [00:24:55] Norm: Uh.
 
@@ -550,9 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:29:54] Kishore: please text us. I texted Adam right after.
 
-[00:29:57] Adam: I was like, dude,
-
-[00:29:59] Adam: I am still my my wife and I are still burning our way through Mad Men, which remains so shockingly great, just incredible.
+[00:29:57] Adam: I was like, dude, I am still my my wife and I are still burning our way through Mad Men, which remains so shockingly great, just incredible.
 
 [00:30:09] Norm: And you go on a trip very soon. We talked about last week. You are working on the Maltese Falcon.
 
@@ -724,6 +714,4 @@ Episode URL: https://www.youtube.com/watch?v=Bjqv2wSv7mE
 
 [00:40:59] Adam: All right, bye guys.
 
-[00:40:59] Norm: Bye.
-
-[00:41:02] Norm: Thanks again for listening. We'll see you next time. Bye.
+[00:40:59] Norm: Bye. Thanks again for listening. We'll see you next time. Bye.

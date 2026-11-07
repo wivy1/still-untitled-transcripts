@@ -62,11 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:02:19] Will: Okay.
 
-[00:02:19] Adam: So do you remember
-
-[00:02:20] Adam: the love scene?
-
-[00:02:21] Adam: Before Ocean. So do you remember the love scene in Out of Sight?
+[00:02:19] Adam: So do you remember the love scene? Before Ocean. So do you remember the love scene in Out of Sight?
 
 [00:02:24] Will: Yeah.
 
@@ -114,9 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:04:46] Adam: When you watch it, the thing about Once Upon a Time in the West will is that when you watch it, you think that like the Western is defined by the [cert?], by the by the man with the man with no name, fistful of dollars, few dollars more. Once Upon a Time in the West is like the icing on all of that cake.
 
-[00:05:01] Will: Huh?
-
-[00:05:02] Will: More than like Magnificent Seven and stuff like that?
+[00:05:01] Will: Huh? More than like Magnificent Seven and stuff like that?
 
 [00:05:04] Adam: Oh fuck! I I think it's the best of all of those westerns. Wow! I truly do. I love it, love it, love it.
 
@@ -356,9 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:16:05] Will: Oh, oh, right, right, right,
 
-[00:16:07] Adam: right.
-
-[00:16:08] Adam: The holder of the key, right?
+[00:16:07] Adam: right. The holder of the key, right?
 
 [00:16:09] Will: Gotcha.
 
@@ -378,9 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:17:01] Adam: I get that. I just can't watch it, but I also like. I also like. Schumacher's two Batman films are famous. There are a lot of what gets talked about when he gets brought up, and he's so much deeper and more important of a filmmaker than those two films.
 
-[00:17:16] Will: Yeah.
-
-[00:17:17] Will: And I love the movie.
+[00:17:16] Will: Yeah. And I love the movie.
 
 [00:17:19] Adam: just, by the way, one thing I love is that right after the second Batman film, Schumacher decided to go back to his roots and shoot a low-budget film with a then unknown actor named Colin Farrell.
 
@@ -508,11 +498,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:23:00] Adam: Yeah, constantly.
 
-[00:23:00] Norm: the archetype of the television courtroom drama and procedural. And this is not that; it's very much a Boardwalk Empire-esque, you know, miniseries. It's almost like Boardwalk Empire. True detective crossover. It's Matthew
-
-[00:23:16] Norm: Rhys
-
-[00:23:16] Norm: playing Perry Mason.
+[00:23:00] Norm: the archetype of the television courtroom drama and procedural. And this is not that; it's very much a Boardwalk Empire-esque, you know, miniseries. It's almost like Boardwalk Empire. True detective crossover. It's Matthew Rhys playing Perry Mason.
 
 [00:23:18] Will: I was gonna say it’s
 
@@ -608,9 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:28:08] Norm: With the capillary effect. And
 
-[00:28:09] Will: yeah.
-
-[00:28:11] Will: What What are you um Norm? Are you doing what What are you doing when you need more rigidity than the one eighth will do? Are you just gluing two sheets, cutting two sheets, and gluing them together?
+[00:28:09] Will: yeah. What What are you um Norm? Are you doing what What are you doing when you need more rigidity than the one eighth will do? Are you just gluing two sheets, cutting two sheets, and gluing them together?
 
 [00:28:21] Norm: Yeah.
 
@@ -620,9 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:28:31] Will: It takes forever.
 
-[00:28:32] Norm: That I have, yeah.
-
-[00:28:34] Norm: Yeah. It's real slow. Lots of fumes. Yeah, eighth is where I'm comfortable.
+[00:28:32] Norm: That I have, yeah. Yeah. It's real slow. Lots of fumes. Yeah, eighth is where I'm comfortable.
 
 [00:28:37] Adam: Yeah.
 
@@ -638,9 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=tEHozPD2_rE
 
 [00:28:42] Norm: Good check in. watch a Joel Schumacher movie, folks.
 
-[00:28:44] Adam: Yeah.
-
-[00:28:45] Adam: Yeah. [What type?] You could do worse than Tigerland, but there's a whole bunch of wonderful films, and many of them have super high ratings on Rotten Tomatoes. Falling Down is a masterpiece. or Michael Douglas, a wonderful Michael Douglas film.
+[00:28:44] Adam: Yeah. Yeah. [What type?] You could do worse than Tigerland, but there's a whole bunch of wonderful films, and many of them have super high ratings on Rotten Tomatoes. Falling Down is a masterpiece. or Michael Douglas, a wonderful Michael Douglas film.
 
 [00:28:58] Will: It's a little hard to watch. Like
 

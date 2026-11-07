@@ -42,11 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:01:36] Adam: Yatch.
 
-[00:01:36] Simone: It doesn't.
-
-[00:01:43] Simone: Yeah.
-
-[00:01:43] Simone: On when when I was on a show, I saw the transcript that they had to pronounce my name was Y-E-T-C-H. Yeah. Yatch.
+[00:01:36] Simone: It doesn't. Yeah. On when when I was on a show, I saw the transcript that they had to pronounce my name was Y-E-T-C-H. Yeah. Yatch.
 
 [00:01:43] Adam: Yeah. Yatch.
 
@@ -250,11 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:10:27] Norm: I know. Did you have to think about that? Because we we we gave it away earlier.
 
-[00:10:30] Adam: We did.
-
-[00:10:30] Adam: We did. We did a whole thing where we didn't reveal my favorite burrito in San Francisco.
-
-[00:10:34] Adam: That's okay. But now it's it's official.
+[00:10:30] Adam: We did. We did. We did a whole thing where we didn't reveal my favorite burrito in San Francisco. That's okay. But now it's it's official.
 
 [00:10:35] Simone: It's out there. It's out there.
 
@@ -334,9 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:12:32] Adam: and what you realize eating it is that sushi is a whole textural aesthetic in terms of the sweet, sour, crunchy, soft tastes and feels that are going on in a piece of sushi, and fish is ancillary to that. It turns out
 
-[00:12:49] Simone: I love Adam that you are talking about sushi in the same way as you talk about costumes.
-
-[00:12:54] Simone: It's the
+[00:12:49] Simone: I love Adam that you are talking about sushi in the same way as you talk about costumes. It's the
 
 [00:12:54] Adam: textural art, it's always absolutely. And Shizen is like you could serve it to full meat eaters, and it would be like 15 minutes before they realized something was like, " What's going? Wait a minute! Wait,
 
@@ -376,9 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:14:13] Norm: wow!
 
-[00:14:13] Simone: Yeah, it was.
-
-[00:14:16] Simone: very weird.
+[00:14:13] Simone: Yeah, it was. very weird.
 
 [00:14:17] Adam: Aren't Colbert's people just the nicest group.
 
@@ -496,9 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:21:38] Simone: But is it slowing down for you now? Like when you're on stage,
 
-[00:21:40] Adam: it does. It is slow.
-
-[00:21:41] Adam: It does, and and yet yet there are still times when I lose my train of thought. That happens in the middle of a question. I tend to I can tend to ramble, and if I'm rambling and I start to get self conscious about it, I'll just go. I may be rambling, and that that's like one of the mechanisms in which I you know transparency is my.
+[00:21:40] Adam: it does. It is slow. It does, and and yet yet there are still times when I lose my train of thought. That happens in the middle of a question. I tend to I can tend to ramble, and if I'm rambling and I start to get self conscious about it, I'll just go. I may be rambling, and that that's like one of the mechanisms in which I you know transparency is my.
 
 [00:22:00] Norm: Your brain is very malleable, and I think it trains itself over time. I don't know if I've mentioned this, but when chatting with people on camera, I found that I have no track of time. You know how long things have gone, but at around exactly the six minute. Mark, the person's name comes back to me, and I know that's the six-minute mark. And I know I have two more questions, and that's it to get to around eight minutes.
 
@@ -508,9 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:22:28] Adam: That's so funny.
 
-[00:22:28] Norm: Okay, I will
-
-[00:22:28] Norm: acknowledge
+[00:22:28] Norm: Okay, I will acknowledge
 
 [00:22:30] Simone: six minutes.
 
@@ -546,9 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:24:59] Simone: Like you can’t recover from it.
 
-[00:25:01] Adam: Right.
-
-[00:25:01] Adam: That's binary. That's like ridiculous. Like that's a wow, I really screwed up. Like
+[00:25:01] Adam: Right. That's binary. That's like ridiculous. Like that's a wow, I really screwed up. Like
 
 [00:25:05] Norm: it's binary. Like that—that's the end of the road of something.
 
@@ -568,9 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:26:21] Simone: But that's the thing; I've been kind of surprised because I mean, I'm really happy with where I'm at now, and it all seems like the steps I've done a lot of very random things that, in some way, directly or indirectly, led up to this. But you can kind of see how a lot of like the different things I've done in my life have contributed into some way in what I'm doing right now.
 
-[00:26:40] Adam: Right.
-
-[00:26:41] Adam: But it wasn't an overall plan you wrote down when you were 12.
+[00:26:40] Adam: Right. But it wasn't an overall plan you wrote down when you were 12.
 
 [00:26:43] Simone: And it's like always, I see it kind of like when yeah, but when I was 12, I kind of had. I mean, I had like five year plans for my life. Or when I was 16, I was like, this is this is how it's all going to go down. And then I realized, I mean, that's just not how it works. And now I've just seen it. I mean, you're just skipping from one stone to another, and you're like, oh, that seems like an interesting place, and you try that, and then you're like, oh, all these other stones opened up. Maybe I can jump there. And I think, yeah, it's definitely not linear or planned or anything like that.
 
@@ -654,9 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:30:14] Simone: Burn.
 
-[00:30:14] Adam: I don't mean that.
-
-[00:30:15] Adam: well. He was a he was a surgeon. He was actually my grandfather was one of the pioneers of breast cancer surgery in the '40s and the '50s. And my mom actually remembers. I mean, he was very much a Norwegian father. Like when my mom was first pregnant, he was like, " Yes, my dear, it's exactly what I expected of you."
+[00:30:14] Adam: I don't mean that. well. He was a he was a surgeon. He was actually my grandfather was one of the pioneers of breast cancer surgery in the '40s and the '50s. And my mom actually remembers. I mean, he was very much a Norwegian father. Like when my mom was first pregnant, he was like, " Yes, my dear, it's exactly what I expected of you."
 
 [00:30:37] Norm: Wow,
 
@@ -670,9 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=BdRx2BzgBGc
 
 [00:31:04] Simone: Swedish story, yeah.
 
-[00:31:04] Adam: I did. I had a story.
-
-[00:31:06] Adam: I always have.
+[00:31:04] Adam: I did. I had a story. I always have.
 
 [00:31:06] Simone: Swedish stories.
 

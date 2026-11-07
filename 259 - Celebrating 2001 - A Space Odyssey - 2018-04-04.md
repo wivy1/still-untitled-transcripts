@@ -22,9 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:00:55] Will: Does it smell like burning toast in here for everybody?
 
-[00:00:58] Norm: What does burning toast smell like?
-
-[00:00:58] Norm: [unclear: It smells like / It’s not like, it’s not] when they have a stroke.
+[00:00:58] Norm: What does burning toast smell like? [unclear: It smells like / It’s not like, it’s not] when they have a stroke.
 
 [00:01:01] Will: I don't know, but it's a common it's a common report.
 
@@ -84,9 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:03:14] Adam: Part of your memory palace,
 
-[00:03:15] Will: yeah, it is part of the memory palace. That's absolutely right. So you you look a little cowed, you look a little
-
-[00:03:20] Will: subdued. You okay? Do you need a hug?
+[00:03:15] Will: yeah, it is part of the memory palace. That's absolutely right. So you you look a little cowed, you look a little subdued. You okay? Do you need a hug?
 
 [00:03:22] Adam: So one, I'm not happy because I don't have my phone with me. Two, I'm not happy about not being happy because I don’t have my phone with me.
 
@@ -94,9 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:03:28] Adam: I feel like this is a this is I, I feel like evolutionarily somehow I'm taking a wrong path. I
 
-[00:03:35] Norm: would think that this is the space where you would feel happy, even
-
-[00:03:35] Norm: without your phone.
+[00:03:35] Norm: would think that this is the space where you would feel happy, even without your phone.
 
 [00:03:39] Adam: So you're you're absolutely right. You know, we're going to get started. Silicon Valley Comic Con is coming up this weekend. We are furiously in the cave with a special guest working on some stuff for this weekend, and it's a great, it's a very fun build. And you're absolutely correct. The moment we get started working, I'm going to forget. I I almost never pull out my phone while working in the shop,
 
@@ -106,15 +100,9 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:04:16] Will: There's better stuff to do in this space,
 
-[00:04:17] Adam: so it's it's like years ago. I worked for a machine artist in San Francisco named Chico MacMurtrie of Amorphic Robot Works, and he's now in Red Hook, Brooklyn. But I was in his assistant for about a year and a half in the very early '90s, and Chico lived in a space down in Hunters Point, a building that I eventually lived in for a couple years. But Chico's shop was, if you think this is like a kind of a cave, Chico's was like this, except it was all robots and machine art and greasy hydraulic cylinders and stuff just filling this room,
+[00:04:17] Adam: so it's it's like years ago. I worked for a machine artist in San Francisco named Chico MacMurtrie of Amorphic Robot Works, and he's now in Red Hook, Brooklyn. But I was in his assistant for about a year and a half in the very early '90s, and Chico lived in a space down in Hunters Point, a building that I eventually lived in for a couple years. But Chico's shop was, if you think this is like a kind of a cave, Chico's was like this, except it was all robots and machine art and greasy hydraulic cylinders and stuff just filling this room, this giant room, like 3,000 square feet, 2,000 square feet. And Chico's place, I stayed there for a few weeks while he was in Czechoslovakia on an art tour, and I stayed in his shop. And his shop had the most amazing effect on me in that that shop required you to either be working on something or leave.
 
-[00:04:17] Adam: this giant room, like 3,000 square feet,
-
-[00:04:17] Adam: 2,000 square feet. And Chico's place, I stayed there for a few weeks while he was in Czechoslovakia on an art tour, and I stayed in his shop. And his shop had the most amazing effect on me in that that shop required you to either be working on something or leave.
-
-[00:05:11] Will: Like there’s no there’s no idle space.
-
-[00:05:11] Will: There’s no couch?
+[00:05:11] Will: Like there’s no there’s no idle space. There’s no couch?
 
 [00:05:13] Adam: there was no couch. Yeah. There was no place to sit and have a coffee or a table around which to have a meeting with anyone. It was like get out of the bed, which was a modified shipping crate, and go work at the welder, or get the hell out. And to a smaller extent, my shop engenders in me not being online, being actually with my hands engaged.
 
@@ -164,9 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:07:32] Adam: I'm more distressed that I'm distressed.
 
-[00:07:35] Will: I don’t. That’s what I’m saying. I don’t. I think.
-
-[00:07:35] Will: Like, look, you have over the last 10 years, you've taken a part of your brain, the part that remembered shit that you don't need to remember.
+[00:07:35] Will: I don’t. That’s what I’m saying. I don’t. I think. Like, look, you have over the last 10 years, you've taken a part of your brain, the part that remembered shit that you don't need to remember.
 
 [00:07:35] Adam: Yeah, that's true.
 
@@ -236,9 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:09:30] Adam: Yeah.
 
-[00:09:30] Will: Then the game gets bad, but but but it's like it's an interesting like now in the information
-
-[00:09:30] Will: age.
+[00:09:30] Will: Then the game gets bad, but but but it's like it's an interesting like now in the information age.
 
 [00:10:04] Adam: I was like, oh, I want to look something up. Let me go. [unclear: Oh, it’s not my phone / It’s on my phone]. While we're
 
@@ -278,11 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:10:55] Will: That's probably the longest you've gone as an adult, right?
 
-[00:10:56] Norm: Yes, absolutely. And then on the last day, when we got off the ship and onto Is Resolute in Canada City, and we all were bussed to a hotel where we were waiting before we would get then ferried back to the airport. Everyone was very in their head it was very euphoric. Everyone was talking about the trip. And then it was in this big hotel lounge, and then very slowly we realized one person had noticed that there was a Wi-Fi password taped to the wall, and you could see the wave of
-
-[00:10:56] Norm: silence
-
-[00:10:56] Norm: going over as everyone's chatting, chatting, chatting, chatting, and then silence, and then everyone's checking their emails.
+[00:10:56] Norm: Yes, absolutely. And then on the last day, when we got off the ship and onto Is Resolute in Canada City, and we all were bussed to a hotel where we were waiting before we would get then ferried back to the airport. Everyone was very in their head it was very euphoric. Everyone was talking about the trip. And then it was in this big hotel lounge, and then very slowly we realized one person had noticed that there was a Wi-Fi password taped to the wall, and you could see the wave of silence going over as everyone's chatting, chatting, chatting, chatting, and then silence, and then everyone's checking their emails.
 
 [00:11:34] Will: Here's that last, this last moment you guys had together as a group. Yeah, you you squandered by checking your email.
 
@@ -318,9 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:12:37] Will: Oh, you’ve never done it before, okay?
 
-[00:12:38] Adam: You know more than I do.
-
-[00:12:38] Adam: about what it entails.
+[00:12:38] Adam: You know more than I do. about what it entails.
 
 [00:12:40] Will: It is a. It is kind of a bullshit quiz show.
 
@@ -402,9 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:14:51] Adam: Yeah, I brought my Onewheel, and Margie, Margie,
 
-[00:14:51] Norm: who
-
-[00:14:54] Norm: helps on Tested,
+[00:14:51] Norm: who helps on Tested,
 
 [00:14:56] Adam: also brought her Onewheel, and yeah, we were riding them all over the place.
 
@@ -434,9 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:15:22] Adam: going to check a camera 500 feet away,
 
-[00:15:24] Norm: Yeah.
-
-[00:15:24] Norm: collecting GoPros. It
+[00:15:24] Norm: Yeah. collecting GoPros. It
 
 [00:15:26] Adam: turns out Gunther is really good at riding it.
 
@@ -486,9 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:17:31] Will: Okay. Yeah, like
 
-[00:17:32] Adam: Wait, you’ve got to see this.
-
-[00:17:32] Adam: Here we go. Oh
+[00:17:32] Adam: Wait, you’ve got to see this. Here we go. Oh
 
 [00:17:35] Norm: my god.
 
@@ -572,9 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:20:32] Will: for the Jupiter shots and all that stuff.
 
-[00:20:39] Adam: I actually don’t remember. I don’t know. This is not something.
-
-[00:20:39] Adam: I do.
+[00:20:39] Adam: I actually don’t remember. I don’t know. This is not something. I do.
 
 [00:20:42] Will: I'll look that up on my pocket internet device. and just decide.
 
@@ -596,11 +566,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:21:11] Will: I mean, the ham sandwich does come into play.
 
-[00:21:14] Adam: The ham sandwiches that Floyd Heywood Floyd eats with his crew on the way to Tycho.
-
-[00:21:14] Adam: Yes, it’s true. And.
-
-[00:21:14] Adam: by the way, I love the fact that on the moon in the future, they like. Well, we called Tycho base, but we've just got the machine. Like,
+[00:21:14] Adam: The ham sandwiches that Floyd Heywood Floyd eats with his crew on the way to Tycho. Yes, it’s true. And. by the way, I love the fact that on the moon in the future, they like. Well, we called Tycho base, but we've just got the machine. Like,
 
 [00:21:28] Will: like, look! If you look at, if you look at, it's fascinating to look at like late '60s science fiction, including 2001, the Charlton Heston trio with Planet of the Apes and and Omega Man and Soylent Green, and and see which of the tiny bits of these films they got right, right? Like, like, there's they're real close on a lot of stuff, but just you know, the AT and T video phone terminal in the airport,
 
@@ -630,9 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:22:34] Adam: high contrast. And IBM had told Kubrick's people that this would be possible. We'll be able to make an object in 3D in the computer, but they couldn't quite do it yet. So that wireframe graphic on that computer screen, and the computer screen, by the way, is a 16 millimeter projector on a loop projecting at a back rear rear projection screen. That wireframe is a model of the antenna built in wire. Oh my
 
-[00:23:03] Will: god, you've got to be kidding me!
-
-[00:23:04] Will: It’s an actual wire?
+[00:23:03] Will: god, you've got to be kidding me! It’s an actual wire?
 
 [00:23:04] Adam: Photographed in high contrast and posterized to make the computer graphic. So the wireframe is an actual wireframe.
 
@@ -652,9 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:23:31] Adam: That's one of my favorite 2001 facts. That came out in the Cinefex. Cinefex released an entire issue devoted to 2001 in 2001.
 
-[00:23:31] Norm: Hmm, hmm. What are you looking at, Will?
-
-[00:23:43] Norm: Which part of your film is your favorite or the most impactful? You think? It's a film with many acts.
+[00:23:31] Norm: Hmm, hmm. What are you looking at, Will? Which part of your film is your favorite or the most impactful? You think? It's a film with many acts.
 
 [00:23:49] Adam: I I have. So I have a particular fondness for the Dawn of Man.
 
@@ -826,9 +788,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:31:58] Will: Oh, it would be nice if he just
 
-[00:31:58] Norm: sat there.
-
-[00:31:58] Norm: as opposed to in your head. Yeah,
+[00:31:58] Norm: sat there. as opposed to in your head. Yeah,
 
 [00:31:58] Will: yeah,
 
@@ -856,9 +816,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:32:24] Adam: Right.
 
-[00:32:24] Norm: You should totally
-
-[00:32:24] Norm: record that.
+[00:32:24] Norm: You should totally record that.
 
 [00:32:24] Unknown speaker (Will or Norm): Oh yeah.
 
@@ -888,9 +846,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:32:52] Norm: Adam doesn't have his phone.
 
-[00:32:54] Adam: Oh my god!
-
-[00:32:54] Adam: I can’t.
+[00:32:54] Adam: Oh my god! I can’t.
 
 [00:32:54] Norm: We come full circle. Hey, this weekend we'll be at Silicon Valley Comic Con. If you're in the Bay Area and San Jose specifically, please come by. We're gonna be Adam’s going to be on a panel on Saturday. And we'll be set up on the show floor the whole weekend. Come by and say hi.
 
@@ -906,9 +862,7 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:33:31] Norm: Good tease.
 
-[00:33:31] Will: Wow.
-
-[00:33:32] Will: Okay. See you guys next week.
+[00:33:31] Will: Wow. Okay. See you guys next week.
 
 [00:33:33] Adam: Bye guys.
 
@@ -928,8 +882,6 @@ Episode URL: https://www.youtube.com/watch?v=TLlcbJ-nddA
 
 [00:33:49] Adam: I think one of us went out of order.
 
-[00:33:52] Will: Yes. Range on this is a little tight. Welcome to Still Untitled the Adam Savage [unclear: / Project]. Ah, fuck!
-
-[00:33:52] Will: We’re going to have
+[00:33:52] Will: Yes. Range on this is a little tight. Welcome to Still Untitled the Adam Savage [unclear: / Project]. Ah, fuck! We’re going to have
 
 [00:34:00] Adam: to put all this in.

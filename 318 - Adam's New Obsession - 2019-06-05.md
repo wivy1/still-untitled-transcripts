@@ -20,15 +20,11 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:00:44] Adam: Actually, one of the high compliments I got for the audio book version of Every Tool's a Hammer is someone said I liked it so much I went back down to one to one to one speed.
 
-[00:00:54] Will: What?
-
-[00:00:54] Will: Wow.
+[00:00:54] Will: What? Wow.
 
 [00:00:57] Norm: I can't do that. You can do 0.5, two X speed, or 1.5.
 
-[00:00:59] Will: No, never.
-
-[00:00:59] Will: I hate it. It makes me crazy.
+[00:00:59] Will: No, never. I hate it. It makes me crazy.
 
 [00:01:01] Norm: I used to.
 
@@ -72,9 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:02:12] Norm: You were it's New York in the summer because we talk about
 
-[00:02:15] Adam: it's hot. Yeah,
-
-[00:02:16] Adam: it's not hot. It's 75 degrees, but with like 70% humidity.
+[00:02:15] Adam: it's hot. Yeah, it's not hot. It's 75 degrees, but with like 70% humidity.
 
 [00:02:20] Norm: But in New York,
 
@@ -84,9 +78,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:02:23] Will: East Coast 80 will wreck you.
 
-[00:02:25] Adam: Yeah,
-
-[00:02:25] Adam: totally. With all that humidity.
+[00:02:25] Adam: Yeah, totally. With all that humidity.
 
 [00:02:26] Will: Yeah,
 
@@ -152,9 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:04:58] Will: I've,
 
-[00:05:00] Norm: I'm okay.
-
-[00:05:00] Norm: Little jelly.
+[00:05:00] Norm: I'm okay. Little jelly.
 
 [00:05:01] Will: I'm very envious.
 
@@ -170,9 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:05:25] Will: Yeah, so yeah, and Derek, I I don't know Derek at all, but I assume he's a similar kind of force.
 
-[00:05:31] Adam: Given Derek is in and of himself.
-
-[00:05:32] Adam: Well, yeah, within within five minutes, she had him telling his childhood upbringing story, and that lasted about 45 minutes, and it's a riveting and amazing story.
+[00:05:31] Adam: Given Derek is in and of himself. Well, yeah, within within five minutes, she had him telling his childhood upbringing story, and that lasted about 45 minutes, and it's a riveting and amazing story.
 
 [00:05:41] Will: That's awesome.
 
@@ -202,9 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:06:47] Adam: Classic Jamie.
 
-[00:06:48] Will: Yeah,
-
-[00:06:49] Will: that's very. I can totally see that.
+[00:06:48] Will: Yeah, that's very. I can totally see that.
 
 [00:06:50] Adam: The funny story was the second the I did tell one story about confiscating the kids' phones and how we confiscated them every night at 9:30 from the moment they had phones until they were like 16.5, and we were like the only parents in our peer group that were actually taking all electronics every night.
 
@@ -238,11 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:08:26] Adam: so I made him use a flip phone for a year.
 
-[00:08:31] Will: Oh,
-
-[00:08:31] Will: That's a pretty good. That's a pretty good.
-
-[00:08:33] Will: Wow.
+[00:08:31] Will: Oh, That's a pretty good. That's a pretty good. Wow.
 
 [00:08:33] Norm: The betrayal revealed in that exchange, brother to brother.
 
@@ -272,11 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:09:26] Adam: Because I'm kind of impressed. And yet, there's no room for being impressed when you're a parent. It's time for punishment. Like you gotta, you gotta nip that in the bud. You can't, you can't let them think that they can manipulate you like that. You have to maintain your omnipotence until it's absurd.
 
-[00:09:39] Will: And until there's no change.
-
-[00:09:39] Will: Yeah.
-
-[00:09:41] Will: So I got in trouble when I was in high school because we we didn't have cell phones then. Because you know, you and I are old.
+[00:09:39] Will: And until there's no change. Yeah. So I got in trouble when I was in high school because we we didn't have cell phones then. Because you know, you and I are old.
 
 [00:09:48] Adam: Yeah.
 
@@ -420,9 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:14:06] Will: last year? The year before? It's very good.
 
-[00:14:09] Adam: And it's it's so I went and looked up tips
-
-[00:14:11] Adam: and tricks of professional Beat Saber competitors, and to be honest, here's where I'm not interested. So I watched a bunch of YouTube videos of people playing exceedingly hard levels on Expert Plus, and I found it just as Distancing, and as uninteresting to me as watching the other game that was just like this, which is Rock Band,
+[00:14:09] Adam: And it's it's so I went and looked up tips and tricks of professional Beat Saber competitors, and to be honest, here's where I'm not interested. So I watched a bunch of YouTube videos of people playing exceedingly hard levels on Expert Plus, and I found it just as Distancing, and as uninteresting to me as watching the other game that was just like this, which is Rock Band,
 
 [00:14:33] Will: yeah,
 
@@ -524,9 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:18:33] Adam: Yeah,
 
-[00:18:33] Will: and I use
-
-[00:18:34] Will: a 10-head USB fast charger that will charge 10 devices at once.
+[00:18:33] Will: and I use a 10-head USB fast charger that will charge 10 devices at once.
 
 [00:18:37] Adam: Oh, I didn’t. I haven’t seen 10-head ones. I have a dual. Oh, that's nice.
 
@@ -754,9 +728,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:27:37] Adam: They got a lot of bang for their buck.
 
-[00:27:38] Norm: Great, Michael Sheen. Michael Sheen. And
-
-[00:27:41] Norm: David Tennant. And David Tennant are like ship them now
+[00:27:38] Norm: Great, Michael Sheen. Michael Sheen. And David Tennant. And David Tennant are like ship them now
 
 [00:27:43] Adam: as an angel and a demon.
 
@@ -788,9 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=KBQEPfwt6B4
 
 [00:28:03] Adam: It is funny. It's dirty. It's sexy. It's sweet. It's hilarious.
 
-[00:28:07] Norm: It was. It was
-
-[00:28:08] Norm: very sweet.
+[00:28:07] Norm: It was. It was very sweet.
 
 [00:28:08] Will: It was maybe the first Neil Gaiman novel I read, and I was just like, it was the kind of book that you finished and you picked up and you read it again immediately.
 

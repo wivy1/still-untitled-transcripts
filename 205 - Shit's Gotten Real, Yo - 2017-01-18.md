@@ -26,11 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:01:16] Adam: San Francisco Sketchfest, a yearly. Is it a month long?
 
-[00:01:30] Janet Varney: I mean, ish.
-
-[00:01:31] Janet Varney: Ish.
-
-[00:01:32] Janet Varney: It's it's it's three weekends and then a bunch of days in between.
+[00:01:30] Janet Varney: I mean, ish. Ish. It's it's it's three weekends and then a bunch of days in between.
 
 [00:01:35] Adam: And then there's stuff in the summer.
 
@@ -50,9 +46,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:03:57] Will: She was very excited.
 
-[00:03:58] Janet Varney: It was a great show. Yeah, they're really Josh is so funny, and that's I mean he's like I hate just I mean he's the coyote trickster of Hollywood, so he really is the kind of prankster. Like, but when I came in when I started doing the Thrilling Adventure Hour, which he is also a part, someone pulled me aside and gently warned me, like he hasn't been doing this lately, but sometimes he just does this thing where he takes all of your script pages and shuffles them around, and you don't know it until you're on stage. And that's for those
-
-[00:04:29] Janet Varney: of you who don't know, yeah, Thrilling Adventure Hour is predicated on we only read from a script. There's very little, if any, improvising. Other than if someone flubs something, yeah, which then maybe you you sort of open the door slightly, but nobody just like goes off book and starts razzing around as a so that put the fear of God in me. I was like,
+[00:03:58] Janet Varney: It was a great show. Yeah, they're really Josh is so funny, and that's I mean he's like I hate just I mean he's the coyote trickster of Hollywood, so he really is the kind of prankster. Like, but when I came in when I started doing the Thrilling Adventure Hour, which he is also a part, someone pulled me aside and gently warned me, like he hasn't been doing this lately, but sometimes he just does this thing where he takes all of your script pages and shuffles them around, and you don't know it until you're on stage. And that's for those of you who don't know, yeah, Thrilling Adventure Hour is predicated on we only read from a script. There's very little, if any, improvising. Other than if someone flubs something, yeah, which then maybe you you sort of open the door slightly, but nobody just like goes off book and starts razzing around as a so that put the fear of God in me. I was like,
 
 [00:04:51] Adam: and I mean those. Yeah, the the he's he. I've met him backstage at Thrilling Adventure, and I mean that backstage I find incredibly intimidating.
 
@@ -160,9 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:10:25] Adam: it was somber. Um, it is the only week in my Twitter history I lost followers.
 
-[00:10:25] Janet Varney: Oh,
-
-[00:10:25] Janet Varney: Did you?
+[00:10:25] Janet Varney: Oh, Did you?
 
 [00:10:25] Adam: I mean, net loss of. Um, well, look, fist bump to be sure. If, but I, I, you know, look, I, I, I read your comments. I know that like there's a lot of people who indulge my liberal, bleeding heart tendencies, and I, I get you. I feel you. Um, I, I, I want people to know, like, I don't think that you're stupid if you voted for someone I disagree with. I think we all want, you know, a stable life for our kids and our families, and I, I really get that. All that being said, holy cow! What a beautiful room to be in. 18,000 people, who most of whom had been working with Obama for, if not eight, then 12 or 13 years.
 
@@ -212,9 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:13:28] Adam: Yeah. And I started getting good amounts of sleep. I started meditating, and I turned off NPR. I like stopped listening to NPR completely because I found that for a week my radio was broken, and I was so happy.
 
-[00:13:28] Janet Varney: Uh-huh.
-
-[00:13:40] Janet Varney: Yeah. I don't. I worked for. I guess it was about six months for the Huffington Post. I well, I was I was there for his re-election, so I real that was a very intense six months because within that six months, were Hurricane Sandy, Sandy Hook,
+[00:13:28] Janet Varney: Uh-huh. Yeah. I don't. I worked for. I guess it was about six months for the Huffington Post. I well, I was I was there for his re-election, so I real that was a very intense six months because within that six months, were Hurricane Sandy, Sandy Hook,
 
 [00:13:40] Adam: oh wow,
 
@@ -230,9 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:13:40] Will: Ariana.
 
-[00:15:36] Janet Varney: we have the chance to do
-
-[00:15:37] Janet Varney: this thing. Yeah, we have the chance to do this thing that's never been done before. We're gonna have people. And so for the sort of beta phase, it was like that. Was like I would read. You know, in the morning we would be in a bullpen, and I would read stories on. HuffPo and go. I want to know more about that. Can we get this guy, that girl, and that mom, and that senator who all had a point of view about this who never spoke, and get them all in this sort of Google Hangout together?
+[00:15:36] Janet Varney: we have the chance to do this thing. Yeah, we have the chance to do this thing that's never been done before. We're gonna have people. And so for the sort of beta phase, it was like that. Was like I would read. You know, in the morning we would be in a bullpen, and I would read stories on. HuffPo and go. I want to know more about that. Can we get this guy, that girl, and that mom, and that senator who all had a point of view about this who never spoke, and get them all in this sort of Google Hangout together?
 
 [00:15:37] Adam: That’s fun.
 
@@ -262,15 +250,11 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:17:12] Adam: I wrote to a friend of mine and I was like, I can't believe you have the energy to engage this shit, and he's like, it is. It is what I have to do.
 
-[00:17:12] Janet Varney: Yeah.
-
-[00:17:20] Janet Varney: And I respect and I appreciate. You know, I like I do look at someone like Michael Ian Black, whom I adore, and I don't know if it's like this for him, but some people do sort of feed off of that, and they it's it's I I don't know if it's like extrovert versus introvert, if it's that same kind of principle where you build momentum and you actually are energized by that kind of exchange versus other people who are sapped by it. Well, but I'm definitely sapped by it.
+[00:17:12] Janet Varney: Yeah. And I respect and I appreciate. You know, I like I do look at someone like Michael Ian Black, whom I adore, and I don't know if it's like this for him, but some people do sort of feed off of that, and they it's it's I I don't know if it's like extrovert versus introvert, if it's that same kind of principle where you build momentum and you actually are energized by that kind of exchange versus other people who are sapped by it. Well, but I'm definitely sapped by it.
 
 [00:17:45] Adam: Let's talk about this one thing because Andy Richter. I saw him on Sunday because I did his wife's podcast with with Susan Orlean, and Andy was saying. You know, I keep tweeting the political stuff, and people keep writing to me and telling me, " Stick to the funny shit."
 
-[00:18:00] Will: Well, there's nothing that makes me more upset than that.
-
-[00:18:03] Will: I don't follow you for this. It's like tough shit. You're following me. You get what you get. What I want to talk about.
+[00:18:00] Will: Well, there's nothing that makes me more upset than that. I don't follow you for this. It's like tough shit. You're following me. You get what you get. What I want to talk about.
 
 [00:18:08] Adam: And by the way, let's just state for the record that the argument politics isn't your bailiwick and you should leave it to professionals is no longer ever an argument.
 
@@ -296,21 +280,13 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:20:10] Janet Varney: And it just all rushed over, but it was as absurd to me as if it were her. I would. I just was like, I don't understand. I don't understand. And now I understand more, and I've had a lot of tough conversations with with people, you know, people who I'm are in my family or very adjacent to my family who will tell me at length what a genius he is, and he's very good at certain things. I don't argue with that, but I just don't know. I don't. I mean, I don't feel prepared for
 
-[00:20:45] Will: that coming year.
-
-[00:20:46] Will: Shit’s weird, yo.
-
-[00:20:46] Will: Yeah. Well, the the so the whole thing, the thing to me about it is that there's a Neil Postman book called " Amusing Ourselves to Death" that's basically about the rise of trivia and how the human brain is unable to differentiate things that are important. Like immediately in in a kind of five five core needs you know the the hierarchy of needs versus being presented constantly with these things that that aren't important and that feel important because they're just repeated over and over and over again and figuring out how to how to manage that kind of information overload which is I think he wrote that in like 1980 or 1985
+[00:20:45] Will: that coming year. Shit’s weird, yo. Yeah. Well, the the so the whole thing, the thing to me about it is that there's a Neil Postman book called " Amusing Ourselves to Death" that's basically about the rise of trivia and how the human brain is unable to differentiate things that are important. Like immediately in in a kind of five five core needs you know the the hierarchy of needs versus being presented constantly with these things that that aren't important and that feel important because they're just repeated over and over and over again and figuring out how to how to manage that kind of information overload which is I think he wrote that in like 1980 or 1985
 
 [00:20:46] Janet Varney: crazy
 
 [00:20:46] Will: and and like presenting that with the the the world of today where you can have a phone that updates you every time somebody says something every time somebody writes a story about a thing where you're just constantly inundated with what seems like awful awful too terrible too apocalyptic news it's figuring out how to manage that is is hard and and I don't think there's anything wrong with just saying no I'm gonna I'm gonna be over here
 
-[00:21:48] Adam: well and I want to I'm gonna be over here isn't I've got my head in the sand it is oh and because I've confronted this too. I have my zone that I'm in. I'm I have a mission. I want to normalize making. I want every kid in the world to be building shit because I love that.
-
-[00:21:48] Adam: Yeah.
-
-[00:21:48] Adam: And so that's that's the zone I'm going to concentrate on.
+[00:21:48] Adam: well and I want to I'm gonna be over here isn't I've got my head in the sand it is oh and because I've confronted this too. I have my zone that I'm in. I'm I have a mission. I want to normalize making. I want every kid in the world to be building shit because I love that. Yeah. And so that's that's the zone I'm going to concentrate on.
 
 [00:21:48] Janet Varney: Absolutely.
 
@@ -364,11 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:24:46] Janet Varney: like, how do I exactly? You sort of go, I don't know what how to feel about that. Right. Like, I kind of want to hate it. Because I don't want anything good to happen. I certainly we we don't want to give credit to somebody that we.
 
-[00:24:58] Adam: Well, and we're in the zone where
-
-[00:24:59] Adam: you know we
-
-[00:25:00] Adam: keep seeing the headlines like, well, the CIA, blah blah blah, and Donald Trump says that's all bullshit, and everyone's rallying, and then Glenn Greenwald shows up and is like, um, let's all remember it's the CIA, like, don't take anything they're saying on face value.
+[00:24:58] Adam: Well, and we're in the zone where you know we keep seeing the headlines like, well, the CIA, blah blah blah, and Donald Trump says that's all bullshit, and everyone's rallying, and then Glenn Greenwald shows up and is like, um, let's all remember it's the CIA, like, don't take anything they're saying on face value.
 
 [00:25:13] Janet Varney: Yeah,
 
@@ -606,9 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:34:03] Adam: That really was Primal Fear. What was the there was there's a female lead in that movie, and I can't remember her name.
 
-[00:34:09] Janet Varney: I've utterly forgotten because of Edward Norton. Was it Edward Norton?
-
-[00:34:09] Janet Varney: Is that a twist?
+[00:34:09] Janet Varney: I've utterly forgotten because of Edward Norton. Was it Edward Norton? Is that a twist?
 
 [00:34:14] Will: It would be amazing if that was an Anomalisa situation.
 
@@ -650,9 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=JYN1CokWIhI
 
 [00:35:40] Will: I think I'm on Quiz-o-Tron on Sunday.
 
-[00:35:40] Janet Varney: Oh, cool!
-
-[00:35:40] Janet Varney: I love Quiz-o-Tron.
+[00:35:40] Janet Varney: Oh, cool! I love Quiz-o-Tron.
 
 [00:35:40] Will: Yeah, so yeah, so I'll be there answering. Well, maybe answering questions with facts or just making some bullshit up. One or the other.
 

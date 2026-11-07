@@ -8,9 +8,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:01:12] Adam: I am Adam,
 
-[00:01:13] Norm: and I am Norm.
-
-[00:01:14] Norm: We talked last time. We ended last time. I said that I watched a bunch of movies.
+[00:01:13] Norm: and I am Norm. We talked last time. We ended last time. I said that I watched a bunch of movies.
 
 [00:01:20] Adam: Yes. What’s, what’s, what did you watch?
 
@@ -64,15 +62,9 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:02:27] Norm: and I'm Norm.
 
-[00:02:28] Will: Hey guys,
+[00:02:28] Will: Hey guys, Yes.
 
-[00:02:29] Will: Yes.
-
-[00:02:29] Adam: last time we left,
-
-[00:02:29] Adam: Norm teased
-
-[00:02:29] Adam: that he had watched a bunch of movies, so we talk about it next time.
+[00:02:29] Adam: last time we left, Norm teased that he had watched a bunch of movies, so we talk about it next time.
 
 [00:02:34] Norm: Yeah. So today we're doing a spoiler cast.
 
@@ -132,9 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:04:08] Norm: And they can then program; they can pick up the shows that people actually watch the pilot of it and watch all of and enjoy.
 
-[00:04:13] Adam: But they understand what demographic,
-
-[00:04:15] Adam: how they watched it. Like if they stopped 20 minutes in, if they paused, how
+[00:04:13] Adam: But they understand what demographic, how they watched it. Like if they stopped 20 minutes in, if they paused, how
 
 [00:04:18] Norm: exactly if they watched them more than one time,
 
@@ -142,9 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:04:22] Norm: right, right, and there and then they're also connected to Amazon, or I mean, I'm sorry, IMDb, because they own IMDb, IMDb, so they can like see if people are looking up actors and like you know they can so much data, yeah,
 
-[00:04:33] Adam: Really?
-
-[00:04:33] Adam: that I didn't know.
+[00:04:33] Adam: Really? that I didn't know.
 
 [00:04:34] Norm: So there's a show pilot called " Man in the High Castle," and it's an adaptation of a Philip K. Dick book, and it's a alternate universe 1960s, late '60s. What if the Axis won World War II, and the U.S. is divided into Nazi-occupied East Coast and Midwest, and Japanese-owned occupied West Coast, and what the lives are. In that United States,
 
@@ -268,9 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:07:51] Norm: That's yes.
 
-[00:07:52] Adam: I want to watch it again immediately.
-
-[00:07:54] Adam: If You had it on your laptop. I’d watch it with you now.
+[00:07:52] Adam: I want to watch it again immediately. If You had it on your laptop. I’d watch it with you now.
 
 [00:07:54] Norm: Oh wow,
 
@@ -364,9 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:10:23] Norm: Me too.
 
-[00:10:23] Adam: Guillermo del Toro had actually. There's my name drop. That
-
-[00:10:27] Adam: Guillermo del Toro had told me, " Holy crap, you got to see this movie. It's unbelievable what Iñárritu actually was able to do." So the entire movie is the conceit is the movie is a single shot.
+[00:10:23] Adam: Guillermo del Toro had actually. There's my name drop. That Guillermo del Toro had told me, " Holy crap, you got to see this movie. It's unbelievable what Iñárritu actually was able to do." So the entire movie is the conceit is the movie is a single shot.
 
 [00:10:42] Will: Wait, what?
 
@@ -404,9 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:12:12] Adam: Theatrical feel, yeah. And to be clear, when we talk about * Children of Men*, which was directed by Alfonso Cuarón, the director of photography of * Children of Men* is the director of photography of * Birdman*. I can’t call up his name in my head right now, but he's a bloody genius. And if you ever get a chance to see some of the behind-the-scenes footage of how they shot the 17-minute shot in * Children of Men*, it's a masterpiece of analog, digital, stunt, every kind of film craft there is comes into achieving that. And I'm sure that when I get the Cinefex about * Birdman*, there's going to be a lot of incredibly innovative rigs and sets and composition and coordination with the actors to be able to pull off this.
 
-[00:12:55] Will: I mean, I have to imagine just the story, storyboarding and previs stuff for this is unbelievable.
-
-[00:12:55] Will: right?
+[00:12:55] Will: I mean, I have to imagine just the story, storyboarding and previs stuff for this is unbelievable. right?
 
 [00:13:00] Adam: Well, they rehearsed. Apparently, they rehearsed for weeks, and the actors. Actor, it's clear from the press junkets that actors love working with Iñárritu.
 
@@ -416,9 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:13:12] Norm: There's one thing that I mean. Technically, I would say if you haven't seen it yet, when you watch it, well, don't try to get distracted by the technical aspects. It's very easy to want to try to pick out. Oh, there's a cut. There's a cut.
 
-[00:13:12] Adam: Right.
-
-[00:13:23] Adam: Yeah, I can’t not do that.
+[00:13:12] Adam: Right. Yeah, I can’t not do that.
 
 [00:13:24] Norm: I know.
 
@@ -572,9 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:22:30] Adam: Oh, that movie again. We talked about that. Oh, I just watched it like a week ago, and Hanna is totally like I loved it when it came out. I genuinely loved it. Watching it again, I loved it even more. And I think that actually Hanna is a it's almost like an art movie disguised as an action movie,
 
-[00:22:48] Norm: which I think so.
-
-[00:22:49] Norm: Birdman also.
+[00:22:48] Norm: which I think so. Birdman also.
 
 [00:22:50] Will: Yeah, I watched. I watched it, but it was probably two years ago at this point. I watched it when it first came out on Netflix.
 
@@ -774,9 +752,7 @@ Episode URL: https://www.youtube.com/watch?v=_5N6gJCKcoM
 
 [00:28:34] Adam: But still, anyone who hasn't seen Birdman would be pissed from some of the stuff.
 
-[00:28:34] Will: I'm so pissed.
-
-[00:28:40] Will: So pissed. Bye, guys.
+[00:28:34] Will: I'm so pissed. So pissed. Bye, guys.
 
 [00:28:42] Norm: Bye.
 

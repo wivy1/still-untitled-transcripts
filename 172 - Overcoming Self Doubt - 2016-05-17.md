@@ -98,9 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:03:24] Norm: Ed TV.
 
-[00:03:24] Adam: Yeah.
-
-[00:03:25] Adam: Woody Harrelson.
+[00:03:24] Adam: Yeah. Woody Harrelson.
 
 [00:03:26] Will: Woody Harrelson and and Matthew McConaughey.
 
@@ -152,9 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:04:27] Will: Mid '90s internet celebrity.
 
-[00:04:27] Adam: Yeah, yeah.
-
-[00:04:31] Adam: So this is airing a couple of weeks after this happened, but I had a really rough. I wanted to talk about this a little bit. I was fascinated during the Reddit AMA that I did last week, which is now a couple weeks ago.
+[00:04:27] Adam: Yeah, yeah. So this is airing a couple of weeks after this happened, but I had a really rough. I wanted to talk about this a little bit. I was fascinated during the Reddit AMA that I did last week, which is now a couple weeks ago.
 
 [00:04:31] Unknown speaker: Mm-hmm.
 
@@ -220,9 +216,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:10:58] Norm: and that accumulation helped you when you pivoted to project B get a nice jump start on it.
 
-[00:11:04] Adam: And that pivot really did sort of surprise me with how invigorating I felt to work with a brand new material and a new process.
-
-[00:11:04] Adam: But, but—
+[00:11:04] Adam: And that pivot really did sort of surprise me with how invigorating I felt to work with a brand new material and a new process. But, but—
 
 [00:11:14] Will: the important thing the important thing isn't the project or or what you did. It's that you got back. You know the old saying: you get back on the horse when you get when you when you get thrown off.
 
@@ -264,9 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=n_jE_OWpAzA
 
 [00:14:23] Will: There there is a place and time for that, but so what do you do to get out of the rut? Well, like this time you went and started a different project. Do you do you like? Sometimes I go read. Like if I'm stuck writing, I'll just go sit down and start reading books. Right? Yeah. Which isn't always always possible, but is the luxury that I have a lot of times.
 
-[00:14:23] Adam: Yeah. Um.
-
-[00:14:41] Adam: You know, I love Mary Karr. Said that when she has a writer's block, she just chooses a piece of writing she loves and copies it longhand.
+[00:14:23] Adam: Yeah. Um. You know, I love Mary Karr. Said that when she has a writer's block, she just chooses a piece of writing she loves and copies it longhand.
 
 [00:14:41] Will: Oh, wow!
 

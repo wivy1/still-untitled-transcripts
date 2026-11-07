@@ -50,9 +50,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:01:10] Norm: your kids are pretty clever. They could be feeding you what you want to hear.
 
-[00:01:14] Adam: John John Landis has a story about seeing the Sixth Sense in the movies.
-
-[00:01:18] Adam: He was loving it.
+[00:01:14] Adam: John John Landis has a story about seeing the Sixth Sense in the movies. He was loving it.
 
 [00:01:19] Norm: Mm-hmm.
 
@@ -66,9 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:01:27] Adam: Spoiler alert on the Sixth Sense. And by the way, that chick in the Crying Game is a man.
 
-[00:01:31] Will: Yeah. Bruce Willis is a superhero.
-
-[00:01:35] Will: It's my favorite segment.
+[00:01:31] Will: Yeah. Bruce Willis is a superhero. It's my favorite segment.
 
 [00:01:36] Adam: So, uh, Deborah, John's wife, was watching Sixth Sense with him, and she turns to John and says, " Why is Bruce Willis wearing the same clothes?
 
@@ -132,9 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:03:12] Will: Didn't see Godzilla.
 
-[00:03:13] Adam: I didn't see Godzilla. I remember him being in Mission Impossible. Doesn't he die in the opening scene of Mission Impossible, the
-
-[00:03:17] Adam: first one?
+[00:03:13] Adam: I didn't see Godzilla. I remember him being in Mission Impossible. Doesn't he die in the opening scene of Mission Impossible, the first one?
 
 [00:03:17] Will: The first one. Maybe he might be the he. He's the other team, right?
 
@@ -202,9 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:05:04] Adam: It's great. It was really cool.
 
-[00:05:05] Norm: You are giving us a lot of openings for the topic here, and a lot of framing and and movies with a young young with a age difference and
-
-[00:05:13] Norm: relationships.
+[00:05:05] Norm: You are giving us a lot of openings for the topic here, and a lot of framing and and movies with a young young with a age difference and relationships.
 
 [00:05:14] Unknown speaker: Yes, yes.
 
@@ -254,17 +246,13 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:06:36] Will: Right. Oh, it's great.
 
-[00:06:36] Norm: If you show someone Hidden Fortress before Star Wars or all those, you know, all the Japanese movies before you have like
-
-[00:06:45] Norm: the American interpretations
+[00:06:36] Norm: If you show someone Hidden Fortress before Star Wars or all those, you know, all the Japanese movies before you have like the American interpretations
 
 [00:06:46] Adam: Yeah.
 
 [00:06:45] Norm: and how that would mold someone, I guess, to make them kind of a movie snob.
 
-[00:06:50] Adam: So, so John told me a funny story. John Landis. We are the Landis week because we interviewed him on the
-
-[00:06:56] Adam: Talking Room, and he was here last week. So he told me that.
+[00:06:50] Adam: So, so John told me a funny story. John Landis. We are the Landis week because we interviewed him on the Talking Room, and he was here last week. So he told me that.
 
 [00:06:59] Will: Actually, the Talking Room will be up. I think next.
 
@@ -280,9 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:07:11] Will: I'm not sure the door's locked. I'll be right back.
 
-[00:07:13] Adam: Yeah, just double check that the door's locked. Um, so John was telling me, we were talking, driving in the car, and talking about how unbelievable
-
-[00:07:22] Adam: Pulp Fiction is.
+[00:07:13] Adam: Yeah, just double check that the door's locked. Um, so John was telling me, we were talking, driving in the car, and talking about how unbelievable Pulp Fiction is.
 
 [00:07:23] Unknown speaker: Mm-hmm.
 
@@ -296,9 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:07:35] Adam: Really? It
 
-[00:07:36] Will: It seems like it's kind of intense.
-
-[00:07:38] Will: I think she—
+[00:07:36] Will: It seems like it's kind of intense. I think she—
 
 [00:07:39] Adam: I, I'm, I, I.
 
@@ -308,11 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:07:43] Will: This is your neighborhood.
 
-[00:07:44] Adam: Sorry.
-
-[00:07:44] Adam: So he said, I, I mentioned Reservoir Dogs, and he says, " You know, Reservoir Dogs is is City on Fire. " Uh,
-
-[00:07:53] Adam: It's a Japanese film,
+[00:07:44] Adam: Sorry. So he said, I, I mentioned Reservoir Dogs, and he says, " You know, Reservoir Dogs is is City on Fire. " Uh, It's a Japanese film,
 
 [00:07:53] Will: Never seen it.
 
@@ -350,9 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:10:04] Adam: right? And she's so she's a circus performer. So they remade this film in America called City of Angels, where the angel role is played by by Nicolas Cage.
 
-[00:10:16] Norm: Yes, okay.
-
-[00:10:16] Norm: So we're on the same page. When you said City of Angels?
+[00:10:16] Norm: Yes, okay. So we're on the same page. When you said City of Angels?
 
 [00:10:19] Adam: So
 
@@ -478,9 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:14:52] Adam: No, lots of people say that.
 
-[00:14:54] Will: Well, it's it's it's very visually distinct, and it's
-
-[00:14:58] Will: Malcolm, um, McDowell.
+[00:14:54] Will: Well, it's it's it's very visually distinct, and it's Malcolm, um, McDowell.
 
 [00:14:59] Adam: Malcolm McDowell.
 
@@ -498,9 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:15:32] Will: except for Tom Cruise and Nicole Kidman.
 
-[00:15:34] Adam: See, I actually would submit that Tom Cruise is perfectly cast in that movie. Uh, like that actually, the intersection of the I'm not here to defend Eyes Wide Shut. I haven't seen it since it came out. Uh, I remember liking it back then. But it's so it's such a it is a polarizing film. So I'm not here to defend it, but I think that the the marriage between Tom and Nicole and the way in which that intersected with Eyes Wide Shut made it far more interesting. And in the same way that Cameron Crowe used the best of Tom Cruise in
-
-[00:16:10] Adam: Jerry Maguire,
+[00:15:34] Adam: See, I actually would submit that Tom Cruise is perfectly cast in that movie. Uh, like that actually, the intersection of the I'm not here to defend Eyes Wide Shut. I haven't seen it since it came out. Uh, I remember liking it back then. But it's so it's such a it is a polarizing film. So I'm not here to defend it, but I think that the the marriage between Tom and Nicole and the way in which that intersected with Eyes Wide Shut made it far more interesting. And in the same way that Cameron Crowe used the best of Tom Cruise in Jerry Maguire,
 
 [00:16:11] Will: Oh, okay.
 
@@ -606,9 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:20:38] Adam: It's a little nutty.
 
-[00:20:38] Norm: It's well, the movie is a weird documentary because it's not about the movie. It's about the
-
-[00:20:42] Norm: people's obsession
+[00:20:38] Norm: It's well, the movie is a weird documentary because it's not about the movie. It's about the people's obsession
 
 [00:20:43] Adam: Right.
 
@@ -624,9 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:21:27] Will: these people are really bad at spelling
 
-[00:21:28] Norm: right? No, it's room number with
-
-[00:21:31] Norm: N O,
+[00:21:28] Norm: right? No, it's room number with N O,
 
 [00:21:32] Adam: Oh.
 
@@ -654,9 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:22:04] Will: It's non-Euclidean.
 
-[00:22:04] Adam: Yeah, and so people exit rooms, and then later on, you come in through that exit, and it's not what they went to
-
-[00:22:10] Adam: when they left before.
+[00:22:04] Adam: Yeah, and so people exit rooms, and then later on, you come in through that exit, and it's not what they went to when they left before.
 
 [00:22:11] Norm: Right, yeah.
 
@@ -962,9 +930,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:35:19] Will: Let's, let's lock it down.
 
-[00:35:18] Adam: I've got pieces of AI sets, over, over behind me.
-
-[00:35:20] Adam: Yeah.
+[00:35:18] Adam: I've got pieces of AI sets, over, over behind me. Yeah.
 
 [00:35:21] Will: If we if we promise the audience, then we can't not do it.
 
@@ -1038,9 +1004,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:38:17] Will: Killer's Kiss*. Is it like a pulpy detective story? Sounds like
 
-[00:38:20] Adam: I believe so. Right, never seen * Killer's Kiss* or * The Killing*.
-
-[00:38:23] Adam: Those are two Kubrick films.
+[00:38:20] Adam: I believe so. Right, never seen * Killer's Kiss* or * The Killing*. Those are two Kubrick films.
 
 [00:38:24] Norm: So he did documentaries before that about boxing. He did two short documentaries about boxing.
 
@@ -1066,9 +1030,7 @@ Episode URL: https://www.youtube.com/watch?v=U-oZGKG_oRQ
 
 [00:39:10] Adam: we should. I'd like to watch that too because honestly, I remember the transfer I saw feeling quite, quite muted.
 
-[00:39:17] Will: If the one that I I have that and I bought that in that first Kubrick box set, the white one with 2001 and all the other, and that move that set was like half good transfers and half really garbage transfers. And Barry Lyndon got the and I think Full Metal Jacket also, which was a Full Metal Jacket was a weird framing as I remember. It's like a full frame.
-
-[00:39:35] Will: kind of tall
+[00:39:17] Will: If the one that I I have that and I bought that in that first Kubrick box set, the white one with 2001 and all the other, and that move that set was like half good transfers and half really garbage transfers. And Barry Lyndon got the and I think Full Metal Jacket also, which was a Full Metal Jacket was a weird framing as I remember. It's like a full frame. kind of tall
 
 [00:39:36] Adam: There's a endless amount of internet debate about Stanley's preferred aspect ratio for all of his movies.
 

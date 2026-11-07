@@ -866,9 +866,7 @@ Episode URL: https://www.youtube.com/watch?v=Nprbd76FFFI
 
 [00:38:12] Adam: Yeah.
 
-[00:38:13] Will: Um,
-
-[00:38:15] Will: okay.
+[00:38:13] Will: Um, okay.
 
 [00:38:16] Adam: That
 

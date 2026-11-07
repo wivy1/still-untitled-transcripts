@@ -172,9 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:09:37] Adam: did you see some epic destructions?
 
-[00:09:42] Norm: Oh yeah. Oh.
-
-[00:09:42] Norm: We can't spoil exactly what's going on in the fights, but it was not disappointing.
+[00:09:42] Norm: Oh yeah. Oh. We can't spoil exactly what's going on in the fights, but it was not disappointing.
 
 [00:09:46] Adam: Really, with the now the arena, one of the things that we were upset about is after the first year, we were eliminated as being too dangerous to compete, which by the way was awesome. Like that's if you are going to be eliminated, that's
 
@@ -374,9 +372,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:19:32] Adam: yes. But that that that Roger Moore zone—that's where I grew up. The Spy Who Loved Me is the first one I ever saw, followed by Moonraker, both with the same henchman villain Jaws. So those are deeply in my DNA, and I think that's exactly—I'm probably pretty close to the age of the filmmakers, and I think that that may be one of the reasons that it missed the mark for you because of I think just growing up with a certain type of thing that you want. So,
 
-[00:19:59] Norm: I mean, to not spoil the plot, but there's Colin Firth. There's a there's an elder generation of Gentleman spy, an organization, and then you recruit a younger. So it's origin story for the younger spy. I love all the spies.
-
-[00:20:11] Norm: Actually, yeah, I love all the old guys. 
+[00:19:59] Norm: I mean, to not spoil the plot, but there's Colin Firth. There's a there's an elder generation of Gentleman spy, an organization, and then you recruit a younger. So it's origin story for the younger spy. I love all the spies. Actually, yeah, I love all the old guys. 
 
 [00:20:11] Adam: Mm hmm.
 
@@ -562,9 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:26:58] Unknown: [unclear sequence: Adam: in a film./Norm: Having in a film.]
 
-[00:26:59] Norm: [unclear: What type of world/What’s also type of world]? I mean, it's a rated R movie, so it's it's you know at that point you don't know what the ending is. It doesn't follow the exact same.
-
-[00:27:06] Norm: Yeah, it's R. Yeah, let's doesn't doesn't follow the same formula.
+[00:26:59] Norm: [unclear: What type of world/What’s also type of world]? I mean, it's a rated R movie, so it's it's you know at that point you don't know what the ending is. It doesn't follow the exact same. Yeah, it's R. Yeah, let's doesn't doesn't follow the same formula.
 
 [00:27:10] Adam: I'd like to talk about something that I bet annoyed the hell out of you, and I found it wasn't a deal breaker, but it was one of the film's weakest point was the villain. Sam Jackson plays the villain.
 
@@ -612,9 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:28:51] Norm: [unclear: sex scene/An ilud sex scene]. You know, if we're just taking it to our next level and modernizing,
 
-[00:28:57] Adam: He's gonna take a woman who's already imprisoned and have anal sex with her.
-
-[00:29:00] Adam: This is the worst joke I've ever heard.
+[00:28:57] Adam: He's gonna take a woman who's already imprisoned and have anal sex with her. This is the worst joke I've ever heard.
 
 [00:29:02] Norm: Yeah, it was
 
@@ -640,9 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:29:13] Will: Yeah, see, 
 
-[00:29:13] Norm: what?
-
-[00:29:13] Norm: [unclear: Me out.]
+[00:29:13] Norm: what? [unclear: Me out.]
 
 [00:29:13] Will: Yeah, well, it got the laugh because it's so unexpected. You get the you get the wait what laugh? Not the ha ha ha laugh.
 
@@ -794,9 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:33:21] Will: It's a deep impact Armageddon all over again.
 
-[00:33:21] Adam: Ah, I love Armageddon.
-
-[00:33:25] Adam: We should do a. We should do a spoiler. Just watch that movie, Armageddon. One of my favorite dumb movies.
+[00:33:21] Adam: Ah, I love Armageddon. We should do a. We should do a spoiler. Just watch that movie, Armageddon. One of my favorite dumb movies.
 
 [00:33:30] Will: Oh, it's so good!
 
@@ -844,12 +832,8 @@ Episode URL: https://www.youtube.com/watch?v=S04TQs1raUo
 
 [00:34:16] Will: If you bring it someplace that Adam's going to be signing stuff, maybe he'll sign it for you. 
 
-[00:34:16] Adam: Sign it.
+[00:34:16] Adam: Sign it. Yes.
 
-[00:34:16] Adam: Yes.
-
-[00:34:16] Will: Yes. That'll do it for us this week. Thanks for watching. See y'all later.
-
-[00:34:24] Will: Bye.
+[00:34:16] Will: Yes. That'll do it for us this week. Thanks for watching. See y'all later. Bye.
 
 [00:34:24] Adam: Bye.

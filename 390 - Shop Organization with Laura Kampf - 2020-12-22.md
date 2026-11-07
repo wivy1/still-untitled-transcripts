@@ -24,9 +24,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:00:26] Adam: Oh, okay. So we we I I participated a little bit in an amazing thing you did last week for Lenovo called for all of us Fridays, where you built a steel wool powered Catherine wheel, spraying sparks 30 meters into the German sky last last Friday.
 
-[00:00:47] Laura: It was fantastic. Yeah, I I was asked to build something spectacular, and my neighbor is a scrap scrapyard guy, so he brought me a huge motor a couple weeks ago. And I wanted to do something with this motor. It has 2.8 horsepower, so it's like three phase. It's very, very powerful, very, very awesome. And then I played around with lights and fire and all these things. And eventually, I remembered that if you put steel wool on fire and you spin it around, or you expose it to oxygen, it just sparks and lights up like crazy. So I basically built this huge propeller for the motor that has a big cage that I could pack with probably half a kilo of steel wool, and then spin it around. And it was it was more impressive and intense than I anticipated.
-
-[00:01:37] Laura: To be honest.
+[00:00:47] Laura: It was fantastic. Yeah, I I was asked to build something spectacular, and my neighbor is a scrap scrapyard guy, so he brought me a huge motor a couple weeks ago. And I wanted to do something with this motor. It has 2.8 horsepower, so it's like three phase. It's very, very powerful, very, very awesome. And then I played around with lights and fire and all these things. And eventually, I remembered that if you put steel wool on fire and you spin it around, or you expose it to oxygen, it just sparks and lights up like crazy. So I basically built this huge propeller for the motor that has a big cage that I could pack with probably half a kilo of steel wool, and then spin it around. And it was it was more impressive and intense than I anticipated. To be honest.
 
 [00:01:39] Adam: it was so beautiful to watch it go. And you did three runs on the live feed, and on the last one, you had stuffed the container full of steel wool, and you eventually got that to lit, and it was shocking, even on like the 10 frames per second webcam I was looking at. It was. Spectacular!
 
@@ -68,15 +66,9 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:04:29] Laura: Do they still do stuff? Do they still exist as a combo?
 
-[00:04:33] Adam: Um, their fearless leader Mark Pauline, uh, used to have a shop. Normie, used to have a shop right at um, uh, at Potrero and Chavez.
+[00:04:33] Adam: Um, their fearless leader Mark Pauline, uh, used to have a shop. Normie, used to have a shop right at um, uh, at Potrero and Chavez. He had,
 
-[00:04:43] Adam: He had,
-
-[00:04:44] Norm: Right.
-
-[00:04:44] Norm: and you did the interview with a bunch of them a couple years ago with a new collective down down there.
-
-[00:04:48] Norm: The [Dogpatch?], the whole, yeah.
+[00:04:44] Norm: Right. and you did the interview with a bunch of them a couple years ago with a new collective down down there. The [Dogpatch?], the whole, yeah.
 
 [00:04:50] Adam: So Mark Pauline relocated up to Petaluma, and he's still making stuff. He's still a mad scientist up there. A lot of the people that he worked with, I still am in contact. With a bunch of those guys, that many of them helped us on MythBusters. When we did the Tesla coil episode with the stun gun, that was Greg Leyh, the head electronics guy at SRL. They were a one. They're a really important machine art collective, and in the U.S., we don't celebrate that as much as we should.
 
@@ -110,15 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:07:34] Adam: And that's why normal screwdrivers munge brass screws. So a gunsmith's screwdriver is hollow ground, so it's got parallel end, and it puts its torque at the bottom of the flathead screw channel, and therefore, so normal gunsmiths have like 40 sizes of these, but you can find them on Amazon. I found a set of three for like $18 that are gorgeous. I'll send you the link. I think we actually included the link in our pod, in our in our thing. So we'll send it to you. It's changed my life. It turns out there's a screwdriver for not messing up screws.
 
-[00:08:10] Laura: Oh, that's good. So so good to know. So good. I had no idea. The way I usually do it is I take another screw, like a Torx or Phillips head, and screw that in. Take it out again, and then I take the brass screw, put a little wax on it. That's that's how I do it. It's just it takes so much time. But that's what I love about them. If you see a piece of furniture that has flathead brass screws, you know, like there's this extra mile that the creator went to make it look like that. I love that. Yeah.
-
-[00:08:38] Laura: So yeah,
-
-[00:08:40] Laura: that's what I did, and it's actually funny because years ago, probably like five years ago, I think it was before I started making YouTube videos or when I just got started. I watched a video of your Sortimo boxes, of your big,
-
-[00:08:55] Laura: yeah,
-
-[00:08:56] Laura: and I was so impressed. And I went online and I bought three of those boxes. They were pretty expensive, and I still remember feeling like this is not the right time to put so much money into three boxes. It doesn't make any sense, but I wanted to have them, and that's why I put a lot of the, I don't know, like brass screws that are super important for me. They got they went into those boxes, but I never extended that system. And eventually, I found out why. It's because I don't like primal colors, and I don't like that. I don't like that the boxes come with a color code, so the smallest boxes are red, the biggest boxes are green, or whatever it is. And I think that was my problem with it. So now I found a system that has gray boxes in different sizes, and I'm using that system, and it it it works out.
+[00:08:10] Laura: Oh, that's good. So so good to know. So good. I had no idea. The way I usually do it is I take another screw, like a Torx or Phillips head, and screw that in. Take it out again, and then I take the brass screw, put a little wax on it. That's that's how I do it. It's just it takes so much time. But that's what I love about them. If you see a piece of furniture that has flathead brass screws, you know, like there's this extra mile that the creator went to make it look like that. I love that. Yeah. So yeah, that's what I did, and it's actually funny because years ago, probably like five years ago, I think it was before I started making YouTube videos or when I just got started. I watched a video of your Sortimo boxes, of your big, yeah, and I was so impressed. And I went online and I bought three of those boxes. They were pretty expensive, and I still remember feeling like this is not the right time to put so much money into three boxes. It doesn't make any sense, but I wanted to have them, and that's why I put a lot of the, I don't know, like brass screws that are super important for me. They got they went into those boxes, but I never extended that system. And eventually, I found out why. It's because I don't like primal colors, and I don't like that. I don't like that the boxes come with a color code, so the smallest boxes are red, the biggest boxes are green, or whatever it is. And I think that was my problem with it. So now I found a system that has gray boxes in different sizes, and I'm using that system, and it it it works out.
 
 [00:09:45] Adam: I will tell you, there are people online trading 3D files for printing Sortimo boxes.
 
@@ -178,9 +162,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:14:16] Adam: Do you have a big enough space where you could like pull a car indoors?
 
-[00:14:21] Laura: It would be if I would be less into motorcycles, because the car way is blocked by six motorcycles right now.
-
-[00:14:33] Laura: That's the upside on living on the country, because there are people having the coolest stuff in their garages and in their barns, and they just don't know what to do with it. I bought so many cool things for and for next to nothing, and yeah, it's it's really good. The country life is right for me. I always was scared to move to the countryside, but I'm so happy I made that step. It's a game changer, yeah.
+[00:14:21] Laura: It would be if I would be less into motorcycles, because the car way is blocked by six motorcycles right now. That's the upside on living on the country, because there are people having the coolest stuff in their garages and in their barns, and they just don't know what to do with it. I bought so many cool things for and for next to nothing, and yeah, it's it's really good. The country life is right for me. I always was scared to move to the countryside, but I'm so happy I made that step. It's a game changer, yeah.
 
 [00:14:57] Adam: What's your go-to motorcycle? What's your favorite one right now?
 
@@ -252,9 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:23:12] Laura: Nice, yeah, that's also meditation, and that only works if you have an organization that you can follow. Then cleaning a shop that doesn't have a form of organization is a nightmare. But if you know where stuff belongs, it is meditation. Yeah. But since I'm fairly new to this shop, I still have to come up with all of these systems. Where do I put what? Where can I find what? Because I have six different shops in my head. If I'm looking for something, where are the light bulbs? And then I go through all my shops. It should be in that box.
 
-[00:23:41] Adam: It's a it's a lovely scene regarding the organization. It's a lovely scene at Tom Sachs Studio, isn't it?
-
-[00:23:49] Adam: With everything having a place.
+[00:23:41] Adam: It's a it's a lovely scene regarding the organization. It's a lovely scene at Tom Sachs Studio, isn't it? With everything having a place.
 
 [00:23:51] Laura: But I think that also comes from him having a big team. You know. If you have to micromanage everybody, where's the slit screw, a slit screw or flathead screwdriver? Blah blah blah. You know, you would lose your mind. So he has to have a good system when more than two people work on a project, and it still has to look like one person did it. You know, there has to be systems in place. It's really cool.
 
@@ -346,9 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:33:48] Laura: Ooh! Oh, now we're getting funky. Yeah, cool. I will try that.
 
-[00:33:58] Adam: You know, it's been funny doing carpentry this week because number one, I forgot about the dust. I, I, it's just my whole life is dust right now. But I also forgot my. I I used to say this. I find welding and steel way more forgiving than wood,
-
-[00:34:17] Adam: and a lot. I was surprised when I first had that point of view, but I hold to it because if I screw something up in welding, it's way easier for me to fill it, grind it, and go back to zero. Whereas wood, it's like always just got to throw that piece out and start again.
+[00:33:58] Adam: You know, it's been funny doing carpentry this week because number one, I forgot about the dust. I, I, it's just my whole life is dust right now. But I also forgot my. I I used to say this. I find welding and steel way more forgiving than wood, and a lot. I was surprised when I first had that point of view, but I hold to it because if I screw something up in welding, it's way easier for me to fill it, grind it, and go back to zero. Whereas wood, it's like always just got to throw that piece out and start again.
 
 [00:34:31] Laura: Yes, yes, yes, yes. Wood is tricky, especially if you if you go into the fine woodworking stuff where it matters about moisture of the wood and your chisels really have to be sharp and movement and all of these things. Once you get to that level, it it gets tricky. I try to ignore all of these facts and just try to have fun.
 
@@ -384,9 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=gKjkre4TqPo
 
 [00:36:14] Adam: I think that's got to be a sculpture or something. I think that's a great place to stop, Laura. Every time I talk to you, I'm inspired.
 
-[00:36:27] Laura: Same here. Thank you. And we talked a lot lately. I feel like we did. We never talked so much before.
-
-[00:36:34] Laura: Absolutely. I hope you guys stay safe and you have a good time over Christmas, even with all the new restrictions and all of that.
+[00:36:27] Laura: Same here. Thank you. And we talked a lot lately. I feel like we did. We never talked so much before. Absolutely. I hope you guys stay safe and you have a good time over Christmas, even with all the new restrictions and all of that.
 
 [00:36:42] Adam: You too. You too, Laura. And hopefully in 2021 we'll get to make something together. Let's do it.
 

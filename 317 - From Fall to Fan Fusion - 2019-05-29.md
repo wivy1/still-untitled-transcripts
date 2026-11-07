@@ -16,9 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:00:33] Will: Just a little bit, yeah.
 
-[00:00:34] Norm: Well, it
-
-[00:00:34] Norm: wouldn't be a proper podcast if it didn't clip [unclear: to properly / to properly select].
+[00:00:34] Norm: Well, it wouldn't be a proper podcast if it didn't clip [unclear: to properly / to properly select].
 
 [00:00:37] Will: Our audio engineer is off today.
 
@@ -240,11 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:09:28] Will: Of Reamde, Reamde was present day, right?
 
-[00:09:30] Adam: Reamde is absolutely present day. So this is 25 years from there, from now, and he is positing a very interesting and what a deeply feels like a deeply realistic future.
-
-[00:09:44] Adam: Where
-
-[00:09:45] Adam: facts are something you choose based on your tribe.
+[00:09:30] Adam: Reamde is absolutely present day. So this is 25 years from there, from now, and he is positing a very interesting and what a deeply feels like a deeply realistic future. Where facts are something you choose based on your tribe.
 
 [00:09:45] Will: Oh, I don't want.
 
@@ -300,9 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:11:34] Adam: with Thanos. Is it Galacticus?
 
-[00:11:34] Norm: I don't know.
-
-[00:11:37] Norm: or can it doesn't even make sense to have a type of build up like
+[00:11:34] Norm: I don't know. or can it doesn't even make sense to have a type of build up like
 
 [00:11:37] Adam: I don't know
 
@@ -418,15 +410,11 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:15:24] Adam: Hela, I've seen a ton, and really wonderful versions of it, and down and creative made ones.
 
-[00:15:24] Norm: Yes.
-
-[00:15:30] Norm: And I think Hela is striking because the makeup is so much part of it, and there's a challenge in building
+[00:15:24] Norm: Yes. And I think Hela is striking because the makeup is so much part of it, and there's a challenge in building
 
 [00:15:30] Adam: Mm hmm.
 
-[00:15:30] Norm: the headdress
-
-[00:15:30] Norm: , the antlers, and Valkyrie is only in her final outfit, her battle outfit.
+[00:15:30] Norm: the headdress , the antlers, and Valkyrie is only in her final outfit, her battle outfit.
 
 [00:15:42] Adam: But Valkyrie could work. I mean, I just I want. So, if you do cosplay as Valkyrie, tweet to us or me, or put it in the comments because I'd love to see your Valkyrie costume. I think there should be more.
 
@@ -480,9 +468,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:18:01] Will: this is the this is the billion dollar question.
 
-[00:18:02] Adam: It is the alchemy of movie making. I mean, on one hand, you have, I from what I understand the. From the interviews with him, Tony Gilroy, one of the producers of Rogue One, did was key and instrumental to those reshoots, and he's a an amazing writer and an and actually an amazing director in his own right. Michael Clayton's one of my favorite movies of that genre of I don't even know what you'd call that genre. It's like the Alan Pakula, you know, 1970s Parallax View type films that you know, good thriller. But again, these kind of things, I can only imagine when you fire two people that have already shot most of a movie and you bring in Ron Howard. I I these are things that nobody outside the studio will ever fully know the actual story on. I just resolved myself to knowing that you were never going to know.
-
-[00:18:56] Adam: Obviously, they were trying to make a great movie that stuck, and something didn't quite gel.
+[00:18:02] Adam: It is the alchemy of movie making. I mean, on one hand, you have, I from what I understand the. From the interviews with him, Tony Gilroy, one of the producers of Rogue One, did was key and instrumental to those reshoots, and he's a an amazing writer and an and actually an amazing director in his own right. Michael Clayton's one of my favorite movies of that genre of I don't even know what you'd call that genre. It's like the Alan Pakula, you know, 1970s Parallax View type films that you know, good thriller. But again, these kind of things, I can only imagine when you fire two people that have already shot most of a movie and you bring in Ron Howard. I I these are things that nobody outside the studio will ever fully know the actual story on. I just resolved myself to knowing that you were never going to know. Obviously, they were trying to make a great movie that stuck, and something didn't quite gel.
 
 [00:19:02] Will: So, on a completely different note, did you read the thing yesterday about Last Crusade and
 
@@ -556,9 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:23:39] Adam: first time in Phoenix Fan Fusion, it was fantastic. A little alliteration.
 
-[00:23:39] Norm: yeah,
-
-[00:23:42] Norm: I know. And you did an incognito, real incognito this time. Tell us about your walk through the convention.
+[00:23:39] Norm: yeah, I know. And you did an incognito, real incognito this time. Tell us about your walk through the convention.
 
 [00:23:49] Adam: Well, I didn't tell people I was hitting the floor. I brought a costume. I brought a costume that I had not worn in public before. Well, actually, I tell a lie. I wore this costume actually in order to in order to go see End Game with Kishore.
 
@@ -706,9 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:28:28] Will: oh like the Twi’lek dancing girl, yeah.
 
-[00:28:30] Adam: I think so.
-
-[00:28:31] Adam: woman came up dressed as that and said that actually she got into cosplay because of watching stuff on Tested and now she was a featured cosplay speaker at the Fan Fusion.
+[00:28:30] Adam: I think so. woman came up dressed as that and said that actually she got into cosplay because of watching stuff on Tested and now she was a featured cosplay speaker at the Fan Fusion.
 
 [00:28:40] Will: That's rad.
 
@@ -808,19 +790,13 @@ Episode URL: https://www.youtube.com/watch?v=FDanypuSRac
 
 [00:32:30] Norm: right. And and it's even easier,
 
-[00:32:38] Adam: but I've heard that it’s a little more complex than that.
-
-[00:32:38] Adam: Am I right?
+[00:32:38] Adam: but I've heard that it’s a little more complex than that. Am I right?
 
 [00:32:39] Norm: It's way more complex. Yeah, and one of the one of the leads is Jonah Hill's sister, even so, like it's very easy to make that comparison as a way to get people in the theaters. I think it's a much better movie than Super Bad, and Super Bad, I think, has some great you know heartfelt moments. But this movie, and you know, I can't relate to the kids in this right. These are 18 year olds in high school, and they're two girls. Like, I don't know what it is. Yeah, makes it true, but it just felt true.
 
-[00:33:03] Adam: That's awesome.
+[00:33:03] Adam: That's awesome. Olivia Wilde's been tweeting about it and saying, you know, get out there if you want more. Look, if there are good movies, it's important that we go see them in the theater to support them because this
 
-[00:33:05] Adam: Olivia Wilde's been tweeting about it and saying, you know, get out there if you want more. Look, if there are good movies, it's important that we go see them in the theater to support them because this
-
-[00:33:17] Will: that's how that's how you get more good movies made.
-
-[00:33:17] Will: if you want less TV and more movies, go see movies.
+[00:33:17] Will: that's how that's how you get more good movies made. if you want less TV and more movies, go see movies.
 
 [00:33:22] Adam: I read this wonderful defense of Jupiter Ascending that was like, hey, it may be really problematic, but bless the Wachowskis for going out way over their skis to try out stuff like this that's original and different.
 

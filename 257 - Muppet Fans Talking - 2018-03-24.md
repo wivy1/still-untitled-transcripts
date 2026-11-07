@@ -26,9 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:00:28] Adam: well, good afternoon.
 
-[00:00:28] Will: Yeah.
-
-[00:00:28] Will: Hey, welcome back.
+[00:00:28] Will: Yeah. Hey, welcome back.
 
 [00:00:28] Adam: Thank you. Thank you. I've been I've been home for an inordinately long amount of time, like without big trips for like two months. No, no, not even
 
@@ -84,9 +82,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:03:10] Adam: Yeah.
 
-[00:03:10] Norm: Someone posting, it was pretty detailed, and it was more more importantly the decision making it was making in terms of how to navigate the environment.
-
-[00:03:10] Norm: Not just the mapping.
+[00:03:10] Norm: Someone posting, it was pretty detailed, and it was more more importantly the decision making it was making in terms of how to navigate the environment. Not just the mapping.
 
 [00:03:24] Adam: And it's it's cool the way it breaks it down. So it looks if there's like posts and stuff like this, it first makes a path for its torso, and then it looks at the ground and separates the ground into steppable space, which is green, and unsteppable space, which is red. So if it's like stones, it's looking for the ones in which they the you know it's flat,
 
@@ -104,9 +100,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:04:12] Will: Wow. When when Norm and I went to that DARPA thing, the robotics challenge, a few years ago, and we were talking to people, one of the things I didn't realize is that most of the robots like always stay over the center of gravity, which is not at all the way normal.
 
-[00:04:12] Adam: Yeah,
-
-[00:04:24] Adam: people don't walk like that.
+[00:04:12] Adam: Yeah, people don't walk like that.
 
 [00:04:25] Will: We're constantly in a state of falling and just putting the foot out to catch us.
 
@@ -184,11 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:06:24] Will: There's the can,
 
-[00:06:24] Adam: no,
-
-[00:06:24] Adam: the bottle, the plastic one with the
-
-[00:06:27] Adam: yeah, yeah. They're like because the stuff in it moves.
+[00:06:24] Adam: no, the bottle, the plastic one with the yeah, yeah. They're like because the stuff in it moves.
 
 [00:06:32] Will: Oh, and it's topologically weird.
 
@@ -276,9 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:11:10] Will: Well, he quantified everything
 
-[00:11:10] Adam: exactly.
-
-[00:11:13] Adam: It was it was stunning. Joey and I were down there doing a project, which we'll be talking about later.
+[00:11:10] Adam: exactly. It was it was stunning. Joey and I were down there doing a project, which we'll be talking about later.
 
 [00:11:19] Norm: And I think you were able to film some pieces for Tested.
 
@@ -358,15 +346,11 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:15:37] Will: Thanks, Norm. Yeah, are are eminently worth your time if you're curious.
 
-[00:15:41] Adam: That's the one I grew up with.
-
-[00:15:41] Adam: young brain.
+[00:15:41] Adam: That's the one I grew up with. young brain.
 
 [00:15:42] Will: Yes,
 
-[00:15:43] Norm: well, I'm young enough that that's the one.
-
-[00:15:43] Norm: I grew up with.
+[00:15:43] Norm: well, I'm young enough that that's the one. I grew up with.
 
 [00:15:44] Will: Yeah,
 
@@ -424,9 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:18:22] Adam: well, they're they're constantly dicks to each other in this low but in a loving, sweet way.
 
-[00:18:25] Will: Yeah, totally.
-
-[00:18:27] Will: Yeah, but but I mean, it's it's like you you tell you can tell like we've all worked in places where the environment's a little bit toxic and like people are kind of low key shitty to each other all the time, and this is the exact opposite of that.
+[00:18:25] Will: Yeah, totally. Yeah, but but I mean, it's it's like you you tell you can tell like we've all worked in places where the environment's a little bit toxic and like people are kind of low key shitty to each other all the time, and this is the exact opposite of that.
 
 [00:18:38] Adam: Completely true.
 
@@ -566,9 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:24:58] Norm: No, no, no. We're good. We're good.
 
-[00:24:59] Adam: Color temp too.
-
-[00:24:59] Adam: But so I saw the I saw the comments after I just saw when there was about six or seven of them, and the. I love the fact that everyone's immediately trading different versions and different ways to do this because it's exactly like it's a problem we all have,
+[00:24:59] Adam: Color temp too. But so I saw the I saw the comments after I just saw when there was about six or seven of them, and the. I love the fact that everyone's immediately trading different versions and different ways to do this because it's exactly like it's a problem we all have,
 
 [00:24:59] Norm: Yep.
 
@@ -600,9 +580,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:26:20] Adam: He sharpens his box cutters.
 
-[00:26:20] Norm: Yeah,
-
-[00:26:22] Norm: he brought us a little stone.
+[00:26:20] Norm: Yeah, he brought us a little stone.
 
 [00:26:23] Adam: He does,
 
@@ -628,9 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:27:01] Norm: powers of ten.
 
-[00:27:02] Will: Bit much. Yeah. I mean, I did say powers of ten, which I guess brings it on.
-
-[00:27:02] Will: It's very good.
+[00:27:02] Will: Bit much. Yeah. I mean, I did say powers of ten, which I guess brings it on. It's very good.
 
 [00:27:04] Adam: I recently ran into someone who. Had never heard of this film, and I I realize a lot of people haven't. Norm is referring to Charles and Ray Eames' film made, I believe, in conjunction with IBM a long time ago. But that's not important. Charles and Ray Eames, two important mid-century designers, made this incredible film that zooms from the from an atom.
 
@@ -672,9 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:28:20] Will: not yet. No, no. We're mostly making cartoons.
 
-[00:28:30] Adam: I've been listening to Lovett or Leave It, and I love their.
-
-[00:28:30] Adam: Little theme song.
+[00:28:30] Adam: I've been listening to Lovett or Leave It, and I love their. Little theme song.
 
 [00:28:32] Will: If you want to jam out some ukulele Foo Show theme real quick, I'll I'll bust out the phone recorder. We'll drop it in the next one.
 
@@ -706,6 +680,4 @@ Episode URL: https://www.youtube.com/watch?v=f6xleZljF3c
 
 [00:29:24] Will: Bye everybody.
 
-[00:29:25] Norm: Bye.
-
-[00:29:25] Norm: We'll see you next week.
+[00:29:25] Norm: Bye. We'll see you next week.

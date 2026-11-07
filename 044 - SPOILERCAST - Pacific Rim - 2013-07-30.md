@@ -48,9 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:02:01] Will: It's where the Borrowers live.
 
-[00:02:02] Adam: In addition to
-
-[00:02:02] Adam: having written most of the episodes of Kojak, my mom's ex-husband was also a telegraph enthusiast.
+[00:02:02] Adam: In addition to having written most of the episodes of Kojak, my mom's ex-husband was also a telegraph enthusiast.
 
 [00:02:07] Will: This is a conversation for another day. My dad lived in the attic when he was a kid, so he had like his room in this rambling split-level farmhouse was the was upstairs. So there was only a space about three feet wide in the middle that he could actually stand up in. By the time he was like 12,
 
@@ -78,9 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:03:02] Adam: It is a long, unfinished project. I have around here somewhere a set of 1/24 scale blueprints of the house that I grew up in. That I I would like to build a half. So dollhouse is one twelfth scale.
 
-[00:03:17] Will: Okay,
-
-[00:03:18] Will: that's standard.
+[00:03:17] Will: Okay, that's standard.
 
 [00:03:19] Adam: That is standard. That is one inch equals one foot. So a human would be six inches tall.
 
@@ -150,9 +146,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:05:02] Will: Nice.
 
-[00:05:03] Adam: So I did, and that is
-
-[00:05:03] Adam: this is one of those movies. Go see it on the biggest screen you can get. to.
+[00:05:03] Adam: So I did, and that is this is one of those movies. Go see it on the biggest screen you can get. to.
 
 [00:05:10] Norm: So the way to watch it,
 
@@ -160,9 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:05:14] Adam: Mm-hmm.
 
-[00:05:14] Will: But they did a really, they did a much better job of it than I've ever seen with the post enhanced 3D before.
-
-[00:05:14] Will: So they didn't shoot it in 3D. It was, it was done, done in post. I saw it in IMAX. It was awesome.
+[00:05:14] Will: But they did a really, they did a much better job of it than I've ever seen with the post enhanced 3D before. So they didn't shoot it in 3D. It was, it was done, done in post. I saw it in IMAX. It was awesome.
 
 [00:05:24] Adam: It is really, really beautiful, isn't it? And the 3D isn't overbearing. Sorry, that's the electrician.
 
@@ -188,9 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:06:14] Will: This is Wesley Snipes, and
 
-[00:06:16] Adam: no, no, this is Nicolas Cage,
-
-[00:06:18] Adam: Steve Buscemi, John.
+[00:06:16] Adam: no, no, this is Nicolas Cage, Steve Buscemi, John.
 
 [00:06:21] Will: I'm thinking of Passengers.
 
@@ -344,9 +334,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:13:08] Unknown speaker: Of course,
 
-[00:13:09] Norm: right? Yeah.
-
-[00:13:10] Norm: One of our friends said, you know, it was a missed opportunity. The robot should have high-fived or fist bumped after beating after beating up a monster together. That would have been a big
+[00:13:09] Norm: right? Yeah. One of our friends said, you know, it was a missed opportunity. The robot should have high-fived or fist bumped after beating after beating up a monster together. That would have been a big
 
 [00:13:18] Adam: That's hilarious.
 
@@ -396,9 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:14:30] Will: I got it, yeah.
 
-[00:14:30] Adam: to do finishing work and stuff like that.
-
-[00:14:30] Adam: But
+[00:14:30] Adam: to do finishing work and stuff like that. But
 
 [00:14:33] Norm: and those clawing ticks, what a great little concept! They have parasites and a great like. Let's not do what Godzilla 1998, Roland Emmerich Godzilla did when have you know she's pregnant and have like the Jurassic Park you know. homage.
 
@@ -506,9 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:19:54] Adam: Right.
 
-[00:19:54] Norm: but when they transition
-
-[00:19:54] Norm: to the Russians, it changed like a more Russian anthem theme. So like they they really personalized that.
+[00:19:54] Norm: but when they transition to the Russians, it changed like a more Russian anthem theme. So like they they really personalized that.
 
 [00:20:02] Adam: I also loved the fact that most of the master shots felt. You know how when you look at Star Wars and then you go look at the Ralph McQuarrie drawings, you can see where they started and where they ended, right? And actually, I think that the advent of CG, one of the things that has we have benefited from, and if you look at the difference between Episode One Star Wars and Episode Two, Episode Two is not much better, but visually it's stunning. I defend that Episode Two is gorgeous if you watch it with the sound off, and it's stunning because the master shots all really do look like production paintings, where it's not too much going on in each frame. You really your eye is going where it needs to go, but there's a huge amount of detail. And Pacific Rim and Every master shot feels like a beautiful production painting. Tokyo in the distance, the monsters, the water, the rain. ,
 
@@ -556,9 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:22:50] Norm: And the fact that the water filling up.
 
-[00:22:52] Adam: the fluid.
-
-[00:22:52] Adam: Yeah, that was neat. The double visor—I love that bit. The weird yellow water coming down—
+[00:22:52] Adam: the fluid. Yeah, that was neat. The double visor—I love that bit. The weird yellow water coming down—
 
 [00:22:58] Will: it was supposed to be some sort of like. It doesn't even matter. It just looked cool.
 
@@ -566,13 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:23:00] Will: Yeah. I saw. I got to see the black armor on the floor at Comic Con. It was in the corner of the Legacy booth, and and I mean, it's just up close. Like a lot of times, you see the actual props and they don't hold up, and that stuff is so gorgeous.
 
-[00:23:14] Adam: No, no, no. Those guys, yeah. Again, we spent some time with the guys from Legacy at at Comic Con
-
-[00:23:20] Adam: Yeah.
-
-[00:23:20] Adam: because they built that robot for Wired.
-
-[00:23:20] Adam: The detail work that they do, that they put in, like you—you can't even see, but it really lends out of the corner of your eye just all this perfect industrial veracity to it.
+[00:23:14] Adam: No, no, no. Those guys, yeah. Again, we spent some time with the guys from Legacy at at Comic Con Yeah. because they built that robot for Wired. The detail work that they do, that they put in, like you—you can't even see, but it really lends out of the corner of your eye just all this perfect industrial veracity to it.
 
 [00:23:32] Will: Well, and and yeah, the thing that the thing that they said in the video with the robot will be up probably later this week. I would think maybe next week. I can't remember when we have it on the schedule, but like. Their goal is to make it look, make it real, make something that would work if it were real, even if it's a a giant robot with a dude inside. So, yeah, it was it's pretty amazing. the The movie, like, you should go see the movie. Don't go in. Don't expect you're not going to see. It's not the Citizen Kane.
 
@@ -634,9 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:26:03] Adam: So you're Reasonably assured that the city is relatively empty, except for well, when Charlie's running from the
 
-[00:26:08] Norm: and it's like this idea of like you know here's our safe zones and just like the wall, it's a false sense of security. Uh huh. But it's it's
-
-[00:26:13] Norm: done in a very secure satirical way.
+[00:26:08] Norm: and it's like this idea of like you know here's our safe zones and just like the wall, it's a false sense of security. Uh huh. But it's it's done in a very secure satirical way.
 
 [00:26:16] Unknown speaker: Well, it's a metaphor for terrorism.
 
@@ -646,9 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:26:22] Adam: Of course.
 
-[00:26:22] Will: Like if you want to talk about city evacuation,
-
-[00:26:24] Will: go look at Los at New Orleans pre Katrina and the line of traffic 400 miles long.
+[00:26:22] Will: Like if you want to talk about city evacuation, go look at Los at New Orleans pre Katrina and the line of traffic 400 miles long.
 
 [00:26:31] Adam: Was it really that long?
 
@@ -674,9 +646,7 @@ Episode URL: https://www.youtube.com/watch?v=6Dx-UH-r-Is
 
 [00:27:11] Adam: Ron Perlman.
 
-[00:27:12] Will: Ron Perlman.
-
-[00:27:13] Will: Thank you,
+[00:27:12] Will: Ron Perlman. Thank you,
 
 [00:27:13] Adam: Ron Perlman. He's he's the muse. He has to be
 

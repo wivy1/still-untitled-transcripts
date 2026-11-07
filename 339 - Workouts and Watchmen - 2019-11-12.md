@@ -12,9 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:00:04] Will: We're on the wrong sides. This is true. We're in the wrong room.
 
-[00:00:09] Adam: We're on the wrong sides. The reason we are not in the cave today, and I know that regular tested listeners love to be teased, the reason we're not
-
-[00:00:18] Adam: in the main room is because the project I'm working on over there is so secret we can't even tell you about it until like
+[00:00:09] Adam: We're on the wrong sides. The reason we are not in the cave today, and I know that regular tested listeners love to be teased, the reason we're not in the main room is because the project I'm working on over there is so secret we can't even tell you about it until like
 
 [00:00:24] Norm: can't even be in the same building as the project.
 
@@ -46,9 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:00:57] Adam: But most importantly, a VR game came out called Double Tap.
 
-[00:01:01] Will: No,
-
-[00:01:01] Will: Pistol Whip.
+[00:01:01] Will: No, Pistol Whip.
 
 [00:01:02] Adam: Pistol Whip
 
@@ -64,9 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:01:13] Will: Oh yeah.
 
-[00:01:14] Adam: No, I double tap on the beat.
-
-[00:01:15] Adam: Everything gets a double tap because you never—
+[00:01:14] Adam: No, I double tap on the beat. Everything gets a double tap because you never—
 
 [00:01:17] Will: Really? Well, there's a penalty for accuracy.
 
@@ -190,9 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:05:50] Norm: Awesome,
 
-[00:05:52] Adam: and the opening up of the aiming so
-
-[00:05:54] Adam: that close is good enough is a fascinating way to make you more interested in getting better at aiming without having it be this too high of a threshold at the front end.
+[00:05:52] Adam: and the opening up of the aiming so that close is good enough is a fascinating way to make you more interested in getting better at aiming without having it be this too high of a threshold at the front end.
 
 [00:06:04] Norm: Yeah.
 
@@ -226,11 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:07:09] Norm: we can compare our scores.
 
-[00:07:10] Adam: Okay, then you have to teach me how to like figure out where you
-
-[00:07:12] Adam: guys are in the
-
-[00:07:14] Adam: virtual space.
+[00:07:10] Adam: Okay, then you have to teach me how to like figure out where you guys are in the virtual space.
 
 [00:07:14] Will: So I've done.
 
@@ -246,13 +234,9 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:07:43] Will: [unclear: one of those mods / one of those bots / 'cause you're playing Quest]
 
-[00:07:45] Adam: Yeah.
+[00:07:45] Adam: Yeah. I've noticed people there's vests you can buy that'll slip a USB back behind your shoulder blades.
 
-[00:07:45] Adam: I've noticed people there's vests you can buy that'll slip a USB back behind your shoulder blades.
-
-[00:07:50] Will: Well, so that's basically what the Vive wireless is. It's like a big USB pack that I just put in my pocket and it has a long enough cord. The um the it's out everywhere right it's out on Rift Quest
-
-[00:07:59] Will: and Vive.
+[00:07:50] Will: Well, so that's basically what the Vive wireless is. It's like a big USB pack that I just put in my pocket and it has a long enough cord. The um the it's out everywhere right it's out on Rift Quest and Vive.
 
 [00:08:00] Norm: just not PSVR yet
 
@@ -342,9 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:11:38] Will: a lot of time to think.
 
-[00:11:39] Norm: Yeah,
-
-[00:11:40] Norm: getting in that flow state. Speaking of Beat Saber, I'll do the tease now. There is a Beat Saber related one day build
+[00:11:39] Norm: Yeah, getting in that flow state. Speaking of Beat Saber, I'll do the tease now. There is a Beat Saber related one day build
 
 [00:11:48] Adam: Yes.
 
@@ -394,9 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:12:27] Norm: So let's set this up. We talked about it a little bit before. Regina King, of course, is the main star. It is a sequel to the book Watchmen by Alan Moore and Dave Gibbons, not necessarily the the movie, although there are visual references to the Zack Snyder movie.
 
-[00:12:39] Adam: No, they went to they. They talk about the squid, so they're
-
-[00:12:42] Adam: they're holding to the to the book, not the film,
+[00:12:39] Adam: No, they went to they. They talk about the squid, so they're they're holding to the to the book, not the film,
 
 [00:12:44] Norm: and it's set in 2019 alternate reality where the world is different. You know, it's What happened if Nixon was president for that long?
 
@@ -446,9 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:16:10] Will: Blake too. Right, right. She's comedian and Silk Spectre one’s daughter.
 
-[00:16:13] Norm: Yes,
-
-[00:16:14] Norm: and Jean Smart plays her, and she is appropriately aged, and she's an FBI agent.
+[00:16:13] Norm: Yes, and Jean Smart plays her, and she is appropriately aged, and she's an FBI agent.
 
 [00:16:21] Adam: Jean Smart has so much fun with this character, and you can imagine what you know about what it's like to be a woman in Hollywood, a woman of a certain age, don't often get roles that are meaty like this, and you watch the actress just make so much delicious hay out of the role.
 
@@ -492,11 +470,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:17:52] Adam: There's this, there's this, There's this other that's really nifty. There's this other. It's beautiful. There's this other aspect of that episode, which is Doctor Manhattan's living on Mars. No one has seen him in a fair bit of time, but because of his omnipotence, there's apparently phone booths you can go to and you can call Mars and talk to him.
 
-[00:18:09] Will: It's a cottage industry.
-
-[00:18:10] Will: It's the best scam because you don't have to call. He sees the entire universe at the same time.
-
-[00:18:15] Will: Letters to Santa.
+[00:18:09] Will: It's a cottage industry. It's the best scam because you don't have to call. He sees the entire universe at the same time. Letters to Santa.
 
 [00:18:16] Adam: Letters to Santa. But there is Jean Smart in one of those phone booths, and she is telling him she's telling him a joke, and she screws it up, and she starts telling him another joke, and then that ends up becoming again light spoilers.
 
@@ -694,9 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:28:32] Will: Yeah, I, like she. Well, she's yeah, she's playing Steve Carell in Morning Show in Horrible Bosses. Sorry,
 
-[00:28:38] Adam: but. You get to, like I said, the show is uneven. I totally granted that. I find myself. I find the episodes go very quickly. I—
-
-[00:28:48] Adam: which is to me a marker. Yeah, it's an hour. Okay. Which it's to me a marker that it's really good. That it's enjoyable, right? If it's like I'm not feeling like anyone's wasting my time.
+[00:28:38] Adam: but. You get to, like I said, the show is uneven. I totally granted that. I find myself. I find the episodes go very quickly. I— which is to me a marker. Yeah, it's an hour. Okay. Which it's to me a marker that it's really good. That it's enjoyable, right? If it's like I'm not feeling like anyone's wasting my time.
 
 [00:28:56] Will: Yeah.
 
@@ -748,9 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:30:13] Will: Blade Runner.
 
-[00:30:14] Adam: But yeah.
-
-[00:30:17] Adam: He's got three days.
+[00:30:14] Adam: But yeah. He's got three days.
 
 [00:30:18] Will: Did you see the thing that was with the studio notes from an early screening of Blade Runner, like after Ridley Scott's second try at cutting it, just so the studio would say okay?
 
@@ -804,17 +774,13 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:32:20] Will: Oh, you passed the cocoon line.
 
-[00:32:21] Adam: I Passed the Wilford Brimley line.
-
-[00:32:22] Adam: I passed it a year and a half ago. [unclear: Oh / did you, oh] yeah, it's like he was 51.
+[00:32:21] Adam: I Passed the Wilford Brimley line. I passed it a year and a half ago. [unclear: Oh / did you, oh] yeah, it's like he was 51.
 
 [00:32:27] Will: Jennifer Aniston passed it now.
 
 [00:32:27] Adam: He was only six years older than you are now.
 
-[00:32:31] Will: Fuck right off.
-
-[00:32:34] Will: That is, wow.
+[00:32:31] Will: Fuck right off. That is, wow.
 
 [00:32:36] Adam: Yeah,
 
@@ -982,9 +948,7 @@ Episode URL: https://www.youtube.com/watch?v=uMtcvClRsYg
 
 [00:38:48] Adam: Oh no, it's her contribution is to Bluetooth.
 
-[00:38:50] Will: Bluetooth. Yeah. We talked about we talked about the Shannon limit, which is the theoretical maximum data capacity for a frequency range,
-
-[00:38:58] Will: which was really fun. There's math. You can find it at techpod.content.town.
+[00:38:50] Will: Bluetooth. Yeah. We talked about we talked about the Shannon limit, which is the theoretical maximum data capacity for a frequency range, which was really fun. There's math. You can find it at techpod.content.town.
 
 [00:39:04] Adam: Awesome!
 

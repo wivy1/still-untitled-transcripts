@@ -96,9 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:02:27] Adam: So, I bought these. I bought these off of eBay. I had this idea for a project, and I thought, " Oh, I need, I need a big fish." And the project involved me wearing the fish on my head in some way, and I needed large fish replicas. And I went on eBay and I bought these two. They were dirt cheap, and they arrived. And I cannot remember what I was planning to do with them. I have no idea what I was originally thinking.
 
-[00:02:49] Norm: What?
-
-[00:02:53] Norm: You're going to put them on your head.
+[00:02:49] Norm: What? You're going to put them on your head.
 
 [00:02:55] Adam: Yeah,
 
@@ -238,9 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:05:53] Norm: Absolutely,
 
-[00:05:54] Will: Hold on! Didn't didn't
-
-[00:05:55] Will: you do the vacuum cleaner hovercraft though?
+[00:05:54] Will: Hold on! Didn't didn't you do the vacuum cleaner hovercraft though?
 
 [00:05:57] Adam: No, I mean I built one with my kids years ago.
 
@@ -268,11 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:06:48] Norm: So scared.
 
-[00:06:49] Adam: And I don't have the $30, and so I just start throwing away the letters. Oh, I 8 10 months go by. I start getting. I get letters like this, Mister Savage. It's time to stop beating around the bush. When something needs to be said, it's time to say it. You have, you have, taken something. For I mean, I was, and I like the shame. I read this and. Threw it in the trash, and my mom was like, " A couple days later, she was like, 'Honey, what is this?'" And I was like, " I'm
-
-[00:07:17] Adam: sorry, I'm
-
-[00:07:19] Adam: sorry, I'm sorry." I felt like they were going to come for me, and she was like, " Oh my god," she felt so bad, and she immediately made it go away. But she got on the phone.
+[00:06:49] Adam: And I don't have the $30, and so I just start throwing away the letters. Oh, I 8 10 months go by. I start getting. I get letters like this, Mister Savage. It's time to stop beating around the bush. When something needs to be said, it's time to say it. You have, you have, taken something. For I mean, I was, and I like the shame. I read this and. Threw it in the trash, and my mom was like, " A couple days later, she was like, 'Honey, what is this?'" And I was like, " I'm sorry, I'm sorry, I'm sorry." I felt like they were going to come for me, and she was like, " Oh my god," she felt so bad, and she immediately made it go away. But she got on the phone.
 
 [00:07:26] Will: Yeah, she killed him. Oh,
 
@@ -412,9 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:11:05] Will: You know what, I am 100% sure it was. Can you believe what happened in Albuquerque?
 
-[00:11:10] Adam: No,
-
-[00:11:11] Adam: I don't think I went to Albuquerque, but Austin City Limits were fantastic.
+[00:11:10] Adam: No, I don't think I went to Albuquerque, but Austin City Limits were fantastic.
 
 [00:11:14] Will: Oh, you're in Austin City Limits.
 
@@ -524,9 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:14:08] Will: Like his real mom, not—
 
-[00:14:08] Adam: Frances McDormand.
-
-[00:14:16] Adam: The one in which he does the full stairway to heaven scene.
+[00:14:08] Adam: Frances McDormand. The one in which he does the full stairway to heaven scene.
 
 [00:14:20] Will: Oh that okay,
 
@@ -666,9 +654,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:20:08] Will: Did they all follow you down?
 
-[00:20:09] Adam: Yeah, they did. And I turn around, and they're all standing at the door, and I'm like, " What? What?" And then I realize, and I turn around, and
-
-[00:20:17] Adam: I went, " Ah!"
+[00:20:09] Adam: Yeah, they did. And I turn around, and they're all standing at the door, and I'm like, " What? What?" And then I realize, and I turn around, and I went, " Ah!"
 
 [00:20:19] Will: That's so funny.
 
@@ -900,9 +886,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:28:14] Adam: What's a dwarf, a man, and an elf?
 
-[00:28:14] Will: Three hours later, she's like, " I had no idea
-
-[00:28:27] Will: the entire movie."
+[00:28:14] Will: Three hours later, she's like, " I had no idea the entire movie."
 
 [00:28:28] Adam: And a dwarf, dwarf, a man, and a elf doing in the Riddermark.
 
@@ -1034,9 +1018,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:31:13] Norm: No.
 
-[00:31:13] Adam: He just made
-
-[00:31:15] Adam: it up.
+[00:31:13] Adam: He just made it up.
 
 [00:31:15] Will: Dun, dun.
 
@@ -1114,9 +1096,7 @@ Episode URL: https://www.youtube.com/watch?v=SHHethbV3_E
 
 [00:34:41] Norm: Okay. Please stay safe.
 
-[00:34:43] Adam: Well,
-
-[00:34:44] Adam: I think that about does it for Christmas.
+[00:34:43] Adam: Well, I think that about does it for Christmas.
 
 [00:34:45] Will: Yeah, we'll be back next week. We'll we'll we'll tell stories of Christmas past or New Year's to come or something like that,
 

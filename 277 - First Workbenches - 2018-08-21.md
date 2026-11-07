@@ -32,9 +32,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:00:59] Norm: Did you have no rumblings at all?
 
-[00:01:01] Kayte Sabicer: No, no.
-
-[00:01:02] Kayte Sabicer: I I thought. I just want to see who they covered. I had no expectations about myself.
+[00:01:01] Kayte Sabicer: No, no. I I thought. I just want to see who they covered. I had no expectations about myself.
 
 [00:01:07] Norm: I think you said you might know some people who work there
 
@@ -44,19 +42,13 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:01:10] Kayte Sabicer: Yeah, yeah, uh, and yeah, it was just me looking through the pictures, and I just audibly like just started screeching. Everyone goes, " Are you okay? What happened? What happened?"
 
-[00:01:20] Adam: Well, when I came in yesterday, you were holding it like up, like a "Ah!" Like you're holding it up.
-
-[00:01:25] Adam: I got a secret.
-
-[00:01:27] Adam: Um, I you and this is not your first time in Cinefex.
+[00:01:20] Adam: Well, when I came in yesterday, you were holding it like up, like a "Ah!" Like you're holding it up. I got a secret. Um, I you and this is not your first time in Cinefex.
 
 [00:01:30] Kayte Sabicer: Actually, it is not. No, I had another surprise one while I was working on the Tumbler for Dark Knight Rises. There is a photo of my friend Jonathan and I both hard at work on it, but I like this picture better.
 
 [00:01:43] Unknown speaker (Norm or Adam then Kayte Sabicer then Norm): [unclear: Yeah, I mean, yes / Yeah. Yes. I mean / I mean, yes].
 
-[00:01:44] Norm: thinking from an, uh, editorial perspective, the magazine lots of text. If you’ve never picked up a Cinefex, it's a it's a interesting form factor. I think these days they cover maybe four or five films per issue. They go deep dives, and yeah, you have your before after VFX shots. They love the green screen and what it looks like before and after celebrating the the people in that department, but they also love. Photos of people working on the practical effects,
-
-[00:02:10] Norm: right? Because
+[00:01:44] Norm: thinking from an, uh, editorial perspective, the magazine lots of text. If you’ve never picked up a Cinefex, it's a it's a interesting form factor. I think these days they cover maybe four or five films per issue. They go deep dives, and yeah, you have your before after VFX shots. They love the green screen and what it looks like before and after celebrating the the people in that department, but they also love. Photos of people working on the practical effects, right? Because
 
 [00:02:11] Adam: and I, I literally grew up on Cinefex, looking at people, and then later on having the wonderful grace to work with and for some of those people that I grew up seeing in the pages of Cinefex.
 
@@ -68,9 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:03:03] Kayte Sabicer: I was just about to say. I am very proud to say that I 100% was working on him at that moment. I was, I think, I was tightening his knee joint, um, because he actually has a gorgeous, gorgeous armature ball and socket, fully machined by Brett Foxwell, who's just a super talented.
 
-[00:03:21] Adam: machinist.
-
-[00:03:21] Adam: He's done work with me here in the shop.
+[00:03:21] Adam: machinist. He's done work with me here in the shop.
 
 [00:03:23] Kayte Sabicer: Yeah, yeah, he's great. And so somebody actually came in while I happened to be working on him, so it was not the fake, like, okay, just you know, act like you're pointing at something and just smile, like I was working on him.
 
@@ -222,9 +212,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:13:09] Norm: Like they're like, oh, we didn't know you. He was interested in that and this and that, and it just came naturally in that conversation.
 
-[00:13:15] Kayte Sabicer: I was pleasantly surprised. Um, he mentioned he, uh, is sort of a connoisseur of old photo booths,
-
-[00:13:22] Kayte Sabicer: and I I have a deep interest, but I my knowledge is seriously lacking. But he talked about a booth he has that just sounds perfectly amazing to me, um, and it like prints out the actual old photo in the frame with the old process like from the 1930s. I want to say.
+[00:13:15] Kayte Sabicer: I was pleasantly surprised. Um, he mentioned he, uh, is sort of a connoisseur of old photo booths, and I I have a deep interest, but I my knowledge is seriously lacking. But he talked about a booth he has that just sounds perfectly amazing to me, um, and it like prints out the actual old photo in the frame with the old process like from the 1930s. I want to say.
 
 [00:13:40] Adam: yeah. Well, I mean, so there's a famous photo of Robert Johnson with a cigarette hanging out of his mouth, and what Jack told us was that was taken in this very specific type of photo booth that he's got the one of the earliest examples of it, has it up and running.
 
@@ -328,11 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:21:30] Kayte Sabicer: And then I, I ended up moving away from stained glass a little more, and I set up, uh, I started renting a studio space closer to where I work and everything, and I got an amazing drafting table from Phil Tippett. He was like, here, take this, and as his daughter described it, it's pre-stained with red wine and frustration. So it was it was exactly everything I wanted. So now, and by then, I knew exactly what I need. I need storage for this. I needed ways to store glue and paint. So it it was a It was great that by the time I did that, I had learned all the things I needed.
 
-[00:22:04] Adam: That's that process of watching the watcher, of monitoring your own usage patterns.
-
-[00:22:10] Adam: Yes,
-
-[00:22:10] Adam: it's it's constantly ongoing, isn't it?
+[00:22:04] Adam: That's that process of watching the watcher, of monitoring your own usage patterns. Yes, it's it's constantly ongoing, isn't it?
 
 [00:22:13] Kayte Sabicer: It is 100%. Every time I think I get a handle on it, I mean, I, I'm sure you see that because I'm seeing you. I come in and I go, " Oh, this shop is perfect and it's perfectly organized," and yet I'll come in days and you'll have changed a bunch of things, and I'm thought, " Well, that wasn't necessary, was it?" Until I go, " Oh, no, this is much better. I didn't even know it could be better."
 
@@ -354,15 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:23:00] Kayte Sabicer: Right. Right.
 
-[00:23:01] Adam: Like a friend of mine was telling me, I, I introduced him to the idea of a strip heater for acrylic, and he didn't know about it, so he bought one. Now it's in his shop, and he's like, " I don't know where it goes. I don't have any other
-
-[00:23:13] Adam: acrylic working tools in
-
-[00:23:14] Adam: my shop, so this I have no idea where it should go.
-
-[00:23:18] Adam: Maybe we need
-
-[00:23:18] Adam: some more acrylic tools. Clearly, we need a shelf, but you can't because if it's a one-off and you get clever, you could put it somewhere and not see it for 20 years because you can't remember where you put it.
+[00:23:01] Adam: Like a friend of mine was telling me, I, I introduced him to the idea of a strip heater for acrylic, and he didn't know about it, so he bought one. Now it's in his shop, and he's like, " I don't know where it goes. I don't have any other acrylic working tools in my shop, so this I have no idea where it should go. Maybe we need some more acrylic tools. Clearly, we need a shelf, but you can't because if it's a one-off and you get clever, you could put it somewhere and not see it for 20 years because you can't remember where you put it.
 
 [00:23:27] Kayte Sabicer: You are going to forget all about it. And that's the other thing that I like is, and I am sure you've done this a lot, is you find one tool or one new material that gets you excited, and then that inspires you to build your collection of tools, and then all of a sudden you have a storage issue or an organization issue that you didn't need to think about before. You are like, well, I didn't have any acrylic stuff, so now I have to reimagine the whole shop.
 
@@ -374,11 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:24:19] Adam: yes, yes, exactly. So, part we should do a tested piece on this one toolbox because my solution to drawers is to make them all clear so you can see everything inside of them.
 
-[00:24:28] Kayte Sabicer: And I love it. I love it.
-
-[00:24:31] Kayte Sabicer: It changed my life.
-
-[00:24:31] Kayte Sabicer: I never thought about it.
+[00:24:28] Kayte Sabicer: And I love it. I love it. It changed my life. I never thought about it.
 
 [00:24:32] Adam: And if you and where do you get clear drawers? Freezer drawers, which are made of high impact, very thermally stable plastic, or makeup storage, which you can get on Amazon for pennies out of acrylic. They're sold all over. I mean, even in the dollar store, you can go find makeup sorters that are clear plastic. For some reason, within makeup, everything's clear plastic.
 
@@ -410,13 +382,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:26:06] Kayte Sabicer: They are.
 
-[00:26:07] Adam: So Michael Frassinelli brought in this opaque projector. It was old and beautiful. And I was like, " Where did you get that?" And he's like, " Urban Ore." I'm like, " No way! Do they have
-
-[00:26:13] Adam: another one?"
-
-[00:26:14] Adam: He's like, " They have two more. One of them is missing a lens, and the other one has the lens. So maybe you can get them to give to sell you both for a deal, something like that." Yeah. So I go in and I'm like, " Do you guys have any opaque projectors?" And he goes, " The guy goes, 'No.'" And I'm like, " No, I happen to know that you have them, and they're upstairs." And he's like, " I don't think so." And I'm like, " No, my friend was just here the other day." And he goes, " All right," and he walks me upstairs, and there's these two opaque projectors. And he goes, " I can't sell you either of these. This one doesn't have a lens." And I'm like, " No, but you could take the lens out of this one and sell that one to me." And he goes, " No, it doesn't have a lens." And I said, " My friend told me it didn't have a lens." And then he looks at me and he goes, " Did your friend steal the lens?" And
-
-[00:26:53] Adam: I'm like, " Okay, this has gotten way farther than I thought it was going."
+[00:26:07] Adam: So Michael Frassinelli brought in this opaque projector. It was old and beautiful. And I was like, " Where did you get that?" And he's like, " Urban Ore." I'm like, " No way! Do they have another one?" He's like, " They have two more. One of them is missing a lens, and the other one has the lens. So maybe you can get them to give to sell you both for a deal, something like that." Yeah. So I go in and I'm like, " Do you guys have any opaque projectors?" And he goes, " The guy goes, 'No.'" And I'm like, " No, I happen to know that you have them, and they're upstairs." And he's like, " I don't think so." And I'm like, " No, my friend was just here the other day." And he goes, " All right," and he walks me upstairs, and there's these two opaque projectors. And he goes, " I can't sell you either of these. This one doesn't have a lens." And I'm like, " No, but you could take the lens out of this one and sell that one to me." And he goes, " No, it doesn't have a lens." And I said, " My friend told me it didn't have a lens." And then he looks at me and he goes, " Did your friend steal the lens?" And I'm like, " Okay, this has gotten way farther than I thought it was going."
 
 [00:26:58] Kayte Sabicer: Like, can I please just buy these for you?
 
@@ -580,9 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=czyuk9n8P8E
 
 [00:33:28] Kayte Sabicer: Yes, yes.
 
-[00:33:30] Adam: Some friends of mine were given for their wedding a bread maker, which sounded like the coolest thing in the world. But what the bread maker does is it mixes and rises the dough itself all autonomously, and they thought that sounded great until the middle of the first night they ran the bread machine. They turned it on, and they like three hours later they're woken up to this
-
-[00:33:49] Adam: [unclear imitation: oh yeah, what, oh yeah, what, oh] this terrible sound.
+[00:33:30] Adam: Some friends of mine were given for their wedding a bread maker, which sounded like the coolest thing in the world. But what the bread maker does is it mixes and rises the dough itself all autonomously, and they thought that sounded great until the middle of the first night they ran the bread machine. They turned it on, and they like three hours later they're woken up to this [unclear imitation: oh yeah, what, oh yeah, what, oh] this terrible sound.
 
 [00:33:54] Kayte Sabicer: Yes, my my mom used to use a bread maker, and it was like it was a weird experience.
 

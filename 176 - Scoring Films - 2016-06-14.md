@@ -102,9 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:04:39] Adam: Well, and so he JJ played the games that he scored for. That's how they became.
 
-[00:04:46] Norm: What?
-
-[00:04:46] Norm: I didn't know that at all.
+[00:04:46] Norm: What? I didn't know that at all.
 
 [00:04:46] Adam: Yes.
 
@@ -168,9 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:08:54] Will: That's why they do the score last, right?
 
-[00:08:56] Adam: Supposedly last, the print should be locked because Justin locked it on the very night we did the Paramount event.
-
-[00:09:02] Adam: But at the same time, it's the it's the movie industry, and maybe your preview audience doesn't like this scene. They got to pull it out, and all of a sudden, all this stuff changes.
+[00:08:56] Adam: Supposedly last, the print should be locked because Justin locked it on the very night we did the Paramount event. But at the same time, it's the it's the movie industry, and maybe your preview audience doesn't like this scene. They got to pull it out, and all of a sudden, all this stuff changes.
 
 [00:09:10] Norm: And then they're still mixing after the fact.
 
@@ -190,9 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:10:09] Adam: There is tons of booms.
 
-[00:10:09] Norm: How many?
-
-[00:10:10] Norm: Look at that! Like that track. Right, if if they had individual mics or at least it's you know how many tracks that would be.
+[00:10:09] Norm: How many? Look at that! Like that track. Right, if if they had individual mics or at least it's you know how many tracks that would be.
 
 [00:10:16] Will: 96 tracks,
 
@@ -362,9 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:15:34] Norm: It’s a shorty.
 
-[00:15:35] Will: We can talk about something else if you want.
-
-[00:15:38] Will: You got anything?
+[00:15:35] Will: We can talk about something else if you want. You got anything?
 
 [00:15:39] Adam: You know what? We talked about '80s movies, and we mentioned Beverly Hills Cop that had Jonathan Banks in it as a henchman, and then I mentioned 48 Hours. I forgot to mention Jonathan Banks actually plays a cop in 48 Hours.
 
@@ -548,15 +540,7 @@ Episode URL: https://www.youtube.com/watch?v=Mt3TG1X6VRg
 
 [00:20:33] Norm: I haven't seen. I haven't read it.
 
-[00:20:34] Will: So it's it's basically it's another origin story kind of, but it basically tells the story of of it's it's it's just it's worth reading if you think Superman is interesting at all. It's a different take on Superman.
-
-[00:20:34] Will: Okay.
-
-[00:20:34] Will: I don't want to spoil anything,
-
-[00:20:34] Will: That’s awesome.
-
-[00:20:34] Will: but it it interacts with the Justice League stuff in a way that's not super comic booky. It stands on its own in a really nice way,
+[00:20:34] Will: So it's it's basically it's another origin story kind of, but it basically tells the story of of it's it's it's just it's worth reading if you think Superman is interesting at all. It's a different take on Superman. Okay. I don't want to spoil anything, That’s awesome. but it it interacts with the Justice League stuff in a way that's not super comic booky. It stands on its own in a really nice way,
 
 [00:20:34] Unknown speaker: Very cool.
 

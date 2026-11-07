@@ -70,9 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:02:16] Will: but I think I was probably more accurate overall.
 
-[00:02:16] Adam: Right, because I actually—
-
-[00:02:22] Adam: a was an upside down v.
+[00:02:16] Adam: Right, because I actually— a was an upside down v.
 
 [00:02:24] Will: Yeah, exactly.
 
@@ -190,9 +188,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:06:14] Adam: And we were up there talking about nerds, and the the the the question was
 
-[00:06:14] Will: Like being nerds or just discussing?
-
-[00:06:20] Will: Look at that guy with that belt pulled up too high.
+[00:06:14] Will: Like being nerds or just discussing? Look at that guy with that belt pulled up too high.
 
 [00:06:22] Adam: Actually, is the opposite of that.
 
@@ -230,9 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:07:48] Will: The wrong decade for platform shoes.
 
-[00:07:48] Adam: Yes, exactly. And while we're there, we are like hanging out, and we're like trying to fit in, and we totally don't fit in. The three of us. It is a John Hughes movie to film us against the background of this party. And a dude walks up to us and says, " Are you guys nerds?" And I was like, " Yeah, it's time for me to
-
-[00:08:28] Adam: go.”
+[00:07:48] Adam: Yes, exactly. And while we're there, we are like hanging out, and we're like trying to fit in, and we totally don't fit in. The three of us. It is a John Hughes movie to film us against the background of this party. And a dude walks up to us and says, " Are you guys nerds?" And I was like, " Yeah, it's time for me to go.”
 
 [00:08:28] Will: That's when the forced perspective zoom comes in. Somebody screams, “Nerds!”
 
@@ -288,9 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:11:10] Adam: but the one that I wanted was the Maskatron, which had Michael Ironside’s face, Oscar Madison’s, Oscar, Oscar Goldman.
 
-[00:11:19] Will: Oscar Goldman.
-
-[00:11:20] Will: I know that because of the 40-year-old virgin.
+[00:11:19] Will: Oscar Goldman. I know that because of the 40-year-old virgin.
 
 [00:11:22] Adam: Oh really?
 
@@ -426,9 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:15:13] Norm: Yeah, sure.
 
-[00:15:13] Will: Understand.
-
-[00:15:14] Will: So speaking of stars and rage and fun and all
+[00:15:13] Will: Understand. So speaking of stars and rage and fun and all
 
 [00:15:14] Norm: toys and merchandising.
 
@@ -446,9 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:15:14] Will: I’m so excited.
 
-[00:15:14] Adam: But—
-
-[00:15:38] Adam: since we last spoke about it, the casting.
+[00:15:14] Adam: But— since we last spoke about it, the casting.
 
 [00:15:41] Will: Well, there were rumors and all that stuff.
 
@@ -464,9 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:16:08] Norm: so they released
 
-[00:16:09] Adam: So there’s a picture of all of them plus the new cast, including Adam Driver from Girls. Yep.
-
-[00:16:09] Adam: Is it Max von Sydow?
+[00:16:09] Adam: So there’s a picture of all of them plus the new cast, including Adam Driver from Girls. Yep. Is it Max von Sydow?
 
 [00:16:09] Norm: No. Yes, it is—
 
@@ -568,9 +554,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:19:10] Norm: and um, because you can have movies where two leads rarely encounter another, so there is an actress sitting between Harrison Ford and Carrie Fisher, and so the speculation is: is this young actress going to play their daughter?
 
-[00:19:49] Adam: Right.
-
-[00:19:50] Adam: Oh yeah,
+[00:19:49] Adam: Right. Oh yeah,
 
 [00:19:52] Norm: and just based on that assumption, then they propagate like how how you could have all the other relationships in the movie
 
@@ -618,9 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:22:46] Adam: Or he could be. People are like, oh, you make a good Sith.
 
-[00:22:46] Will: I mean—
-
-[00:22:49] Will: Just because he has dark hair and white light skin doesn't mean he's kind of weird. He doesn't have any weird horns or anything.
+[00:22:46] Will: I mean— Just because he has dark hair and white light skin doesn't mean he's kind of weird. He doesn't have any weird horns or anything.
 
 [00:22:54] Adam: It's so funny when I read all that speculation. Personally, I understand the excitement and the desire to speculate. I look at that and I think, oh, cool. Eventually, I'll find out what those people are doing. I mean, then I literally move my brain to the next thing,
 
@@ -628,9 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:23:16] Norm: It's not going to be like that.
 
-[00:23:17] Will: Um.
-
-[00:23:18] Will: It’s what?
+[00:23:17] Will: Um. It’s what?
 
 [00:23:18] Norm: It’s not going to be like episode one.
 
@@ -648,13 +628,9 @@ Episode URL: https://www.youtube.com/watch?v=i3DEYFTIPSM
 
 [00:23:20] Will: I'm going to go in. You know, I find especially now the more hyped a movie is, the more I go in cold to that first showing, the happier I'm going to be because I don't have any preconceived notions. I can just go in and enjoy myself and have fun. And watch a movie, and whether that's Transformers with the dinosaurs, or the next Star Wars movie, or the third Star Trek movie, or what, I'm happy.
 
-[00:23:20] Adam: Is there
+[00:23:20] Adam: Is there dinosaurs in the new Transformers?
 
-[00:24:03] Adam: dinosaurs in the new Transformers?
-
-[00:24:04] Will: The new Transformers movie has the dinosaurs.
-
-[00:24:04] Will: It was in the Super Bowl trailer.
+[00:24:04] Will: The new Transformers movie has the dinosaurs. It was in the Super Bowl trailer.
 
 [00:24:04] Norm: Avoid all trailers.
 

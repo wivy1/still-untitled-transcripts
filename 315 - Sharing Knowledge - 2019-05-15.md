@@ -36,19 +36,13 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:01:06] Norm: That's a great audible review.
 
-[00:01:08] Kevin: Yes, yeah.
-
-[00:01:08] Kevin: This
-
-[00:01:08] Kevin: is so good; it's worth listening to at one x.
+[00:01:08] Kevin: Yes, yeah. This is so good; it's worth listening to at one x.
 
 [00:01:12] Adam: Exactly,
 
 [00:01:13] Norm: it's like college lecture did not suck today. I will listen to it in real time.
 
-[00:01:17] Adam: And [unclear: I know that I know that / I know that] you're not. I don't read my own comments. I really don't, and yet I did go to Amazon to see if there were reviews of my book, Every Tool's a Hammer. And my favorite review is this: " Great book. I'm not a fan of books, but like this one."
-
-[00:01:32] Adam: Five stars.
+[00:01:17] Adam: And [unclear: I know that I know that / I know that] you're not. I don't read my own comments. I really don't, and yet I did go to Amazon to see if there were reviews of my book, Every Tool's a Hammer. And my favorite review is this: " Great book. I'm not a fan of books, but like this one." Five stars.
 
 [00:01:32] Norm: Five stars.
 
@@ -56,17 +50,11 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:01:43] Norm: That's a that's a very meta Amazon review because I know authors probably read reviews all the time, right? Or publicists.
 
-[00:01:50] Adam: Well, I bet you come across this, Kevin, that I have in my dealings online. In many cases, become my own 
-
-[00:01:50] Adam: signal-to-noise ratio.
-
-[00:01:50] Adam: When I explore a project like the ZF-1 from the Fifth Element, for instance, and then I write about it, I wrote about it in Wired, I talked about it in a talk, and then I start to and then we did a tested video on it. Then I start to do research on it a year later, and I find oh that's oh that's mine, yeah. Oh this is oh wait that's mine.
+[00:01:50] Adam: Well, I bet you come across this, Kevin, that I have in my dealings online. In many cases, become my own  signal-to-noise ratio. When I explore a project like the ZF-1 from the Fifth Element, for instance, and then I write about it, I wrote about it in Wired, I talked about it in a talk, and then I start to and then we did a tested video on it. Then I start to do research on it a year later, and I find oh that's oh that's mine, yeah. Oh this is oh wait that's mine.
 
 [00:02:17] Kevin: Exactly. I had that same experience. I was looking up the word superorganism for a talk, and I went to Wikipedia, and there was the definition was my quoting me, and it was like wait a minute this is like this is not very reliable if you're quoting me.
 
-[00:02:36] Adam: Well, so along those lines, I was giving a talk, a corporate talk. I was writing a corporate talk that I was giving the next day, and I wanted to talk about Richard Feynman, and I wanted to tell the story about Richard Feynman famously was having dinner with a friend, and they were having spaghetti, and as the friend was breaking the spaghetti, he said, you know Dick, I noticed that the spaghetti doesn't break cleanly. This extra piece chips off in the middle, and that's you that's. That's interesting from a material science standpoint, and Feynman was so fascinated by this that they never got to dinner. They broke every piece of pasta in the house, and that's a great that's a classic Feynman story. Like you can be a Nobel laureate and still within spaghetti lies something that, by the way, didn't get figured out from a physics standpoint until quite
-
-[00:03:17] Adam: recently.
+[00:02:36] Adam: Well, so along those lines, I was giving a talk, a corporate talk. I was writing a corporate talk that I was giving the next day, and I wanted to talk about Richard Feynman, and I wanted to tell the story about Richard Feynman famously was having dinner with a friend, and they were having spaghetti, and as the friend was breaking the spaghetti, he said, you know Dick, I noticed that the spaghetti doesn't break cleanly. This extra piece chips off in the middle, and that's you that's. That's interesting from a material science standpoint, and Feynman was so fascinated by this that they never got to dinner. They broke every piece of pasta in the house, and that's a great that's a classic Feynman story. Like you can be a Nobel laureate and still within spaghetti lies something that, by the way, didn't get figured out from a physics standpoint until quite recently.
 
 [00:03:17] Kevin: Right, it was actually very complicated.
 
@@ -92,9 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:04:37] Adam: Um, I mean, you know, there's going to be within this information economy that we're continuing to exist in. I think there'll be lots of different ways in which we do that.
 
-[00:04:37] Norm: Right.
-
-[00:04:48] Norm: The incognito mode is a that is a premium. I mean, it we do not experience the world that way. For it's rarer and rarer. Everything we experience [unclear: ∅ / in the] world is influenced by our interactions with it.
+[00:04:37] Norm: Right. The incognito mode is a that is a premium. I mean, it we do not experience the world that way. For it's rarer and rarer. Everything we experience [unclear: ∅ / in the] world is influenced by our interactions with it.
 
 [00:05:00] Adam: Yeah.
 
@@ -110,17 +96,13 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:05:15] Adam: right. And on the flip side, frankly, I wish YouTube was a little more assiduous in giving me on the right side videos that I've already been watching. I'll find I watched four or five machining videos in a row, and someone was saying this is probably because a lot of the amateur building videos aren't tagged as deeply as many professional videos. But I will look to the right, and it'll still be the same murderous row of videos I've been watching.
 
-[00:05:40] Norm: Right.
-
-[00:05:40] Norm: So you want something new?
+[00:05:40] Norm: Right. So you want something new?
 
 [00:05:41] Adam: [unclear: I would like / I want. I would like] to be taken to new places when I'm when I'm starting to go down a rabbit hole.
 
 [00:05:46] Norm: I'm surprised that they don't track that and they don't surface.
 
-[00:05:49] Adam: There's some reason that they're not prioritizing it because those algorithms exist to give a quite, I think, deep amount of granularity of what I should be interested in
-
-[00:05:49] Adam: watching.
+[00:05:49] Adam: There's some reason that they're not prioritizing it because those algorithms exist to give a quite, I think, deep amount of granularity of what I should be interested in watching.
 
 [00:05:56] Kevin: Well, yeah, I would like to have a little bit more choice in. Choosing the algorithms,
 
@@ -166,9 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:07:43] Kevin: And they'll some of them are recording that on YouTube and putting it up. And so there's nothing better to have a paper explained than having somebody who's just read it try to explain it to all their peers.
 
-[00:08:23] Adam: Oh
-
-[00:08:23] Adam: my gosh, what a great! I had no idea this existed.
+[00:08:23] Adam: Oh my gosh, what a great! I had no idea this existed.
 
 [00:08:25] Kevin: So you search for something and add journal club on YouTube.
 
@@ -186,9 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:09:04] Norm: and and very difficult to be democratized.
 
-[00:09:10] Adam: But it's also like if you want someone to explain. I mean, I've read a lot of scientific papers, and I mean, I've I've been mystified by a lot of scientific papers. Having someone having the luxury of someone who can explain it
-
-[00:09:10] Adam: to you,
+[00:09:10] Adam: But it's also like if you want someone to explain. I mean, I've read a lot of scientific papers, and I mean, I've I've been mystified by a lot of scientific papers. Having someone having the luxury of someone who can explain it to you,
 
 [00:09:21] Kevin: [unclear: right? / ∅] And who some and here's the peer because they they're not the expert. They've just walked through the difficulty of step by step, and now they're going to tell you and take you through it.
 
@@ -208,9 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:10:11] Adam then Norm: Oh, do they? So sites.
 
-[00:10:11] Norm: it looks like it was written this past year, but it was probably written five years
-
-[00:10:11] Norm: ago.
+[00:10:11] Norm: it looks like it was written this past year, but it was probably written five years ago.
 
 [00:10:16] Kevin: [unclear: Underhanded / That’s underhanded]. [unclear: ∅ / Yeah].
 
@@ -232,9 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:10:26] Norm: Thread closed.
 
-[00:10:27] Adam: I
-
-[00:10:27] Adam: will tell you that there is one thing I have not yet been able to solve via YouTube, which is the house we bought here in the Mission District had been renovated by a wonderful designer, and he had used these super advanced Grohe faucets in the showers, and these are single hands and they temperature controls and they're they're beautiful, but [unclear: they’re so / they’re not. they’re so] they're ludicrously complex. And at some point about. Probably five six years ago, we had some issue with our water heater, and a plumber came by and said, " Oh, you know, I could do a power flush of this water heater, and then you won't have to replace it." And he did this sort of—I don't know what he did—but some sort of concussive water hammer thing to it. And what it ended up doing was sending rust particles out to the screen traps of every goddamn faucet in my house. And it didn't affect most of the faucets, but it absolutely slayed the two Grohe faucets. And so now, I—he tried to fix it. He made it so much worse because this is a crazy complex system where you literally should be using a temperature probe and adjusting a screw in order to get the differential. And so then I went onto YouTube and I looked at a here is a professional taking apart a Grohe, putting it back together, and it still didn't work. And I am still in the throes. I eventually had to set the hottest heat of my water heater to just what I can stand in a bath.
+[00:10:27] Adam: I will tell you that there is one thing I have not yet been able to solve via YouTube, which is the house we bought here in the Mission District had been renovated by a wonderful designer, and he had used these super advanced Grohe faucets in the showers, and these are single hands and they temperature controls and they're they're beautiful, but [unclear: they’re so / they’re not. they’re so] they're ludicrously complex. And at some point about. Probably five six years ago, we had some issue with our water heater, and a plumber came by and said, " Oh, you know, I could do a power flush of this water heater, and then you won't have to replace it." And he did this sort of—I don't know what he did—but some sort of concussive water hammer thing to it. And what it ended up doing was sending rust particles out to the screen traps of every goddamn faucet in my house. And it didn't affect most of the faucets, but it absolutely slayed the two Grohe faucets. And so now, I—he tried to fix it. He made it so much worse because this is a crazy complex system where you literally should be using a temperature probe and adjusting a screw in order to get the differential. And so then I went onto YouTube and I looked at a here is a professional taking apart a Grohe, putting it back together, and it still didn't work. And I am still in the throes. I eventually had to set the hottest heat of my water heater to just what I can stand in a bath.
 
 [00:11:52] Kevin: [unclear: Right. Right. Right / Right. Right],
 
@@ -250,9 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:11:58] Kevin: This is this is solicitation. Somebody out there, make the tutorial for repairing.
 
-[00:12:04] Adam: Help me fix my. Help me, Obi Wan Kenobi. You're my only
-
-[00:12:04] Adam: hope.
+[00:12:04] Adam: Help me fix my. Help me, Obi Wan Kenobi. You're my only hope.
 
 [00:12:08] Unknown speaker (Adam then Norm or Adam or Norm): for warm water.
 
@@ -300,9 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:15:22] Kevin: Yeah, it's much more instructive talking about the things that don't work. Oh,
 
-[00:15:26] Norm: and I could I could go for more because you get those double page spreads with like here are eight versions of the character design. I want a full essay about each one and why they didn't go for that
-
-[00:15:26] Norm: one.
+[00:15:26] Norm: and I could I could go for more because you get those double page spreads with like here are eight versions of the character design. I want a full essay about each one and why they didn't go for that one.
 
 [00:15:36] Adam: So speaking of that, I um, I I watched. I said to Kevin earlier that I watched Aliens the other night. I was so wired from my talk in Cleveland, I went back to my hotel room and I didn't sleep for another four hours. So I was like, I better watch Aliens, and I loved it. And then I was like, I want to watch a making of Aliens. So I found this video from 2004, the making of Aliens, and it's funny that now you go on the you you. Take a video tour of the set of the Marvel Universe, and it's all rosy, and everyone's like, " This is great." But 2004, they were removed enough from the production of Aliens that everyone was really talking openly about what a shitty production it was for so many of the people on it. And it was sort of really refreshing to hear these people complain and say, " Oh yeah, no, I did the best work of my career." [unclear: ∅ / and] Man, what a nightmare! And they, they, every single one of them appreciates the final product and under like, this is a thing, and it's a real abiding thing. But holy hell, it was it was hard to get there. It's like it's like reading the early issues of Cinefex when people were like, " Well, the art director didn't really know what he wanted, so he figured it out." They won't say that now, but back then you you now you have to kind of read between the lines.
 
@@ -326,11 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:19:11] Norm: Kevin, you also publish books. You've written books. You got a new book, Recomendo.
 
-[00:19:16] Kevin: Yeah, I have a little book, [unclear: Recomendo / Recomendo. Recomendo], which is the accumulation of a weekly newsletter that Mark Frauenfelder, boing boing, and Claudia, my assistant, and I put out. It's the funnest thing we do because it's coming from a newsletter called Recomendo, one M, which is a free newsletter of our six recommendations of cool stuff that week. Could be a tool, could be a destination, museum, could be something we heard, a movie, a tip, anything
-
-[00:19:16] Kevin: great.
-
-[00:19:16] Kevin: that we that week we recommend. And we made a little publish on demand book. So this is exploring the Amazon technology of print on demand. So when you order the book, they print the book for you.
+[00:19:16] Kevin: Yeah, I have a little book, [unclear: Recomendo / Recomendo. Recomendo], which is the accumulation of a weekly newsletter that Mark Frauenfelder, boing boing, and Claudia, my assistant, and I put out. It's the funnest thing we do because it's coming from a newsletter called Recomendo, one M, which is a free newsletter of our six recommendations of cool stuff that week. Could be a tool, could be a destination, museum, could be something we heard, a movie, a tip, anything great. that we that week we recommend. And we made a little publish on demand book. So this is exploring the Amazon technology of print on demand. So when you order the book, they print the book for you.
 
 [00:19:16] Adam: Yeah,
 
@@ -344,9 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:20:01] Kevin: And that one you may have to pay, but it does not access your contact lists. It keeps that private. A lot of the other RoboCall filters will look at your contact list as a template for the whitelist, but they also share it with other people.
 
-[00:20:36] Adam: Yeah. No, no
-
-[00:20:36] Adam: good.
+[00:20:36] Adam: Yeah. No, no good.
 
 [00:20:37] Kevin: Yes, exactly right. There's things like compact photo printer for if you're traveling and you want to print out photographs from your phone or something to give to people.
 
@@ -416,9 +380,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:25:02] Adam: Yeah.
 
-[00:25:02] Kevin: And they're beginning. To learn that they basically they came to the American gurus of innovation and they said how do we become more innovative? The gurus gave them a long list of things and the Chinese are just going down the list. Oh, you need science fairs, okay, we'll have science fairs. You need to have makerspaces, okay, we'll make those, and they're just going down the
-
-[00:25:02] Kevin: list.
+[00:25:02] Kevin: And they're beginning. To learn that they basically they came to the American gurus of innovation and they said how do we become more innovative? The gurus gave them a long list of things and the Chinese are just going down the list. Oh, you need science fairs, okay, we'll have science fairs. You need to have makerspaces, okay, we'll make those, and they're just going down the list.
 
 [00:26:12] Adam: Amazing,
 
@@ -432,9 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:26:19] Kevin: Segue, good.
 
-[00:26:21] Adam: very well done,
-
-[00:26:21] Adam: Norm.
+[00:26:21] Adam: very well done, Norm.
 
 [00:26:22] Norm: And you're going to be there.
 
@@ -450,9 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:26:38] Adam: Oh, very smart.
 
-[00:26:39] Norm: The
-
-[00:26:39] Norm: last mile. Yeah.
+[00:26:39] Norm: The last mile. Yeah.
 
 [00:26:40] Kevin: Yes, they have a great parking system for bikes there, and I highly recommend people do that.
 
@@ -468,9 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:27:33] Kevin: Have you considered actually giving a presentation with slides and things?
 
-[00:27:37] Adam: I I haven't up till now simply because I love the loose format of. Well, number one, I love the loose format of the Q and A, and I also that what I've been reading is the last chapter, or is actually the last half of the last chapter, because. It's not a spoiler. It is the central thesis of the
-
-[00:27:37] Adam: book.
+[00:27:37] Adam: I I haven't up till now simply because I love the loose format of. Well, number one, I love the loose format of the Q and A, and I also that what I've been reading is the last chapter, or is actually the last half of the last chapter, because. It's not a spoiler. It is the central thesis of the book.
 
 [00:27:55] Unknown speaker (Kevin or Norm): Great.
 
@@ -488,17 +444,13 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:28:46] Kevin: Yeah, that’s really good. So, will you be talking? You know what you're going to talk about? at Maker Faire.
 
-[00:28:50] Adam: I, you know, I don't. And this is—I've given lots of different talks, and actually, I don't know if I've credited you with this on this podcast, but you are my gateway drug to giving talks, Kevin. For the longest time, I would do public speaking. I did it for ILM, and then I was doing it for MythBusters. But it was mostly as a—you know—oh, here we go. This is a gig. I'll do this kind of talk. [unclear: And then / Yeah. Yeah. Yeah] we were at an IDEO quickie where people give quick eight-minute presentations, and I gave one [unclear: in / of] the Maltese Falcon. And I came down, and you said that was great. You should workshop
-
-[00:29:23] Adam: that.
+[00:28:50] Adam: I, you know, I don't. And this is—I've given lots of different talks, and actually, I don't know if I've credited you with this on this podcast, but you are my gateway drug to giving talks, Kevin. For the longest time, I would do public speaking. I did it for ILM, and then I was doing it for MythBusters. But it was mostly as a—you know—oh, here we go. This is a gig. I'll do this kind of talk. [unclear: And then / Yeah. Yeah. Yeah] we were at an IDEO quickie where people give quick eight-minute presentations, and I gave one [unclear: in / of] the Maltese Falcon. And I came down, and you said that was great. You should workshop that.
 
 [00:29:23] Kevin: Right.
 
 [00:29:23] Adam: There's a fine talk within there somewhere, and it became my first TED talk, and changed my life actually. So I that that is an example of a talk that I workshopped and labored over and memorized and adjusted the structure until it felt totally natural. And when I gave my second TED talk on cosplay, that was when I had written my wife and I workshopped it over several days, recording it at the end of each day of writing, so I could hear just where I was full of shit and then adjust those transitions. And by the time I gave it, I had forgotten it. So that it just came out as a natural thing, but at Maker Faire, I seek the opposite. At Maker Faire, I come up with my concept late, and I make only the barest notes because I want to show the work. I want to show the the unfinished hemline of my talk. I feel that it's incumbent on me there at Maker Faire to be more exposed and raw. It's a long way of saying I haven't done any homework.
 
-[00:30:18] Norm: You got a lot.
-
-[00:30:18] Norm: There is a lot more to do.
+[00:30:18] Norm: You got a lot. There is a lot more to do.
 
 [00:30:20] Kevin: Talk about tape.
 
@@ -512,9 +464,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:31:03] Adam: Yes,
 
-[00:31:03] Norm: awesome. We'll have that probably on the site next week. The talk from Maker
-
-[00:31:03] Norm: Faire.
+[00:31:03] Norm: awesome. We'll have that probably on the site next week. The talk from Maker Faire.
 
 [00:31:08] Adam: Oh my gosh! Yes, yes, indeed, absolutely. [unclear: I, I, I / I], every year I really look forward to the conversations I get to have with makers at Maker Faire.
 
@@ -526,9 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:31:20] Norm: You know, there's the dark room. There's the stuff outside. The expo halls where people have small 10 by 10 booths. And last year they had a big train group, European train.
 
-[00:31:20] Adam: Oh yeah, I love that model trains.
-
-[00:31:34] Adam: Seven and a half inch scale or HO or small
+[00:31:20] Adam: Oh yeah, I love that model trains. Seven and a half inch scale or HO or small
 
 [00:31:37] Unknown speaker (Norm then Kevin or Norm then Kevin then Norm): It's HO. HO, yeah. Yeah.
 
@@ -538,15 +486,11 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:31:53] Norm: Yeah, there's there's one corner there.
 
-[00:31:53] Kevin: Yeah, yeah,
-
-[00:31:53] Kevin: Soft goods are—
+[00:31:53] Kevin: Yeah, yeah, Soft goods are—
 
 [00:32:00] Norm: felting,
 
-[00:32:01] Kevin: felting. Yeah, somehow I don't know. I don't see enough of that. I
-
-[00:32:01] Kevin: guess.
+[00:32:01] Kevin: felting. Yeah, somehow I don't know. I don't see enough of that. I guess.
 
 [00:32:03] Norm: Yeah, and that's the place where they do a lot of where kids can go and just sit there and and play and kind of do workshop.
 
@@ -590,9 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=Zkj9iXjmUd0
 
 [00:34:35] Norm: yeah, yeah, it's all in service of a finished piece of creative process, a film, a you know, art exhibit.
 
-[00:34:42] Adam: It was really so much fun to work on, even up to and including Richard Taylor operating the blood and gore effects and and messing with us on set, actually inhibiting the filmmaking process just to screw around and have
-
-[00:34:42] Adam: fun.
+[00:34:42] Adam: It was really so much fun to work on, even up to and including Richard Taylor operating the blood and gore effects and and messing with us on set, actually inhibiting the filmmaking process just to screw around and have fun.
 
 [00:34:55] Norm: Simone's there right now.
 

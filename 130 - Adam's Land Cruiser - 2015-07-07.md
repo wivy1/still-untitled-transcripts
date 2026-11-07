@@ -174,29 +174,15 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:05:07] Unknown speaker: [unclear: You say / He said, do] you want to use your shoulder for a sec?
 
-[00:05:08] Adam: Yeah.
-
-[00:05:08] Adam: Thank you.
-
-[00:05:08] Adam: Problem with skinny jeans. Maybe there isn't a button on this one. Okay, so there's hold on, there's no that should have a light too. There's no light. There's no light out of the yellow cord. Oh,
-
-[00:05:24] Adam: Out of the yellow cord, and the yellow cord comes back too. Could it be that? Oh, that light up the yellow cord?
+[00:05:08] Adam: Yeah. Thank you. Problem with skinny jeans. Maybe there isn't a button on this one. Okay, so there's hold on, there's no that should have a light too. There's no light. There's no light out of the yellow cord. Oh, Out of the yellow cord, and the yellow cord comes back too. Could it be that? Oh, that light up the yellow cord?
 
 [00:05:31] Norm: Nope.
 
-[00:05:36] Will: Shit.
-
-[00:05:36] Will: Okay, yellow cord comes back to there. Why would the yellow cord not be on? I hit the oh, hit that already. Try that.
+[00:05:36] Will: Shit. Okay, yellow cord comes back to there. Why would the yellow cord not be on? I hit the oh, hit that already. Try that.
 
 [00:05:46] Norm: Should that part light up?
 
-[00:05:46] Will: No.
-
-[00:05:46] Will: Weird.
-
-[00:05:52] Will: Hard to believe that a. I mean, I can do it on double A's.
-
-[00:05:59] Will: Here it is.
+[00:05:46] Will: No. Weird. Hard to believe that a. I mean, I can do it on double A's. Here it is.
 
 [00:05:59] Norm: [unclear: There's another / There's a little / There's no] power here.
 
@@ -226,13 +212,9 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:06:46] Norm: Okay. Okay. Okay.
 
-[00:06:50] Will: Okay. Okay.
+[00:06:50] Will: Okay. Okay. [unclear: Can / Could] also be something, I mean—
 
-[00:06:52] Will: [unclear: Can / Could] also be something, I mean—
-
-[00:07:10] Adam: Okay. Okay.
-
-[00:07:12] Adam: [unclear: Jared, Agol and Marky / Jerry and Marky]
+[00:07:10] Adam: Okay. Okay. [unclear: Jared, Agol and Marky / Jerry and Marky]
 
 [00:07:13] Will: are on their way here
 
@@ -244,9 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:07:18] Will: Okay.
 
-[00:07:18] Adam: Okay.
-
-[00:07:23] Adam: [unclear: There we go / Are we up?]
+[00:07:18] Adam: Okay. [unclear: There we go / Are we up?]
 
 [00:07:23] Will: Yeah, I think we're good.
 
@@ -340,9 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:09:46] Norm: It's you know it's combination of green screen, but the real like instead of real buildings,
 
-[00:09:46] Adam: right?
-
-[00:09:46] Adam: Uh-huh.
+[00:09:46] Adam: right? Uh-huh.
 
 [00:09:46] Norm: And three, that spaceship that they had at the kind of like it's the B characters, but it's like their Star Trek. Where it had the the female captain. And the the Ganesh like the crew members
 
@@ -350,9 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:09:46] Norm: they're cruising through the universe that's it's really good world building there
 
-[00:09:46] Adam: A to—
-
-[00:10:19] Adam: beautiful world building I give it that that the script was bizarre and weird but the world building was amazing
+[00:09:46] Adam: A to— beautiful world building I give it that that the script was bizarre and weird but the world building was amazing
 
 [00:10:25] Will: I I feel I watched the movie and I felt at the end of it I was like man I feel like if there were a couple more establishing shots for that whole B story the the whole what's happening in space story
 
@@ -370,9 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:11:11] Adam: indeed. I, I, I, I years ago was the subject of a Department of Defense briefing about security and location tracking in the new smartphones.
 
-[00:11:24] Will: Okay,
-
-[00:11:26] Will: this was was this prior to the iPhone.
+[00:11:24] Will: Okay, this was was this prior to the iPhone.
 
 [00:11:27] Adam: This was with the advent with the advent of the first iPhone.
 
@@ -420,9 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=0MlVWvak8gI
 
 [00:13:42] Will: Oh, I would think left. Is it left turns? Probably changing lanes on the interstate on the freeway. [unclear: are challenging / it’s not that hard].
 
-[00:13:48] Norm: One-way streets and—
-
-[00:13:49] Norm: Yeah.
+[00:13:48] Norm: One-way streets and— Yeah.
 
 [00:13:50] Adam: Here's the thing that I found that I really like about it that's different than five years ago. And five years ago, I don't know. I basically what I've been falling back in love with is how analog it is to drive this car. You know, I love my Fiat. And it's a standard too, but you know, modern cars—they're super quiet, they're super comfy. I've got seat heaters; everything's great. My stereo's lovely. I drive to work, but the car is insulating you from the experience of the fact that you're hurtling around the world at 70 miles an hour. This car does not. This car takes all your attention to drive. It is.
 

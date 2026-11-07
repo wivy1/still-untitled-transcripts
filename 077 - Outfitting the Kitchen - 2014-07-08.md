@@ -214,9 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:09:35] Adam: exactly yes the
 
-[00:09:36] Norm: left side of the page.
-
-[00:09:37] Norm: Going back to tools, we've always said sometimes that in a shop, for example, you can buy really expensive tools and really nice tools, but all the tools do is help you speed up your time, and that technique can, in some cases,
+[00:09:36] Norm: left side of the page. Going back to tools, we've always said sometimes that in a shop, for example, you can buy really expensive tools and really nice tools, but all the tools do is help you speed up your time, and that technique can, in some cases,
 
 [00:09:37] Adam: they actually they help you speed up your time and they aid in precision
 
@@ -432,9 +430,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:18:50] Adam: Absolutely.
 
-[00:18:50] Norm: Um,
-
-[00:19:04] Norm: care of your care and well.
+[00:18:50] Norm: Um, care of your care and well.
 
 [00:19:04] Adam: So you you said organization. Yeah, I will say organization is a real bugbear. Because everyone has different amounts of space, a dedicated drawer or a couple of drawers for measuring devices is really, really ideal. Like we have, actually, we have countless numbers of half a cup, quarter cup, three quarters cup nesting. We also have weird sizes, one third cup, two thirds cups, those sort of sizes.
 
@@ -482,9 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:20:34] Will: Okay,
 
-[00:20:34] Adam: okay, okay. At any rate, when she was getting the toaster oven, she got an ice cream maker. We were making tons of ice cream, but that's not the point of my story. The point of my story was this guy's recipe said use X number of cups of this stuff or X ounces,
-
-[00:21:02] Adam: and those two were totally different.
+[00:20:34] Adam: okay, okay. At any rate, when she was getting the toaster oven, she got an ice cream maker. We were making tons of ice cream, but that's not the point of my story. The point of my story was this guy's recipe said use X number of cups of this stuff or X ounces, and those two were totally different.
 
 [00:21:05] Will: Oh, really?
 
@@ -788,9 +782,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:32:21] Adam: you get you have to separately clamp for each of the four runs and be pretty precise, but you could do that in about an hour.
 
-[00:32:21] Will: Okay,
-
-[00:32:29] Will: that's not too bad.
+[00:32:21] Will: Okay, that's not too bad.
 
 [00:32:30] Adam: No, little little little round end milling bit there.
 
@@ -970,9 +962,7 @@ Episode URL: https://www.youtube.com/watch?v=-U-whV93wBc
 
 [00:38:28] Adam: Have we covered the peeled an entire head of garlic in 20 seconds technique?
 
-[00:38:32] Will: The shaking.
-
-[00:38:32] Will: Yeah, I’ve never gotten that to work.
+[00:38:32] Will: The shaking. Yeah, I’ve never gotten that to work.
 
 [00:38:32] Adam: Oh, what's? I get it to work every single time. So this is the thing.
 

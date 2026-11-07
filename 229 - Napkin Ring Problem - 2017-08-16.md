@@ -116,13 +116,9 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:03:42] Norm: Both the Totoro and the Revenant Bear, apparently, too. Right? Yeah.
 
-[00:03:56] Will: Oh, that's awesome.
+[00:03:56] Will: Oh, that's awesome. Yeah, that's really cool.
 
-[00:03:57] Will: Yeah, that's really cool.
-
-[00:03:58] Norm: Yeah.
-
-[00:03:58] Norm: But since then, we also published a video that I want to ask you about because I wasn't on this shoot, Adam.
+[00:03:58] Norm: Yeah. But since then, we also published a video that I want to ask you about because I wasn't on this shoot, Adam.
 
 [00:03:58] Adam: Yeah.
 
@@ -164,9 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:05:59] Will: I and and look, I I can see that, right? You like you're at some point. It's it's the what's the prob— what's the logic problem where you have to walk half the distance to the thing and you're not.
 
-[00:05:59] Adam: Oh, you [unclear: can walk / can’t do].
-
-[00:06:09] Adam: Nothing ever hits the ground.
+[00:05:59] Adam: Oh, you [unclear: can walk / can’t do]. Nothing ever hits the ground.
 
 [00:06:10] Will: Nothing ever hits the ground.
 
@@ -188,9 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:06:46] Will: Well, so so they're recording live, and they're not doing mastery on like a on like reel to reel tapes or anything like that.
 
-[00:06:52] Adam: Also recorded on a reel to reel, but but the recording that we did was cut directly onto a record lathe. Wow. Not to a reel to reel, and then to a record lathe.
-
-[00:06:52] Adam: And by the way, we have
+[00:06:52] Adam: Also recorded on a reel to reel, but but the recording that we did was cut directly onto a record lathe. Wow. Not to a reel to reel, and then to a record lathe. And by the way, we have
 
 [00:06:52] Norm: Oh.
 
@@ -216,9 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:07:41] Unknown speaker: What?
 
-[00:07:42] Will: Okay,
-
-[00:07:42] Will: I want to go. There was something we glossed over this, and I want to go back to it.
+[00:07:42] Will: Okay, I want to go. There was something we glossed over this, and I want to go back to it.
 
 [00:07:42] Adam: Okay,
 
@@ -242,9 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:08:34] Adam: Yeah, a little stage.
 
-[00:08:34] Norm: with an audience,
-
-[00:08:34] Norm: yeah, and you recorded onto a really interesting microphone,
+[00:08:34] Norm: with an audience, yeah, and you recorded onto a really interesting microphone,
 
 [00:08:44] Adam: a ribbon microphone. So it literally is a ribbon of of stainless steel or some fine material, yeah. And they they set them up in in this. I can't remember what he called it. The figure eight. So that one was pointed, one ribbon was pointed directly at my mouth, and the other was pointed directly at my uke, and they really didn't pick up anything that was outside their their signal band.
 
@@ -258,13 +246,9 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:09:14] Norm: was perfectly. It's it's not like they're not going to get any interference, but I didn't know that you could have mics directional in that form factor.
 
-[00:09:22] Will: Well, that's an old timey kind of mic, too, right? Yeah. Like this is it was it was probably designed specifically for the problem of hey we need somebody who's playing a string instrument at their waist and singing at their mouth.
+[00:09:22] Will: Well, that's an old timey kind of mic, too, right? Yeah. Like this is it was it was probably designed specifically for the problem of hey we need somebody who's playing a string instrument at their waist and singing at their mouth. Well, and and they didn't have super cardioid condenser mics at that point.
 
-[00:09:31] Will: Well, and and they didn't have super cardioid condenser mics at that point.
-
-[00:09:34] Adam: And Jack's obsessed with that technology. The oldest technology. It has a lineage and an import to him and to the stuff that he does that is really really cool because he's breathing, breathing breath back into this like humans did this. You don't just speak into a black box and hear it later from black headphones. It is. These sounds have a history, and the way we've recorded them has a history.
-
-[00:09:34] Adam: And it’s beautiful.
+[00:09:34] Adam: And Jack's obsessed with that technology. The oldest technology. It has a lineage and an import to him and to the stuff that he does that is really really cool because he's breathing, breathing breath back into this like humans did this. You don't just speak into a black box and hear it later from black headphones. It is. These sounds have a history, and the way we've recorded them has a history. And it’s beautiful.
 
 [00:09:58] Will: There's an intrinsic nature to the to the sound. That's rad. That's so— I'm so glad you went there. I'm so excited.
 
@@ -310,9 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:12:22] Adam: All of them terrible.
 
-[00:12:22] Will: All of them awful.
-
-[00:12:24] Will: And then the second time. The second time we spent slightly more money on mannequins, also terrible.
+[00:12:22] Will: All of them awful. And then the second time. The second time we spent slightly more money on mannequins, also terrible.
 
 [00:12:24] Unknown speaker: All of them terrible.
 
@@ -378,9 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:15:31] Adam: it's been a really good run
 
-[00:15:31] Will: From The Martian,
-
-[00:15:31] Will: and Prometheus and Interstellar,
+[00:15:31] Will: From The Martian, and Prometheus and Interstellar,
 
 [00:15:45] Adam: Interstellar, Passengers, even
 
@@ -388,9 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:15:48] Will: Yeah, and and kind of like break down what what is potentially what is real now, what's potentially real in the future, and what is pure science fiction.
 
-[00:15:55] Adam: Moon
-
-[00:15:55] Adam: also has some really lovely designs,
+[00:15:55] Adam: Moon also has some really lovely designs,
 
 [00:15:57] Norm: and all of that is. Some of that's so impractical for the purposes of NASA,
 
@@ -408,17 +386,11 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:16:08] Will: or that it has lights in the faceplate that illuminate your face.
 
-[00:16:11] Adam: Exactly.
-
-[00:16:11] Adam: That's just always going to happen.
+[00:16:11] Adam: Exactly. That's just always going to happen.
 
 [00:16:11] Unknown speaker: Yeah.
 
-[00:16:11] Adam: Yeah.
-
-[00:16:11] Adam: You got you got to watch
-
-[00:16:11] Adam: like Ridley's just going to light the scene. You should watch Thelma and Louise when it looks like they've got a 10k under the dashboard pointed at Susan Sarandon and Geena Davis.
+[00:16:11] Adam: Yeah. You got you got to watch like Ridley's just going to light the scene. You should watch Thelma and Louise when it looks like they've got a 10k under the dashboard pointed at Susan Sarandon and Geena Davis.
 
 [00:16:23] Will: Oh yeah.
 
@@ -546,9 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:19:19] Will: Oh boy, here we go. Old man Savage at it again.
 
-[00:19:19] Adam: When I was a kid
-
-[00:19:19] Adam: [unclear: my day, we we had to go to Canal Everlate / We’re gonna go to Canal Webber / Oh my day. We didn’t need that. We had to go to Canal Webber].
+[00:19:19] Adam: When I was a kid [unclear: my day, we we had to go to Canal Everlate / We’re gonna go to Canal Webber / Oh my day. We didn’t need that. We had to go to Canal Webber].
 
 [00:19:19] Will: Um,
 
@@ -556,9 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:19:38] Adam: that was so. I built a kendama with kendama, right?
 
-[00:19:38] Norm: Yes, yes.
-
-[00:19:42] Norm: It’s
+[00:19:38] Norm: Yes, yes. It’s
 
 [00:19:42] Will: Japanese ball and cup thing.
 
@@ -584,9 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:20:18] Norm: The build video—it's an hour long, but it's like maybe 60% of it is about the Kendama and the build. The other 40% is just watching you guys hang out and ask each other questions and go into deep, random, tangential deep dives into things like the the napkin 
 
-[00:20:34] Adam: ring, napkin ring paradox. Man, we’re totally gonna. Okay, the napkin ring paradox.
-
-[00:20:34] Adam: You ready to have your mind blown?
+[00:20:34] Adam: ring, napkin ring paradox. Man, we’re totally gonna. Okay, the napkin ring paradox. You ready to have your mind blown?
 
 [00:20:39] Will: I made the eyebrow at you.
 
@@ -694,9 +660,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:23:00] Norm: No, no, no.
 
-[00:23:00] Adam: No.
-
-[00:23:04] Adam: Take that ring. Take that ring and put it in water. It will displace the same amount of water. The tennis ball as. Doesn't
+[00:23:00] Adam: No. Take that ring. Take that ring and put it in water. It will displace the same amount of water. The tennis ball as. Doesn't
 
 [00:23:10] Will: it matter how thick the materials that you make the ring out of?
 
@@ -708,17 +672,13 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:23:20] Norm: Oh, boy. No, no, no.
 
-[00:23:20] Adam: No, no.
-
-[00:23:21] Adam: Here we go.
+[00:23:20] Adam: No, no. Here we go.
 
 [00:23:22] Norm: Adam’s going to do a drawing.
 
 [00:23:23] Adam: I’m going to do a drawing. Here we go. All right.
 
-[00:23:25] Norm: That’s why it’s hard to wrap
-
-[00:23:27] Norm: your head around.
+[00:23:25] Norm: That’s why it’s hard to wrap your head around.
 
 [00:23:28] Will: That sounds great.
 
@@ -756,9 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:24:15] Norm: But it's empty in the middle.
 
-[00:24:15] Adam: [unclear: No, it’s empty / No, I’m left].
-
-[00:24:17] Adam: I'm removing the core.
+[00:24:15] Adam: [unclear: No, it’s empty / No, I’m left]. I'm removing the core.
 
 [00:24:17] Will: Okay.
 
@@ -804,9 +762,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:24:57] Adam: At any rate, we spent some time talking about the napkin ring paradox. Wow! I mean, that's a mind-blowing paradox, and to to demonstrate it is is actually possible using a good lathe.
 
-[00:25:06] Will: So it has to work with a sphere, though it has to be a perfect sphere or something close to a perfect sphere.
-
-[00:25:06] Will: Yeah.
+[00:25:06] Will: So it has to work with a sphere, though it has to be a perfect sphere or something close to a perfect sphere. Yeah.
 
 [00:25:06] Adam: Absolutely.
 
@@ -910,9 +866,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:28:20] Will: We did, we did.
 
-[00:28:20] Adam: Too many
-
-[00:28:24] Adam: nut slots.
+[00:28:20] Adam: Too many nut slots.
 
 [00:28:25] Will: We did five. It took us a week, basically was three days probably to build it. It was a week worth of videos, I think.
 
@@ -920,11 +874,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:28:25] Will: And then it was maybe three months before I got a decent print out of it.
 
-[00:28:25] Adam: Wow,
-
-[00:28:35] Adam: This was.
-
-[00:28:36] Adam: I gave mine to my kid's school to fix. [unclear: that didn’t / and] work out.
+[00:28:25] Adam: Wow, This was. I gave mine to my kid's school to fix. [unclear: that didn’t / and] work out.
 
 [00:28:39] Will: Yeah,
 
@@ -942,9 +892,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:28:50] Unknown speaker: [unclear: people on / That threw people on it / …]
 
-[00:28:50] Will: [unclear: it / …],
-
-[00:28:51] Will: and then like once you had it up and working, everything was kind of worked itself out.
+[00:28:50] Will: [unclear: it / …], and then like once you had it up and working, everything was kind of worked itself out.
 
 [00:28:54] Norm: A little bit of troubleshooting, but mostly.
 
@@ -962,17 +910,13 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:28:58] Will: That sounds great.
 
-[00:28:58] Norm: And gave them out like
-
-[00:28:58] Norm: ping pong ball crossbows.
+[00:28:58] Norm: And gave them out like ping pong ball crossbows.
 
 [00:28:58] Will: Oh, I was gonna go.
 
 [00:28:58] Norm: ping pong ball crossbows. They're still technically crossbows.
 
-[00:29:11] Adam: Weird
-
-[00:29:12] Adam: Party favor for children
+[00:29:11] Adam: Weird Party favor for children
 
 [00:29:13] Norm: every hour. Like, here is a crossbow for you, and a crossbow for you.
 
@@ -1024,9 +968,7 @@ Episode URL: https://www.youtube.com/watch?v=4JGUj_zdZnQ
 
 [00:30:50] Adam: Thanks, guys.
 
-[00:30:51] Will: Bye, everybody. Have a
-
-[00:30:51] Will: good one.
+[00:30:51] Will: Bye, everybody. Have a good one.
 
 [00:30:52] Norm: Bye. We'll see you next week.
 

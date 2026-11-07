@@ -74,9 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=EEgc5m5LWPk
 
 [00:09:34] Jen: 100%. Yeah, when you're starting to see like the layers are on, so you're starting to get an idea of like what's the silhouette, what is the what is this going to be? And it's it was I'm looking at my reference and I'm looking at this thing and I'm like this is not this is not work at all.
 
-[00:09:48] Adam: Yeah.
-
-[00:09:49] Adam: Did um, what did you do? Did you take a break that night and come back fresh the next morning?
+[00:09:48] Adam: Yeah. Did um, what did you do? Did you take a break that night and come back fresh the next morning?
 
 [00:09:54] Jen: Uh, A little bit of that, a little bit of I pulled a lot off. Like I had it was all pinned, so I just yanked everything off. I tried attaching it in different ways. I think there was one point I talked about this too, and and I think about this a lot with. Builds like this, where there's lots of texture and layers, is like there's a point when you can go too far. You can put too much detail and too much texture, and it doesn't. Nothing reads.
 

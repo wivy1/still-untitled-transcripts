@@ -244,9 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=8wx6PW7wBoo
 
 [00:11:15] Adam: Right.
 
-[00:11:15] Will: It's it's very analogous to the old. There was an article on in the Atlantic or something a few years ago about the possibility of making a cheeseburger in a pre agrarian in an agrarian society. And like, you know, you don't think about it, but getting the cow slaughtered at the right time to have cheese that's fresh, and that tomatoes are in season, and that lettuce is in season,
-
-[00:11:38] Will: and that you can have bread because you have the flour that's been milled. It's it doesn't happen unless you have this massive civilization behind you, which is I think where the whole story kind of breaks down a little bit. But
+[00:11:15] Will: It's it's very analogous to the old. There was an article on in the Atlantic or something a few years ago about the possibility of making a cheeseburger in a pre agrarian in an agrarian society. And like, you know, you don't think about it, but getting the cow slaughtered at the right time to have cheese that's fresh, and that tomatoes are in season, and that lettuce is in season, and that you can have bread because you have the flour that's been milled. It's it doesn't happen unless you have this massive civilization behind you, which is I think where the whole story kind of breaks down a little bit. But
 
 [00:11:50] Adam: interesting. Okay, I hadn't thought about that. Um. So there's a tremendous amount of time in the first part of the book covering the building of an infrastructure on an existing infrastructure to allow people to survive, to get as many people up there as scientists, thinkers, people who have the ability to make this habitat bigger.
 

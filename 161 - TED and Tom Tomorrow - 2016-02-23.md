@@ -122,9 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:04:35] Will: Bill Gates was there, right?
 
-[00:04:37] Adam: Bill Gates was there. Steven Spielberg, Harrison Ford, Danny Hillis. I mean, Sergey and Larry from Google were there. Whole bunches and swaths of Silicon Valley technorati.
-
-[00:04:49] Adam: It was.
+[00:04:37] Adam: Bill Gates was there. Steven Spielberg, Harrison Ford, Danny Hillis. I mean, Sergey and Larry from Google were there. Whole bunches and swaths of Silicon Valley technorati. It was.
 
 [00:04:50] Will: they can't keep the riffraff out, I guess.
 
@@ -332,9 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:15:26] Adam: This baby's upset. Here it's your problem. This one's full. Here you go.
 
-[00:15:27] Will: There you go.
-
-[00:15:28] Will: It sounds like a steamer.
+[00:15:27] Will: There you go. It sounds like a steamer.
 
 [00:15:29] Adam: But Amanda had a fundraiser for a local food bank, and in town at the Vogue Theater in in lovely Vancouver, Vancouver, by the way, gorgeous city. I love it. I've been there a bunch of times, and so she invited me to come do something there. So I found myself backstage with a very eclectic mix of people, including Harrison Lee, this 16-year-old Canadian yo-yo national champion.
 
@@ -382,9 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:19:32] Norm: Yeah, absolutely.
 
-[00:19:32] Adam: truly amazing. Alan actually played recordings. Yeah, recordings
-
-[00:19:37] Adam: of his friends who had discovered them about like getting almost weepy and laughing uncontrollably about the fulfillment of a life of trying to gather this data and capturing it. And I don't know. Did you follow the gravitational waves thing?
+[00:19:32] Adam: truly amazing. Alan actually played recordings. Yeah, recordings of his friends who had discovered them about like getting almost weepy and laughing uncontrollably about the fulfillment of a life of trying to gather this data and capturing it. And I don't know. Did you follow the gravitational waves thing?
 
 [00:19:49] Dan: Yes, but not not closely.
 
@@ -544,9 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:28:42] Dan: Yeah, every time. Well, that one I have mixed feelings about. I've done a couple cartoons about mass shootings and gun violence that have sort of become the iconic thing that gets passed around every time. But it'd get passed around every time there's another horrible act of gun violence, so I I just kind of shudder when I see it.
 
-[00:29:00] Norm: And I imagine,
-
-[00:29:01] Norm: as a storyteller, I mean that. That one strip tells one point of view when you wrote it then, and you have a whole contextual, you know, narrative, and there is a whole history of other strips you've done, maybe on the similar topics. Like, how do you feel about one thing being identified and not the whole story being told?
+[00:29:00] Norm: And I imagine, as a storyteller, I mean that. That one strip tells one point of view when you wrote it then, and you have a whole contextual, you know, narrative, and there is a whole history of other strips you've done, maybe on the similar topics. Like, how do you feel about one thing being identified and not the whole story being told?
 
 [00:29:17] Dan: Well, it's it's each cartoon is sort of a you know how a, a, a hologram contains the
 
@@ -556,9 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:30:07] Adam: Oh my gosh!
 
-[00:30:08] Dan: Because it’s like
-
-[00:30:07] Dan: This bundle of energy that is just waiting to [unclear: rip / rip, to rip] the slipcover apart if you if you don't have it contained properly. And and reading over, I had to read over everything I've ever written, which was a a task. I wasn't sure when I went into that project, like almost two years ago, if I was going to just want to to burn it all and then sort of maybe salt the earth around it to make sure that no one ever saw it. But it it mostly, I think, it really actually holds up even the earlier stuff. And I think the reason it holds up is that I've always got. I’m, I’m thinking about the immediate moment, but I'm also kind of thinking about how this is going to read a year from now or something when the when the whatever the specific topic is has has been forgotten.
+[00:30:08] Dan: Because it’s like This bundle of energy that is just waiting to [unclear: rip / rip, to rip] the slipcover apart if you if you don't have it contained properly. And and reading over, I had to read over everything I've ever written, which was a a task. I wasn't sure when I went into that project, like almost two years ago, if I was going to just want to to burn it all and then sort of maybe salt the earth around it to make sure that no one ever saw it. But it it mostly, I think, it really actually holds up even the earlier stuff. And I think the reason it holds up is that I've always got. I’m, I’m thinking about the immediate moment, but I'm also kind of thinking about how this is going to read a year from now or something when the when the whatever the specific topic is has has been forgotten.
 
 [00:30:56] Norm: It's useful to be. oh, sorry.
 
@@ -602,9 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=LCt309sVb1U
 
 [00:32:57] Adam: That's hilarious.
 
-[00:32:58] Will: Yeah,
-
-[00:32:58] Will: I think that's a good place to call it this week.
+[00:32:58] Will: Yeah, I think that's a good place to call it this week.
 
 [00:33:00] Adam: We're going to chop that. Yeah.
 

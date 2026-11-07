@@ -198,9 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:05:00] Adam: I hear the scraping.
 
-[00:05:01] Will: Yeah,
-
-[00:05:01] Will: something's happening.
+[00:05:01] Will: Yeah, something's happening.
 
 [00:05:02] Adam: You made a butter knife.
 
@@ -306,15 +304,9 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:09:33] Will: Oh, that makes me sad. Yeah.
 
-[00:09:35] Adam: I yeah.
+[00:09:35] Adam: I yeah. It turns out people don't have a sense of humor.
 
-[00:09:36] Adam: It turns out people don't have a sense of humor.
-
-[00:09:38] Will: Well, and and people just get excited about what's on TV.
-
-[00:09:41] Will: Yes, exactly.
-
-[00:09:41] Will: Like I don't. I mean, yeah. Okay. Um, we're here the Saturday before you go on tour.
+[00:09:38] Will: Well, and and people just get excited about what's on TV. Yes, exactly. Like I don't. I mean, yeah. Okay. Um, we're here the Saturday before you go on tour.
 
 [00:09:48] Adam: We are. I'm leaving Monday for Texas, and I won't come back to my house or this shop until really almost New Year's.
 
@@ -452,9 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:15:17] Norm: and
 
-[00:15:18] Adam: yes, you get to see
-
-[00:15:20] Adam: some beautiful, beautiful houses. The Fox theaters, we've done Detroit, we've done Minneapolis.
+[00:15:18] Adam: yes, you get to see some beautiful, beautiful houses. The Fox theaters, we've done Detroit, we've done Minneapolis.
 
 [00:15:26] Will: Were you at the Fox in Atlanta?
 
@@ -508,13 +498,9 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:18:13] Adam: Yeah, Jamie and I designed Jamie and I wrote the show with the director Jim Millan, who's wonderful director. He worked with my friend Todd Robbins and directing the show Play Dead, which is I think in L. A. Right now. It was co directed by Teller, and Jim brought great structure and intelligence to the the bunch of random things that Jamie and I threw at him that we thought we could do, and really helped shape something that I have fun doing every single night. And the audiences are fantastic. It's a lot of kids, it's a lot of families, a lot of grizzled old engineers. I mean, it's 7 to 70. It's just like the Mythbusters viewing audience.
 
-[00:18:49] Will: Okay,
+[00:18:49] Will: Okay, so so when you guys were when you sat sat down to do this, like you just you just came in said, hey, we want to have these three gags, we want to have these three things, and then they kind of helped you work out what they ended up doing.
 
-[00:18:50] Will: so so when you guys were when you sat sat down to do this, like you just you just came in said, hey, we want to have these three gags, we want to have these three things, and then they kind of helped you work out what they ended up doing.
-
-[00:19:00] Adam: Yeah,
-
-[00:19:00] Adam: we had a different conception of how we wanted to do it at the beginning, and Jim and our tour promoter Lee Marshall really helped guide us as to you know what would What would be a successful show that people would want to come back to that people that would spread word of mouth, et cetera? And it mostly grew out of the fact that we've done 70 or 80 college appearances and corporate appearances, and people always want us to do some big stage set piece, and we were always at a loss about what to do.
+[00:19:00] Adam: Yeah, we had a different conception of how we wanted to do it at the beginning, and Jim and our tour promoter Lee Marshall really helped guide us as to you know what would What would be a successful show that people would want to come back to that people that would spread word of mouth, et cetera? And it mostly grew out of the fact that we've done 70 or 80 college appearances and corporate appearances, and people always want us to do some big stage set piece, and we were always at a loss about what to do.
 
 [00:19:24] Will: Okay.
 
@@ -540,11 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:20:21] Adam: serial computing, and we decided to do it by making a robot that painted a picture by aiming each paintball like a pixel, and then we built a robot with 1,100 barrels that fired them all at once at a canvas and painted the Mona Lisa, and the the crowd was the most interesting part of it. Nvidia still to this day one of our favorite clients we've ever worked with. They were amazing. They they kind of really let us run. They gave us all the support that we needed, and we were all ecstatic with the results. The gaming crowd very very different crowd than your normal crowd. Like a a real a real level of aggression from the crowd, but an enjoyable aggression. But there was like a ah.
 
-[00:21:03] Will: That was a it was at one of their GPU conferences.
-
-[00:21:06] Will: Yes, yes,
-
-[00:21:06] Will: right. So it was a tough crowd because it was probably a lot of like journalists too,
+[00:21:03] Will: That was a it was at one of their GPU conferences. Yes, yes, right. So it was a tough crowd because it was probably a lot of like journalists too,
 
 [00:21:09] Adam: and and a lot of those. Kids have been up all night doing gaming competitions and stuff like that. We passed a bunch of people.
 
@@ -574,9 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:23:12] Adam: up in up in Marin County, and he's actually just finished refurbishing a bunch of stuff because it's beaten up after 70 shows.
 
-[00:23:20] Will: Yeah,
-
-[00:23:20] Will: I can imagine
+[00:23:20] Will: Yeah, I can imagine
 
 [00:23:20] Adam: touring is really hard on objects
 
@@ -688,9 +668,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:26:38] Will: I've heard good things about Manitoba and Winnipeg.
 
-[00:26:41] Adam: I've always wanted to go to Banff,
-
-[00:26:42] Adam: and actually, one of the one of the trips that I want to do with my family. It's in the middle.  And there's like giant lodges there for the winter,
+[00:26:41] Adam: I've always wanted to go to Banff, and actually, one of the one of the trips that I want to do with my family. It's in the middle.  And there's like giant lodges there for the winter,
 
 [00:26:51] Will: like the old kind with the big fireplace in the middle and a hole above it.
 
@@ -716,9 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:27:33] Adam: All those trails named after songs by the Dead Kennedys.
 
-[00:27:35] Will: Yeah,
-
-[00:27:35] Will: exactly. It's clearly a tone a town built by Canadian skiing stoners. So, and I guess
+[00:27:35] Will: Yeah, exactly. It's clearly a tone a town built by Canadian skiing stoners. So, and I guess
 
 [00:27:42] Adam: my son thing one announced as we were leaving Whistler, this is what I want to do with my life. I want to move to Whistler.
 
@@ -784,9 +760,7 @@ Episode URL: https://www.youtube.com/watch?v=1vGwzZEb_rg
 
 [00:29:43] Will: Um. And I guess on that note, I guess I have no idea what this podcast was about.
 
-[00:29:47] Adam: It's all been about travel. Yeah. I'd say travel
-
-[00:29:50] Adam: is a unifying element. Okay. Can Canada? We'll see you over Thanksgiving week.
+[00:29:47] Adam: It's all been about travel. Yeah. I'd say travel is a unifying element. Okay. Can Canada? We'll see you over Thanksgiving week.
 
 [00:29:54] Will: Um. We will have a few more. You're going to be gone for a little while. We're going to record a couple more podcasts, so don't freak out.
 

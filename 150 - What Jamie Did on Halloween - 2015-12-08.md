@@ -74,9 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:03:16] Adam: Let's discuss this offline because yes is the answer, but I'd be looking at a matinee because
 
-[00:03:23] Will: yeah,
-
-[00:03:23] Will: you have to work at night. It turns out
+[00:03:23] Will: yeah, you have to work at night. It turns out
 
 [00:03:23] Adam: Yeah.
 
@@ -88,11 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:03:30] Norm: seven p.m.. on the 17th.
 
-[00:03:32] Adam: which is
-
-[00:03:33] Adam: Thursday.
-
-[00:03:34] Adam: Wait a second. If you haven't, I can't not take my kids that day.
+[00:03:32] Adam: which is Thursday. Wait a second. If you haven't, I can't not take my kids that day.
 
 [00:03:38] Will: Yeah, you could. I mean, it depends on whether you are a good dad or. a bad dad.
 
@@ -158,11 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:05:24] Will: You mean like a closed door?
 
-[00:05:26] Adam: Yeah.
-
-[00:05:26] Adam: Yeah.
-
-[00:05:26] Adam: This is all eight characters are stranded in a snowbound hut,
+[00:05:26] Adam: Yeah. Yeah. This is all eight characters are stranded in a snowbound hut,
 
 [00:05:30] Will: and it's a western, right?
 
@@ -208,9 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:06:27] Will: Is that a um? Who is that a? Is that a um? Um, who wrote Glengarry and Ross? I'm completely blanking.
 
-[00:06:33] Adam: David Mamet. It's not a Mamet film.
-
-[00:06:36] Adam: I don't think so.
+[00:06:33] Adam: David Mamet. It's not a Mamet film. I don't think so.
 
 [00:06:37] Will: It sounds like it would be a Mamet film from the title.
 
@@ -240,9 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:07:29] Adam: It's really, really like
 
-[00:07:31] Norm: yeah, That
-
-[00:07:31] Norm: looks comfy.
+[00:07:31] Norm: yeah, That looks comfy.
 
 [00:07:31] Adam: like you'd imagine a real thing might look, and it has an incredible substance and weight to it.
 
@@ -334,9 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:09:49] Will: The the old Han jacket.
 
-[00:09:50] Adam: Yeah.
-
-[00:09:51] Adam: I want old Han jacket.
+[00:09:50] Adam: Yeah. I want old Han jacket.
 
 [00:09:52] Will: Yeah.
 
@@ -358,9 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:10:34] Unknown speaker: I think it's a harmony.
 
-[00:10:34] Will: I think it's a. I think you hit a certain combination of low frequency subsonics that triggers it in a lot of people.
-
-[00:10:39] Will: It's like nails on a chalkboard. Does the same thing to some people too.
+[00:10:34] Will: I think it's a. I think you hit a certain combination of low frequency subsonics that triggers it in a lot of people. It's like nails on a chalkboard. Does the same thing to some people too.
 
 [00:10:43] Adam: I honestly don't know..
 
@@ -534,9 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:17:49] Norm: That's all we can say about that.
 
-[00:17:50] Adam: Okay,
-
-[00:17:50] Adam: actually, the
+[00:17:50] Adam: Okay, actually, the
 
 [00:17:52] Will: what's the most difficult you can talk about?
 
@@ -554,11 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:18:14] Norm: This question actually comes from a tested listener who's also who is the art director and production designer on Moon.
 
-[00:18:20] Adam: Oh,
-
-[00:18:20] Adam: Oh,
-
-[00:18:20] Adam: I love those spacesuits on Moon.
+[00:18:20] Adam: Oh, Oh, I love those spacesuits on Moon.
 
 [00:18:23] Norm: Yes, and he actually just released a new short film called The Last Man, which you guys should check out. Gavin Gavin Rothery asks if you could go back in time and visit any production during filming, which set or location would you want to?
 
@@ -814,6 +790,4 @@ Episode URL: https://www.youtube.com/watch?v=iXbZBvf-800
 
 [00:31:15] Adam: Bye guys.
 
-[00:31:15] Norm: Bye.
-
-[00:31:15] Norm: Thanks for listening to that episode of Still Untitled. Thanks, guys, and we'll see you next time. Bye.
+[00:31:15] Norm: Bye. Thanks for listening to that episode of Still Untitled. Thanks, guys, and we'll see you next time. Bye.

@@ -108,9 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:02:54] Norm: But the the cards specifically, you have
 
-[00:02:57] Adam: I have
-
-[00:02:57] Adam: reed switches, and that is a terrible, terrible way to go. Reed switches are super, super finicky. They're touchy. They fail. We had a failure mode of like 50% of the reed switches. And there is solid state electronics that do this that can switch a switch a current because of magnetism.
+[00:02:57] Adam: I have reed switches, and that is a terrible, terrible way to go. Reed switches are super, super finicky. They're touchy. They fail. We had a failure mode of like 50% of the reed switches. And there is solid state electronics that do this that can switch a switch a current because of magnetism.
 
 [00:03:18] Jeremy: Right. Yeah. Well, and there is pinball machines are filled with them nowadays.
 
@@ -144,9 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:05:00] Adam: such a a relative. That's it's just relatively simple things. It was like 19 switches or something like that. 16 switches total.
 
-[00:05:07] Norm: And then you have interchangeable parts.
-
-[00:05:09] Norm: Maintenance is super easy.
+[00:05:07] Norm: And then you have interchangeable parts. Maintenance is super easy.
 
 [00:05:09] Unknown speaker: And we have a bunch of sound files.
 
@@ -188,9 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:06:27] Adam: scanning functioning motion sensors into their Aliens motion tracker.
 
-[00:06:27] Jeremy: That’s great.
-
-[00:06:31] Jeremy: We've been rewatching Star Trek: Next Generation in my household because my 10 year old is now interested in this, and it's so cool to see all the displays in the earlier seasons because none of them are actual displays. It's just like plastic with some moving, you know, filters behind them that reveal light in various ways, and it just creates an effect.
+[00:06:27] Jeremy: That’s great. We've been rewatching Star Trek: Next Generation in my household because my 10 year old is now interested in this, and it's so cool to see all the displays in the earlier seasons because none of them are actual displays. It's just like plastic with some moving, you know, filters behind them that reveal light in various ways, and it just creates an effect.
 
 [00:06:49] Adam: Is this original series or next gen?
 
@@ -206,25 +200,19 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:07:01] Adam: You're smiling indulgently like I've told this story
 
-[00:07:30] Norm: twice before.
-
-[00:07:30] Norm: Yeah, because because that's that's a unnecessary aspect of production design. It's like it's like a makeup artist, you know, programming LEDs to blink Morse code or something. Right. But it's like it totally because it's almost easier to make it functional and it adds to the performance.
+[00:07:30] Norm: twice before. Yeah, because because that's that's a unnecessary aspect of production design. It's like it's like a makeup artist, you know, programming LEDs to blink Morse code or something. Right. But it's like it totally because it's almost easier to make it functional and it adds to the performance.
 
 [00:07:46] Adam: It totally adds to the performance. So Ridley Scott said that when they kludged together all the interior of the Nostromo for Alien, the actors totally got into it because every switch lit something.
 
 [00:07:46] Norm: Yeah.
 
-[00:07:46] Adam: And they're all like,
-
-[00:07:57] Adam: " Ooh, this is.
+[00:07:46] Adam: And they're all like, " Ooh, this is.
 
 [00:07:57] Jeremy: That’s cool.
 
 [00:07:59] Adam: And that's totally the case. And so on this set, I was watching me and all the other actors. Being like, oh, and the director would be like, fiddle with this pad and then turn and fiddle with that pad, and you'd be like, oh, you get your own routine. I'm like, I'll do A, B, C here, and then I'll do D and E here, and then I'll come back to number two.
 
-[00:08:15] Jeremy: That's like Galaxy Quest. It's all about
-
-[00:08:15] Jeremy: Exactly. I remember the helm, whoever was flying.
+[00:08:15] Jeremy: That's like Galaxy Quest. It's all about Exactly. I remember the helm, whoever was flying.
 
 [00:08:15] Norm: Yeah, Laredo.
 
@@ -262,9 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:09:46] Jeremy: Yeah.
 
-[00:09:46] Norm: that you've been on this podcast for, but that effect is very real.
-
-[00:10:01] Norm: The the Mandela effect.
+[00:09:46] Norm: that you've been on this podcast for, but that effect is very real. The the Mandela effect.
 
 [00:10:01] Jeremy: You've been referring to this recently. Can you refresh my memory? What is the Mandela effect?
 
@@ -312,9 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:11:10] Norm: But you can distinctly, you can see the packaging with the hyphen. Yeah, yeah. Yeah. So your brain fills in the blanks.
 
-[00:11:15] Adam: Exactly. Exactly.
-
-[00:11:15] Adam: So I and I remember reading about the Bernstein Bears as a thing and being like, " Wow, no, I really do remember saying as a kid, Bernstein Bears, Bernstein Bears, and just like it should have been spelled E-I-N like any other Bernstein, but it's not. There's an A there.
+[00:11:15] Adam: Exactly. Exactly. So I and I remember reading about the Bernstein Bears as a thing and being like, " Wow, no, I really do remember saying as a kid, Bernstein Bears, Bernstein Bears, and just like it should have been spelled E-I-N like any other Bernstein, but it's not. There's an A there.
 
 [00:11:30] Norm: And you can Google all of these, like this list of things. Most famously, recently, of course, was the Sinbad, the the comedian, and people believing that there were there was a movie he starred in '90 called Kazam.
 
@@ -370,9 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:15:15] Norm: Yes, the photo absolutely. The only documentation happened with a photo of the cracked lens and of the storytelling that you did.
 
-[00:15:15] Adam: And
-
-[00:15:22] Adam: So vivid was my storytelling, so evocative,
+[00:15:15] Adam: And So vivid was my storytelling, so evocative,
 
 [00:15:26] Norm: so colorful. I talked to Will yesterday, and he was he's convinced that he was in the room with you when you used the bandsaw, and I do not believe he was.
 
@@ -430,9 +412,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:17:54] Adam: Yeah,
 
-[00:17:54] Jeremy: piece of metal
-
-[00:18:04] Jeremy: and you can torque it.
+[00:17:54] Jeremy: piece of metal and you can torque it.
 
 [00:18:04] Adam: To get a better mechanical advantage, right?
 
@@ -444,9 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:18:07] Adam: So I'm pulling it off like a scope, like a scope ring, or any other. These watches use this this type of wrench. But there is a much more exciting explanation than cultural false memory for the Mandela effect,
 
-[00:18:07] Norm: Hmm.
-
-[00:18:25] Norm: which is
+[00:18:07] Norm: Hmm. which is
 
 [00:18:25] Adam: which is that it's caused by anomalies created by experiments in the Large Hadron Collider.
 
@@ -454,9 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:18:36] Adam: This is a conspiracy theory. It's my favorite conspiracy theory.
 
-[00:18:39] Norm: Glimpses into the alternate realities.
-
-[00:18:39] Norm: I want to believe that.
+[00:18:39] Norm: Glimpses into the alternate realities. I want to believe that.
 
 [00:18:42] Adam: So this is one of the theories of time that for every every every A B that there could be for a universe, there are infinite numbers of universes that create from every moment with every possibility being being pushed forward, and that the Large Hadron Collider is somehow affecting. The fabric of space-time in such a degree as to fold it, perhaps, or jump us, jump our tracks to one of our close-by realities. And in this reality, it turns out that it was all it was the Bernstein bears when I was a kid, and I have some residual quantum memory of this through the fabric of space-time. When in fact now it's Bernstein bears.
 
@@ -534,9 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:23:20] Norm: In * Iron Man* three, for example, that whole subplot where the the arc reactor being removed from Tony Stark's body, which is just a mention in in the epilogue of the film, is a full scene because it's an Asian doctor. He does it in China, and and again shows off their talents and and fulfills that obligation.
 
-[00:23:40] Adam: But this this
-
-[00:23:40] Adam: is oh sorry go ahead.
+[00:23:40] Adam: But this this is oh sorry go ahead.
 
 [00:23:41] Jeremy: This movie was made for the Chinese audience. Do you think
 
@@ -546,9 +520,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:24:00] Norm: and and the stars of the film. It's it's there's no denying Matt Damon is the star of the film. He is the hero of the story.
 
-[00:24:00] Jeremy: Right.
-
-[00:24:08] Jeremy: Speaking English exclusively.
+[00:24:00] Jeremy: Right. Speaking English exclusively.
 
 [00:24:09] Norm: Speaking English exclusively,
 
@@ -632,9 +604,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:28:43] Norm: it just loses the gracefulness.
 
-[00:28:43] Adam: Yeah,
-
-[00:28:54] Adam: there's also look culturally there's In both films, the Great Wall and Sword of Destiny, there are aspects of the fight scenes that I find mystifying. That I don't think it's because that was poorly done. I think culturally, there's a visual language to fight scenes that Chinese audiences expect and have grown up with, and thus are conversant with. That make no sense to a Western audience, and vice versa.
+[00:28:43] Adam: Yeah, there's also look culturally there's In both films, the Great Wall and Sword of Destiny, there are aspects of the fight scenes that I find mystifying. That I don't think it's because that was poorly done. I think culturally, there's a visual language to fight scenes that Chinese audiences expect and have grown up with, and thus are conversant with. That make no sense to a Western audience, and vice versa.
 
 [00:29:21] Jeremy: Right.
 
@@ -642,9 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:29:23] Adam: Mm hmm.
 
-[00:29:23] Norm: Yeah.
-
-[00:29:23] Norm: You've seen Hero, though.
+[00:29:23] Norm: Yeah. You've seen Hero, though.
 
 [00:29:37] Adam: Hero.
 
@@ -666,13 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:30:05] Jeremy: Yeah.
 
-[00:30:05] Norm: Oh, and they show it.
-
-[00:30:06] Norm: They show the full fight, but the story is that it happens in their minds between a drop of water
-
-[00:30:06] Norm: Wow.
-
-[00:30:06] Norm: As water is falling. Yeah.
+[00:30:05] Norm: Oh, and they show it. They show the full fight, but the story is that it happens in their minds between a drop of water Wow. As water is falling. Yeah.
 
 [00:30:13] Adam: It's so well done. It's so beautiful. Um,
 
@@ -724,11 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:32:00] Adam: Who works with Wong Kar Wai, and if you don't know who Wong Kar Wai is, just any one of his movies. But * In the Mood for Love* is one of, it's one of the mu, it's one of the few movies I've ever seen in which watching it made me realize I didn't know anything about movies.
 
-[00:32:12] Norm: He did * In the Mood for Love*.
-
-[00:32:12] Norm: Yeah.
-
-[00:32:12] Norm: He did * Hero* 2046.
+[00:32:12] Norm: He did * In the Mood for Love*. Yeah. He did * Hero* 2046.
 
 [00:32:12] Adam: Yeah.
 
@@ -752,11 +710,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:32:46] Adam: Yeah. No, I think of Jackie Chan as Buster Keaton level comedy type fighting.
 
-[00:32:46] Jeremy: Exactly. And
-
-[00:32:46] Jeremy: Apparently, this is really serious and dark.
-
-[00:32:52] Jeremy: Perfectly said. I mean,
+[00:32:46] Jeremy: Exactly. And Apparently, this is really serious and dark. Perfectly said. I mean,
 
 [00:32:53] Norm: If you watched the trailer. The the brief for the scriptwriter was like, write me a movie in which. Jackie Chan is sad and never smiles. Entire movie.
 
@@ -800,9 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:33:43] Jeremy: Oh, that's your plan.
 
-[00:33:43] Norm: Yes.
-
-[00:34:20] Norm: And it was it was written in the height of the poker craze, and yet the hands they eventually reveal are absurd. It's like
+[00:33:43] Norm: Yes. And it was it was written in the height of the poker craze, and yet the hands they eventually reveal are absurd. It's like
 
 [00:34:28] Adam: I've got a full house. I've got a bigger full house. I've got four of a kind. I've got a straight flush. I've got a royal straight flush. Oh my! Like the
 
@@ -826,17 +778,13 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:35:06] Jeremy: Doctor.
 
-[00:35:06] Norm: Doctor. No.
-
-[00:35:08] Norm: No. No. No. I mean, no. Don’t start with those movies?
+[00:35:06] Norm: Doctor. No. No. No. No. I mean, no. Don’t start with those movies?
 
 [00:35:12] Adam: I mean, if you want to teach your kids some really good sexist, semi-rapey,
 
 [00:35:17] Jeremy: okay,
 
-[00:35:17] Adam: male-female relationships,
-
-[00:35:20] Adam: which is which is the movie in which Sean Connery does the whole " Yersh" and the woman's like " No," and he's like " Yersh."
+[00:35:17] Adam: male-female relationships, which is which is the movie in which Sean Connery does the whole " Yersh" and the woman's like " No," and he's like " Yersh."
 
 [00:35:25] Norm: I think it's Thunderball.
 
@@ -960,9 +908,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:40:42] Jeremy: Oh yeah.
 
-[00:40:42] Norm: You want to give them the trauma that you have.
-
-[00:40:42] Norm: Because.
+[00:40:42] Norm: You want to give them the trauma that you have. Because.
 
 [00:40:47] Adam: But they had also seen the thing by that age.
 
@@ -996,9 +942,7 @@ Episode URL: https://www.youtube.com/watch?v=sx5WXicNkHc
 
 [00:41:52] Adam: I think that was
 
-[00:41:52] Jeremy: Superman three.
-
-[00:41:53] Jeremy: Yeah, because I loved that as an eight-year-old.
+[00:41:52] Jeremy: Superman three. Yeah, because I loved that as an eight-year-old.
 
 [00:41:59] Adam: But yeah, the stuff you'll tolerate as a child.
 

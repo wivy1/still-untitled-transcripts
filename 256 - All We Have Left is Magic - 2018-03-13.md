@@ -88,11 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:01:54] Will: It’s lovely.
 
-[00:01:54] Adam: and when I got it's all resin, right? Or sorry when when Phil gave it to me, it was almost all just resin, and it didn't stand on its own because the resin's just not strong enough.
-
-[00:02:23] Adam: This this is a puppet in which
-
-[00:02:24] Adam: it's a stop motion puppet in which every joint is pretty much visible, but there is, there is over 200 parts in this. So when I first got it, I actually paid one of the machinists from Tippett's studio to build parts of the legs so it could stand on its own, and that got it about 80% there. And then over the last couple of weeks, I brought in Brett Foxwell, a wonderful machinist who also works at Tippett.
+[00:01:54] Adam: and when I got it's all resin, right? Or sorry when when Phil gave it to me, it was almost all just resin, and it didn't stand on its own because the resin's just not strong enough. This this is a puppet in which it's a stop motion puppet in which every joint is pretty much visible, but there is, there is over 200 parts in this. So when I first got it, I actually paid one of the machinists from Tippett's studio to build parts of the legs so it could stand on its own, and that got it about 80% there. And then over the last couple of weeks, I brought in Brett Foxwell, a wonderful machinist who also works at Tippett.
 
 [00:02:48] Norm: He made the armatures for the Force Awakens. Puppets, Dejarik
 
@@ -180,9 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:05:46] Will: and and so on and so like it's it's incredible. It's an incredible, incredible thing. This and the canes like this Cain. I mean, it'll look cool in the video, but it looks even better up close. So I hope.
 
-[00:06:10] Adam: I remember being when the movie came out, like doing searches to find out the toys from this. And Hot Toys was supposed to do a version of this. A figure came out a couple years ago, which I have in my collection, and it's lovely. But but this is really this is one of the best pieces in my whole collection, and you know I love Phil. I I owe him I owe him a deep life debt. Someday he will call upon me,
-
-[00:06:39] Adam: Adam.
+[00:06:10] Adam: I remember being when the movie came out, like doing searches to find out the toys from this. And Hot Toys was supposed to do a version of this. A figure came out a couple years ago, which I have in my collection, and it's lovely. But but this is really this is one of the best pieces in my whole collection, and you know I love Phil. I I owe him I owe him a deep life debt. Someday he will call upon me, Adam.
 
 [00:06:40] Norm: You know it's funny. Well, Last time I visited Phil, he was doing his most recent Kickstarter for Mad God, and they were doing some puppets, and he is work still working on Mad God, and which is a stop motion short film. Unending, many parts
 
@@ -200,11 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:07:17] Adam: No, no,
 
-[00:07:17] Norm: that you could get for like $70 or $80, and these like musculature, you know, big like Arnold Schwarzenegger type body types,
-
-[00:07:25] Norm: Yes.
-
-[00:07:25] Norm: and he would just take the heads off and put you know like Minotaur heads or something on them.
+[00:07:17] Norm: that you could get for like $70 or $80, and these like musculature, you know, big like Arnold Schwarzenegger type body types, Yes. and he would just take the heads off and put you know like Minotaur heads or something on them.
 
 [00:07:28] Will: My favorite thing when we went to that first Mad God video, we went over there to see was like walking through Phil's graveyard of toys and potential Mad, Mad, Mad God set and costume and creature design stuff. It was incredible.
 
@@ -242,9 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:09:09] Norm: Oh well, yes. Will
 
-[00:09:09] Adam: I had a question for you?
-
-[00:09:11] Adam: Well, I mentioned Frank Oz this morning, and then you said, " Have you seen that show?" He tweets about
+[00:09:09] Adam: I had a question for you? Well, I mentioned Frank Oz this morning, and then you said, " Have you seen that show?" He tweets about
 
 [00:09:17] Will: at like 11 o'clock on many nights. Frank Oz will just blast out a retweet.
 
@@ -284,9 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:11:15] Adam: in and of itself. It's off Broadway.
 
-[00:11:15] Will: Off Broadway.
-
-[00:11:15] Will: Okay.
+[00:11:15] Will: Off Broadway. Okay.
 
 [00:11:15] Adam: It's on a small theater off of Union Square in New York, and it's called In and of Itself, and it stars Derek DelGaudio. Derek Delgaudio is an unbelievable magician. A magician. I'm not sure if this is
 
@@ -294,9 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:11:32] Adam: Well, he's. I don't. I'm not sure if I'm correct in saying this, but he's a magician that hates magic.
 
-[00:11:38] Norm: I think, I think…
-
-[00:11:39] Norm: hates the routines, or hates the…
+[00:11:38] Norm: I think, I think… hates the routines, or hates the…
 
 [00:11:41] Adam: he doesn't like the. He wants magic to be something. More essential and more pure, and that sounds like a terrible lead-in to something that's going to be pretentious. But
 
@@ -372,9 +356,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:14:53] Norm: without getting into spoilers. Yeah,
 
-[00:14:54] Adam: let's. I
-
-[00:14:55] Adam: don't want to get too far into this because
+[00:14:54] Adam: let's. I don't want to get too far into this because
 
 [00:14:56] Will: it's on all the marketing.
 
@@ -436,9 +418,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:18:38] Norm: I know. Gonna book those tickets.
 
-[00:18:40] Will: I need an excuse to go to New York.
-
-[00:18:42] Will: I think World Maker Faire is going to be too late.
+[00:18:40] Will: I need an excuse to go to New York. I think World Maker Faire is going to be too late.
 
 [00:18:44] Norm: Yeah. Yeah.
 
@@ -558,11 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:22:08] Norm: It's a really interesting. So the two showrunners, Lisa Joy and Jonathan Nolan,
 
-[00:22:13] Adam: Christopher Nolan's writing partner and
-
-[00:22:15] Adam: brother,
-
-[00:22:16] Adam: or brother and writing partner.
+[00:22:13] Adam: Christopher Nolan's writing partner and brother, or brother and writing partner.
 
 [00:22:16] Norm: No, no British accent. So weird. They were at South by Southwest talking about the writing of this show and how this show, I think, like many cultural phenomenons or TV shows that are serialized and come out one week by week, engage with the fans in a certain way, which is in a way that perhaps a Netflix show that drops all its episodes out cannot.
 
@@ -580,9 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:23:03] Will: I've given up on it. At this point, it's all, look, I watched six episodes of The Good Place at once.
 
-[00:23:07] Norm: But, but they're saying like specifically communities like in Reddit had, were so engaged with the show that
-
-[00:23:14] Norm: most of the plot twists and turns that came out of the show were already predicted in one form or another.
+[00:23:07] Norm: But, but they're saying like specifically communities like in Reddit had, were so engaged with the show that most of the plot twists and turns that came out of the show were already predicted in one form or another.
 
 [00:23:18] Adam: Oh, sure.
 
@@ -590,9 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:23:21] Adam: Yeah.
 
-[00:23:21] Norm: And the, the, uh, the broader media outside of those communities already know of the communities and then
-
-[00:23:27] Norm: spread like the theories like wildfire. You know, your Entertainment Weeklys, your varieties, all tap into the communities.
+[00:23:21] Norm: And the, the, uh, the broader media outside of those communities already know of the communities and then spread like the theories like wildfire. You know, your Entertainment Weeklys, your varieties, all tap into the communities.
 
 [00:23:33] Will: The podcasts and stuff that spring up.
 
@@ -600,9 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:23:37] Adam: Yeah.
 
-[00:23:37] Norm: And they, and find all the theories and that if you choose to engage with the show, you will maybe have a likely chance of getting spoiled.
-
-[00:23:46] Norm: So being cognizant of that, they say that they're going to do something different with season two where they're going to embrace that.
+[00:23:37] Norm: And they, and find all the theories and that if you choose to engage with the show, you will maybe have a likely chance of getting spoiled. So being cognizant of that, they say that they're going to do something different with season two where they're going to embrace that.
 
 [00:23:53] Adam: Oh, so that the, the, excuse me, the trajectory of the show might Be altered by the fan engagement?
 
@@ -690,11 +660,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:27:02] Will: Yeah.
 
-[00:27:02] Norm: One of the.
-
-[00:27:02] Norm: Yeah.
-
-[00:27:02] Norm: Japanese actors.
+[00:27:02] Norm: One of the. Yeah. Japanese actors.
 
 [00:27:03] Will: Um, it's a like I I think not a knock against um what what's his name? Sorry, Norm.
 
@@ -704,9 +670,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:27:11] Norm: RoboCop.
 
-[00:27:12] Adam: Uh,
-
-[00:27:12] Adam: The Killing.
+[00:27:12] Adam: Uh, The Killing.
 
 [00:27:13] Will: Oh. Okay.
 
@@ -754,9 +718,7 @@ Episode URL: https://www.youtube.com/watch?v=nVH2XC-FXOs
 
 [00:28:19] Adam: Ish.
 
-[00:28:19] Norm: Ish. Ish.
-
-[00:28:23] Norm: of course, of course.
+[00:28:19] Norm: Ish. Ish. of course, of course.
 
 [00:28:25] Will: I’m, I’m very excited about watching Last Jedi again. I I I saw it three times in theaters. I didn’t, yeah, I thought it was probably okay, but I’m I’ve been thinking, it's been in the back of my head rattling around.
 

@@ -76,9 +76,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:04:01] Adam: Rubber hands, you brought her.
 
-[00:04:03] Simone: It was
-
-[00:04:04] Simone: all cathedral.
+[00:04:03] Simone: It was all cathedral.
 
 [00:04:05] Laura Kampf: Yeah. It was a good moment.
 
@@ -210,9 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:15:23] Laura Kampf: So I try to make my own experiments and my own experiences. So those videos, yeah, usually it's it's four to seven minutes depending on what I'm doing. And I think I experimented with super short content. I made 10 second videos and 60 second videos, and that is super interesting as well. And I think the the interesting part about it is that it depends on the quality of the idea. A really good idea can be told in 10 seconds, and if the idea Needs a bit more explanation. You need more time to to talk about it.
 
-[00:15:55] Adam: Ah,
-
-[00:15:56] Adam: yes, yes.
+[00:15:55] Adam: Ah, yes, yes.
 
 [00:15:56] Laura Kampf: Yeah. Usually, the the the builds that I do, it's not about having the perfect idea. Like your your stuff that you do, Simone. Those ideas are. I know. I mean, it's not a good idea via definition, but those ideas are so precise, you can tell them in those couple second gifs or gifs. I still don't know.
 
@@ -242,9 +238,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:17:11] Adam: Right, right.
 
-[00:17:11] Laura Kampf: and I get the feedback on my videos,
-
-[00:17:11] Laura Kampf: so I wake up and then you lie in bed and you you read these comments, and yeah, it really hits you.
+[00:17:11] Laura Kampf: and I get the feedback on my videos, so I wake up and then you lie in bed and you you read these comments, and yeah, it really hits you.
 
 [00:17:44] Simone: See, early on, bad habits,
 
@@ -326,9 +320,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:23:18] Adam: that is having someone say that to me under any circumstances. You inspired me to build one thing for my house or to to be an engineer. That full spectrum is the most humbling and amazing thing that can happen.
 
-[00:23:36] Laura Kampf: Yeah, for sure, it's the best. I can show you a picture later of a girl wearing a a suit like you always do, and she has a little Laura Kampf patch. And she's holding a wrench and like like a warrior next to a little bike.
-
-[00:23:50] Laura Kampf: Oh, Jesus, that's crazy!
+[00:23:36] Laura Kampf: Yeah, for sure, it's the best. I can show you a picture later of a girl wearing a a suit like you always do, and she has a little Laura Kampf patch. And she's holding a wrench and like like a warrior next to a little bike. Oh, Jesus, that's crazy!
 
 [00:23:53] Simone: I think it's to me like especially even though I like suppress liking having kids watch my videos because it's a constant battle with parents. I think it's always like when you have kids write you like that and like you're just like I'm such a good person. That is all I can feel. I'm just like wow, this is this is really amazing. I'm so good.
 
@@ -338,9 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:25:29] Adam: While you were helping,
 
-[00:25:29] Laura Kampf: while yeah,
-
-[00:25:31] Laura Kampf: yeah, I was helping them, and they were just okay. We we just need hot glue. We're fine, and no, you actually need. I can help you with that. Yeah, it was it was really interesting, and then. They were shooting a. They were doing a challenge against each other, which soapbox car is the fastest, or which is the best build, and yeah, it was it was very interesting and it was very successful. It was only four episodes, but they they talking about to do another season of it because it was really successful.
+[00:25:29] Laura Kampf: while yeah, yeah, I was helping them, and they were just okay. We we just need hot glue. We're fine, and no, you actually need. I can help you with that. Yeah, it was it was really interesting, and then. They were shooting a. They were doing a challenge against each other, which soapbox car is the fastest, or which is the best build, and yeah, it was it was very interesting and it was very successful. It was only four episodes, but they they talking about to do another season of it because it was really successful.
 
 [00:25:31] Adam: Yeah,
 
@@ -520,9 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=IyI0ey_T4c0
 
 [00:36:28] Laura Kampf: and thank you, Simone, for connecting us. This is
 
-[00:36:28] Simone: yeah,
-
-[00:36:33] Simone: of course, big, of course,
+[00:36:28] Simone: yeah, of course, big, of course,
 
 [00:36:33] Laura Kampf: cool.
 

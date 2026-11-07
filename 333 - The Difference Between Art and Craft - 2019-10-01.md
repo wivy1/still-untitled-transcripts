@@ -40,9 +40,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:01:58] Adam: Listen, New York is amazing in April and it's amazing in October, and it has many great days in between. But those two months of April and October are just reasons to live.
 
-[00:02:09] Norm: Hmm.
-
-[00:02:09] Norm: But don't worry, we've shot lots of build videos. Of course, there's going to be a big incognito costume walk. I believe we've already announced it's on Friday, sometime Friday, at New York.
+[00:02:09] Norm: Hmm. But don't worry, we've shot lots of build videos. Of course, there's going to be a big incognito costume walk. I believe we've already announced it's on Friday, sometime Friday, at New York.
 
 [00:02:20] Adam: This incognito has really kicked my ass. It's already being packed. Oh my god!
 
@@ -184,9 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:11:16] Will: yeah.
 
-[00:11:16] Adam: Which again felt really funny to be at when
-
-[00:11:19] Adam: it wasn't Comic Con.
+[00:11:16] Adam: Which again felt really funny to be at when it wasn't Comic Con.
 
 [00:11:20] Will: Yeah,
 
@@ -298,9 +294,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:18:07] Adam: Who carefully explained that I could not be captain of his boat? Oh, because the HMS Surprise, the boat from Master and Commander, is in San Diego. So I went by it after TwitchCon and took photos out front.
 
-[00:18:19] Will: I was going to say you should have gone in and been like, " Hey, can I go take some pictures?"
-
-[00:18:22] Will: Behind the helm?
+[00:18:19] Will: I was going to say you should have gone in and been like, " Hey, can I go take some pictures?" Behind the helm?
 
 [00:18:22] Adam: They, it turns, we, uh, we talked to the Maritime Museum people, and the guy with the keys to the Surprise had just left for the day. So I got to go back.
 
@@ -460,9 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:23:27] Will: Yeah, it has Brendan Fraser.
 
-[00:23:29] Adam: Really?
-
-[00:23:30] Adam: How is Brendan Fraser?
+[00:23:29] Adam: Really? How is Brendan Fraser?
 
 [00:23:32] Will: He's he's he's larger.
 
@@ -604,9 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:30:20] Will: It’s in his prose?
 
-[00:30:20] Norm: That’s not like a. It’s not like
-
-[00:30:21] Norm: a. No, it's a big photo book. Big photo book.
+[00:30:20] Norm: That’s not like a. It’s not like a. No, it's a big photo book. Big photo book.
 
 [00:30:24] Adam: This is custom built for you.
 
@@ -672,11 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=tn2Pp6hklt4
 
 [00:33:38] Will: Yeah, it's like I am good, ready for dinner now. Oh, it's 11:30. Um, so probably no podcast next week then, because you are going straight from Comic Con on.
 
-[00:33:46] Norm: We'll try.
-
-[00:33:46] Norm: I would love to try.
-
-[00:33:47] Norm: Okay, I want to get the recap.
+[00:33:46] Norm: We'll try. I would love to try. Okay, I want to get the recap.
 
 [00:33:49] Will: Okay.
 

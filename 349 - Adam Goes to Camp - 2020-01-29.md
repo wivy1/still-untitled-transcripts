@@ -336,9 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:15:06] Norm: That and then you are preserving and stuffing.
 
-[00:15:08] Adam: Yep.
-
-[00:15:09] Adam: Um. I went to uh. I went to all the space themed ones this year. So Cady Coleman, who's one of my heroes of the world, she and Mary Robinette what's that?
+[00:15:08] Adam: Yep. Um. I went to uh. I went to all the space themed ones this year. So Cady Coleman, who's one of my heroes of the world, she and Mary Robinette what's that?
 
 [00:15:21] Norm: Kowal.
 
@@ -700,9 +698,7 @@ Episode URL: https://www.youtube.com/watch?v=CkQJfy2oxHQ
 
 [00:30:49] Adam: I'm just saying.
 
-[00:30:50] Will: hi,
-
-[00:30:51] Will: hello.
+[00:30:50] Will: hi, hello.
 
 [00:30:53] Norm: Just someone give us a space.
 

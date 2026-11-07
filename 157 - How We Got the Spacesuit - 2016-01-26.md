@@ -26,9 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:01:22] Adam: Really?
 
-[00:01:22] Will: Really?
-
-[00:01:25] Will: Are you taking medicine?
+[00:01:22] Will: Really? Are you taking medicine?
 
 [00:01:26] Norm: Yeah.
 
@@ -204,9 +202,7 @@ Episode URL: https://www.youtube.com/watch?v=LPi49fqsYo8
 
 [00:10:34] Adam: Well, you know, we have a funny relationship with restaurants because we're frequently going to a place where the you know the restaurant knows who I am, and sometimes people get excited and they send out other stuff, and so I, you know, I can’t, I've always tried to tell them this isn't real. This is a passing thing. This is you know this is really great. Therefore, if someone ever gives you a dish, I add that cost of the dish to the check and tip based on that, not on the number they've given me,
 
-[00:11:01] Will: and that counts if they do like a make good too, right? Like if the if the guy's like, " Hey, I'm sorry, this is taking so long. Here's an extra beer," then you tip based on the
-
-[00:11:01] Will: Yeah.
+[00:11:01] Will: and that counts if they do like a make good too, right? Like if the if the guy's like, " Hey, I'm sorry, this is taking so long. Here's an extra beer," then you tip based on the Yeah.
 
 [00:11:09] Adam: Look. Also, if you if you want some fun, get into get in the back of a taxi cab in Las Vegas and ask about celebrities who are shitty tippers. That driver will regale you with tales of cheap bastards all the way to your destination. And all I want is for someone to tell a story about the fact that I'm a great tipper. I want to go on. You know [unclear: who's ready to tip / who's driven]? Spread the word.
 

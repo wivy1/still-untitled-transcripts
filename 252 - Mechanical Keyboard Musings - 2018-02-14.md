@@ -28,9 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:01:00] Norm: where you have to tell them that you have ended this
 
-[00:01:04] Will: this transaction.
-
-[00:01:04] Will: Is done.
+[00:01:04] Will: this transaction. Is done.
 
 [00:01:05] Norm: Yes, this conversational transaction,
 
@@ -138,9 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:05:07] Adam: For extended service on some dumb shit thing that I bought, so I did a return on it.
 
-[00:05:35] Will: Oh really?
-
-[00:05:36] Will: Did it work?
+[00:05:35] Will: Oh really? Did it work?
 
 [00:05:36] Adam: I initiated. I don't know, but I initiated a return on it. I was like, I don't need it, and there's. I bought it by mistake. Is one of the choices in the pull down menu. So. Or or missile alert.
 
@@ -302,9 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:10:14] Will: There's a hole. There's there's a hole that once you go down, It started when Norm and I built. The I got him completely blanking on the name. The the columnar. You want a normal QWERTY layout too? That's the thing
 
-[00:10:14] Adam: yeah.
-
-[00:10:26] Adam: I don’t need the Dvorak.
+[00:10:14] Adam: yeah. I don’t need the Dvorak.
 
 [00:10:28] Will: No, no, no. But so you can get keyboards that are that the keys are just arrayed vertically without the stagger. Now
 
@@ -318,9 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:10:42] Adam: Yeah, no, I don't need to make it difficult.
 
-[00:10:43] Will: Okay, Thanks. we can look. Ergodox is the keyboard that Norm and I built on
-
-[00:10:43] Will: A Tested show years ago.
+[00:10:43] Will: Okay, Thanks. we can look. Ergodox is the keyboard that Norm and I built on A Tested show years ago.
 
 [00:10:49] Norm: where it's more right hand left hand.
 
@@ -346,9 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:11:11] Will: So I
 
-[00:11:12] Adam: I wanted to feel like an IBM Selectric. That's my favorite.
-
-[00:11:12] Adam: Keyboard.
+[00:11:12] Adam: I wanted to feel like an IBM Selectric. That's my favorite. Keyboard.
 
 [00:11:15] Will: We can make that happen. Yeah. I used so when I was at ord when I was at ord camp one of um uh one of the attendees does he's like a keyboard archivist he has all of the keyboards and has done history of the typewriter and has done this he did this amazing presentation about how uh the the keyboard evolved like to figure out why nobody knows why we use QWERTY other than that was the keyboard on early typewriters that became popular
 
@@ -370,9 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:11:56] Will: he I mean I'm sure that everybody has a different Different feeling.
 
-[00:12:00] Adam: Actually, no two people collect.
-
-[00:12:00] Adam: Typewriters.
+[00:12:00] Adam: Actually, no two people collect. Typewriters.
 
 [00:12:01] Norm: I was going to say, of course you do, is it is it Mister?
 
@@ -514,9 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:17:15] Norm: They're on the streams, right? The, the, the athletes themselves are tweeting, you know, mid competition.
 
-[00:17:22] Will: Well, mid airing of the competition,
-
-[00:17:23] Will: right?
+[00:17:22] Will: Well, mid airing of the competition, right?
 
 [00:17:23] Norm: So you don't have to consume it in any traditional way, but it's the traditional method that's the ritual,
 
@@ -588,9 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:21:23] Norm: Yeah, and even Even that episode of Black Mirror, Metalhead, could not imagine what we have now, which are these robotic dogs that can open doors.
 
-[00:21:31] Will: Yeah,
-
-[00:21:31] Will: It's from Count Zero, which is, I think, my favorite of those early William Gibson books.
+[00:21:31] Will: Yeah, It's from Count Zero, which is, I think, my favorite of those early William Gibson books.
 
 [00:21:35] Adam: Is that the opening line of Count Zero?
 
@@ -602,15 +586,11 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:21:50] Adam: Neuromancers are so important. I I should reread all three of those.
 
-[00:21:54] Will: I would I would go back and reread those.
-
-[00:21:54] Will: With you.
+[00:21:54] Will: I would I would go back and reread those. With you.
 
 [00:21:55] Adam: Yeah, I, you know what? I almost want to work my because Gibson's a serial trilogist.
 
-[00:22:01] Will: He
-
-[00:22:01] Will: yeah, because he did the, he did the, the Neuromancer, Count Zero, and then
+[00:22:01] Will: He yeah, because he did the, he did the, the Neuromancer, Count Zero, and then
 
 [00:22:06] Adam: Mona Lisa Overdrive, and then Virtual Light, Idoru, and All Tomorrow's Parties.
 
@@ -620,9 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:22:13] Will: I think All Tomorrow's Parties is a short story collection, isn't it? I can't remember.
 
-[00:22:16] Adam: I can't.
-
-[00:22:16] Adam: Remember.
+[00:22:16] Adam: I can't. Remember.
 
 [00:22:17] Will: I don't like those as much as I like the first one.
 
@@ -648,9 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:22:54] Adam: Yep.
 
-[00:22:55] Will: For GSM and GPRS for a while. Yeah, they all went away.
-
-[00:22:55] Will: A few years ago.
+[00:22:55] Will: For GSM and GPRS for a while. Yeah, they all went away. A few years ago.
 
 [00:22:57] Adam: Yeah, you can’t. you know, you can’t, FCC makes it totally illegal.
 
@@ -662,9 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:22:57] Adam: Oh. No, it's a totally the FCC. They could see it happening. They can see these spots happening on the cell tower triangulation, and they could they figured out that he was commuting, and it took them something like the investigation was months long, and they staked out for him, and eventually caught him.
 
-[00:23:25] Norm: That’s amazing. Wow. A dead spot in
-
-[00:23:25] Norm: The towers.
+[00:23:25] Norm: That’s amazing. Wow. A dead spot in The towers.
 
 [00:23:28] Adam: yeah, they can see it when someone turns a jammer on. They can see that that blank spot. I don't know. That strikes me as interesting. I didn't know that that was possible, but yeah, they they found him.
 
@@ -730,9 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:25:00] Adam: It makes that. It's. I've been machining all day back and forth, and that smell—it's just—it smells like work to me. I'm sorry.
 
-[00:25:07] Norm: It doesn’t come through on the camera.
-
-[00:25:09] Norm: Smell-O-Vision.
+[00:25:07] Norm: It doesn’t come through on the camera. Smell-O-Vision.
 
 [00:25:10] Adam: Now in smellovision. Scratch number eight on your card for hot aluminum.
 
@@ -774,9 +746,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:26:49] Adam: How much are these things?
 
-[00:26:51] Norm: $2,500, and it will fly and follow you or be in front of you and avoid trees and branches. And we could not get crash.
-
-[00:26:59] Norm: Like playing hide and seek with the drone.
+[00:26:51] Norm: $2,500, and it will fly and follow you or be in front of you and avoid trees and branches. And we could not get crash. Like playing hide and seek with the drone.
 
 [00:27:01] Will: They were running like the the demo videos. Like one of the demo videos that I saw, my friend Kyle posted him. Starting at the new stadium site down in in the Mission Bay, and running up to the Giant Stadium, and it's like going like it it just tracks him, and it avoids light poles, it avoids It avoids, like power lines, the whole thing, all the way up there on a bicycle, bicycle speed.
 
@@ -796,9 +766,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:27:34] Adam: That's insane.
 
-[00:27:34] Will: I can't wait.
-
-[00:27:35] Will: Yeah, the well, they're shipping in two weeks, so get your order in now.
+[00:27:34] Will: I can't wait. Yeah, the well, they're shipping in two weeks, so get your order in now.
 
 [00:27:38] Norm: Okay,
 
@@ -818,9 +786,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:28:12] Adam: She's
 
-[00:28:13] Will: it's a clerical mistake.
-
-[00:28:14] Will: Look, my name's Will Smith. They got the wrong Will Smith. Yeah.
+[00:28:13] Will: it's a clerical mistake. Look, my name's Will Smith. They got the wrong Will Smith. Yeah.
 
 [00:28:17] Norm: There you go.
 
@@ -842,9 +808,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:29:31] Adam: Yeah,
 
-[00:29:24] Will: and and so she's she's pretty committed to not getting kicked out of this place in the beginning. And and it became it's really clear that there’s going to be a brinksmanship thing that goes on as the show. I watched two.
-
-[00:29:24] Will: Episodes.
+[00:29:24] Will: and and so she's she's pretty committed to not getting kicked out of this place in the beginning. And and it became it's really clear that there’s going to be a brinksmanship thing that goes on as the show. I watched two. Episodes.
 
 [00:29:43] Norm: So will next that is this is so fascinating.
 
@@ -854,9 +818,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:29:48] Adam: we've been to the other side of the looking glass.
 
-[00:29:50] Will: Yeah, so
-
-[00:29:50] Will: I have a theory,
+[00:29:50] Will: Yeah, so I have a theory,
 
 [00:29:51] Norm: and we want to hear your theory.
 
@@ -880,21 +842,15 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:31:01] Norm: So,
 
-[00:31:02] Will: but I did not feel like it was a binging thing. It's like if I'm sitting up at midnight.
+[00:31:02] Will: but I did not feel like it was a binging thing. It's like if I'm sitting up at midnight. I'll watch.
 
-[00:31:02] Will: I'll watch.
-
-[00:31:06] Adam: I was super compelled.
-
-[00:31:06] Adam: Once I heard about the spoiler,
+[00:31:06] Adam: I was super compelled. Once I heard about the spoiler,
 
 [00:31:07] Will: but my theory after watching the first two episodes is that much as we learned in the second and third Matrix, sorry, speculative spoilers here. I guess I don't know.
 
 [00:31:17] Adam: I guess so.
 
-[00:31:18] Will: I felt like every one of those communities probably has somebody who's not supposed to be there to kind of balance things out and keep the whole thing.
-
-[00:31:18] Will: Even keel.
+[00:31:18] Will: I felt like every one of those communities probably has somebody who's not supposed to be there to kind of balance things out and keep the whole thing. Even keel.
 
 [00:31:25] Adam: That's really good. I love that idea. That's that's a nifty one. It’s wrong, but it’s awesome.
 
@@ -1096,9 +1052,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:37:37] Adam: Yeah. Yeah. And so, computers at this point in the future are no longer you buy new ones every year. You just have a case and you upgrade the components as needed.
 
-[00:37:46] Will: And so, computers in the current work just for the
-
-[00:37:46] Will: Record.
+[00:37:46] Will: And so, computers in the current work just for the Record.
 
 [00:37:48] Adam: laptops.
 
@@ -1118,13 +1072,9 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:39:02] Adam: how. All right.
 
-[00:39:03] Will: That
+[00:39:03] Will: That was awesome. Anything special on the site.
 
-[00:39:04] Will: was awesome. Anything special on the site.
-
-[00:39:05] Norm: Yeah.
-
-[00:39:05] Norm: We are ramping up on all of our Aardman animations coverage.
+[00:39:05] Norm: Yeah. We are ramping up on all of our Aardman animations coverage.
 
 [00:39:09] Adam: And actually, some of the lovely folks from Aardman were just here in the cave. You might see some photos of all of us in the Twitter feed.
 
@@ -1142,9 +1092,7 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:39:34] Norm: Yeah.
 
-[00:39:34] Will: Yes.
-
-[00:39:35] Will: A Skydio video tomorrow.
+[00:39:34] Will: Yes. A Skydio video tomorrow.
 
 [00:39:36] Norm: Skydio video. Maybe. Yeah. Right after you watch this podcast, you check that out.
 
@@ -1156,8 +1104,4 @@ Episode URL: https://www.youtube.com/watch?v=uO82pLisKA0
 
 [00:39:43] Will: Bye.
 
-[00:39:44] Norm: Bye.
-
-[00:39:44] Norm: Bye.
-
-[00:39:44] Norm: We'll see you next week.
+[00:39:44] Norm: Bye. Bye. We'll see you next week.

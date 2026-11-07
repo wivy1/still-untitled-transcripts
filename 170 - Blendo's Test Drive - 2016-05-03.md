@@ -168,9 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:06:05] Norm: So it's just like that Anna Kendrick movie.
 
-[00:06:07] Will: Yeah, I was going to say we've all seen Pitch Perfect.
-
-[00:06:08] Will: How close?
+[00:06:07] Will: Yeah, I was going to say we've all seen Pitch Perfect. How close?
 
 [00:06:09] Adam: No, it's exactly like this. Okay, it's totally. It was. It was amazing. We finished out the weekend in Memphis, at we went to the Civil Rights Museum.
 
@@ -230,9 +228,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:08:09] Will: Cleveland is one of those cities that has been hit hard by the manufacturing, the the loss of manufacturing jobs, and and all that.
 
-[00:08:15] Adam: Right. Cleveland was the city hit hardest by the by the mortgage crisis.
-
-[00:08:20] Adam: They lost more buildings than any other. And we were talking to them about this, you know, and like Philly or something. There's all these abandoned buildings. All Detroit. The difference is is that in Philly and Detroit, a lot of those buildings are brick, so they're not taken down because it's really expensive. In Cleveland, yeah, it's just empty lots everywhere.
+[00:08:15] Adam: Right. Cleveland was the city hit hardest by the by the mortgage crisis. They lost more buildings than any other. And we were talking to them about this, you know, and like Philly or something. There's all these abandoned buildings. All Detroit. The difference is is that in Philly and Detroit, a lot of those buildings are brick, so they're not taken down because it's really expensive. In Cleveland, yeah, it's just empty lots everywhere.
 
 [00:08:39] Will: They just bulldoze warehouses.
 
@@ -290,9 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=_ykZrkanexM
 
 [00:11:40] Adam: I know it's open and
 
-[00:11:41] Will: just go.
-
-[00:11:42] Will: That's awesome.
+[00:11:41] Will: just go. That's awesome.
 
 [00:11:42] Adam: You just go.
 

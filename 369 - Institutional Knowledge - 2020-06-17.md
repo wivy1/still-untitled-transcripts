@@ -352,9 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:27:58] Will: Wow!
 
-[00:27:58] Norm: Oh, wow!
-
-[00:27:59] Norm: You're just going back to the the warmer.
+[00:27:58] Norm: Oh, wow! You're just going back to the the warmer.
 
 [00:28:00] Will: You're kind of a fan of that, huh?
 
@@ -378,15 +376,11 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:29:43] Norm: And talk about a relevant film today.
 
-[00:29:45] Adam: Yeah.
-
-[00:29:46] Adam: Yeah. Yeah. And yeah. And and Ebert really walks you through. I mean, as he's such a lover of film, he's such a. There's no there's no pretense about how much he loves it, and that just makes it really enjoyable to listen to his commentary about almost anything.
+[00:29:45] Adam: Yeah. Yeah. Yeah. And yeah. And and Ebert really walks you through. I mean, as he's such a lover of film, he's such a. There's no there's no pretense about how much he loves it, and that just makes it really enjoyable to listen to his commentary about almost anything.
 
 [00:30:04] Norm: Citizen Kane is the other one where he did an amazing, amazing commentary. It's so good.
 
-[00:30:08] Adam: Really? Really?
-
-[00:30:09] Adam: I've never seen that.
+[00:30:08] Adam: Really? Really? I've never seen that.
 
 [00:30:11] Will: Citizen Kane or the commentary?
 
@@ -426,17 +420,13 @@ Episode URL: https://www.youtube.com/watch?v=qohSVC27JZc
 
 [00:33:08] Will: I I mean, I wish that some of those Marvel movies actually. It's one of the things that they don't do on the Marvel movies very much is commentary tracks, and I I I feel like they've kind of faded off as we move towards streaming.
 
-[00:33:18] Adam: And I miss that.
-
-[00:33:19] Adam: I really really miss it. And it was occurring to me that we should do another unauthorized commentary simply because I want to put more commentaries out into the world.
+[00:33:18] Adam: And I miss that. I really really miss it. And it was occurring to me that we should do another unauthorized commentary simply because I want to put more commentaries out into the world.
 
 [00:33:28] Will: Uh, It turns out now you can watch together on Plex and it will sync up everybody's playing at the same time. So if it's something we have on backlog, we it's we've used that a lot lately.
 
 [00:33:39] Norm: Prime Prime.
 
-[00:33:40] Will: So there there's.
-
-[00:33:41] Will: Prime and Plex also.
+[00:33:40] Will: So there there's. Prime and Plex also.
 
 [00:33:42] Adam: There, there's a there's an ILM a, a group of ILMers that's been getting together and having Zoom parties, and I joined in one weekend a couple of weeks ago. And I was thinking, you know, this would be fun maybe to bring in an, a, an effects guy, one of my old colleagues, as part of one of these unauthorized commentaries, to add some real perspective. Because it was like, I was in the model shop, and we didn't talk a lot about the shows that we worked on. But when you hang out with the effects directors and art directors of those movies, that's all you end up talking about. There's all this really awesome, extra stuff around who first drew that piece and when the director came up with this and how this bit got added in. It's like there's really cool history.
 

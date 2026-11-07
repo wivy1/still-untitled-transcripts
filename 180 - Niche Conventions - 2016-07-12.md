@@ -88,9 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:03:28] Rebecca: That's a that's so cool.
 
-[00:03:29] Adam: Boom.
-
-[00:03:29] Adam: Yeah, and there was an extra seat, so three people.
+[00:03:29] Adam: Boom. Yeah, and there was an extra seat, so three people.
 
 [00:03:33] Norm: Yeah,
 
@@ -98,9 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:03:33] Adam: like less than $2,000. That's totally reasonable way to get to Fresno.
 
-[00:03:36] Rebecca: Oh my god, do you guys want to go to Fresno right now?
-
-[00:03:38] Rebecca: Yeah, turn off the cameras. We're going to Fresno. That's awesome.
+[00:03:36] Rebecca: Oh my god, do you guys want to go to Fresno right now? Yeah, turn off the cameras. We're going to Fresno. That's awesome.
 
 [00:03:44] Adam: It was
 
@@ -108,9 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:03:46] Adam: It was. It's literally the only distance and maybe state at which that that distance and cost works out.
 
-[00:03:46] Norm: That must work.
-
-[00:03:53] Norm: Right. Yeah.
+[00:03:46] Norm: That must work. Right. Yeah.
 
 [00:03:55] Rebecca: That's super.
 
@@ -162,9 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:05:12] Norm: for later.
 
-[00:05:12] Rebecca: For later.
-
-[00:05:13] Rebecca: Was she okay?
+[00:05:12] Rebecca: For later. Was she okay?
 
 [00:05:14] Adam: Yeah, she was fine. We had her stomach pumped.
 
@@ -272,11 +264,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:08:56] Rebecca: Yeah.
 
-[00:08:56] Adam: Thank you for remembering.
-
-[00:08:56] Adam: this, because
-
-[00:08:56] Adam: I totally didn't.
+[00:08:56] Adam: Thank you for remembering. this, because I totally didn't.
 
 [00:08:59] Rebecca: Yeah. Yeah.
 
@@ -376,11 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:13:31] Adam: I could have. And I was—
 
-[00:13:34] Rebecca: what a way to go though,
-
-[00:13:36] Rebecca: On your tombstone.
-
-[00:13:37] Rebecca: impaled on his own Strandbeest.
+[00:13:34] Rebecca: what a way to go though, On your tombstone. impaled on his own Strandbeest.
 
 [00:13:39] Adam: Even my mom would be proud, I think. Yeah, and it worked. I was able to actually pedal my base while riding on top of it, which was totally a thrilling way to go.
 
@@ -488,17 +472,13 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:18:12] Rebecca: I mean, can't you just wipe your hand on your jeans?
 
-[00:18:16] Adam: Once you get the
-
-[00:18:16] Adam: no,
+[00:18:16] Adam: Once you get the no,
 
 [00:18:16] Rebecca: no,
 
 [00:18:16] Adam: no.
 
-[00:18:16] Rebecca: Okay.
-
-[00:18:20] Rebecca: Well, that's that's the difference between a serious pool player
+[00:18:16] Rebecca: Okay. Well, that's that's the difference between a serious pool player
 
 [00:18:20] Adam: It is.
 
@@ -596,11 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:22:55] Adam: When I come out of that scanner,
 
-[00:22:56] Rebecca: The international sign for.
-
-[00:22:56] Rebecca: By the way, I do this.
-
-[00:22:56] Rebecca: Yeah, civil rights. Yeah. Oh, yeah.
+[00:22:56] Rebecca: The international sign for. By the way, I do this. Yeah, civil rights. Yeah. Oh, yeah.
 
 [00:22:59] Adam: It turns out like something like half of people do that.
 
@@ -774,9 +750,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:29:15] Rebecca: Mm-hmm.
 
-[00:29:15] Adam: 49.
-
-[00:29:15] Adam: Yeah.
+[00:29:15] Adam: 49. Yeah.
 
 [00:29:15] Rebecca: Yeah.
 
@@ -896,9 +870,7 @@ Episode URL: https://www.youtube.com/watch?v=7uK1f9aWby8
 
 [00:32:23] Rebecca: I can't think of the name of any other Pokemon.
 
-[00:32:26] Adam: My favorite story about Pokemon Go is the armed robber who waited in a field for people
-
-[00:32:32] Adam: to come looking for Pokemon and robbed several of them.
+[00:32:26] Adam: My favorite story about Pokemon Go is the armed robber who waited in a field for people to come looking for Pokemon and robbed several of them.
 
 [00:32:34] Rebecca: They weren't.
 

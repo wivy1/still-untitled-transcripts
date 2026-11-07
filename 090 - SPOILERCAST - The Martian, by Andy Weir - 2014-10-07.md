@@ -80,9 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:02:21] Adam: This time,
 
-[00:02:22] Norm: this time it's personal. It's a different kind of spoiler cast because this is about a book.
-
-[00:02:25] Norm: Yeah.
+[00:02:22] Norm: this time it's personal. It's a different kind of spoiler cast because this is about a book. Yeah.
 
 [00:02:26] Adam: Yes,
 
@@ -142,9 +140,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:05:15] Adam: Let's talk about the book. The broad strokes are: it's an American astronaut stranded on Mars.
 
-[00:05:18] Will: The opening. It has, I think, one of my favorite opening lines of all time, which is just, " I'm pretty much fucked."
-
-[00:05:18] Will: Yeah.
+[00:05:18] Will: The opening. It has, I think, one of my favorite opening lines of all time, which is just, " I'm pretty much fucked." Yeah.
 
 [00:05:18] Adam: Well, I’m pretty much fucked.
 
@@ -176,9 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:06:04] Will: The most hostile
 
-[00:06:06] Adam: Yeah.
-
-[00:06:06] Adam: environment. And as we talk about this, understand that in this book, every last bit of the technology that's explained how an antenna hits him in the side, knocks him out, makes his suit lose pressure. But because he falls on the antenna, his his suit keeps enough pressure. He bleeds into the hole that's leaking air enough to actually keep him alive until he wakes up from having passed out to find that his crew has actually left him thinking he's dead because the antenna also pierced his life support transmitter. Right, and they all got readings that he was dead.
+[00:06:06] Adam: Yeah. environment. And as we talk about this, understand that in this book, every last bit of the technology that's explained how an antenna hits him in the side, knocks him out, makes his suit lose pressure. But because he falls on the antenna, his his suit keeps enough pressure. He bleeds into the hole that's leaking air enough to actually keep him alive until he wakes up from having passed out to find that his crew has actually left him thinking he's dead because the antenna also pierced his life support transmitter. Right, and they all got readings that he was dead.
 
 [00:06:38] Will: They saw his signs drop off. They looked for him for a few minutes, and then they had to go their escape ship, or they were going to die.
 
@@ -202,9 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:07:38] Adam: Well, and so it's yeah, it's a journal or it's recorded, but it's basically as he's trying to survive, he recognizes that this. The chronicle of his survival will be interesting to somebody else who comes to Mars. So, for posterity, he's recording it, and it all—it's a very honest voice.
 
-[00:07:38] Will: Well, but
-
-[00:07:56] Will: but I think it starts out that way, and I think about let's say because he's on. We're going to spoil here.
+[00:07:38] Will: Well, but but I think it starts out that way, and I think about let's say because he's on. We're going to spoil here.
 
 [00:07:56] Adam: Yeah.
 
@@ -290,9 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:11:06] Will: seems like the handyman,
 
-[00:11:06] Adam: the materials engineer.
-
-[00:11:08] Adam: Yeah. And both of those turn out to be critical to his survival.
+[00:11:06] Adam: the materials engineer. Yeah. And both of those turn out to be critical to his survival.
 
 [00:11:11] Norm: And he's also personality-wise, the the jokester.
 
@@ -436,9 +426,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:17:09] Adam: his own poop, his night soil.
 
-[00:17:11] Norm: Night soil, yes.
-
-[00:17:11] Norm: His problem is become surface area.
+[00:17:11] Norm: Night soil, yes. His problem is become surface area.
 
 [00:17:11] Adam: Yeah.
 
@@ -516,9 +504,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:20:04] Adam: No, it's and the only bit, the only
 
-[00:20:07] Will: bit that he
-
-[00:20:07] Will: It is actually.
+[00:20:07] Will: bit that he It is actually.
 
 [00:20:08] Adam: doesn't quite explain is he talks about the EVA suits now being pretty trivial to move around in.
 
@@ -532,9 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:20:23] Norm: Could also like load up boulders.  and actually do mechanical work.
 
-[00:20:23] Adam: Yeah, no, no, no. And he says that in the beginning.
-
-[00:20:26] Adam: He's like, " Oh, that's the one thing we've really improved as EVA suits," but he doesn't say how.
+[00:20:23] Adam: Yeah, no, no, no. And he says that in the beginning. He's like, " Oh, that's the one thing we've really improved as EVA suits," but he doesn't say how.
 
 [00:20:30] Will: You've seen one. Well, I mean, but but there's work going on at NASA right now toward that end. That is the end goal of the current work on  suits.
 
@@ -568,11 +552,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:21:09] Norm: those seem like a little. The fact that you have interior space, and
 
-[00:21:16] Adam: again, though, when he's talking about it, remember he says it takes 250 seconds to get through to drill a hole, each hole through the fiberglass shell, which means it's got to be. Dimensionally super thick at the same time as it's lightweight, so it's layers of carbon fiber and some filler in order to be
-
-[00:21:37] Adam: able to maintain an
-
-[00:21:38] Adam: atmosphere. Right.
+[00:21:16] Adam: again, though, when he's talking about it, remember he says it takes 250 seconds to get through to drill a hole, each hole through the fiberglass shell, which means it's got to be. Dimensionally super thick at the same time as it's lightweight, so it's layers of carbon fiber and some filler in order to be able to maintain an atmosphere. Right.
 
 [00:21:39] Norm: I think that from a mission standpoint, I know you need for the story, and they're at the point where they can build habitats on Mars, which is amazing. But sending two rovers per mission.
 
@@ -632,9 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:24:03] Norm: so brilliant. Like to explain in a way where you can imagine NASA engineers not thinking about this because they were rushing.
 
-[00:24:03] Adam: Right, and
-
-[00:24:10] Adam: it's a very small thing, and
+[00:24:03] Adam: Right, and it's a very small thing, and
 
 [00:24:12] Will: it's a couple small things that cascade. Yeah,
 
@@ -642,9 +620,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:24:27] Will: I was going to ask,
 
-[00:24:27] Adam: totally like, oh, it's
-
-[00:24:28] Adam: so great!
+[00:24:27] Adam: totally like, oh, it's so great!
 
 [00:24:29] Norm: He blurb the back of the book.
 
@@ -770,9 +746,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:29:26] Will: I think that's pretty accurate.
 
-[00:29:26] Adam: I think the
-
-[00:29:27] Adam: movie's going to end up being. Almost like 50-50, if not a little more on Earth,
+[00:29:26] Adam: I think the movie's going to end up being. Almost like 50-50, if not a little more on Earth,
 
 [00:29:32] Norm: because you need the supporting  cast.
 
@@ -784,9 +758,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:29:37] Will: Like, if all of a sudden the airlock just blows off for no reason, the hab depressurizes. You're gonna be like, " Well, that what what what caused that?"
 
-[00:29:37] Adam: I wish.
-
-[00:29:54] Adam: Right now, right now, more than almost anything else, I want to see the art department's pre-production design for the
+[00:29:37] Adam: I wish. Right now, right now, more than almost anything else, I want to see the art department's pre-production design for the
 
 [00:30:02] Norm: rover, the trailer and the rover,
 
@@ -1024,9 +996,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:40:00] Will: Mark Ruffalo.
 
-[00:40:02] Adam: Uh.
-
-[00:40:03] Adam: It’s everyman. Ruffalo, yeah, could be it.
+[00:40:02] Adam: Uh. It’s everyman. Ruffalo, yeah, could be it.
 
 [00:40:04] Will: Well, here's the thing: astronauts aren't young people.
 
@@ -1098,13 +1068,9 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:41:14] Norm: He's he's the point of contact for.  Hermes.
 
-[00:41:22] Will: Well, but that's
+[00:41:22] Will: Well, but that's It’s told from the other guy's perspective.
 
-[00:41:23] Will: It’s told from the other guy's perspective.
-
-[00:41:23] Adam: Mitch would be
-
-[00:41:25] Adam: an older guy.
+[00:41:23] Adam: Mitch would be an older guy.
 
 [00:41:25] Will: The administrator.
 
@@ -1156,9 +1122,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:42:31] Norm: And then, then the whole crew. There's a whole
 
-[00:42:31] Adam: Right, the
-
-[00:42:33] Adam: whole crew of the  Hermes.
+[00:42:31] Adam: Right, the whole crew of the  Hermes.
 
 [00:42:34] Norm: You have Lewis,
 
@@ -1224,9 +1188,7 @@ Episode URL: https://www.youtube.com/watch?v=CA6L0bWLAxQ
 
 [00:43:42] Will: Yeah, it's all out there. And that'll do it for us today, I suppose. I think we've talked about this. we’ve talked about this.
 
-[00:43:42] Adam: I really
-
-[00:43:53] Adam: think we've talked about it  enough.
+[00:43:42] Adam: I really think we've talked about it  enough.
 
 [00:43:54] Will: I feel like we've covered it. You should. Okay, you shouldn't have listened to this if you haven't read the book yet. But but you'll still
 

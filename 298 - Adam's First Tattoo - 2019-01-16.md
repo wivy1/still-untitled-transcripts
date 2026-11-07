@@ -22,17 +22,11 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:00:10] Norm: Isn't just the two of us?
 
-[00:00:12] Adam: Yeah, it is. It's an old '70s, '80s song. Just the two of us.
-
-[00:00:18] Adam: I'm going to put my phone on stun.
+[00:00:12] Adam: Yeah, it is. It's an old '70s, '80s song. Just the two of us. I'm going to put my phone on stun.
 
 [00:00:21] Norm: We are recording.
 
-[00:00:22] Adam: Hold on, just a second.
-
-[00:00:25] Adam: Yes, but much later.
-
-[00:00:30] Adam: Okay, sorry.
+[00:00:22] Adam: Hold on, just a second. Yes, but much later. Okay, sorry.
 
 [00:00:32] Norm: Should we start from the beginning?
 
@@ -194,21 +188,15 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:09:20] Adam: You would have you'd have the Adam West Batman logo logo, Yeah, yeah. and then if you had it in the set in in the '80s, you do Tim Burton in the '90s. Well, I mean, there must be some people who love all the Joel Schumacher Batman films,
 
-[00:09:33] Norm: right?
-
-[00:09:35] Norm: You could get the nipples tattooed on.
+[00:09:33] Norm: right? You could get the nipples tattooed on.
 
 [00:09:38] Adam: Um, uh, who we talked about that already. I work. I worked with the guy who sculpted the nipples. Jose?
 
-[00:09:45] Norm: Oh, no,
-
-[00:09:45] Norm: yeah, yeah, yeah, yeah. From from Ironhead Studio.
+[00:09:45] Norm: Oh, no, yeah, yeah, yeah, yeah. From from Ironhead Studio.
 
 [00:09:47] Adam: Yeah,
 
-[00:09:47] Norm: yeah. I mean, the the idea, like I know, gets a lot of flack, but. The idea, the direction he was given, an idea he came up with was like a callback to like Roman armor, the
-
-[00:10:00] Norm: gladiator.
+[00:09:47] Norm: yeah. I mean, the the idea, like I know, gets a lot of flack, but. The idea, the direction he was given, an idea he came up with was like a callback to like Roman armor, the gladiator.
 
 [00:10:00] Adam: Understood,
 
@@ -296,9 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:14:21] Norm: Well, and I'll go deeper on that. And I was thinking about that earlier, and a lot of that is because, and maybe Zack Snyder, because like his films, 300, Watchmen, and to some extent Batman v Superman, he used the graphic novels, used the comic books as his storyboards, right? And in comics, the spaces in between the panels are very important and happen in your imagination,
 
-[00:14:47] Adam: right?
-
-[00:14:48] Adam: Right.
+[00:14:47] Adam: right? Right.
 
 [00:14:48] Norm: And he didn't fulfill. Those spaces in between the panels.
 
@@ -334,15 +320,11 @@ Episode URL: https://www.youtube.com/watch?v=yzHkuewYZE0
 
 [00:17:17] Norm: It's the same based on the same character. Yeah, yeah. There, I think there is like a fake Chance the rapper because they they play with like alternate universe. like the fake Coca-Cola.
 
-[00:17:25] Adam: Yes, so what it is is that Chance. Forgive my lack of knowledge because I'm old, but Chance I think plays around with the number three, and they change it to the number four. So again, it's like it's a slightly different timeline.
-
-[00:18:58] Adam: Another thing that about this movie that I found interesting, being in my 50s, is the talk show with Hasan Minhaj.
+[00:17:25] Adam: Yes, so what it is is that Chance. Forgive my lack of knowledge because I'm old, but Chance I think plays around with the number three, and they change it to the number four. So again, it's like it's a slightly different timeline. Another thing that about this movie that I found interesting, being in my 50s, is the talk show with Hasan Minhaj.
 
 [00:19:07] Norm: Yes. Oh, oh, what is that called? It's on Netflix.
 
-[00:19:12] Adam: Yeah, it's Patriot Act.
-
-[00:19:13] Adam: Okay, so this is a highly produced, really lovely talk show. Hasan Minhaj is incredibly charismatic. He is covering complicated and deep news news stories in a in a in a kind of a.
+[00:19:12] Adam: Yeah, it's Patriot Act. Okay, so this is a highly produced, really lovely talk show. Hasan Minhaj is incredibly charismatic. He is covering complicated and deep news news stories in a in a in a kind of a.
 
 [00:19:30] Norm: It's a comedy news show. Yeah, it's like a riff on like what what Daily Show and John Oliver is doing.
 

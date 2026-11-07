@@ -14,9 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:00:32] Adam: Hello, Melissa Ng and Kayte Sabicer. How are you guys?
 
-[00:00:36] Melissa: Good.
-
-[00:00:36] Melissa: Good.
+[00:00:36] Melissa: Good. Good.
 
 [00:00:37] Kayte: Doing well.
 
@@ -126,9 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:04:30] Melissa: So it might have explained a little bit to to some people. I don't know. A lot of people aren't aware, but you know, there is the the music center company that my sisters and I run. So that's kind of like my daytime life. From we, I wake up, you know, start at seven. The company, the music school, in Queens, that's family business. The family, my sisters and I, we are there from. From morning until maybe eight PM, but in between then, I also try to find time to work on Lumecluster, and so then I might work. Oops, sorry. I might work on that maybe till midnight or three.
 
-[00:04:30] Adam: Wow.
-
-[00:04:30] Adam: You're obsessed.
+[00:04:30] Adam: Wow. You're obsessed.
 
 [00:04:30] Kayte: Commitment.
 
@@ -200,11 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:10:43] Adam: Yeah.
 
-[00:10:43] Melissa: thinking because those are still two separate companies. You're working with students and teachers and pianos and stuff. Lumecluster is. Fantasy armor,
-
-[00:10:49] Melissa: yeah,
-
-[00:10:52] Melissa: totally similar, right? It's totally similar, but but it's also like you know those interruptions and maybe I shouldn't say interruptions, but those shifts can also really be a drag sometimes. But still, things have to be done. But people think that you know it's got to be. They think it's just a switch.
+[00:10:43] Melissa: thinking because those are still two separate companies. You're working with students and teachers and pianos and stuff. Lumecluster is. Fantasy armor, yeah, totally similar, right? It's totally similar, but but it's also like you know those interruptions and maybe I shouldn't say interruptions, but those shifts can also really be a drag sometimes. But still, things have to be done. But people think that you know it's got to be. They think it's just a switch.
 
 [00:11:11] Adam: Yeah, you're supposed to just go gear switching is maybe the most tiring thing.
 
@@ -414,11 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:31:55] Norm: So they did it for two nights on the 19th and the 22nd. Ran for almost two hours. I think the second night they may have they may have filmed it.
 
-[00:32:01] Kayte: I hope did they? I
-
-[00:32:02] Kayte: maybe
-
-[00:32:03] Kayte: they were able to raise some money through this.
+[00:32:01] Kayte: I hope did they? I maybe they were able to raise some money through this.
 
 [00:32:04] Norm: The Variety article retweet.
 
@@ -540,9 +528,7 @@ Episode URL: https://www.youtube.com/watch?v=p3KE2YivUhA
 
 [00:37:56] Adam: I do. My book, Every Tool's a Hammer: Life is What You Make It, comes out on May 7, but you can pre-order your copy now, and I encourage you to. You can. We also have a sweepstakes that you can enter. AdamSavageBook dot com. Also, the new Savage Industries T-shirts are available on CottonBureau dot com.
 
-[00:38:16] Kayte: I gotta get one of those.
-
-[00:38:17] Kayte: Yeah,
+[00:38:16] Kayte: I gotta get one of those. Yeah,
 
 [00:38:17] Adam: we'll make sure we get a whole bunch here for various tested extended family. Yeah, and in once as soon as I am done with production on this show, which again we still have not settled on a title or an air date yet, but it's soon. Then I go out on the book tour, heading around the United States, and I. This is both the best and most difficult show I've ever made. I am really excited about it, and I also cannot wait to go out and just talk and take questions and talk about this this book that I wrote. I am really excited.
 

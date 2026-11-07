@@ -26,9 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:01:02] Adam: yeah,
 
-[00:01:02] Norm: right. You have purposeful in Burbank Airport.
-
-[00:01:03] Norm: Ooh.
+[00:01:02] Norm: right. You have purposeful in Burbank Airport. Ooh.
 
 [00:01:05] Adam: I also had this little moment where, you know, the invitation said starts at five p.m. So I showed up at like 5:08, which meant that I was late.
 
@@ -64,9 +62,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:02:14] Adam: the other joke on Twitter was how many of you have dated a Mandalorian only to discover that he was a boy Delorean?
 
-[00:02:21] Norm: Oh,
-
-[00:02:23] Norm: nice, nice. Well, you needed the the bat mitzvah Delorean.
+[00:02:21] Norm: Oh, nice, nice. Well, you needed the the bat mitzvah Delorean.
 
 [00:02:27] Will: Before we spoiler, can we talk about Pistol Whip?
 
@@ -74,9 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:02:31] Will: Okay.
 
-[00:02:31] Adam: Yeah,
-
-[00:02:31] Adam: let's talk about Pistol Whip.
+[00:02:31] Adam: Yeah, let's talk about Pistol Whip.
 
 [00:02:32] Will: Because I beat, uh, I beat levels on hard last night for the first time.
 
@@ -112,9 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:03:22] Will: you have like a little deck, or you can go up on the roof, which seems ill advised.
 
-[00:03:25] Adam: That's not
-
-[00:03:26] Adam: that seems very ill advised.
+[00:03:25] Adam: That's not that seems very ill advised.
 
 [00:03:27] Will: But you know you could go to the park after dusk.
 
@@ -122,9 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:03:30] Will: Oh no, Okay.
 
-[00:03:31] Adam: No.
-
-[00:03:31] Adam: I do you want? Sorry, that's way too vulnerable for me to put on something that inhibits my ability to see and hear in a public space.
+[00:03:31] Adam: No. I do you want? Sorry, that's way too vulnerable for me to put on something that inhibits my ability to see and hear in a public space.
 
 [00:03:37] Will: You'd have to have a minder. I think you'd have to have somebody with you.
 
@@ -146,13 +136,9 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:04:17] Adam: two guns feels more awesome and less awesome?
 
-[00:04:20] Will: It's way harder.
+[00:04:20] Will: It's way harder. It's but also not as hard in a weird way.
 
-[00:04:21] Will: It's but also not as hard in a weird way.
-
-[00:04:24] Adam: Yes. Yeah.
-
-[00:04:25] Adam: There are aspects. Look, the the two and four shot dudes are trivial with two guns.
+[00:04:24] Adam: Yes. Yeah. There are aspects. Look, the the two and four shot dudes are trivial with two guns.
 
 [00:04:30] Will: I I find I'm using the two guns for like left left arm left side right side.
 
@@ -174,9 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:05:10] Adam: Yeah, I am hitting 80 pretty consistently.
 
-[00:05:14] Norm: Yeah,
-
-[00:05:14] Norm: I think it's it gives me an unrealistic expectation if I ever do paintball of how accurate I can be. Although the leg work will prep you because a lot of paintball is crouching.
+[00:05:14] Norm: Yeah, I think it's it gives me an unrealistic expectation if I ever do paintball of how accurate I can be. Although the leg work will prep you because a lot of paintball is crouching.
 
 [00:05:23] Will: This is just straight lunges for me. I am like I I assume the like the three point stance position with two feet ready to go down on the third if I need to.
 
@@ -184,9 +168,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:05:32] Will: Yeah,
 
-[00:05:32] Adam: yeah.
-
-[00:05:33] Adam: I also end up doing a lot of like rotating the whole top half of my body on a kind of a regular basis, so that you have it. They have a chance to aim and then miss me as I am. Yeah, exactly. Well,
+[00:05:32] Adam: yeah. I also end up doing a lot of like rotating the whole top half of my body on a kind of a regular basis, so that you have it. They have a chance to aim and then miss me as I am. Yeah, exactly. Well,
 
 [00:05:44] Norm: you're nailing it,
 
@@ -258,9 +240,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:08:59] Will: Why do people wear masks? Yeah,
 
-[00:09:00] Adam: Oh,
-
-[00:09:01] Adam: fascinating.
+[00:09:00] Adam: Oh, fascinating.
 
 [00:09:01] Will: Comes back to it.
 
@@ -270,11 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:09:13] Norm: This is very clear.
 
-[00:09:13] Will: Maybe they didn’t.
-
-[00:09:14] Will: Yeah.
-
-[00:09:14] Will: I I I bounced off of leftovers in the first season just because I had too much other stuff going on. I I think I'm going to go back and watch it
+[00:09:13] Will: Maybe they didn’t. Yeah. I I I bounced off of leftovers in the first season just because I had too much other stuff going on. I I think I'm going to go back and watch it
 
 [00:09:24] Unknown speaker: You should.
 
@@ -356,9 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:12:26] Will: yeah. It's it's a it's just there's so much there like it's just I can watch each episode multiple times and find new things every single time. Yeah. Anyway,
 
-[00:12:36] Adam: so awesome.
-
-[00:14:31] Adam: Okay. And then moving on from there to Disney Plus's new show,
+[00:12:36] Adam: so awesome. Okay. And then moving on from there to Disney Plus's new show,
 
 [00:14:33] Norm: yes,
 
@@ -376,9 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:14:50] Adam: So we're going to talk about it in a spoiler-free. We may talk about some broad strokes, but we will not talk about plot points. We may talk about a character here or there, but for the most part, we will
 
-[00:15:00] Norm: Yes,
-
-[00:15:00] Norm: more about the way that they’re approached to making this serialized television, Star Wars.
+[00:15:00] Norm: Yes, more about the way that they’re approached to making this serialized television, Star Wars.
 
 [00:15:04] Adam: But the first thing you need to know is that it's really clear that this series seems to be going in a lone wolf and cub direction. Now, famously, Lucas based a lot of the plot of the original Star Wars films on Japanese samurai films,
 
@@ -388,9 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:15:39] Will: Good God!
 
-[00:15:39] Adam: And it was also a television series as well.
-
-[00:15:42] Adam: And a
+[00:15:39] Adam: And it was also a television series as well. And a
 
 [00:15:42] Norm: manga. And yeah,
 
@@ -454,13 +424,9 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:19:51] Adam: right?
 
-[00:19:53] Will: It's the the thing that I love about this is they took something that's familiar, you know, the Boba Fett armor that has massive extended universe stories, and I get I guess the Jango Fett if we want to talk about that. But but they take this this Concept of like the warrior caste, and instead of like filling in a plot hole, right? Which Star Wars has tended to do recently. Like, hey, do you want to know what what the hell why the Kessel Run was 12 parsecs? We can make a movie about that.
+[00:19:53] Will: It's the the thing that I love about this is they took something that's familiar, you know, the Boba Fett armor that has massive extended universe stories, and I get I guess the Jango Fett if we want to talk about that. But but they take this this Concept of like the warrior caste, and instead of like filling in a plot hole, right? Which Star Wars has tended to do recently. Like, hey, do you want to know what what the hell why the Kessel Run was 12 parsecs? We can make a movie about that. Or
 
-[00:20:20] Will: Or
-
-[00:20:20] Adam: I don't care.
-
-[00:20:20] Adam: yeah,
+[00:20:20] Adam: I don't care. yeah,
 
 [00:20:20] Will: or you want to find out how they got the stolen Death Star plans? We got that one too. I mean, that that I love that movie.
 
@@ -546,9 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:23:16] Will: Oh wow.
 
-[00:23:17] Adam: Yeah.
-
-[00:23:18] Adam: And yet, it didn't feel like that.
+[00:23:17] Adam: Yeah. And yet, it didn't feel like that.
 
 [00:23:20] Unknown speaker: Yeah.
 
@@ -738,9 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=WN1dSc4Zs0A
 
 [00:31:35] Adam: Yeah, well,
 
-[00:31:36] Will: Ever. Yeah.
-
-[00:31:36] Will: Who knew?
+[00:31:36] Will: Ever. Yeah. Who knew?
 
 [00:31:37] Adam: Yeah. Hey, as a note, we've been talking a lot about VR because we've all been playing with the Quest a lot, and I am still seeking a certain kind of experience, which I may just have to shoot myself, film myself, and that is, I would love to just stand in a open space and take it in, and I have yet I'm having trouble finding footage that is like standing on standing at the shore of a mountain lake for like. A five minutes meditatively.
 

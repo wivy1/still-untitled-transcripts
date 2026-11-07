@@ -86,9 +86,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:03:25] Adam: The the the the the meridian Buddha in Oakland.
 
-[00:03:28] Will: Yeah,
-
-[00:03:29] Will: I don't remember that one.
+[00:03:28] Will: Yeah, I don't remember that one.
 
 [00:03:30] Adam: This is a guy.
 
@@ -120,15 +118,9 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:04:09] Will: [Possible echo, speaker boundary uncertain: "And yet."] And now
 
-[00:04:09] Adam: people come. [Possible carry/restart: "And yet,"] Local Buddhists. Is it what's the community? There is a local
+[00:04:09] Adam: people come. [Possible carry/restart: "And yet,"] Local Buddhists. Is it what's the community? There is a local community. [Possible additional description, speaker uncertain: "It's a Vietnamese community."] Vietnamese community started augmenting his Buddha, and now it's actually like you can find it on Google Maps and you can go visit this because it's a whole thing. There's a shed.
 
-[00:04:15] Adam: community. [Possible additional description, speaker uncertain: "It's a Vietnamese community."] Vietnamese
-
-[00:04:15] Adam: community started augmenting his Buddha, and now it's actually like you can find it on Google Maps and you can go visit this because it's a whole thing. There's a shed.
-
-[00:04:26] Will: It's the field of
-
-[00:04:27] Will: dreams of Buddhists.
+[00:04:26] Will: It's the field of dreams of Buddhists.
 
 [00:04:27] Adam: It's exactly that.
 
@@ -384,9 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:16:37] Norm: This is all fact finding for Silicon.
 
-[00:16:39] Adam: Yeah, it is.
-
-[00:16:40] Adam: You know, and yeah, the cosplay, the the homemade cosplay, it just never doesn't thrill me. There's so many lovely, lovely executions from the most amateurish, which frankly I find the most inspiring because it takes so much courage to take something that you're not sure it's done out there.
+[00:16:39] Adam: Yeah, it is. You know, and yeah, the cosplay, the the homemade cosplay, it just never doesn't thrill me. There's so many lovely, lovely executions from the most amateurish, which frankly I find the most inspiring because it takes so much courage to take something that you're not sure it's done out there.
 
 [00:16:59] Will: Well, and and it's still like it's we've said this a bazillion times, but like the thing that always strikes me is how good. The cosplay looks compared to the actual props in a lot of cases.
 
@@ -598,9 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:24:17] Norm: Yeah.
 
-[00:24:17] Adam: Sure.
-
-[00:24:18] Adam: Yeah. And so 95, 98, 2% of those age 13 will die, and then 100 percent below. 13 will survive.
+[00:24:17] Adam: Sure. Yeah. And so 95, 98, 2% of those age 13 will die, and then 100 percent below. 13 will survive.
 
 [00:24:27] Will: Yeah,
 
@@ -626,9 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:25:03] Norm: choosing that right when you know kids hit puberty is crazy,
 
-[00:25:07] Adam: right?
-
-[00:25:08] Adam: I mean, it's it's fabulous idea.
+[00:25:07] Adam: right? I mean, it's it's fabulous idea.
 
 [00:25:09] Will: It's when they're both the most selfish and least equipped to make good long-term decisions.
 
@@ -760,9 +746,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:28:26] Will: yeah,
 
-[00:28:26] Norm: the guy with the dark hair,
-
-[00:28:27] Norm: Bernthal.
+[00:28:26] Norm: the guy with the dark hair, Bernthal.
 
 [00:28:27] Will: Yeah,
 
@@ -850,9 +834,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:30:07] Will: Yeah, you'll cut this out. It's fine.
 
-[00:30:08] Adam: [You guys ended all these?]
-
-[00:30:09] Adam: We'll spare you none of the none of the quotidian details of our podcasting difficulties.
+[00:30:08] Adam: [You guys ended all these?] We'll spare you none of the none of the quotidian details of our podcasting difficulties.
 
 [00:30:15] Will: Yeah, no. That was great.
 
@@ -934,9 +916,7 @@ Episode URL: https://www.youtube.com/watch?v=8gtSOvW52Io
 
 [00:32:55] Norm: Cameron,
 
-[00:32:55] Adam: yeah,
-
-[00:32:56] Adam: you have you have this confluence of incredible incredible content that gets made by all these different incredible directors.
+[00:32:55] Adam: yeah, you have you have this confluence of incredible incredible content that gets made by all these different incredible directors.
 
 [00:33:02] Will: Well, people are getting money to to do wild, crazy, never before tried stuff, and it just, so much of it lands.
 

@@ -110,9 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=h0y_2ow4LKw
 
 [00:08:34] Adam: Right that within that within the confines of our of our of our universe there and like so we did that and actually sorry I tell a lie at one point Kari, Grant and Tory designed a MacGyver type escape for Jamie and I and they included enough. Material for us to set up a. How did this work? They gave enough material for us to set up, or like, shoot a a. A flare at an incoming helicopter to signify that we were there, and we ended up using the materials to make a kite that worked better.
 
-[00:08:34] Will: It was really good.
-
-[00:09:16] Will: So that's like that that whole concept. Like my my Sandy, my friend who does this, says that like the worst case scenario for him is that if a group of people who all are writers come in, because then you know, or all mathematicians or something like that, because then you have people who presumably all have some sort of affinity for words, and and the wordplay puzzles will go really quickly, but the maybe the spatial one will take take longer. The the interesting thing, like figuring out people's solutions, like Norm had some really interesting solutions where he just like looked at the puzzle and metagamed and skipped ahead and figured out what the solution was, which was which is exactly what you are supposed to do. It was really good.
+[00:08:34] Will: It was really good. So that's like that that whole concept. Like my my Sandy, my friend who does this, says that like the worst case scenario for him is that if a group of people who all are writers come in, because then you know, or all mathematicians or something like that, because then you have people who presumably all have some sort of affinity for words, and and the wordplay puzzles will go really quickly, but the maybe the spatial one will take take longer. The the interesting thing, like figuring out people's solutions, like Norm had some really interesting solutions where he just like looked at the puzzle and metagamed and skipped ahead and figured out what the solution was, which was which is exactly what you are supposed to do. It was really good.
 
 [00:09:56] Adam: Oh my god! It sounds like so much fun. I know that Julia would love, love that kind of thing too.
 
@@ -164,13 +162,9 @@ Episode URL: https://www.youtube.com/watch?v=h0y_2ow4LKw
 
 [00:13:35] Adam: wipe Wipeout is sort of the cartoon version of American Ninja Challenge, where you're running across large padded bridges that are spinning and stuff, and
 
-[00:13:35] Norm: right,
+[00:13:35] Norm: right, yeah, and they put the funky sound effects like when you get knocked into the water, like ooh. What about that that one that I think Fox did? Hole in the wall.
 
-[00:13:43] Norm: yeah, and they put the funky sound effects like when you get knocked into the water, like ooh. What about that that one that I think Fox did? Hole in the wall.
-
-[00:13:53] Will: That's my favorite.
-
-[00:13:54] Will: Yeah.
+[00:13:53] Will: That's my favorite. Yeah.
 
 [00:13:54] Adam: Oh my god.
 
@@ -262,9 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=h0y_2ow4LKw
 
 [00:23:24] Adam: that's my little comedy bit about Comcast and their scheduling. Yeah. Wow, I really killed the conversation there.
 
-[00:23:32] Norm: No, no, I have, I have a funky. I switched just from, uh, I just got, uh, fiber internet at my house, and there was a gray period where I was still paying for Comcast and their internet, but I was all my computers in my house were connected to to Sonic to fiber, and Comcast must have known because my my usage went from real high to nothing, and I got five calls within the week. Almost one every day from a customer service person trying to get me to to stay on. It was very satisfying to say no, thank you, I want to cancel my service.
-
-[00:23:32] Norm: Yeah,
+[00:23:32] Norm: No, no, I have, I have a funky. I switched just from, uh, I just got, uh, fiber internet at my house, and there was a gray period where I was still paying for Comcast and their internet, but I was all my computers in my house were connected to to Sonic to fiber, and Comcast must have known because my my usage went from real high to nothing, and I got five calls within the week. Almost one every day from a customer service person trying to get me to to stay on. It was very satisfying to say no, thank you, I want to cancel my service. Yeah,
 
 [00:24:10] Adam: nice.
 
@@ -300,9 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=h0y_2ow4LKw
 
 [00:25:11] Adam: Yes, I love it. I yeah. No, we've got um. We now we now get it at all in all the corners of the house instead of just in the main central column of the house.
 
-[00:25:21] Will: Did you have trouble setting it up, or was it relatively straightforward?
-
-[00:25:24] Will: Or did you get your IT team to do it?
+[00:25:21] Will: Did you have trouble setting it up, or was it relatively straightforward? Or did you get your IT team to do it?
 
 [00:25:26] Adam: They sent a guy. They sent a guy.
 
@@ -416,11 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=h0y_2ow4LKw
 
 [00:33:05] Will: As look as long as he wants to keep making movies, I'll keep going to see them. So
 
-[00:33:09] Adam: precisely,
-
-[00:33:09] Adam: Precisely.
-
-[00:33:11] Adam: He's not only a national treasure, but an international treasure.
+[00:33:09] Adam: precisely, Precisely. He's not only a national treasure, but an international treasure.
 
 [00:33:11] Will: Yeah.
 
@@ -504,11 +490,7 @@ Episode URL: https://www.youtube.com/watch?v=h0y_2ow4LKw
 
 [00:37:58] Adam: Prologue. Prologue.
 
-[00:37:58] Norm: A prologue. That's what it is.
-
-[00:37:58] Norm: Yes. Yes.
-
-[00:37:58] Norm: Exactly. So kind of like for the Martian, where they had the featurette, the prologues, where it was before the crew, the Ares crew, went to Mars and went on their mission. This is before the the crew of the Covenant goes into cryo sleep, and it's called the Last Supper. And I think it's a really good short.
+[00:37:58] Norm: A prologue. That's what it is. Yes. Yes. Exactly. So kind of like for the Martian, where they had the featurette, the prologues, where it was before the crew, the Ares crew, went to Mars and went on their mission. This is before the the crew of the Covenant goes into cryo sleep, and it's called the Last Supper. And I think it's a really good short.
 
 [00:38:23] Unknown speaker: Oh wow!
 

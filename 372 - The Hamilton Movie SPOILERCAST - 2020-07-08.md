@@ -18,9 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:00:14] Norm: But we wanted to get together to talk about well there's some there's some fun movie stuff. It feels like a culmination of a of a journey almost. I'm getting right into people know from the description of the podcast we're going to be talking about the Hamilton film,
 
-[00:00:31] Adam: dude, dude.
-
-[00:00:34] Adam: Yeah, so I will say that I saw Hamilton in
+[00:00:31] Adam: dude, dude. Yeah, so I will say that I saw Hamilton in
 
 [00:00:40] Norm: our bona fides. Yes,
 
@@ -50,11 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:04:29] Adam: yeah,
 
-[00:04:29] Norm: it was what a what an interesting interesting way to one film and release this this phenomenon, this musical,
-
-[00:04:38] Norm: Um,
-
-[00:04:38] Norm: and not adapt it to be a film movie, not shorten it in any way, you know, the the purity of the two hour and 40 minute length time, like they really wanted to make it feel like you were you went you had a ticket to the theater and Got you know the best seat, and then watched it for two two and two and a half hours.
+[00:04:29] Norm: it was what a what an interesting interesting way to one film and release this this phenomenon, this musical, Um, and not adapt it to be a film movie, not shorten it in any way, you know, the the purity of the two hour and 40 minute length time, like they really wanted to make it feel like you were you went you had a ticket to the theater and Got you know the best seat, and then watched it for two two and two and a half hours.
 
 [00:04:59] Adam: Well, so let me. You've seen the show twice, right?
 
@@ -464,9 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=dONf_TaqMgE
 
 [00:35:53] Norm: That's amazing.
 
-[00:35:56] Adam: Morricone, you know, he. You're right. He lives on through his music, and it is an incredible legacy. And he gave so many directors so much to work with with those scores. It is a real loss, and I'm sad that he is gone.
-
-[00:36:15] Adam: I'm glad that he lived a full life and scored 500 movies.
+[00:35:56] Adam: Morricone, you know, he. You're right. He lives on through his music, and it is an incredible legacy. And he gave so many directors so much to work with with those scores. It is a real loss, and I'm sad that he is gone. I'm glad that he lived a full life and scored 500 movies.
 
 [00:36:19] Norm: And and I hope that there will be some documentary released sometime in the future about him as a person, him as a life, because you know the double-edged sword of the music. Living forever, outlasting the man, is that he was also a person. Yes, I would love to know more about that story too.
 

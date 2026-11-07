@@ -172,9 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=w6H9rd4uYPY
 
 [00:16:22] Will: Next week, I'm going to make a video and blur out the background for you. So,
 
-[00:16:25] Adam: Thank you. Thank you.
-
-[00:16:27] Adam: Or actually, can you run a sharpen filter on Norm's background?
+[00:16:25] Adam: Thank you. Thank you. Or actually, can you run a sharpen filter on Norm's background?
 
 [00:16:30] Will: Yeah, or Norm, if you can send me an image without you sitting there of your background, that would be great, and I'll uh, I'll we'll just all do that next week.
 

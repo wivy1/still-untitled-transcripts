@@ -62,13 +62,9 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:01:57] Will: Mechagodzilla. is pretty good.
 
-[00:01:58] Norm: What was the origin of Mechagodzilla? Was it alien
+[00:01:58] Norm: What was the origin of Mechagodzilla? Was it alien or human?
 
-[00:02:00] Norm: or human?
-
-[00:02:00] Will: Somebody,
-
-[00:02:00] Will: No, no. Somebody built Mechagodzilla.
+[00:02:00] Will: Somebody, No, no. Somebody built Mechagodzilla.
 
 [00:02:02] Norm: To fight Godzilla?
 
@@ -168,9 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:05:36] Will: Mm-hmm.
 
-[00:05:37] Adam: for Empire Strikes Back.
-
-[00:05:37] Adam: He also built Moonwatcher, the ape man costumes from 2001. Um, tremendous, tremendous genius when it came to adding stuff. Rick Baker is also an expert at this, adding effects into the masks that are hardwired into the actor's movements. So. Chewbacca and Moonwatcher both had a linkage inside, so that when the actor opened their mouth, the lips curl, and you get all this extra extra value out of that. It makes the performance much more believable. Look, I'm getting light over there. That's awesome.
+[00:05:37] Adam: for Empire Strikes Back. He also built Moonwatcher, the ape man costumes from 2001. Um, tremendous, tremendous genius when it came to adding stuff. Rick Baker is also an expert at this, adding effects into the masks that are hardwired into the actor's movements. So. Chewbacca and Moonwatcher both had a linkage inside, so that when the actor opened their mouth, the lips curl, and you get all this extra extra value out of that. It makes the performance much more believable. Look, I'm getting light over there. That's awesome.
 
 [00:06:13] Will: Oh yeah, it's worth mentioning. There's a little construction going on in the shop today, so
 
@@ -226,9 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:08:20] Norm: And David Hyde Pierce did the voice for the first one, which is also he did a great voice.
 
-[00:08:21] Adam: Yeah,
-
-[00:08:24] Adam: and Doug Jones is a terrific actor to boot. Yeah, and he has been. I asked Rick about him, and Rick has dressed him in a few costumes. He said, " Oh no, he's just amazing to work with." I mean, you know, the other thing you have to remember about these guys is when they get suited up, they are in. First of all, it might take six or more hours to get put into that makeup. Second of all, they are on a hot set with lights, even with the cool burning Kino Flo sets, get warm, and you are in a full body covering. You get warm and warm and warm.
+[00:08:21] Adam: Yeah, and Doug Jones is a terrific actor to boot. Yeah, and he has been. I asked Rick about him, and Rick has dressed him in a few costumes. He said, " Oh no, he's just amazing to work with." I mean, you know, the other thing you have to remember about these guys is when they get suited up, they are in. First of all, it might take six or more hours to get put into that makeup. Second of all, they are on a hot set with lights, even with the cool burning Kino Flo sets, get warm, and you are in a full body covering. You get warm and warm and warm.
 
 [00:08:52] Will: Do they wear like cool cool shirts underneath?
 
@@ -264,9 +256,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:12:05] Adam: But from my understanding, it's a thing like, well, if you're smiling, then there's all these other muscles, like the eyes go up, so that's a second pair of servos. So that when a puppeteer goes to a smile movement, these like other six servos are going rather than six different people each controlling a servo, hoping they're getting it right.
 
-[00:12:24] Norm: Right, right, right.
-
-[00:12:25] Norm: Yeah, and a lot of that's translated over to CG, and so that's why you see a lot of creatures. I mean, not to knock the CG because Davy Jones' CG face, and that's the the animation on that was fantastic,
+[00:12:24] Norm: Right, right, right. Yeah, and a lot of that's translated over to CG, and so that's why you see a lot of creatures. I mean, not to knock the CG because Davy Jones' CG face, and that's the the animation on that was fantastic,
 
 [00:12:34] Adam: unbelievable.
 
@@ -388,9 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:18:48] Unknown speaker: Wow.
 
-[00:18:48] Adam: It was one of those like
-
-[00:18:50] Adam: so
+[00:18:48] Adam: It was one of those like so
 
 [00:18:51] Will: so
 
@@ -420,9 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:20:42] Adam: 126 127
 
-[00:20:44] Will: right.
-
-[00:20:45] Will: And the neat thing about the stuff that happened, especially a lot of the things that were in the early '80s and required massive budgets in the '80s and '90s, is doable by people who are shooting films. On dramatically more modest budgets now,
+[00:20:44] Will: right. And the neat thing about the stuff that happened, especially a lot of the things that were in the early '80s and required massive budgets in the '80s and '90s, is doable by people who are shooting films. On dramatically more modest budgets now,
 
 [00:20:58] Adam: absolutely, and things that would you'd have to hire custom programmers to do back in the '90s, you can now do with Arduino for only a few dozen dollars. It's a tremendous record. It is like I said. I recorded so full disclosure. I recorded a video for their Kickstarter saying that this is a it's a record of an American craft through its maturity and its adulthood, and actually almost through through you know a period when there's not a lot of work happening on the practical effects side. And Cinefex still covers in great detail the digital side, the innovations, the animations, the physics simulations, interviews with the CG teams, and you know the difficulties and the the compromises and the challenges that they have. It's a fantastic magazine. So yeah,
 
@@ -430,17 +416,13 @@ Episode URL: https://www.youtube.com/watch?v=ge0jkWHU8PM
 
 [00:21:55] Adam: Yep.
 
-[00:21:55] Norm: right?
-
-[00:21:55] Norm: And they you read that's like. A small fraction of the stories that you get from reading these kind of magazines.
+[00:21:55] Norm: right? And they you read that's like. A small fraction of the stories that you get from reading these kind of magazines.
 
 [00:22:03] Will: I want to go back and read the stuff from there, like the the early CG stuff when we when they were starting to do CG characters for the first time, like Lord of the Rings and Harry Potter and and episodes one and two. I want to go back and read the the conversations that are in there about that time period because that stuff
 
 [00:22:18] Adam: Oh, yeah.
 
-[00:22:18] Will: is super fascinating.
-
-[00:22:18] Will: Like very clearly, people were figuring it out as they were going, and the results were real up and down.
+[00:22:18] Will: is super fascinating. Like very clearly, people were figuring it out as they were going, and the results were real up and down.
 
 [00:22:24] Adam: Well, and uh uh uh, there's an amazing issue that came out in 2001 about 2001: A Space Odyssey, which of course was made 12 years before Cinefex was was started, and they had always wanted to do an issue about it. When they finally did, it's a stunning issue with tremendous amounts of information about the film and how they made it, how they put it together. A crazy bit of scholarship in there. There are specific issues about like Phil Tippett, about Industrial Light and Magic, about Stan Winston,
 

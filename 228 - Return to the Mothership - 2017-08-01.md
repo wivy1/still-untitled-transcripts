@@ -60,9 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:01:21] Adam: I will tell you that I felt less FOMO at this year's Comic Con than I have ever before, and a lot of it is because when I first got there 10 years ago, it was a big mystery, and now it's like a lot of the stuff that's happening is stuff with my friends, and I I know what they're doing, and I you know people like Chris Hardwick and Felicia Day and Zachary Levi. You know those guys are awesome, and I love what they're doing, and I did stuff with all of them at the con. It was it was a really good con. It felt weirdly calmer than other Comic Cons, and we couldn't put our finger on why.
 
-[00:01:56] Simone: Maybe it's because you just turned 50,
-
-[00:01:59] Simone: and you're now calmer and wiser.
+[00:01:56] Simone: Maybe it's because you just turned 50, and you're now calmer and wiser.
 
 [00:02:01] Adam: It could be. I am 50 since our last podcast.
 
@@ -96,9 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:02:50] Norm: it was a beautiful, amazing spacesuit made by the the team at FBFX.
 
-[00:02:50] Adam: Mm-hmm.
-
-[00:02:55] Adam: Incredible! Incredible! You wouldn't believe the craftsmanship on this thing. It's mind blowing.
+[00:02:50] Adam: Mm-hmm. Incredible! Incredible! You wouldn't believe the craftsmanship on this thing. It's mind blowing.
 
 [00:03:00] Simone: Which Which out of the costumes was the sweatiest one for you?
 
@@ -116,9 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:03:34] Adam: Bill Prady’s party.
 
-[00:03:34] Norm: Bill Prady’s
-
-[00:03:35] Norm: party, which is a a really fun gathering of a lot of like the friends you mentioned.
+[00:03:34] Norm: Bill Prady’s party, which is a a really fun gathering of a lot of like the friends you mentioned.
 
 [00:03:39] Adam: It's most of it's the place where yeah. Besides w00tstock, that's where I catch up with all my favorite people,
 
@@ -130,9 +124,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:04:13] Adam: Lieutenant Uhura from the original Star Trek series.
 
-[00:04:13] Norm: Yes.
-
-[00:04:16] Norm: And she's you know she's like a queen of Comic Con, right?
+[00:04:13] Norm: Yes. And she's you know she's like a queen of Comic Con, right?
 
 [00:04:20] Adam: She's 90 plus and absolutely beautiful and amazing.
 
@@ -198,9 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:08:25] Adam: Wow!
 
-[00:08:25] Simone: So it was
-
-[00:08:34] Simone: a lot of work, and it was a completely new series. And yeah, like we were kind of like the format is really fluffy in the sense that it's just like okay, we're just like playing around with fun things, which is really great. But it was it was a lot of work. So coming home to San Francisco from that, it's like I just like want to lay on my couch and watch sci-fi series all day.
+[00:08:25] Simone: So it was a lot of work, and it was a completely new series. And yeah, like we were kind of like the format is really fluffy in the sense that it's just like okay, we're just like playing around with fun things, which is really great. But it was it was a lot of work. So coming home to San Francisco from that, it's like I just like want to lay on my couch and watch sci-fi series all day.
 
 [00:08:57] Adam: Yeah, that ultimately you're excited about seeing how the how the show cuts together.
 
@@ -252,17 +242,13 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:10:54] Adam: Oh, I certainly have.
 
-[00:10:56] Simone: Yeah. When was the last
-
-[00:10:57] Simone: time you ripped your pants
+[00:10:56] Simone: Yeah. When was the last time you ripped your pants
 
 [00:10:58] Norm: on camera? Pants ripping.
 
 [00:11:00] Simone: You ripped your pants on camera.
 
-[00:11:02] Adam: I probably yeah on MythBusters. Every possible humiliation was delivered unto me, so I'm positive I ripped my pants on camera. I can't remember exactly where. Oh, sorry. This is a separate thing, but on my last flight back to the U.S. on British Airways. I went to use some hand lotion in the airplane after washing my hands because the plane makes my hands really dry, and the hand lotion thing squirted hand
-
-[00:11:29] Adam: lotion across right onto my shirt down here.
+[00:11:02] Adam: I probably yeah on MythBusters. Every possible humiliation was delivered unto me, so I'm positive I ripped my pants on camera. I can't remember exactly where. Oh, sorry. This is a separate thing, but on my last flight back to the U.S. on British Airways. I went to use some hand lotion in the airplane after washing my hands because the plane makes my hands really dry, and the hand lotion thing squirted hand lotion across right onto my shirt down here.
 
 [00:11:29] Simone: Oh gosh!
 
@@ -272,9 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:11:41] Norm: And you have the—I think you tweeted this.
 
-[00:11:41] Adam: I did.
-
-[00:11:43] Adam: I tweeted a picture
+[00:11:41] Adam: I did. I tweeted a picture
 
 [00:11:45] Norm: just to make sure that
 
@@ -288,9 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:12:02] Norm: That.
 
-[00:12:02] Simone: that yeah, that like not a bidet but like one of those that
-
-[00:12:06] Simone: that shoots water up your butt. And I pressed the button and it didn't start, so I was like, " What's what's wrong with it?" Stood up, turned around, and then just like right at my stomach, it just shoots toilet water at me.
+[00:12:02] Simone: that yeah, that like not a bidet but like one of those that that shoots water up your butt. And I pressed the button and it didn't start, so I was like, " What's what's wrong with it?" Stood up, turned around, and then just like right at my stomach, it just shoots toilet water at me.
 
 [00:12:19] Adam: It's not toilet water. That's already filtered water.
 
@@ -314,25 +296,13 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:12:33] Adam: Perfect timing.
 
-[00:12:33] Simone: But I,
-
-[00:12:57] Simone: I was actually thinking that was one of the ideas that we have for the Swedish TV show. My co-host Nisse and I about you know like those automatic sensor water taps.
-
-[00:13:05] Simone: You,
-
-[00:13:07] Simone: They have like a motion or distance sensor, and you put your hands on it. They're terrible, but I would want I would want to do one that's reverse. So when you remove your hands, it starts. Yeah, it comes on, and when you put your hands in there, it comes off.
+[00:12:33] Simone: But I, I was actually thinking that was one of the ideas that we have for the Swedish TV show. My co-host Nisse and I about you know like those automatic sensor water taps. You, They have like a motion or distance sensor, and you put your hands on it. They're terrible, but I would want I would want to do one that's reverse. So when you remove your hands, it starts. Yeah, it comes on, and when you put your hands in there, it comes off.
 
 [00:13:18] Adam: Yeah,
 
 [00:13:19] Simone: yeah, like a prank. It’s like a it’s like a petty prank.
 
-[00:13:22] Adam: What would be funny? Is if you go the the the water is one, and so is the paper towel dispenser, right? So you set up a paper towel dispenser, so it sits there, you know, inconspicuously, and then you go
-
-[00:13:22] Adam: meow.
-
-[00:13:22] Adam: and it starts to put out, and you tear it, and then it starts to just feed more, and you reach out, and when you put your hand under it, it stops, but when you take your hand away, it still spills paper towels out, and it means that that person probably end up staying in the bathroom.
-
-[00:13:48] Adam: Yeah, it depends upon them. I hate all of the automatic sensor faucets because one, they don't work; two, they all require different amounts of proximity and movement; three, they make me look like I'm an idiot when I go to any sink that doesn't have them because I go and I wave my hands under the faucet and nothing happens, and I realize I've been conditioned against using faucets. This is the modern age where turning on a light bulb has been made more complicated by the Internet of Things, and so has using a faucet.
+[00:13:22] Adam: What would be funny? Is if you go the the the water is one, and so is the paper towel dispenser, right? So you set up a paper towel dispenser, so it sits there, you know, inconspicuously, and then you go meow. and it starts to put out, and you tear it, and then it starts to just feed more, and you reach out, and when you put your hand under it, it stops, but when you take your hand away, it still spills paper towels out, and it means that that person probably end up staying in the bathroom. Yeah, it depends upon them. I hate all of the automatic sensor faucets because one, they don't work; two, they all require different amounts of proximity and movement; three, they make me look like I'm an idiot when I go to any sink that doesn't have them because I go and I wave my hands under the faucet and nothing happens, and I realize I've been conditioned against using faucets. This is the modern age where turning on a light bulb has been made more complicated by the Internet of Things, and so has using a faucet.
 
 [00:14:22] Simone: Yes, so now there's an app for you to turn on the water in your faucet.
 
@@ -502,9 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:22:32] Adam: right, right,
 
-[00:22:32] Norm: right, and enhance it to make it feel like you're riding a dragon or on some type of crazy adventure.
-
-[00:22:37] Norm: Yeah, it's revitalizing a
+[00:22:32] Norm: right, and enhance it to make it feel like you're riding a dragon or on some type of crazy adventure. Yeah, it's revitalizing a
 
 [00:22:38] Adam: second life for roller coasters.
 
@@ -512,9 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:22:41] Simone: Yeah, that'd be fun to have one of those mobile chairs.
 
-[00:22:44] Norm: Yeah.
-
-[00:22:44] Norm: just a robot chair,
+[00:22:44] Norm: Yeah. just a robot chair,
 
 [00:22:44] Simone: Just for your house.
 
@@ -534,21 +500,15 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:23:40] Adam: And I
 
-[00:23:41] Simone: Monday morning we watched
-
-[00:23:41] Simone: Alien.
+[00:23:41] Simone: Monday morning we watched Alien.
 
 [00:23:43] Adam: Monday morning first thing we watched a horror movie. You did really well. You said you are very bad at horror movies, but it
 
-[00:23:49] Simone: wasn't it wasn't horror horror
-
-[00:23:49] Simone: There were some jump scares.
+[00:23:49] Simone: wasn't it wasn't horror horror There were some jump scares.
 
 [00:23:51] Adam: when the chestburster came out. So that chestburster, when it came out, made cinema history as the most disturbing thing that anyone had ever put to film in 1980.
 
-[00:24:01] Simone: I were on the internet. I've seen
-
-[00:24:04] Simone: way more disturbing things. No, it was a good movie. I was really surprised by it. Yeah, but yeah, we should definitely maybe Blade Runner.
+[00:24:01] Simone: I were on the internet. I've seen way more disturbing things. No, it was a good movie. I was really surprised by it. Yeah, but yeah, we should definitely maybe Blade Runner.
 
 [00:24:12] Norm: Oh yeah, oh yeah, future movies. Do we definitely want to do Aliens sequel and then around the time maybe when Blade Runner 2049 comes out, we'll do Blade Runner.
 
@@ -558,9 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:24:23] Simone: yeah. I mean, like even just when I was at Silicon Valley Comic Con and on stage with William Shatner, and I haven't seen Star Trek.
 
-[00:24:32] Adam: There
-
-[00:24:32] Adam: is a lot of Star Trek.
+[00:24:32] Adam: There is a lot of Star Trek.
 
 [00:24:33] Simone: Yeah, there was a lot of Star Trek people in the audience, and they asked me like, " Who's your favorite?" Blah blah blah. I am like, I don't know. I need to, yeah, I need to educate myself in these, these areas.
 
@@ -574,11 +532,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:24:54] Adam: What else is I think that reasonably covers it.
 
-[00:24:57] Norm: Yeah, uh, I got some recommendations.
-
-[00:24:59] Norm: Yeah.
-
-[00:25:00] Norm: Um, I know we haven't done we're not doing spoiler casts of these, but Dunkirk is a movie that deserves to be watched in theaters
+[00:24:57] Norm: Yeah, uh, I got some recommendations. Yeah. Um, I know we haven't done we're not doing spoiler casts of these, but Dunkirk is a movie that deserves to be watched in theaters
 
 [00:25:06] Adam: in 70 millimeter.
 
@@ -596,9 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:25:48] Norm: so delightful. Yeah, so those two were highly recommended.
 
-[00:25:52] Adam: I finished season two of Master of None, Aziz Ansari's show.
-
-[00:25:58] Adam: I you just started it?
+[00:25:52] Adam: I finished season two of Master of None, Aziz Ansari's show. I you just started it?
 
 [00:25:58] Simone: I just started watching it. I'm like four episodes in on season one. I'm not a, I mean, like I like the unconventional format, but in fact the acting is so stale. I can't get over it.
 
@@ -606,9 +558,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:26:12] Norm: his acting.
 
-[00:26:12] Simone: Everybody's acting. I mean, it is like a style. Like I know
-
-[00:26:16] Simone: that there's definitely way better actors than that, but I just I don't know. It just like throws me out of the story all the time.
+[00:26:12] Simone: Everybody's acting. I mean, it is like a style. Like I know that there's definitely way better actors than that, but I just I don't know. It just like throws me out of the story all the time.
 
 [00:26:22] Adam: I understand. I understand. Give it some time.
 
@@ -628,9 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:27:15] Adam: Yes, oh my god, so inspiring!
 
-[00:27:16] Norm: This is a
-
-[00:27:16] Norm: Fantastic, fantastic organization.
+[00:27:16] Norm: This is a Fantastic, fantastic organization.
 
 [00:27:18] Simone: I heard a little bit about it. It's people pimping or like making these wheelchairs.
 
@@ -646,9 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:27:46] Norm: Oh, yeah. We'll
 
-[00:27:47] Adam: contribute something. Yeah.
-
-[00:27:47] Adam: for next year.
+[00:27:47] Adam: contribute something. Yeah. for next year.
 
 [00:27:49] Norm: Yeah.
 
@@ -686,6 +632,4 @@ Episode URL: https://www.youtube.com/watch?v=OL50lJkCmiA
 
 [00:28:20] Norm: Bye,
 
-[00:28:20] Adam: Bye,
-
-[00:28:20] Adam: everybody.
+[00:28:20] Adam: Bye, everybody.

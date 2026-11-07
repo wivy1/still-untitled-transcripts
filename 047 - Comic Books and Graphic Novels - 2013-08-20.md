@@ -66,9 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:02:43] Norm: right? And it'd be this meta exhibit because it's not like going to a like the cost like the the props from the movie. It's like these are the costumes that you've made and you've worn. Yeah, everyone has such stories.
 
-[00:02:54] Adam: Yes.
-
-[00:02:54] Adam: And and for me, getting them up, uh, getting the costumes up onto mannequins involves. So I have some mannequins. Real mannequins are a pain in the ass because they're not very poseable. They're heavy. They're they they don't love standing up.
+[00:02:54] Adam: Yes. And and for me, getting them up, uh, getting the costumes up onto mannequins involves. So I have some mannequins. Real mannequins are a pain in the ass because they're not very poseable. They're heavy. They're they they don't love standing up.
 
 [00:03:10] Will: So the first thing we have to do is make a bunch of mannequins.
 
@@ -150,13 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:05:25] Adam: Oh, that's good. I like that. I was actually saying when I showed my kids The Professional, we talked about that last time too. Danny Aiello was there, and I wanted to say to my kids, Danny Aiello is the proto James Gandolfini.
 
-[00:05:42] Will: Wow.
-
-[00:05:43] Will: Okay.
-
-[00:05:44] Will: Right.
-
-[00:05:45] Will: There's a character actor episode here. At some point. Totally, we should. I'll put that in the back pocket for later.
+[00:05:42] Will: Wow. Okay. Right. There's a character actor episode here. At some point. Totally, we should. I'll put that in the back pocket for later.
 
 [00:05:49] Adam: Remember, Hey It's That Guy. Dot com.
 
@@ -206,11 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:08:23] Norm: even the new Holy War one.
 
-[00:08:25] Adam: No, I am. I am.
-
-[00:08:26] Adam: Holy Terror?
-
-[00:08:26] Adam: I I updated about every about every year.
+[00:08:25] Adam: No, I am. I am. Holy Terror? I I updated about every about every year.
 
 [00:08:30] Will: Okay.
 
@@ -232,9 +220,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:09:05] Adam: Neil Gaiman
 
-[00:09:06] Will: Yeah.
-
-[00:09:06] Will: Sandman
+[00:09:06] Will: Yeah. Sandman
 
 [00:09:07] Adam: early adopter of Sandman.
 
@@ -346,9 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:12:11] Will: Well, but Watchmen predates that by a few years, right?
 
-[00:12:14] Adam: A few years, yeah. And Watchmen was the sea change.
-
-[00:12:16] Adam: I think.
+[00:12:14] Adam: A few years, yeah. And Watchmen was the sea change. I think.
 
 [00:12:18] Norm: Yeah, We in in terms of popular culture, people weren't weren't aware of that at all.
 
@@ -590,9 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:23:09] Norm: He's the the lead writer on Stephen King's Under a Dome. He wrote the pilot episode. He— great, great comic book writer. Uh, he also did this, uh, series called Ex Machina, uh, about the mayor of New York, um, who can talk to machines. And a big twist in issue one is he stopped the second plane in 9/11. Which was crazy!
 
-[00:23:28] Adam: Wow,
-
-[00:23:29] Adam: Alternate history.
+[00:23:28] Adam: Wow, Alternate history.
 
 [00:23:30] Norm: Yeah,
 
@@ -632,9 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:25:00] Will: Frank Miller is a little crazy too. I mean,
 
-[00:25:02] Adam: Oh.
-
-[00:25:02] Adam: he's a little he's gone a little conservative crazy.
+[00:25:02] Adam: Oh. he's a little he's gone a little conservative crazy.
 
 [00:25:05] Will: Well, I think he's always been a little conservative crazy. It's now coming out.
 
@@ -750,9 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:27:19] Norm: Comic books.
 
-[00:27:19] Will: So we're talking about From Hell?
-
-[00:27:21] Will: Point Break. Yeah. No. But but he did Constantine, which was not a good movie.
+[00:27:19] Will: So we're talking about From Hell? Point Break. Yeah. No. But but he did Constantine, which was not a good movie.
 
 [00:27:25] Adam: I loved Constantine.
 
@@ -802,13 +780,9 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:28:10] Norm: We have recommendations for people, and we'd love to get recommendations. That's a good place to.
 
-[00:28:14] Will: Yeah. Oh, Norm. Norm, tying a bow on the whole thing. That was nicely done.
+[00:28:14] Will: Yeah. Oh, Norm. Norm, tying a bow on the whole thing. That was nicely done. Oh, you know what?
 
-[00:28:17] Will: Oh, you know what?
-
-[00:28:17] Adam: Sorry, I wanted to say this, but you mentioned we we we all talked about Watchmen. It's hard to overstate Alan Moore's import within modern comics.
-
-[00:28:28] Adam: Also. Highbrow graphic novel, etc.
+[00:28:17] Adam: Sorry, I wanted to say this, but you mentioned we we we all talked about Watchmen. It's hard to overstate Alan Moore's import within modern comics. Also. Highbrow graphic novel, etc.
 
 [00:28:30] Will: That and the first series of League of Extraordinary Gentlemen are both amazing.
 
@@ -910,9 +884,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:32:43] Adam: Oh, okay, yeah.
 
-[00:32:43] Norm: Yeah.
-
-[00:32:43] Norm: So Walking Dead has been going on forever, and he's he has basically his own label of comic books.
+[00:32:43] Norm: Yeah. So Walking Dead has been going on forever, and he's he has basically his own label of comic books.
 
 [00:32:49] Will: I think people know who. I think we're good. I think people Walking Dead is a safe thing to recommend. Yeah,
 
@@ -930,11 +902,7 @@ Episode URL: https://www.youtube.com/watch?v=erQDmekELlA
 
 [00:33:43] Adam: Thank you. Yes.
 
-[00:33:43] Will: Exactly. And and we'll be back next Tuesday with another episode.
-
-[00:33:52] Will: Bye-bye.
-
-[00:33:52] Will: See you guys then. No one knows the show was gonna be this way.
+[00:33:43] Will: Exactly. And and we'll be back next Tuesday with another episode. Bye-bye. See you guys then. No one knows the show was gonna be this way.
 
 [00:33:58] Adam: Yeah.
 

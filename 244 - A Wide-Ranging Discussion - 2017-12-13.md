@@ -56,9 +56,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:02:14] Adam: We are tired.
 
-[00:02:14] Will: Yeah,
-
-[00:02:14] Will: I can imagine.
+[00:02:14] Will: Yeah, I can imagine.
 
 [00:02:14] Adam: my crew. I will tell you, this was the gold standard crew I have ever toured with. People, most of them have been with me on and off since 2012.
 
@@ -104,9 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:03:33] Norm: Everyone wants a snowflake here. Too many snowflakes.
 
-[00:03:37] Adam: Yeah,
-
-[00:03:37] Adam: there was a moment here. I guess the boys might have been. Let me think about this. I think the boys might have been six or seven, and we're heading up Valencia, and it was that it was so. This was going to be just about 10 or 11 years ago.
+[00:03:37] Adam: Yeah, there was a moment here. I guess the boys might have been. Let me think about this. I think the boys might have been six or seven, and we're heading up Valencia, and it was that it was so. This was going to be just about 10 or 11 years ago.
 
 [00:03:52] Will: Yeah,
 
@@ -138,11 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:05:33] Norm: Okay. No touching of your face.
 
-[00:05:35] Adam: You try. You try to shake hands with the right hand. Touch your face with your left hand.
-
-[00:05:35] Adam: Yeah.
-
-[00:05:35] Adam: You know. Yep. It's an imperfect world.
+[00:05:35] Adam: You try. You try to shake hands with the right hand. Touch your face with your left hand. Yeah. You know. Yep. It's an imperfect world.
 
 [00:05:41] Will: Yeah.
 
@@ -156,13 +148,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:06:01] Will: Maybe people were looking for an excuse to get a big camera.
 
-[00:06:04] Adam: I it's fascinating to me. I mean, obviously, sorry, not obviously. I will say the point and shoots outnumbered the DSLRs two or three to one, and it renewed my hatred of digital cameras of dedicated digital photography equipment
-
-[00:06:20] Adam: because it's like
-
-[00:06:20] Adam: hold that button down.
-
-[00:06:20] Adam: and then somebody turns a crank and there's like a monkey that hits a hammer and something happens eventually and there's no feedback and it's like we've had a 200 170 years with cameras can't we just make this the same thing for everybody
+[00:06:04] Adam: I it's fascinating to me. I mean, obviously, sorry, not obviously. I will say the point and shoots outnumbered the DSLRs two or three to one, and it renewed my hatred of digital cameras of dedicated digital photography equipment because it's like hold that button down. and then somebody turns a crank and there's like a monkey that hits a hammer and something happens eventually and there's no feedback and it's like we've had a 200 170 years with cameras can't we just make this the same thing for everybody
 
 [00:06:41] Will: the Nikon what FT seven or whatever the manual with the with the with the light meter
 
@@ -354,13 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:15:23] Norm: Yeah. Yeah. What What are your some of your favorite gifts that you're planning on giving this this holiday?
 
-[00:15:27] Adam: This sounds this year more than any other year. I'm a little bit disgusted with the idea of just buying some piece of shit that someone's going to put on their desk, like a chachki. So I feel much more inclined to to give something that's meaningful. And in the meaningful department for me, it's that we make something. And by we, my wife and I are planning to come in here in the next week and a half and make a bunch of presents for people. That is a real thing. And then also books. I love thinking about what someone likes and buying them a beautiful book about that thing or something that I think they're going to love. I recently bought. It's actually right over here. Hold on.
-
-[00:15:27] Adam: Where is it?
-
-[00:16:13] Adam: Wait a second.
-
-[00:16:13] Adam: Oh, we're doing this in real time.
+[00:15:27] Adam: This sounds this year more than any other year. I'm a little bit disgusted with the idea of just buying some piece of shit that someone's going to put on their desk, like a chachki. So I feel much more inclined to to give something that's meaningful. And in the meaningful department for me, it's that we make something. And by we, my wife and I are planning to come in here in the next week and a half and make a bunch of presents for people. That is a real thing. And then also books. I love thinking about what someone likes and buying them a beautiful book about that thing or something that I think they're going to love. I recently bought. It's actually right over here. Hold on. Where is it? Wait a second. Oh, we're doing this in real time.
 
 [00:16:16] Norm: It's in real time.
 
@@ -380,9 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:16:49] Will: Is it an icebox plum? Icebox plum? We talk about
 
-[00:16:54] Adam: my word.
-
-[00:16:55] Adam: So Emily Wilson has retranslated the Odyssey, and it's a magnificent translation. It's really moving. It is. It is. It feels like you're reading something meant for the masses, and I mean that like in the Best possible way. It's super accessible. The emotions are really there. It's incredible.
+[00:16:54] Adam: my word. So Emily Wilson has retranslated the Odyssey, and it's a magnificent translation. It's really moving. It is. It is. It feels like you're reading something meant for the masses, and I mean that like in the Best possible way. It's super accessible. The emotions are really there. It's incredible.
 
 [00:17:16] Will: Dan Brown meets Homer.
 
@@ -464,9 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:20:13] Adam: There you go.
 
-[00:20:13] Will: All she knew was that she'd seen it
-
-[00:20:14] Will: on like a Curious George episode or something.
+[00:20:13] Will: All she knew was that she'd seen it on like a Curious George episode or something.
 
 [00:20:14] Adam: Nice.
 
@@ -496,9 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:21:02] Norm: I don't know if either of you have been to.
 
-[00:21:02] Adam: No,
-
-[00:21:09] Adam: I have never been, but Thing Thing Two performed at the Dickens Fair many years ago.
+[00:21:02] Adam: No, I have never been, but Thing Thing Two performed at the Dickens Fair many years ago.
 
 [00:21:13] Norm: So it's a tradition in San Francisco. I think it's going on for 35 years.
 
@@ -522,9 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:21:43] Will: in the
 
-[00:21:43] Norm: right, right. It's
-
-[00:21:44] Norm: like this
+[00:21:43] Norm: right, right. It's like this
 
 [00:21:45] Adam: where they have the gun shows.
 
@@ -534,9 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:21:58] Adam: Legless orphans begging,
 
-[00:22:00] Norm: totally right.
-
-[00:22:01] Norm: You could be like, okay, I'm I'm here for the merriment. I'm here for like the cosplaying because there's plenty of that. I'm here for the Westworld like Feel because there are actors, hundreds of actors, performing in character, running around, or you can be there for the food.
+[00:22:00] Norm: totally right. You could be like, okay, I'm I'm here for the merriment. I'm here for like the cosplaying because there's plenty of that. I'm here for the Westworld like Feel because there are actors, hundreds of actors, performing in character, running around, or you can be there for the food.
 
 [00:22:14] Adam: Did you guys dress up?
 
@@ -568,9 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:22:30] Unknown speaker: Wow.
 
-[00:22:34] Norm: Father Christmas
-
-[00:22:36] Norm: walks around. Okay. Yeah, it's it's great time. I enjoyed it.
+[00:22:34] Norm: Father Christmas walks around. Okay. Yeah, it's it's great time. I enjoyed it.
 
 [00:22:38] Will: I I we did two festive things so far. We went to the San Francisco Municipal Tree Lighting, which I've never been to. It's a is it sounded horrible.
 
@@ -628,9 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:24:29] Will: That's the advertising.
 
-[00:24:32] Norm: Yeah.
-
-[00:24:32] Norm: Right. Right. It's not like it's not spatially mapped. So it doesn't wrap around your house in a clever way. It's just like here is a projector on the side of your house.
+[00:24:32] Norm: Yeah. Right. Right. It's not like it's not spatially mapped. So it doesn't wrap around your house in a clever way. It's just like here is a projector on the side of your house.
 
 [00:24:41] Will: That's the next level.
 
@@ -746,13 +712,9 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:29:23] Will: No, Die Hard is my alternative.
 
-[00:29:24] Adam: Yeah, I'm a big fan of Shane Black.
+[00:29:24] Adam: Yeah, I'm a big fan of Shane Black. All of Shane Black's Christmas. They're all Christmas movies. Are all fantastic.
 
-[00:29:25] Adam: All of Shane Black's Christmas. They're all Christmas movies. Are all fantastic.
-
-[00:29:29] Norm: Kiss, kiss, bang, bang.
-
-[00:29:30] Norm: Lethal Weapon.
+[00:29:29] Norm: Kiss, kiss, bang, bang. Lethal Weapon.
 
 [00:29:31] Adam: Long kiss, good night.
 
@@ -768,9 +730,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:29:38] Adam: Die Hard Two is great. It's Die Hard Three and every other subsequent one that sucks ass.
 
-[00:29:38] Will: I like Three.
-
-[00:29:43] Will: Die Hard Three is really good.
+[00:29:38] Will: I like Three. Die Hard Three is really good.
 
 [00:29:46] Adam: The one with Sam Jackson?
 
@@ -784,9 +744,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:29:51] Adam: Disagree.
 
-[00:29:51] Will: Hot
-
-[00:29:52] Will: times summer in the city.
+[00:29:51] Will: Hot times summer in the city.
 
 [00:29:53] Adam: No, here's my here's my problem with Die Hard Three.
 
@@ -806,9 +764,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:30:37] Will: I've never seen Gremlins actually.
 
-[00:30:38] Norm: You should watch Gremlins instead of
-
-[00:30:39] Norm: Love Actually. You should watch Gremlins.
+[00:30:38] Norm: You should watch Gremlins instead of Love Actually. You should watch Gremlins.
 
 [00:30:41] Will: Okay.
 
@@ -842,9 +798,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:31:14] Adam: I love. I've always loved everything she's ever done. She takes everything she does and
 
-[00:31:19] Will: off the wall,
-
-[00:31:19] Will: and batty and delightful.
+[00:31:19] Will: off the wall, and batty and delightful.
 
 [00:31:19] Adam: bends it around a pipe and beats you over the head with it.
 
@@ -856,9 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:31:29] Adam: Is it really? Have you heard the radio interview about? Is it bad Santa? No,
 
-[00:31:34] Will: with Billy Bob Thornton.
-
-[00:31:34] Will: [unclear: and Mark Graham].
+[00:31:34] Will: with Billy Bob Thornton. [unclear: and Mark Graham].
 
 [00:31:35] Adam: No, it's all I can think of with Billy Bob Thornton is that hilarious and amazing radio interview he did in Canada where he went off the rails.
 
@@ -902,9 +854,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:32:55] Norm: Tommy Wiseau. Yes,
 
-[00:32:56] Adam: I heard that. I I've heard someone was just telling me maybe it was Ryan Kiser
-
-[00:33:00] Adam: was saying that the that the Disaster Artist is not just a compendium of the shittiest movie ever made. That there's actually some real heart to it.
+[00:32:56] Adam: I heard that. I I've heard someone was just telling me maybe it was Ryan Kiser was saying that the that the Disaster Artist is not just a compendium of the shittiest movie ever made. That there's actually some real heart to it.
 
 [00:33:09] Norm: I would say it's not even a good. It's not a compendium to to the room. Like people who are fans of how bad that film is as a cult film. Probably won't be satisfied by a disaster artist, but it's like it's like a Bowfinger light, like Bowfinger.
 
@@ -932,9 +882,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:33:34] Adam: but so that makes me more interested in seeing the disaster artist. I still don't have any interest in seeing the room.
 
-[00:33:39] Will: The room
-
-[00:33:39] Will: is one of those things that if you want, it's not going to be against your time. You shouldn't watch it at home unless you get a big, giant group of people because you need like it's like go to see Rocky Horror
+[00:33:39] Will: The room is one of those things that if you want, it's not going to be against your time. You shouldn't watch it at home unless you get a big, giant group of people because you need like it's like go to see Rocky Horror
 
 [00:33:46] Adam: [unclear: about yourself at the end of / at the end of]
 
@@ -958,9 +906,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:34:20] Norm: Your Name.
 
-[00:34:20] Adam: Oh,
-
-[00:34:20] Adam: and I have not seen it yet, and I have it queued up on my on my super drive on Blu-ray to watch at home because I've heard it's absolutely incredible.
+[00:34:20] Adam: Oh, and I have not seen it yet, and I have it queued up on my on my super drive on Blu-ray to watch at home because I've heard it's absolutely incredible.
 
 [00:34:51] Norm: I may have to borrow that from you after—.
 
@@ -1020,11 +966,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:37:13] Will: Man, I thought that was Sean Bean.
 
-[00:37:14] Adam: No,
-
-[00:37:16] Adam: You're mistaking me.
-
-[00:37:16] Adam: Sean Bean, Aaron Eckhart is another one.
+[00:37:14] Adam: No, You're mistaking me. Sean Bean, Aaron Eckhart is another one.
 
 [00:37:16] Norm: Wow,
 
@@ -1092,9 +1034,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:39:35] Adam: There's a trend I'm seeing happening, and it's concerning me. And it happened with both Mindhunter, and I watched all of the OA.
 
-[00:39:42] Norm: Oh,
-
-[00:39:43] Norm: okay.
+[00:39:42] Norm: Oh, okay.
 
 [00:39:43] Adam: And it is that I got to the end of both of those seasons and thought, great actors, great filmmaking, beautiful production value. Everyone is killing it. And after 10, and respectively 10 and 13 hours of television, I felt like I'd sat through about five and a half to six hours of television.
 
@@ -1200,9 +1140,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:42:50] Will: I think you drill the hole, but yeah, same thing. It seems like it'll be fun. Yeah.
 
-[00:42:53] Norm: Drill the hole, have a cigar.
-
-[00:42:53] Norm: Any other podcasts? Those two.
+[00:42:53] Norm: Drill the hole, have a cigar. Any other podcasts? Those two.
 
 [00:42:55] Adam: Those are the two main ones I've been listening to. I've been if you follow me on Twitter, which I am assuming a lot of the listeners here probably do, you know, I've been very political. I you know
 
@@ -1334,9 +1272,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:47:32] Norm: I'm glad both of you are fully constituted now in in physical form.
 
-[00:47:35] Will: Yeah,
-
-[00:47:35] Will: I feel like I'm much taller than I usually am. I don't know what happened.
+[00:47:35] Will: Yeah, I feel like I'm much taller than I usually am. I don't know what happened.
 
 [00:47:37] Adam: You're sitting on the what are you sitting on the bus chair? Yeah, the bus seat.
 
@@ -1346,11 +1282,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:47:49] Will: Well, Justice League comes out this weekend, so we're going to go see that.
 
-[00:47:52] Adam: There's something called the Last Jedi.
-
-[00:47:53] Adam: Last
-
-[00:47:53] Adam: Jedi. Jedi. Jedi.
+[00:47:52] Adam: There's something called the Last Jedi. Last Jedi. Jedi. Jedi.
 
 [00:47:55] Will: Jedi. I think is the name. It's for a planet from. I
 
@@ -1366,9 +1298,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:48:09] Will: Yeah, I've got I've got potentially three screenings between now and when we record.
 
-[00:48:09] Adam: Wow.
-
-[00:48:13] Adam: Yeah, I am going to spend this weekend at a wedding with some dear friends of mine, trying to avoid spoilers on the internet.
+[00:48:09] Adam: Wow. Yeah, I am going to spend this weekend at a wedding with some dear friends of mine, trying to avoid spoilers on the internet.
 
 [00:48:19] Will: Just don't get on the internet.
 
@@ -1390,11 +1320,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:49:41] Adam: I remember that, and he responded quite like, " I wish I could do it, but I can't."
 
-[00:49:44] Will: Oh, he was really, yeah, he was really into it. And then they announced that he was the director for Star Wars Eight, and Lucasfilm was like, "
-
-[00:49:49] Will: Nope.
-
-[00:49:50] Will: So yeah, here we are. But yeah,
+[00:49:44] Will: Oh, he was really, yeah, he was really into it. And then they announced that he was the director for Star Wars Eight, and Lucasfilm was like, " Nope. So yeah, here we are. But yeah,
 
 [00:49:54] Norm: I can't wait.
 
@@ -1402,9 +1328,7 @@ Episode URL: https://www.youtube.com/watch?v=2Ukt3Gw1_zU
 
 [00:49:55] Adam: Oh, his girlfriend actually also hosts a wonderful podcast on film history called " You Must Remember This."
 
-[00:49:55] Will: Oh, that's wow! Yeah,
-
-[00:50:02] Will: I love that podcast.
+[00:49:55] Will: Oh, that's wow! Yeah, I love that podcast.
 
 [00:50:02] Adam: It's an amazing podcast. It's like 120 episodes deep about all of film history. I just finished listening to the the Hollywood Blacklist. I think we talked about this already.
 

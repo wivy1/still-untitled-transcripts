@@ -14,9 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:00:10] Will: I'm Will Smith.
 
-[00:00:11] Adam: I was the only one without
-
-[00:00:13] Adam: a a a contraction. I am.
+[00:00:11] Adam: I was the only one without a a a contraction. I am.
 
 [00:00:15] Will: It's good. It's good that we keep it different every time. You know, some people might accuse us of phoning these in at some point. after. We're coming up on 100 episodes. I think we're getting close.
 
@@ -28,9 +26,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:00:25] Will: Yeah. So we don't number these. So I have no idea, but you can look at the feed and tell. Um,
 
-[00:00:33] Adam: I'm sure some of them—
-
-[00:00:33] Adam: How do you like your pebble? There, are you happy with it?
+[00:00:33] Adam: I'm sure some of them— How do you like your pebble? There, are you happy with it?
 
 [00:00:36] Norm: Uh, we both have one.
 
@@ -40,9 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:00:41] Adam: Did you wonder twin powers? Can you exchange calendar items by high-fiving?
 
-[00:00:44] Will: No.
-
-[00:00:44] Will: What the hell? And you know the Google Watch? You can talk to and say, " Okay, Google, tell me what time the movie starts."
+[00:00:44] Will: No. What the hell? And you know the Google Watch? You can talk to and say, " Okay, Google, tell me what time the movie starts."
 
 [00:00:49] Adam: All I want to say is, it's Dick Tracy.
 
@@ -278,9 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:07:39] Adam: rise of the planet of the apes is about the the experimentation that leads to the hyper intelligent ape Caesar, whose, uh, caretaker is played by, uh, James Franco, and it is about how Caesar becomes hyperintelligent and other apes also because of a virus, the simian flu virus, which also happens to have the negative quality of wiping out 499 out of every 500 people on Earth.
 
-[00:07:39] Norm: Yeah.
-
-[00:08:05] Norm: Well,
+[00:07:39] Norm: Yeah. Well,
 
 [00:08:05] Will: that's kind of a, it's like.
 
@@ -402,15 +394,11 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:12:11] Will: is that he's the only person that's performing at that level.
 
-[00:12:11] Adam: Well, in that constraint that we've seen now,
-
-[00:12:23] Adam: The— he's right now one of the masters of it. I mean, there are other people who are great physical performers, like Doug Jones, who has been in countless movies. If you look at his IMDb, he's been your favorite monster in every movie
+[00:12:11] Adam: Well, in that constraint that we've seen now, The— he's right now one of the masters of it. I mean, there are other people who are great physical performers, like Doug Jones, who has been in countless movies. If you look at his IMDb, he's been your favorite monster in every movie
 
 [00:12:35] Norm: in video games. Nolan North, um,
 
-[00:12:35] Adam: Mm-hmm.
-
-[00:12:37] Adam: but also in in this in, uh, Dawn of Planet of the Apes, um, they have. Judy Greer plays one of the apes,
+[00:12:35] Adam: Mm-hmm. but also in in this in, uh, Dawn of Planet of the Apes, um, they have. Judy Greer plays one of the apes,
 
 [00:12:43] Norm: and you would, who's Judy Greer?
 
@@ -422,9 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:12:56] Norm: Uh, no.
 
-[00:12:56] Will: No, that's
-
-[00:12:57] Will: Natascha something.
+[00:12:56] Will: No, that's Natascha something.
 
 [00:12:58] Adam: That's Natascha McEl— McElhone. Um, no, Judy Greer plays the wife of Matthew Lillard in The Descendants.
 
@@ -460,9 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:13:49] Adam: lead ape,
 
-[00:13:49] Norm: right?
-
-[00:13:50] Norm: And it's if you remember the original five Planet of the Apes movies, it was time travel. It was it was time paradox that brought it— about the the Planet of the Apes.
+[00:13:49] Norm: right? And it's if you remember the original five Planet of the Apes movies, it was time travel. It was it was time paradox that brought it— about the the Planet of the Apes.
 
 [00:14:02] Will: Charlton Heston goes forward in time to a world that shouldn't exist because it hasn't been created yet. Because he had to bring the apes back in order to make the world exist. Spoilers.
 
@@ -628,9 +612,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:19:54] Will: And I mean, I assume a lot of times they're just working on the movie and they're working on a green screen or in a mocap suit, yeah. And then they go away and come back and they see themselves as apes,
 
-[00:19:54] Norm: yeah.
-
-[00:20:01] Norm: So they get to watch it here, and it was at the Palace of Fine Arts, a lovely theater. It's one of the the buildings that was made for the World's Fair,
+[00:19:54] Norm: yeah. So they get to watch it here, and it was at the Palace of Fine Arts, a lovely theater. It's one of the the buildings that was made for the World's Fair,
 
 [00:20:01] Will: yeah,
 
@@ -654,9 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:20:33] Will: Cannibalistic human underground dwellers.
 
-[00:20:33] Norm: Yeah.
-
-[00:20:35] Norm: Okay. I was a chud. Um.
+[00:20:33] Norm: Yeah. Okay. I was a chud. Um.
 
 [00:20:37] Adam: Humanoid.
 
@@ -736,9 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:23:49] Will: Did he? Was he the director of the first film too? or was it someone else?
 
-[00:23:51] Norm: Okay.
-
-[00:23:51] Norm: I think it was someone else.
+[00:23:51] Norm: Okay. I think it was someone else.
 
 [00:23:52] Adam: I don't think so. Yeah.
 
@@ -790,9 +768,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:25:55] Will: Holds up.
 
-[00:25:56] Adam: Bull Durham, Tin Cup for the love of the game.
-
-[00:25:59] Adam: I love Tin Cup.
+[00:25:56] Adam: Bull Durham, Tin Cup for the love of the game. I love Tin Cup.
 
 [00:26:00] Will: Even Field of Dreams is okay. For me it's not a movie about sports though.
 
@@ -860,9 +836,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:28:07] Norm: Yeah, and and the stuff you know, you had to have a big set piece of apes fighting. You had to have that. That was much less thrilling than when Koba and Caesar when they fight the first fight they have, and Koba's on the ground.
 
-[00:28:07] Adam: Yeah,
-
-[00:28:22] Adam: with the blood in his teeth.
+[00:28:07] Adam: Yeah, with the blood in his teeth.
 
 [00:28:23] Norm: Oh my goodness, that was amazing.
 
@@ -872,9 +846,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:28:24] Adam: It's one of the most impressive sets he has ever seen in his life. That Caesar's home with the long built
 
-[00:28:24] Norm: full scale.
-
-[00:28:58] Norm: They built
+[00:28:24] Norm: full scale. They built
 
 [00:28:58] Adam: wow full scale. The whole Ape Village was built full scale for all those shots, and they had actors moving among them, and they were placing them and everything. Yeah, it was very cool.
 
@@ -954,9 +926,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:31:58] Norm: exactly.
 
-[00:31:58] Will: They're trying to beat Transformers, right? It comes out next week, or for us
-
-[00:32:02] Will: next week?
+[00:31:58] Will: They're trying to beat Transformers, right? It comes out next week, or for us next week?
 
 [00:32:02] Norm: Two weeks after.
 
@@ -968,9 +938,7 @@ Episode URL: https://www.youtube.com/watch?v=dLiMgIKQcaM
 
 [00:32:04] Norm: Oh, cool!
 
-[00:32:04] Adam: Said, so you do the stuff on Tested? I said, yeah. And he goes, " Is is Norm from Tested here?" And I said, " Yeah." And he goes, " I thought I recognized him."
-
-[00:32:33] Adam: I thought you'd appreciate that.
+[00:32:04] Adam: Said, so you do the stuff on Tested? I said, yeah. And he goes, " Is is Norm from Tested here?" And I said, " Yeah." And he goes, " I thought I recognized him." I thought you'd appreciate that.
 
 [00:32:34] Norm: Well. I didn't get to meet Gary Oldman or his sons.
 

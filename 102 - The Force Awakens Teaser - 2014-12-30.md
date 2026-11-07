@@ -156,9 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:02:43] Will: Yes,
 
-[00:02:43] Adam: That's true.
-
-[00:02:44] Adam: So we've seen the trailer.
+[00:02:43] Adam: That's true. So we've seen the trailer.
 
 [00:02:46] Will: Yes, the teaser.
 
@@ -320,11 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:08:36] Adam: Was the story good?
 
-[00:08:36] Will: We don't know.
-
-[00:08:36] Will: We don't know.
-
-[00:08:38] Will: When we saw eight shots of of the of episode one, it looked that first teaser trailer looked amazing. It had good music. The the robots come down. It looks really good.
+[00:08:36] Will: We don't know. We don't know. When we saw eight shots of of the of episode one, it looked that first teaser trailer looked amazing. It had good music. The the robots come down. It looks really good.
 
 [00:08:48] Adam: You can't tell anything.
 
@@ -490,9 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:17:01] Norm: If there was a slow-moving vehicle like a Death Star, then I absolutely believe that's a practical prop. But when we talk about fast-moving, yeah, maybe that's now. As someone who worked on in the art department for a Star Wars movie before, what did you think of the art design for the vehicles, the helmets, the guns, the uniforms?
 
-[00:17:17] Adam: Look, I, you know, Star Wars, the Star Wars franchise has this long history of having great designers and then not quite giving them the credit they deserve. I mean, like, you know, Ralph McQuarrie is the production designer of Star Wars, but he's not credited as he's more like the concept artist,
-
-[00:17:33] Adam: right? And Doug Chiang also, his paintings are what drove, and his his design and direction is what drove the prequels, and he has an incredible eye. I think the design of most of what goes on in the prequels is gorgeous. I think that
+[00:17:17] Adam: Look, I, you know, Star Wars, the Star Wars franchise has this long history of having great designers and then not quite giving them the credit they deserve. I mean, like, you know, Ralph McQuarrie is the production designer of Star Wars, but he's not credited as he's more like the concept artist, right? And Doug Chiang also, his paintings are what drove, and his his design and direction is what drove the prequels, and he has an incredible eye. I think the design of most of what goes on in the prequels is gorgeous. I think that
 
 [00:17:50] Norm: Those silver ships are unbelievable.
 
@@ -504,9 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:17:58] Norm: The B-wing looking one. Wow.
 
-[00:17:58] Adam: Uh huh.
-
-[00:18:00] Adam: Yeah, we were we were literally like heat stretching mylar onto these giant fiberglass sections.
+[00:17:58] Adam: Uh huh. Yeah, we were we were literally like heat stretching mylar onto these giant fiberglass sections.
 
 [00:18:00] Unknown: Really?
 
@@ -632,9 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:24:18] Adam: It does
 
-[00:24:18] Will: Like when
-
-[00:24:19] Will: Han Solo turns the corner and sees the stormtrooper.
+[00:24:18] Will: Like when Han Solo turns the corner and sees the stormtrooper.
 
 [00:24:20] Adam: It's also has this added benefit of of of sifting the racists out among the Star Wars fans because they get all upset about that.
 
@@ -736,11 +724,7 @@ Episode URL: https://www.youtube.com/watch?v=1s_YY_MYkfI
 
 [00:27:35] Norm: yeah, back in those days, send your letters in for story ideas. I'll take your.
 
-[00:27:39] Adam: Luke and Han find themselves stranded in a cabin over the weekend.
-
-[00:27:41] Adam: Is that where they ended up? Is that
-
-[00:27:45] Adam: where? Oh boy! All the storms washed out the road. Looks like we're going to be here for a while.
+[00:27:39] Adam: Luke and Han find themselves stranded in a cabin over the weekend. Is that where they ended up? Is that where? Oh boy! All the storms washed out the road. Looks like we're going to be here for a while.
 
 [00:27:48] Norm: Not going to get Harrison to sign off on that.
 

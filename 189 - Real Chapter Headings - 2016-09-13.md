@@ -14,11 +14,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:00:50] Norm: Whoa! Wait a minute.
 
-[00:00:53] Will: Wait, where’s this lineup?
-
-[00:00:53] Will: [unclear: We’re missing…].
-
-[00:00:53] Will: This isn't the right people. What the hell are you guys doing here?
+[00:00:53] Will: Wait, where’s this lineup? [unclear: We’re missing…]. This isn't the right people. What the hell are you guys doing here?
 
 [00:00:58] Adam: It has been
 
@@ -72,9 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:02:38] Norm: Mm-hmm.
 
-[00:02:38] Adam: You sat him next to me. Thank you. That was lovely. We had a lot of fun, and I knew his wife because she had presented at
-
-[00:02:48] Adam: EG.
+[00:02:38] Adam: You sat him next to me. Thank you. That was lovely. We had a lot of fun, and I knew his wife because she had presented at EG.
 
 [00:02:49] Norm: The show.
 
@@ -142,9 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:04:21] Norm: welcome back.
 
-[00:04:21] Adam: Thank you.
-
-[00:04:23] Adam: Welcome back to the mission.
+[00:04:21] Adam: Thank you. Welcome back to the mission.
 
 [00:04:24] Norm: Yeah,
 
@@ -370,9 +362,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:12:23] Norm: [unclear: Right]. No cell phones. Need to get there. No, we're gonna sleep there.
 
-[00:12:23] Adam: Oh.
-
-[00:12:28] Adam: It's amazing.
+[00:12:23] Adam: Oh. It's amazing.
 
 [00:12:29] Will: Wow.
 
@@ -584,9 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:18:39] Norm: Question: How did you did you guys document it?
 
-[00:18:42] Adam: We took tons and tons of photos, which I tweeted and Instagram
-
-[00:18:45] Adam: the whole way. Yeah. Um. Uh. I was very good about sending uh sending back bunches of pictures for for tweeting out as I was going. Um. We didn't want to tell people exactly where I was going or where, so we did it about a day delayed.
+[00:18:42] Adam: We took tons and tons of photos, which I tweeted and Instagram the whole way. Yeah. Um. Uh. I was very good about sending uh sending back bunches of pictures for for tweeting out as I was going. Um. We didn't want to tell people exactly where I was going or where, so we did it about a day delayed.
 
 [00:19:00] Will: Um.
 
@@ -628,9 +616,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:21:02] Adam: yeah
 
-[00:21:02] Will: It, it isn't
-
-[00:21:02] Will: a great experience it freezes for like five minutes
+[00:21:02] Will: It, it isn't a great experience it freezes for like five minutes
 
 [00:21:22] Norm: and the reason I ask if you documented it is because that trip across country that 10 day trip or however long it usually takes that is the right amount of time you see enough different things that when people used to do it in the 20th century and they shot it with film you get this amazing story
 
@@ -788,9 +774,7 @@ Episode URL: https://www.youtube.com/watch?v=BiEqYUWj5dA
 
 [00:30:20] Norm: we were all of them. Where all of us been traveling?
 
-[00:30:23] Will: You're gonna talk about this?
-
-[00:30:24] Will: I think you have the cool one, though.
+[00:30:23] Will: You're gonna talk about this? I think you have the cool one, though.
 
 [00:30:24] Norm: Yeah, just came back 18 days from the high Arctic with Joey.
 

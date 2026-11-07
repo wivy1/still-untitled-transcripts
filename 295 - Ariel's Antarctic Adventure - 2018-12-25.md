@@ -196,11 +196,7 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:21:01] Norm: What are you doing?
 
-[00:21:01] Ariel: You're just kind of miserable
-
-[00:21:03] Ariel: because like there's no room for anyone to sit. So you've got this netting, and you have to pretty much sit like right, right next to everyone, even though there's like only like 20, 25 people on the plane. It's just not meant for passengers. And then the first two hours, you're you know, because it's not pressurized, you're really, really cold because you're leaving Antarctica. And then, like two hours in, I sort of like half woke up, and it was just really freaking hot because you're entering summertime in New Zealand, and so it's like so everyone just started like stripping all of their like exterior wear off, and like it was just really hot all of a sudden.
-
-[00:23:00] Ariel: Yeah.
+[00:21:01] Ariel: You're just kind of miserable because like there's no room for anyone to sit. So you've got this netting, and you have to pretty much sit like right, right next to everyone, even though there's like only like 20, 25 people on the plane. It's just not meant for passengers. And then the first two hours, you're you know, because it's not pressurized, you're really, really cold because you're leaving Antarctica. And then, like two hours in, I sort of like half woke up, and it was just really freaking hot because you're entering summertime in New Zealand, and so it's like so everyone just started like stripping all of their like exterior wear off, and like it was just really hot all of a sudden. Yeah.
 
 [00:23:00] Will: So when you're we're bouncing all over the place here, but I like everything you say makes me think of like eight different questions. What when you're in the base? So you're camping. You said you're kind of cold all the time. It's just it's just there's no campfires because nothing to burn. Yeah. You have a stove to make boiling water, and that's what what. Can make you warm, right? Okay, right, because I guess you're not supposed to scoop.
 
@@ -296,9 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=LgbFV5sB1QY
 
 [00:33:12] Will: Oh, so it's that was my next question.
 
-[00:33:12] Ariel: Yeah,
-
-[00:33:14] Ariel: the sea floor. So I know that the sea floor depth around that area is around 75 meters or 75 feet. Sorry, 75 feet. So you're Sort of suspended in the middle between the sea ice and the seafloor.
+[00:33:12] Ariel: Yeah, the sea floor. So I know that the sea floor depth around that area is around 75 meters or 75 feet. Sorry, 75 feet. So you're Sort of suspended in the middle between the sea ice and the seafloor.
 
 [00:33:29] Will: How how um what's the sea life like on the floor under the like I I assume there's not like kelp forests and stuff like that because there's not light.
 

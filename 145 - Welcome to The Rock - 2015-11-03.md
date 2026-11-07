@@ -116,9 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:05:47] Adam: he's actually he said since then that he could tell I was doing a lot of the work, so he figured he didn't have to.
 
-[00:05:47] Will: Wow.
-
-[00:05:57] Will: So that's one of those things. If you're out with three people in a boat, at least one of them is not going to know how to paddle.
+[00:05:47] Will: Wow. So that's one of those things. If you're out with three people in a boat, at least one of them is not going to know how to paddle.
 
 [00:06:01] Adam: Well, what we had to do was that one person had to be inflating the boat the whole time with their mouth, because it was losing air, and we had to. We I think we had to fill it with air like five times on the way, and cold was not a problem. We were wearing inmate coveralls made of wool. We were wearing pea coats, and that was it. I think we had hidden the life jacket under the pea coat for safety. But we were sweating bullets. I was actually scooping San Francisco water into my sleeve to wash over my chest to stop sweating.
 
@@ -192,9 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:09:01] Adam: You you no, there's space behind the jail was built for escape. When you look at how they got out, it is like behind every cell is a five foot walkway of plumbing.
 
-[00:09:01] Will: Hey, I know what that is.
-
-[00:09:16] Will: It's the wet wall,
+[00:09:01] Will: Hey, I know what that is. It's the wet wall,
 
 [00:09:17] Adam: right? It is the wet wall, like from the Matrix. Yeah. So, we I asked if I could, you know, parkour up the wet wall, and they said yes. But then I realized I couldn't grab onto any of the ancient plumbing, and that it would be bad if I fell, so I didn't. But the the escapees actually made that climb every night for months onto the roof of that cell block in order to assemble the rafts. And even more than that, when you look at how they did it, they socially engineered the guards to choose the the lazier guards to have the night shift. And at one point, one of the guards I'm probably remembering this somewhat wrong, but I remember reading at one point one of the guards was going to get replaced, and they managed to keep him from getting replaced because he would sleep on the job and let them have a couple of hours of peace to put their raft together.
 
@@ -212,9 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:11:48] Norm: A loss at sea. Right.
 
-[00:11:49] Adam: Yeah. I mean, it would be the greatest secret ever kept. But then I'm thinking about the guy who, several people have admitted to being D.B. Cooper, but the one that I found the saddest was what I consider to be maybe the most correct one is this guy. On his deathbed, he pulled his wife over and he said, " I'm DB Cooper." And she said, " Who?" I don't imagine if you were actually DB Cooper, you'd be like, "
-
-[00:12:12] Adam: Oh!"
+[00:11:49] Adam: Yeah. I mean, it would be the greatest secret ever kept. But then I'm thinking about the guy who, several people have admitted to being D.B. Cooper, but the one that I found the saddest was what I consider to be maybe the most correct one is this guy. On his deathbed, he pulled his wife over and he said, " I'm DB Cooper." And she said, " Who?" I don't imagine if you were actually DB Cooper, you'd be like, " Oh!"
 
 [00:12:12] Will: And then the dying gasp. She collects the death, death, death, breathe, breath, and puts it in a jar and puts on the shelf and writes DB Cooper's last breath question mark.
 
@@ -514,9 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=l78LOeky5eA
 
 [00:19:58] Adam: I was on the Alameda runway I was expecting to go half the runway
 
-[00:20:03] Will: okay okay and Norm any other Do we feel like we've mined the Alcatraz topic entirely
-
-[00:20:09] Will: Yeah.
+[00:20:03] Will: okay okay and Norm any other Do we feel like we've mined the Alcatraz topic entirely Yeah.
 
 [00:20:09] Norm: no I remember I remember the Rock being filmed.
 

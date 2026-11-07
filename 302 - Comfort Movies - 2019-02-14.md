@@ -66,15 +66,9 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:01:52] Adam: Right.
 
-[00:01:52] Will: But sometimes you were
+[00:01:52] Will: But sometimes you were looking at it like, how is this going to work out? Okay, you'll get there.
 
-[00:02:12] Will: looking at it like, how is this going to work out?
-
-[00:02:15] Will: Okay, you'll get there.
-
-[00:02:15] Adam: Yeah.
-
-[00:02:16] Adam: I I really appreciate the kind of I watch a lot of online builds. It's almost exclusively what I watch, and I watch a lot of people pre-plan stuff in CAD.
+[00:02:15] Adam: Yeah. I I really appreciate the kind of I watch a lot of online builds. It's almost exclusively what I watch, and I watch a lot of people pre-plan stuff in CAD.
 
 [00:02:16] Unknown speaker: Mm-hmm.
 
@@ -164,9 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:07:01] Adam: Interviewing other people professionally is real. Interviewing other people is hard. It is. It's difficult work. I spend most of my time terrified. My brain is going to draw a complete blank when it's time for another question, and it gave me a lot of sympathy and it gave me a lot of empathy for my interlocutors when I encounter them.
 
-[00:07:01] Will: Well, you know,
-
-[00:07:23] Will: but at the same time, it's really fun to prepare for those interviews. Like when you were doing Talking Room, and Norm and I would help you, like, like you were still shooting MythBusters, you didn't have time to go back and watch six movies or you know read every interview with Jason Reitman that had been published in the last five years, so you could figure out what people had asked and what they hadn't, where they hadn't gotten to, and it was really, really fun. Like normally, the stuff that Norm and I were doing, we would, we would know, we would have the background information, and then we would ask some questions of the PR people or the technical people or whatever before we do an interview. But it was really, really fun. But kind of there wasn't a lot of time to to do deep prep,
+[00:07:01] Will: Well, you know, but at the same time, it's really fun to prepare for those interviews. Like when you were doing Talking Room, and Norm and I would help you, like, like you were still shooting MythBusters, you didn't have time to go back and watch six movies or you know read every interview with Jason Reitman that had been published in the last five years, so you could figure out what people had asked and what they hadn't, where they hadn't gotten to, and it was really, really fun. Like normally, the stuff that Norm and I were doing, we would, we would know, we would have the background information, and then we would ask some questions of the PR people or the technical people or whatever before we do an interview. But it was really, really fun. But kind of there wasn't a lot of time to to do deep prep,
 
 [00:07:23] Adam: right?
 
@@ -274,9 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:12:03] Will: I've never read or I've never engaged with any of that.
 
-[00:12:05] Adam: Oh, okay. So first of all, the books are very readable, and there's three written by the original author post mortem, sorry, published post mortem, and they're. I'm sorry to say this. They're terrible books. I mean, they're good. They're trashy, trashy pulpy books.
-
-[00:12:20] Adam: Yeah, with like the number of coincidences that help Lisbeth Salander get out of trouble. It's so myriad and exhausting. It's
+[00:12:05] Adam: Oh, okay. So first of all, the books are very readable, and there's three written by the original author post mortem, sorry, published post mortem, and they're. I'm sorry to say this. They're terrible books. I mean, they're good. They're trashy, trashy pulpy books. Yeah, with like the number of coincidences that help Lisbeth Salander get out of trouble. It's so myriad and exhausting. It's
 
 [00:12:29] Norm: ridiculous. It's written as a book where the chapter end and you the every chapter end is a cliffhanger.
 
@@ -318,9 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:13:42] Adam: I know comfort is a weird term.
 
-[00:13:44] Will: Yeah, the the yeah. We have to talk Adam.
-
-[00:13:48] Will: I have some thoughts about what you find comfortable. There is a couple of scenes in Casino Royale that are pretty uncomfortable, you know, and then all the the cannibalism and the the the. Do you hear the lambs?
+[00:13:44] Will: Yeah, the the yeah. We have to talk Adam. I have some thoughts about what you find comfortable. There is a couple of scenes in Casino Royale that are pretty uncomfortable, you know, and then all the the cannibalism and the the the. Do you hear the lambs?
 
 [00:13:59] Adam: Here is the thing about Silence of the Lambs, Jonathan Demme. Is so amazing. R.I.P. I mean, he's so incredible, and we talked about swimming to Cambodia, and Stop Making Sense on the podcast because those are two amazing films. But as a narrative filmmaker, * Silence of the Lambs* is a perfect movie, and it's a deeply feminist film. There are so imagine this. There's a point at which Clarice and Scott Glenn, her boss, go to. There's a body that's been found in the river. They go to the together, representing the FBI, and then he pulls the police chief aside and he says, " I need to talk to you away from like the women, meaning Clarice Starling, played by Jodie Foster,
 
@@ -422,9 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:18:53] Will: well, so a lot of them aren't aren't available so much yet. So
 
-[00:18:53] Norm: yeah,
-
-[00:18:57] Norm: that it's a good one.
+[00:18:53] Norm: yeah, that it's a good one.
 
 [00:18:57] Will: It was interesting. It was not at all what I was expecting. It was very good.
 
@@ -690,13 +676,9 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:28:52] Will: That's exciting.
 
-[00:28:52] Norm: Yeah,
+[00:28:52] Norm: Yeah, soft reboot,
 
-[00:29:09] Norm: soft reboot,
-
-[00:29:09] Will: meaning
-
-[00:29:11] Will: yeah, they’re going to continue.
+[00:29:09] Will: meaning yeah, they’re going to continue.
 
 [00:29:11] Norm: in universe.
 
@@ -710,9 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:29:15] Will: where the 21 Jump Street guys get promoted to be Men in Black on the third movie.
 
-[00:29:15] Adam: Oh,
-
-[00:29:23] Adam: really?
+[00:29:15] Adam: Oh, really?
 
 [00:29:23] Norm: That was, it was.
 
@@ -724,9 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:29:34] Will: Yeah,
 
-[00:29:34] Adam: right.
-
-[00:29:35] Adam: The fan theory
+[00:29:34] Adam: right. The fan theory
 
 [00:29:36] Will: that Kevin McAllister goes up to be Jigsaw.
 
@@ -988,9 +966,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:37:53] Norm: Is there a documentary about the production of that?
 
-[00:37:54] Will: I don’t, I don’t.
-
-[00:37:54] Will: Like that would be a great oral
+[00:37:54] Will: I don’t, I don’t. Like that would be a great oral
 
 [00:37:56] Adam: history behind the scenes. It's about 30 minutes long of it that I just watched on YouTube.
 
@@ -1042,9 +1018,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:39:56] Will: If they, yeah, if Roger Deakins got his Oscar this year and they cut the acceptance speech down,
 
-[00:39:56] Adam: dude,
-
-[00:40:00] Adam: I get very stabby right away.
+[00:39:56] Adam: dude, I get very stabby right away.
 
 [00:40:01] Norm: I think they're gonna. I mean, I can only imagine they're cutting it down the same way that they show a montage for the technical awards.
 
@@ -1062,9 +1036,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:40:45] Will: I think that's exactly right.
 
-[00:40:45] Adam: And that’s the thing that
-
-[00:40:45] Adam: Feels so sad.
+[00:40:45] Adam: And that’s the thing that Feels so sad.
 
 [00:40:55] Will: Yeah,
 
@@ -1116,9 +1088,7 @@ Episode URL: https://www.youtube.com/watch?v=eOAp5cKdXbI
 
 [00:42:06] Norm: Let's talk about the Academy Awards after it airs.
 
-[00:42:08] Will: Is it next weekend? Is it this weekend?
-
-[00:42:08] Will: I don't. I haven't watched the Academy Awards in so long. I don't. I kind of don't want to start now. I don't want to encourage them.
+[00:42:08] Will: Is it next weekend? Is it this weekend? I don't. I haven't watched the Academy Awards in so long. I don't. I kind of don't want to start now. I don't want to encourage them.
 
 [00:42:16] Norm: Twitter will let me know.
 

@@ -324,9 +324,7 @@ Episode URL: https://www.youtube.com/watch?v=m7aqiOUOibI
 
 [00:35:28] Adam: Right.
 
-[00:35:28] Norm: Like we were doing a couple on the first few of these videos and trips, we'd shoot a bunch different distances, and then there's a whole process to ingest that, to upload that to a headset, and then in the hotel room, literally going through, oh, I like version 3 the best. So next day, that's the those are distances that we measure out and
-
-[00:35:46] Norm: and and film for, yeah.
+[00:35:28] Norm: Like we were doing a couple on the first few of these videos and trips, we'd shoot a bunch different distances, and then there's a whole process to ingest that, to upload that to a headset, and then in the hotel room, literally going through, oh, I like version 3 the best. So next day, that's the those are distances that we measure out and and and film for, yeah.
 
 [00:35:48] Adam: So, just casting our minds forward, if we do more of these, like, are there some specific things you're dying to try out, or that you feel like didn't quite nail that, or excited about adding some aspect?
 

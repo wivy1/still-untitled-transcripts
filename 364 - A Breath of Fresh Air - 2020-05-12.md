@@ -22,15 +22,11 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:00:18] Will: Yeah.
 
-[00:00:19] Adam: Two.
-
-[00:00:20] Adam: I hit traffic this weekend for the first time in 10 weeks.
+[00:00:19] Adam: Two. I hit traffic this weekend for the first time in 10 weeks.
 
 [00:00:25] Will: I I drove the car this morning for the first time since March 6. I think.
 
-[00:00:31] Norm: Did you feel guilty about it, or did you like?
-
-[00:00:34] Norm: How did you feel?
+[00:00:31] Norm: Did you feel guilty about it, or did you like? How did you feel?
 
 [00:00:34] Will: Well, first I had to, I had to top off the battery because I I forgot to start one of them for a you know let's say a month and it didn't it cranked a little slower than I liked so I just put the charger on it yeah. Um. But then after it was it was going, I was like, well, let's go for a drive and see what it's like out in the world. And and my daughter and I piled in the car and we drove around town for a little bit and checked out familiar places. She's like, Dad, it feels like we're going really fast. It was like we're going 22 miles an hour, sweetheart. This is fine.
 
@@ -68,9 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:05:15] Will: The the hustle the hustle of the city is, I—I have to imagine is is is the first casualty of this whole thing, right?
 
-[00:05:24] Adam: One could only hope?
-
-[00:05:27] Adam: Well, I just wish that everyone would wear masks. This is the thing, is and this is I don't want to like I have an opinion about the specific types of people I think aren't wearing masks, and I won't voice it because it's just my own dumb like bias. But I want to say if you're listening to this and you're not wearing a mask, you're being kind of a jerk. Like,
+[00:05:24] Adam: One could only hope? Well, I just wish that everyone would wear masks. This is the thing, is and this is I don't want to like I have an opinion about the specific types of people I think aren't wearing masks, and I won't voice it because it's just my own dumb like bias. But I want to say if you're listening to this and you're not wearing a mask, you're being kind of a jerk. Like,
 
 [00:05:49] Will: yeah,
 
@@ -258,9 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:23:52] Norm: And I I think there are a lot of probably similarities in that these they're fantasy stories. Where we think of Star Wars, not necessarily science fiction, but a fantasy. But both Avatar and Star Wars have these kind of universal truths. and tell a hero, a traditional hero’s journey. Um, that’s very resonant, and it made me think about, you know, obviously under Disney, you have the MCU and you have Star Wars, and they're both $1 billion franchise machines, and they have a you know a shared audience, at least in the United States. But why is it that fans? What is it that separates like the expectations between an MCU movie, like an Avengers movie, and a next Star Wars movie, and why are they maybe held to different standards, or why, and as fans, why do you why do we weigh them different? I have I have I'll
 
-[00:24:38] Adam: yeah, but
-
-[00:24:39] Adam: I mean I think there's there's so much more to it than just the fan response. There's also the institutional inertia of the decision-making process because I think it's pretty cool. I mean, of course, Kathleen Kennedy and her team, John Knoll and all those wonderful people at Lucasfilm have a procedure that they've been doing and working with each other and to great success for decades, and the same thing is true with Kevin Feige and his whole team. But they're they're not the same at all, right? Like all of the ways in which they—it’s just hard to imagine a Star Wars universe that would let a movie like Ragnarok happen. And yet, I am really hopeful now that they're all under the Disney banner that that might occur. And what you say about the about the behind the scenes stuff is really exciting to me.
+[00:24:38] Adam: yeah, but I mean I think there's there's so much more to it than just the fan response. There's also the institutional inertia of the decision-making process because I think it's pretty cool. I mean, of course, Kathleen Kennedy and her team, John Knoll and all those wonderful people at Lucasfilm have a procedure that they've been doing and working with each other and to great success for decades, and the same thing is true with Kevin Feige and his whole team. But they're they're not the same at all, right? Like all of the ways in which they—it’s just hard to imagine a Star Wars universe that would let a movie like Ragnarok happen. And yet, I am really hopeful now that they're all under the Disney banner that that might occur. And what you say about the about the behind the scenes stuff is really exciting to me.
 
 [00:25:29] Norm: But in the same vein, I think there are fans that don't want that too. That I've heard directly from fans who say a Ragnarok style a comedy in Star Wars is not what I want, and they hold it on a different pedestal.
 
@@ -490,9 +482,7 @@ Episode URL: https://www.youtube.com/watch?v=bFMMHXpVtpI
 
 [00:45:51] Adam: Yeah,
 
-[00:45:51] Will: that's a good point. Norm
-
-[00:45:52] Will: Norm's giving me the stop talking will.
+[00:45:51] Will: that's a good point. Norm Norm's giving me the stop talking will.
 
 [00:45:55] Norm: We we will issue our homework uh on social media after we've discussed it. Um. But it's good to see you guys. Yeah. See what you're building, Adam. Uh. I hope everyone stays safe. Uh. Last shout out. Um. Our friend Max at Lunar Replicas sent.
 

@@ -16,9 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:00:42] Norm: apologies for the late podcast this week. We're recording. We've decided to wait till 4/20 to record the podcast.
 
-[00:00:42] Will: Woo! Dude!
-
-[00:00:49] Will: Something in the air when I was walking down the street in the mission today.
+[00:00:42] Will: Woo! Dude! Something in the air when I was walking down the street in the mission today.
 
 [00:00:52] Adam: That's every day in the mission.
 
@@ -36,9 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:01:09] Adam: Yes, right.
 
-[00:01:10] Norm: You’ve got to paint a word picture
-
-[00:01:11] Norm: because Yelp has partnered with a robotics company named Marble, and they have a a delivery robot, autonomous delivery robot with a chaperone, I guess. But the robot
+[00:01:10] Norm: You’ve got to paint a word picture because Yelp has partnered with a robotics company named Marble, and they have a a delivery robot, autonomous delivery robot with a chaperone, I guess. But the robot
 
 [00:01:23] Will: semi-autonomous, I think.
 
@@ -162,9 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:04:31] Unknown speaker: Decades apart.
 
-[00:04:32] Will: Norm, Norm,
-
-[00:04:34] Will: so you you have to know who Crystal Gayle is. You have to know who Loretta Lynn is because she did an album with Jack White.
+[00:04:32] Will: Norm, Norm, so you you have to know who Crystal Gayle is. You have to know who Loretta Lynn is because she did an album with Jack White.
 
 [00:04:34] Adam: Okay,
 
@@ -532,9 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:19:51] Will: To, to me, it was it was that he showed he showed that he was he was really worried about what was going to happen to him versus what was happening to him. And you could like in the script they illustrated that with the with the progression of his violence against that door, right?
 
-[00:19:51] Norm: Right.
-
-[00:19:51] Norm: Right.
+[00:19:51] Norm: Right. Right.
 
 [00:19:51] Will: His conversations with the bartender, and in
 
@@ -548,13 +540,9 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:20:32] Adam: the shot of him but the shot of him. Outside the door, when you saw how much equipment he'd brought to try and get into the bridge, it made me deeply sad, and I really felt for that character of like, yeah, screw it, I am going to try every last thing, and all the tools laid out there, the mess—I mean, I've like was brilliantly laid out, and that was the one time I felt real.
 
-[00:20:52] Will: And that was the show
+[00:20:52] Will: And that was the show with the takeout food, [unclear: right? / Right. Right.]
 
-[00:20:53] Will: with the takeout food, [unclear: right? / Right. Right.]
-
-[00:20:54] Norm: Yeah,
-
-[00:20:55] Norm: that was. And then they instead told they had the Laurence Fishburne character say, " Tell the audience a drowning man, you know, drags everyone down. A sinking man [unclear: … / drags / drowns], you know, he was drowning. Like, I don't need that told to me. Show it in more cases.
+[00:20:54] Norm: Yeah, that was. And then they instead told they had the Laurence Fishburne character say, " Tell the audience a drowning man, you know, drags everyone down. A sinking man [unclear: … / drags / drowns], you know, he was drowning. Like, I don't need that told to me. Show it in more cases.
 
 [00:20:55] Will: Yeah.
 
@@ -594,9 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:23:05] Norm: so he has the mind of a a child and been alone, and it's really the deep end.
 
-[00:23:05] Adam: that's cool.
-
-[00:23:09] Adam: That's messed up, and I mean that that takes me a long way towards understanding. But then I would imagine that,
+[00:23:05] Adam: that's cool. That's messed up, and I mean that that takes me a long way towards understanding. But then I would imagine that,
 
 [00:23:16] Norm: and two,
 
@@ -706,9 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=lAQ3FYli4dU
 
 [00:26:41] Will: yeah harvest the skin cells out of the busted busted yeah
 
-[00:26:41] Adam: right right right
-
-[00:26:45] Adam: We’re going to have to scrape the fingernails of
+[00:26:41] Adam: right right right We’re going to have to scrape the fingernails of
 
 [00:26:47] Norm: the the other solution that I have and this is what I'm most happy with
 

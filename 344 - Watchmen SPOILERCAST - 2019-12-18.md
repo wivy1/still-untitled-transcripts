@@ -44,9 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:00:50] Adam: Yeah, I'm not seeing it tomorrow.
 
-[00:00:52] Will: Neither am I. I'm going on Saturday.
-
-[00:00:53] Will: Thanks, Norm. By the way,
+[00:00:52] Will: Neither am I. I'm going on Saturday. Thanks, Norm. By the way,
 
 [00:00:56] Norm: no problem. I bought tickets, and then I was able to relinquish the tickets so Will could buy those seats.
 
@@ -136,9 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:04:05] Adam: Oh yes. Oh, my God. So sad.
 
-[00:04:07] Norm: Yeah, characters that
-
-[00:04:07] Norm: were larger than life and and you know, big parts of our lives and their childhoods.
+[00:04:07] Norm: Yeah, characters that were larger than life and and you know, big parts of our lives and their childhoods.
 
 [00:04:12] Will: Well, and these performances that outlived the the performers.
 
@@ -296,9 +292,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:09:12] Will: Okay,
 
-[00:09:12] Norm: and then we will at some point discuss it.
-
-[00:09:13] Norm: As soon as we all get on board.
+[00:09:12] Norm: and then we will at some point discuss it. As soon as we all get on board.
 
 [00:09:13] Will: Okay.
 
@@ -336,9 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:09:58] Norm: oh Hong Chau,
 
-[00:10:00] Adam: so wonderful and wow! This episode, you know, I I enjoyed the spit out of this series. I think it's one of my favorite series I've seen from both a technical storytelling perspective. Like I loved all the characters. I loved how the world was built. I loved how much they didn't hold your hand because knowing early what knowing having read the Watchmen, so much is filled in for you. And if you haven't read the Watchmen, they don't fill a ton in, or there's there's some there's some gaps. I felt like, or I wondered. Anyway, sorry, I'm getting ahead of myself. I love the spit out of it,
-
-[00:10:46] Adam: and also I think as as social commentary. A really, really powerful show.
+[00:10:00] Adam: so wonderful and wow! This episode, you know, I I enjoyed the spit out of this series. I think it's one of my favorite series I've seen from both a technical storytelling perspective. Like I loved all the characters. I loved how the world was built. I loved how much they didn't hold your hand because knowing early what knowing having read the Watchmen, so much is filled in for you. And if you haven't read the Watchmen, they don't fill a ton in, or there's there's some there's some gaps. I felt like, or I wondered. Anyway, sorry, I'm getting ahead of myself. I love the spit out of it, and also I think as as social commentary. A really, really powerful show.
 
 [00:10:50] Will: It's one of the, it's not just one of the best series of TV I've watched in ever that I remember. Really, it is impactful in a way that a lot of this kind of TV isn't. Like you hear a superhero TV show, and you're like, oh well, I mean, there's there, like there's a bunch of superhero TV shows out there, but they're all pretty light. Or, or you know, in the Netflix Marvel stuff, they were hyper violent, or they were, you know, there, the hook wasn't we're going to really make you think about a lot of things that aren't people in masks punching each other. Yeah, and and that's I spent more time like this this Damon Lindelof has been living in my head for the last nine weeks.
 
@@ -374,9 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:13:10] Will: That makes him angry to the point that he doesn't want to have anything to do with.
 
-[00:13:14] Norm: Totally. Yeah.
-
-[00:13:15] Norm: So the creators of the original Watchmen graphic novel, Alan Moore, written by Alan Moore, drawn by Dave Gibbons. Dave Gibbons has been in a better relationship with the rights holders, which is Warner Media, which owns HBO and DC Comics. Of course, Alan Moore washed his hands of any adaptation of his work. You know, even going back before the Zack Snyder Watchmen of V for Vendetta,
+[00:13:14] Norm: Totally. Yeah. So the creators of the original Watchmen graphic novel, Alan Moore, written by Alan Moore, drawn by Dave Gibbons. Dave Gibbons has been in a better relationship with the rights holders, which is Warner Media, which owns HBO and DC Comics. Of course, Alan Moore washed his hands of any adaptation of his work. You know, even going back before the Zack Snyder Watchmen of V for Vendetta,
 
 [00:13:36] Will: League of Extraordinary Gentlemen.
 
@@ -426,11 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:17:06] Adam: This was the series. This was the first time I felt seriously. And I look. There's some things that Zack Snyder has done that are surpassingly beautiful. Whatever you think about the films themselves, I mean, some of the imagery he has brought to life has been incredible. But there were so many points in this series, Watchmen series, where I felt like, wow, they really are like grabbing the comic book. It's like so many points at which I felt like I was reading a comic book. I was in the season finale last night. I was watching that ship take off from Europa.
 
-[00:17:43] Norm: Mm-hmm.
-
-[00:17:44] Norm: Spoiler.
-
-[00:17:45] Norm: We're now in spoilers. We're in spoilers now.
+[00:17:43] Norm: Mm-hmm. Spoiler. We're now in spoilers. We're in spoilers now.
 
 [00:17:47] Adam: I'll be tiny spoiler here. We're watching that ship take off. All the aspects of that ship, and I'm thinking every one of these shots is like a comic book shot.
 
@@ -460,9 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:19:16] Norm: Yeah.
 
-[00:19:17] Adam: Oh wow. Okay. So let's get to the spoilers.
-
-[00:19:19] Adam: The season finale aired Sunday night.
+[00:19:17] Adam: Oh wow. Okay. So let's get to the spoilers. The season finale aired Sunday night.
 
 [00:19:24] Norm: Yes,
 
@@ -508,9 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:20:01] Adam: Right.
 
-[00:20:01] Will: He's not wearing his uniform.
-
-[00:20:01] Will: No, it's like this. Like all of the people that worked on this, so much work went into these costumes. So much work went into these sets. The the props, the models, the rocket ships, the flying ships, the return of of of Archimedes, Archimedes, the Nite Owl ship, the one that you licked.
+[00:20:01] Will: He's not wearing his uniform. No, it's like this. Like all of the people that worked on this, so much work went into these costumes. So much work went into these sets. The the props, the models, the rocket ships, the flying ships, the return of of of Archimedes, Archimedes, the Nite Owl ship, the one that you licked.
 
 [00:20:20] Adam: Uh, it's not Archimedes,
 
@@ -594,11 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:24:24] Adam: spell out that message to just an incredible and such a comic book plot, right?
 
-[00:24:25] Will: Yeah.
-
-[00:24:29] Will: The kind of comic book plot is like, well, I could draw anything I want,
-
-[00:24:32] Will: but like the thing, the most revealing part of that to me is that Doctor Manhattan thought he was doing him a favor by sending him there.
+[00:24:25] Will: Yeah. The kind of comic book plot is like, well, I could draw anything I want, but like the thing, the most revealing part of that to me is that Doctor Manhattan thought he was doing him a favor by sending him there.
 
 [00:24:39] Norm: No, he was punishing him. Oh, whoa,
 
@@ -636,9 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:25:55] Adam: philosophical question.
 
-[00:25:55] Norm: no, and
-
-[00:25:56] Norm: from his perspective,
+[00:25:55] Norm: no, and from his perspective,
 
 [00:25:57] Adam: I'm not sure I agree. And I would point out that I think actually the one bit of free will Doctor Manhattan does, I think this entire series is predicated on Doctor Manhattan's first meeting with Angela Abar, and. His understanding that in meeting her six months after they fall in love, she's going to say, " What are you risking?" and then he is literally going to risk everything. And that I think that the central message of the film is this beautiful description of love as leaving a part of yourself in the people that you. This actually choking me up as I say it. Um, him leaving the egg for her is both a leaving of his powers with the person most equipped to see the world for what it is and to actually do something good with those powers.
 
@@ -660,9 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:27:17] Norm: Lady Trieu, is much smarter and more capable than Adrian Veidt.
 
-[00:27:20] Adam: And the device that he's being held in gets
-
-[00:27:22] Adam: destroyed.
+[00:27:20] Adam: And the device that he's being held in gets destroyed.
 
 [00:27:26] Will: by the yeah
 
@@ -736,17 +710,13 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:30:36] Adam: Oh, really? Oh, fascinating.
 
-[00:30:38] Norm: Yeah.
-
-[00:30:39] Norm: Um, so that is again part of the meta awareness and subversion of uh of the Superman trope.
+[00:30:38] Norm: Yeah. Um, so that is again part of the meta awareness and subversion of uh of the Superman trope.
 
 [00:30:46] Adam: Yeah, we're all letting this show wash over us as we're thinking. about.
 
 [00:30:49] Will: I literally watched this on the plane at 11 o'clock last night, so it's it's it's still real fresh in a way that like I haven't had time to think about it.
 
-[00:30:57] Norm: Yeah, no, I watched it.
-
-[00:30:58] Norm: Do you think Laurie got the the the moments, the finale moments that she deserved?
+[00:30:57] Norm: Yeah, no, I watched it. Do you think Laurie got the the the moments, the finale moments that she deserved?
 
 [00:31:03] Will: I feel like
 
@@ -816,9 +786,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:34:20] Norm: when she goes to defend him against Seventh Kavalry,
 
-[00:34:23] Adam: I love that bit where he
-
-[00:34:25] Adam: turns to her and says, " This is the moment I'm falling in love with you."
+[00:34:23] Adam: I love that bit where he turns to her and says, " This is the moment I'm falling in love with you."
 
 [00:34:27] Norm: And that that is his free will, like that. That is his ability to self actualize. You know, the thing that he knows what is going to happen.
 
@@ -886,9 +854,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:38:17] Will: Yeah,
 
-[00:38:17] Adam: just from a different vantage point, and she's crazy again. She is also stupid smart. Like
-
-[00:38:26] Adam: they're all they're all top tenth of a percentile humans,
+[00:38:17] Adam: just from a different vantage point, and she's crazy again. She is also stupid smart. Like they're all they're all top tenth of a percentile humans,
 
 [00:38:26] Will: right? Right. Even the even the bad, yeah.
 
@@ -914,9 +880,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:39:14] Norm: Right. And That's what she wanted all along. It's Winston from Ghostbusters.
 
-[00:39:19] Adam: Who?
-
-[00:39:20] Adam: Oh, right,
+[00:39:19] Adam: Who? Oh, right,
 
 [00:39:21] Norm: Winston from Ghostbusters is the guy who is the what's going on here? Oh my God, this world is crazy.
 
@@ -940,9 +904,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:40:34] Will: Thank you. I was digging, and you just pulled me right. Yeah,
 
-[00:40:37] Adam: no, no, yeah,
-
-[00:40:38] Adam: you're exactly right. Like the way in which the loose ends all coalesce to bring the story to its fruition, yeah, is kind of amazing from a technical standpoint.
+[00:40:37] Adam: no, no, yeah, you're exactly right. Like the way in which the loose ends all coalesce to bring the story to its fruition, yeah, is kind of amazing from a technical standpoint.
 
 [00:40:49] Will: I think that's the thing that appeals to me. That I mean, the characters are lovely. I can't say what appeals to us. It's one of the things that I love is that for for a thing where there's a character to whom plot doesn't matter, the plot is perfect.
 
@@ -1058,9 +1020,7 @@ Episode URL: https://www.youtube.com/watch?v=ZDFnwHItFb4
 
 [00:45:25] Will: Well, it's 15 years later too.
 
-[00:45:27] Adam: Yeah, yeah.
-
-[00:45:27] Adam: And I think that you know, Ron Moore, they owe a debt of gratitude to Ron Moore and other other people, especially within the science fiction realm, because it really seems to be this great Trojan horse that gets social commentary past your cognitive filters of like I am teaching you a lesson.
+[00:45:27] Adam: Yeah, yeah. And I think that you know, Ron Moore, they owe a debt of gratitude to Ron Moore and other other people, especially within the science fiction realm, because it really seems to be this great Trojan horse that gets social commentary past your cognitive filters of like I am teaching you a lesson.
 
 [00:45:46] Will: I don't. This is very thoughtful way.
 

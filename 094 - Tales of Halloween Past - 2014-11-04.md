@@ -94,9 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:03:32] Norm: The robots will never replace us. They can't get their clothes on right.
 
-[00:03:32] Adam: Stupid robots
-
-[00:03:38] Adam: can't get dressed.
+[00:03:32] Adam: Stupid robots can't get dressed.
 
 [00:03:39] Will: Robots don't wear clothes, Norm.
 
@@ -140,9 +138,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:05:34] Norm: right in the middle.
 
-[00:05:34] Adam: I mean, it’s like drop
-
-[00:05:38] Adam: a hat.
+[00:05:34] Adam: I mean, it’s like drop a hat.
 
 [00:05:38] Norm: There's a there's a great exhibit right now at the EMP at the Experience Music Project that's just about music videos, history of music videos, and there is a section on OK Go, which for better or worse, they're known for music videos. They are known for the the feats they do.
 
@@ -248,9 +244,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:09:09] Will: Okay.
 
-[00:09:09] Adam: I think I was wearing a
-
-[00:09:10] Adam: different hat. Yeah.
+[00:09:09] Adam: I think I was wearing a different hat. Yeah.
 
 [00:09:11] Norm: The Segway failed. I mean, one because it was expensive, but two, it failed because it was too weird, because in the court of public opinion, the public immediately deemed it that's weird.
 
@@ -310,9 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:11:48] Adam: Yes, I figured that out by myself.
 
-[00:11:48] Norm: Really,
-
-[00:11:50] Norm: and then yeah, and they they rehearsed it. Guess how many times they had the rehearsal?
+[00:11:48] Norm: Really, and then yeah, and they they rehearsed it. Guess how many times they had the rehearsal?
 
 [00:11:54] Adam: I'm going to guess 100 times.
 
@@ -350,13 +342,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:12:55] Norm: and it's a crappy ride.
 
-[00:12:55] Adam: Oh,
-
-[00:12:58] Adam: you just
-
-[00:12:59] Adam: shit on his
-
-[00:12:59] Adam: childhood.
+[00:12:55] Adam: Oh, you just shit on his childhood.
 
 [00:12:59] Norm: I I also had fond memories that ride was a kid.
 
@@ -468,9 +454,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:16:19] Will: It's it's it's like I said, I like going to Disney World because it's a design. It's an amazing design place.
 
-[00:16:19] Norm: Yeah.
-
-[00:16:24] Norm: So would you never want to be an Imagineer?
+[00:16:19] Norm: Yeah. So would you never want to be an Imagineer?
 
 [00:16:27] Adam: So don't don't get me wrong. I would love to be Imagineer. I know a bunch of Imagineers.
 
@@ -524,9 +508,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:17:58] Will: Yeah.
 
-[00:17:58] Adam: Well done. That
-
-[00:18:02] Adam: was there's a good segue.
+[00:17:58] Adam: Well done. That was there's a good segue.
 
 [00:18:03] Will: Yeah, we're throwing softballs today, guys. So, Adam, when you go trick or treating, do you take your Segway or do you just go on foot?
 
@@ -546,17 +528,11 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:19:10] Will: red up your nose a little bit if you want to be a wino.
 
-[00:19:12] Adam: Exactly.
-
-[00:19:13] Adam: Like this was like romanticized
-
-[00:19:15] Adam: homelessness. What assholes?
+[00:19:12] Adam: Exactly. Like this was like romanticized homelessness. What assholes?
 
 [00:19:16] Norm: Singing or stabbing?
 
-[00:19:16] Adam: Right.
-
-[00:19:18] Adam: Singing or stabbing?
+[00:19:16] Adam: Right. Singing or stabbing?
 
 [00:19:18] Will: Which kind of hobo?
 
@@ -566,9 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:19:24] Norm: That's the Simpsons. It's a classic Simpsons reference. There's only two kinds.
 
-[00:19:28] Adam: It's amazing.
-
-[00:19:31] Adam: Sorry, I didn’t mean to.
+[00:19:28] Adam: It's amazing. Sorry, I didn’t mean to.
 
 [00:19:31] Will: We broke Adam.
 
@@ -608,13 +582,9 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:20:30] Norm: No.
 
-[00:20:30] Adam: Yeah. No. There is irony is totally dead. It's the. Did you read the Great Onion GamerGate article? GamerGate is a thing, or maybe it isn't. If it isn't, write us. We'll change this.
+[00:20:30] Adam: Yeah. No. There is irony is totally dead. It's the. Did you read the Great Onion GamerGate article? GamerGate is a thing, or maybe it isn't. If it isn't, write us. We'll change this. Please don’t hurt us.
 
-[00:20:46] Adam: Please don’t hurt us.
-
-[00:20:46] Norm: Let us know
-
-[00:20:48] Norm: what everything we should change.
+[00:20:46] Norm: Let us know what everything we should change.
 
 [00:20:49] Will: Let us know what mistakes we made. Yeah.
 
@@ -622,9 +592,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:21:00] Will: Yeah. Well, that that. But you knew that was going to happen. You knew it was only a matter of time.
 
-[00:21:04] Adam: Got it all the way
-
-[00:21:04] Adam: through.
+[00:21:04] Adam: Got it all the way through.
 
 [00:21:05] Norm: Yeah. They were sexy corn. Come on.
 
@@ -672,11 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:22:03] Will: Of course,
 
-[00:22:03] Adam: it didn't take much.
-
-[00:22:25] Adam: So my kids
-
-[00:22:26] Adam: these days with their dads making. Full foam stormtrooper costumes—they're spoiled.
+[00:22:03] Adam: it didn't take much. So my kids these days with their dads making. Full foam stormtrooper costumes—they're spoiled.
 
 [00:22:31] Norm: Getting Adam Savage to make a duck costume
 
@@ -806,9 +770,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:27:02] Adam: but if you didn't have a costume, what were you? You just were on the sidelines, or you had to walk as I am Joe Smith.
 
-[00:27:07] Norm: I am a hobo.
-
-[00:27:08] Norm: You didn't get to walk, and all the kids like you had to have some costume.
+[00:27:07] Norm: I am a hobo. You didn't get to walk, and all the kids like you had to have some costume.
 
 [00:27:08] Adam: Wow.
 
@@ -898,9 +860,7 @@ Episode URL: https://www.youtube.com/watch?v=h5qxXphyY8g
 
 [00:30:26] Adam: My my son is taking my Ghostbusters costume to school on Friday.
 
-[00:30:26] Will: Ooh,
-
-[00:30:31] Will: yeah. We're dressing up my daughter as a panda from her favorite book Chu's Day.
+[00:30:26] Will: Ooh, yeah. We're dressing up my daughter as a panda from her favorite book Chu's Day.
 
 [00:30:35] Adam: That's awesome.
 

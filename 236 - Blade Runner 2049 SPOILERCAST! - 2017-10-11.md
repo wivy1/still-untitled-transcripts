@@ -12,9 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:00:10] Adam: Hello,
 
-[00:00:10] Will: Hello,
-
-[00:00:10] Will: gentlemen.
+[00:00:10] Will: Hello, gentlemen.
 
 [00:00:10] Norm: Hi.
 
@@ -54,9 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:01:31] Adam: Um. So New York Comic Con was phenomenal. I was there from Wednesday, from Tuesday evening all the way until Sunday. You guys showed up Wednesday,
 
-[00:01:41] Norm: Mm-hmm, mm-hmm.
-
-[00:01:41] Norm: and which is such a different thing. Last year it was literally one day almost in and out when we packed so much in. But nice having spaced out with two big panels that you did one with Neil deGrasse Tyson for Star Talk, which I got to say was one of my favorite panels I've seen. Period.
+[00:01:41] Norm: Mm-hmm, mm-hmm. and which is such a different thing. Last year it was literally one day almost in and out when we packed so much in. But nice having spaced out with two big panels that you did one with Neil deGrasse Tyson for Star Talk, which I got to say was one of my favorite panels I've seen. Period.
 
 [00:01:41] Adam: Really?
 
@@ -106,9 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:04:10] Will: Oh yeah,
 
-[00:04:11] Adam: was like, there’s so much
-
-[00:04:12] Adam:  problematic material.
+[00:04:11] Adam: was like, there’s so much problematic material.
 
 [00:04:15] Will: Chandler might be gay, and Joey's kind of offensive womanizing. Like not even kind of offensive, just offensive womanizing. I
 
@@ -162,9 +156,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:05:21] Will: Um. So so like New York Comic Con has always been really interesting to me because I assume it's like like when we go to Maker Faire here and when we went to Maker Faire in New York, they kind of have it's like going to Canada, right? Everybody speaks the same language, everything's the same. It's the same event. It's
 
-[00:05:34] Adam: a little twisted, right?
-
-[00:05:34] Adam: Yes, exactly right.
+[00:05:34] Adam: a little twisted, right? Yes, exactly right.
 
 [00:05:35] Will: They put Canadian bacon instead of normal bacon on their on their breakfast sandwiches.
 
@@ -180,9 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:06:22] Will: How does it? Does it?
 
-[00:06:22] Adam: It's got little linkages, the same as the Chewbacca mask.
-
-[00:06:25] Adam: Linkages between the upper lip and the lower jaw, and the lower lip and the upper jaw, so that when you open it up, those linkages pull these.
+[00:06:22] Adam: It's got little linkages, the same as the Chewbacca mask. Linkages between the upper lip and the lower jaw, and the lower lip and the upper jaw, so that when you open it up, those linkages pull these.
 
 [00:06:32] Will: So it hooks your jaw.
 
@@ -210,9 +200,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:07:28] Will: I know
 
-[00:07:28] Adam: we initiated
-
-[00:07:29] Adam: Norm into cosplay.
+[00:07:28] Adam: we initiated Norm into cosplay.
 
 [00:07:31] Norm: Oh yeah, Thursday, you were Chewbacca 
 
@@ -258,9 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:08:18] Will: Okay.
 
-[00:08:18] Norm: Uh, I was just using a ANOVOS helmet and a costume that we had from some friends. Um. It you know gaskets and all the armor pieces.
-
-[00:08:28] Norm: No, no, no, no.
+[00:08:18] Norm: Uh, I was just using a ANOVOS helmet and a costume that we had from some friends. Um. It you know gaskets and all the armor pieces. No, no, no, no.
 
 [00:08:28] Will: Okay.
 
@@ -342,11 +328,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:13:34] Adam: It's totally true. And again, the answer is always going to be yes when you ask questions about the costume; they're going to love to talk about it because they worked hard on it. When I was going around in the ape mask and taking pictures of people, I got some great stories from folks about the the build of their costumes, and that's. Totally delightful.
 
-[00:13:51] Will: This is probably one of the big differences in New York Comic Con, right? If you're in San Diego during San Diego Comic Con, you're there to go to San Diego Comic Con, or you live in San Diego and avoid San Diego Comic Con, right? If you're in New York,
-
-[00:14:04] Will: it's just a thing that happens.
-
-[00:14:05] Will: You buy a ticket that weekend, you take the subway, and you're there, and it's not. It's it is simultaneously less special and much more accessible.
+[00:13:51] Will: This is probably one of the big differences in New York Comic Con, right? If you're in San Diego during San Diego Comic Con, you're there to go to San Diego Comic Con, or you live in San Diego and avoid San Diego Comic Con, right? If you're in New York, it's just a thing that happens. You buy a ticket that weekend, you take the subway, and you're there, and it's not. It's it is simultaneously less special and much more accessible.
 
 [00:14:13] Adam: Okay.
 
@@ -386,9 +368,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:16:00] Norm: Uh, let's go, let's go have ourselves a private meeting and powwow over there.
 
-[00:16:05] Adam: There's a lot to go over, and I want to tell you that since I saw the one of the early screenings now, you know, two weeks ago, it's been killing me not to have anyone to talk to the movie about
-
-[00:16:16] Adam: until this week.
+[00:16:05] Adam: There's a lot to go over, and I want to tell you that since I saw the one of the early screenings now, you know, two weeks ago, it's been killing me not to have anyone to talk to the movie about until this week.
 
 [00:16:17] Will: Yeah,
 
@@ -426,9 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:17:58] Will: That's true,
 
-[00:17:58] Norm: yeah.
-
-[00:17:58] Norm: And it wasn't to save the world, although maybe it was. I don't know. We'll see.
+[00:17:58] Norm: yeah. And it wasn't to save the world, although maybe it was. I don't know. We'll see.
 
 [00:18:02] Adam: I mean, yeah. Look, I've now seen it three times. My, my ultimate, my first take upon seeing it three times is, oh my god, see it in Dolby, not an IMAX, if you have a choice. Did
 
@@ -586,9 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:24:45] Will: No, no, there's a projector.
 
-[00:24:45] Adam: It is a projection.
-
-[00:24:47] Adam: It also the ways in which it interacts with the person is it's got clearly it's got expression mapping. It can see she scrolls through different dresses to see what his interest level is. Right. I thought that was fascinating.
+[00:24:45] Adam: It is a projection. It also the ways in which it interacts with the person is it's got clearly it's got expression mapping. It can see she scrolls through different dresses to see what his interest level is. Right. I thought that was fascinating.
 
 [00:24:47] Norm: Yeah.
 
@@ -612,11 +588,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:25:41] Norm: [unclear: Joi is like / Hope you’re satisfied with our product]. I
 
-[00:25:42] Adam: love you.
-
-[00:25:42] Adam: Like, bzzz.
-
-[00:25:42] Adam: And then the music is all like, boom. and this is clearly, but but that's not what we feel. We're like he just. It's like someone broke his phone in front of him.
+[00:25:42] Adam: love you. Like, bzzz. And then the music is all like, boom. and this is clearly, but but that's not what we feel. We're like he just. It's like someone broke his phone in front of him.
 
 [00:25:53] Will: I felt, I felt, I felt pain for God, Ryan Gosling,
 
@@ -652,9 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:26:48] Adam: she's phenomenal in this movie.
 
-[00:26:48] Will: He’s still alive.
-
-[00:26:55] Will: She’s really good.
+[00:26:48] Will: He’s still alive. She’s really good.
 
 [00:26:55] Adam: In fact, I just a shout out to almost every performance is incredible.
 
@@ -704,9 +674,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:30:41] Norm: and he's told to have a purpose is to be the closest they can be to human.
 
-[00:30:41] Adam: Exactly.
-
-[00:30:46] Adam: But so so I can I I think that the idea to me isn't to be human; it's another evolution of sentience. That's to me. There is a difference, and look, the end of the movie has Deckard and K, and again, Deckard's replicant. Deckard's a replicant.
+[00:30:41] Adam: Exactly. But so so I can I I think that the idea to me isn't to be human; it's another evolution of sentience. That's to me. There is a difference, and look, the end of the movie has Deckard and K, and again, Deckard's replicant. Deckard's a replicant.
 
 [00:31:07] Norm: I think I think Deckard’s
 
@@ -748,9 +716,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:33:00] Adam: all the early
 
-[00:33:01] Norm: Alice.
-
-[00:33:01] Norm: No.
+[00:33:01] Norm: Alice. No.
 
 [00:33:02] Adam: it might be.
 
@@ -880,9 +846,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:36:34] Adam: Terrifying, and she says, " You tiny thing," and she says, " You can't stop the ocean with the broom, except that I did." Oh, because he told you, and we never lie. She says, " it almost sings." Yes. Like she like, I am gonna tell, mm, mm, mm. She is five. She's a total. She's like the cruelty of a second grader. Yeah,
 
-[00:36:52] Will: Yeah,
-
-[00:36:52] Will: I mean that's absolutely true.
+[00:36:52] Will: Yeah, I mean that's absolutely true.
 
 [00:36:53] Unknown speaker (Adam or Norm): Yeah,
 
@@ -900,9 +864,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:37:07] Norm: She's a Robin Wright.
 
-[00:37:07] Adam: She's a Robin Wright.
-
-[00:37:07] Adam: Every moment she’s on the scene.
+[00:37:07] Adam: She's a Robin Wright. Every moment she’s on the scene.
 
 [00:37:09] Norm: Let’s just say that. Incredible. I love her when she’s in, I, I, the scene when she's in K's apartment.
 
@@ -1088,17 +1050,13 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:45:39] Will: Can we talk about how the movie looks for a little bit,
 
-[00:45:39] Norm: please?
-
-[00:45:39] Norm: Yes,
+[00:45:39] Norm: please? Yes,
 
 [00:45:39] Will: Roger Deakins is
 
 [00:45:45] Adam: a god.
 
-[00:45:46] Will: Yeah, who has like when I went through and looked, I was like, I gotta see who did the who the DP and the cinematographer were on this, and was like, oh right, Roger Deakins, and I went down the list of movies Roger Deakins has made, and it's basically everything the Coen brothers have done since Hud Sucker, I think, and then like Sam Mendes, so Skyfall, and Sicario, Arrival.
-
-[00:45:46] Will: Sicario. No, he didn’t do Arrival.
+[00:45:46] Will: Yeah, who has like when I went through and looked, I was like, I gotta see who did the who the DP and the cinematographer were on this, and was like, oh right, Roger Deakins, and I went down the list of movies Roger Deakins has made, and it's basically everything the Coen brothers have done since Hud Sucker, I think, and then like Sam Mendes, so Skyfall, and Sicario, Arrival. Sicario. No, he didn’t do Arrival.
 
 [00:45:46] Norm: Oh, he didn’t do Arrival.
 
@@ -1160,9 +1118,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:50:22] Adam: Yes, the harpoon with the with the electricity wrecking kite.
 
-[00:50:22] Norm: Yeah, yeah,
-
-[00:50:28] Norm: what a great
+[00:50:22] Norm: Yeah, yeah, what a great
 
 [00:50:28] Will: Tesla concept!
 
@@ -1288,9 +1244,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:54:25] Norm: No, the resistance did.
 
-[00:54:25] Will: Oh, they did. Okay.
-
-[00:54:29] Will: Yeah,
+[00:54:25] Will: Oh, they did. Okay. Yeah,
 
 [00:54:29] Norm: You’re right. They hid her.
 
@@ -1350,9 +1304,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:56:32] Norm: and that's just one. Both thematically, I think there's an issue with that because I don't think you can. That I don't think that really works. And then also mechanically, logistically, the replicants, even if they could make babies, there's, then the that's exactly what Wallace wants because Wallace wants them to make babies too, so he can enslave them.
 
-[00:56:50] Adam: Right,
-
-[00:56:50] Adam: So why is it subversive? Well, it's subversive if they have the control. It's basically who controls the means of production.
+[00:56:50] Adam: Right, So why is it subversive? Well, it's subversive if they have the control. It's basically who controls the means of production.
 
 [00:56:56] Norm: Right. So if if having babies is more means of production, then it's not really about the fact that having the baby makes you a person.
 
@@ -1398,17 +1350,13 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [00:59:48] Will: blackout and it's in the prequel as well. The and and that and that and that's the basis of his kind of megalomania, right? The other part of it is that when he kills the replicant in the bag, he looked at that. What he this is what Leto said is he looked at that as Steve Jobs picks up an iPhone off the line, looks at it, it's got a scratch on the front. He smashes it so that they can't send a bad one out to market, right? And would you feel would you feel morally would you feel like that's morally repugnant if you smash an iPhone that's broken? And I
 
-[01:00:22] Adam: got that the second time, but the first
-
-[01:00:24] Adam: time it was intense, and I couldn't quite figure it out. Yeah, it wasn't really super obvious to me. And look, this is the measure of a truly great film that it engenders so many different interpretations and so much different layering of how those interpretations play out when you start to tease them.
+[01:00:22] Adam: got that the second time, but the first time it was intense, and I couldn't quite figure it out. Yeah, it wasn't really super obvious to me. And look, this is the measure of a truly great film that it engenders so many different interpretations and so much different layering of how those interpretations play out when you start to tease them.
 
 [01:00:41] Norm: I think my only issue with him is that they hired Jared Leto because he has a mystique to him, which I think they wanted in the character. And you get that you get the mystique, but you also get this baggage of because of his Joker role, and you you get him being you know, like evil. And they talked about wanting to get David Bowie potentially for the role initially, and then with that, I think David Bowie, you would get all mystique, and but none of the like you would have to, it would be more, maybe more layered. Oh,
 
 [01:01:10] Will: the character has to be evil.
 
-[01:01:11] Adam: Well, I know, the character is evil.
-
-[01:01:13] Adam: and I look Leto's performance gets better with for me also each time I've seen the film. Yeah, it gets it gets more nuanced. Um, once I understand, once I know the dialogue, it becomes I can concentrate on other aspects of the performance and what's going on.
+[01:01:11] Adam: Well, I know, the character is evil. and I look Leto's performance gets better with for me also each time I've seen the film. Yeah, it gets it gets more nuanced. Um, once I understand, once I know the dialogue, it becomes I can concentrate on other aspects of the performance and what's going on.
 
 [01:01:28] Norm: The The character has to be evil objectively, and is, but you have to also understand that why he sees himself as good.
 
@@ -1606,13 +1554,9 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [01:09:52] Will: Sixth?
 
-[01:09:52] Norm: He’s done a lot of
+[01:09:52] Norm: He’s done a lot of French Canadian films too.
 
-[01:09:57] Norm: French Canadian films too.
-
-[01:09:57] Will: Okay,
-
-[01:09:59] Will: like I don't know anybody who's making consistently better movies.
+[01:09:57] Will: Okay, like I don't know anybody who's making consistently better movies.
 
 [01:09:59] Adam: Not right now.
 
@@ -1626,9 +1570,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [01:10:10] Adam: Norm, how about this? How about this fact that that was the most expensive movie Ryan Gosling's been in? That was the biggest budget film he’s been in.
 
-[01:10:10] Norm: Really,
-
-[01:10:16] Norm: and the biggest opening.
+[01:10:10] Norm: Really, and the biggest opening.
 
 [01:10:17] Adam: Yeah, he said that. He was like, " That's the biggest film I've ever been in. I've never been in a movie." Yeah,
 
@@ -1644,11 +1586,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [01:10:33] Will: What's Crazy Stupid Love?
 
-[01:10:33] Adam: Oh,
-
-[01:10:33] Adam: that's like the very problematic
-
-[01:10:36] Adam: movie with him and Steve Carell and Emma Stone.
+[01:10:33] Adam: Oh, that's like the very problematic movie with him and Steve Carell and Emma Stone.
 
 [01:10:38] Norm: Julianne Moore, Emma Stone.
 
@@ -1728,9 +1666,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [01:12:09] Will: Ooh.
 
-[01:12:09] Adam: which I submit are among it's one of the great film openings in history. Um, it begins with the desert discovery in the, uh, in the Sonoran Desert of the of the flight, the famous flight lost in 1940s of of airplanes, and they all seem brand new, uh, and, uh, it then continues to air traffic controllers in a control room hearing a plane have an encounter with a UFO. Just. Spielberg, young Spielberg, showing this incendiary talent, Um, and I just I love the idea of great film openings. You talk about the first 15 minutes of Sicario. Agreed. Nilo Rodis-Jamero exhorted me to watch Laputa or Castle in the Sky in the early '90s. He sent me to Japan to buy a Japanese VHS so I could watch it. He goes, " You won't be able to. It's not subtitled, but it doesn't matter." He said, " In the opening of Castle in the Sky is maybe one of the greatest openings in film history."
-
-[01:13:20] Adam: Oh, you’re thinking about
+[01:12:09] Adam: which I submit are among it's one of the great film openings in history. Um, it begins with the desert discovery in the, uh, in the Sonoran Desert of the of the flight, the famous flight lost in 1940s of of airplanes, and they all seem brand new, uh, and, uh, it then continues to air traffic controllers in a control room hearing a plane have an encounter with a UFO. Just. Spielberg, young Spielberg, showing this incendiary talent, Um, and I just I love the idea of great film openings. You talk about the first 15 minutes of Sicario. Agreed. Nilo Rodis-Jamero exhorted me to watch Laputa or Castle in the Sky in the early '90s. He sent me to Japan to buy a Japanese VHS so I could watch it. He goes, " You won't be able to. It's not subtitled, but it doesn't matter." He said, " In the opening of Castle in the Sky is maybe one of the greatest openings in film history." Oh, you’re thinking about
 
 [01:13:20] Will: Star Wars. I mean, it opens and it introduces two incredible characters and these villains, and right, it's a short film in and of itself, right?
 
@@ -1746,9 +1682,7 @@ Episode URL: https://www.youtube.com/watch?v=o5Gw3cAh41A
 
 [01:13:50] Will: Yeah.
 
-[01:13:51] Adam: Um, I saw your list on social media.
-
-[01:13:52] Adam: [unclear speaker: Adam or Unknown] [unclear: I haven’t, I haven’t considered that / I’ve been thinking about it for about two weeks. I haven’t considered that]. I haven't really thought
+[01:13:51] Adam: Um, I saw your list on social media. [unclear speaker: Adam or Unknown] [unclear: I haven’t, I haven’t considered that / I’ve been thinking about it for about two weeks. I haven’t considered that]. I haven't really thought
 
 [01:13:55] Norm: through that. What is this? The five movies.
 

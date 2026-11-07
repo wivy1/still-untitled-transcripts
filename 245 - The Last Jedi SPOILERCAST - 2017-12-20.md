@@ -60,9 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:02:22] Norm: So let's set up some context.
 
-[00:02:23] Adam: Okay,
-
-[00:02:23] Adam: let's set up some context.
+[00:02:23] Adam: Okay, let's set up some context.
 
 [00:02:24] Norm: Right, so Last Jedi, Last Jedi, second film, Episode eight. Rian Johnson came in and wrote and directed. Rian Johnson, who wrote and directed all all the films he wrote and directed, Brothers Bloom, Brick, Looper, or his three past films. Did he have one more?
 
@@ -184,11 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:11:09] Norm: I 100% agree. I felt Mark Hamill’s.
 
-[00:11:11] Will: Carrie Fisher was
-
-[00:11:12] Will: astounding,
-
-[00:11:12] Will: as well.
+[00:11:11] Will: Carrie Fisher was astounding, as well.
 
 [00:11:13] Adam: I and I will tell you, I've been reading some of the interviews with Rian Johnson about what it was like to work with Mark Hamill, and I I I hear between the lines. I'm sensing between the lines that Mark Hamill is a handful.
 
@@ -230,9 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:15:13] Adam: No, I have not seen Brothers Bloom.
 
-[00:15:14] Norm: So, so
-
-[00:15:15] Norm: I will say you both are in for a treat.
+[00:15:14] Norm: So, so I will say you both are in for a treat.
 
 [00:15:17] Adam: Ooh!
 
@@ -290,9 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:18:11] Will: yeah,
 
-[00:18:12] Adam: totally, totally
-
-[00:18:13] Adam: right. She's incredible in this movie and an amazing heroine.
+[00:18:12] Adam: totally, totally right. She's incredible in this movie and an amazing heroine.
 
 [00:18:18] Norm: All right,
 
@@ -362,9 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:20:13] Will: I yeah,
 
-[00:20:13] Adam: and
-
-[00:20:14] Adam: so they don't like that.
+[00:20:13] Adam: and so they don't like that.
 
 [00:20:14] Will: So they don’t like.
 
@@ -378,9 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:20:41] Norm: right? Like the expectation that we would find out who Snoke is and that we would find out uh, who, uh, Rey’s parents are. Yeah. Like the the mystery boxes that were set up, and for many, you know, sometimes mystery boxes are made not to be, not to have satisfying answers. Yeah. The mystery is more interesting than the answer. And you know, we talked about how this film subverts many expectations, and I don't think people are happy having those expectations subverted.
 
-[00:21:05] Will: I mean, one of the critiques, and my my wife actually falls in this category. She thought it was too funny.
-
-[00:21:11] Will: So we walked back. We we went back and watched bits and pieces of Empire afterwards. I was like, Empire is a funny movie. She's like, you can't you can't defend this movie only in the context of Empire Strikes Back. That's not fair.
+[00:21:05] Will: I mean, one of the critiques, and my my wife actually falls in this category. She thought it was too funny. So we walked back. We we went back and watched bits and pieces of Empire afterwards. I was like, Empire is a funny movie. She's like, you can't you can't defend this movie only in the context of Empire Strikes Back. That's not fair.
 
 [00:21:18] Norm: And Rian Johnson has done an interview saying, you know, it's important for this film to be funny. I know we all have the trauma of the the prequels being quote unquote made for kids. Guess what? Star Wars is made for kids.
 
@@ -472,11 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:25:10] Norm: there. There, and so the question is: Did Rey take them, or did Luke hide them on the ship when he snuck up?
 
-[00:25:15] Adam: So now
-
-[00:25:15] Adam: I want now
-
-[00:25:16] Adam: I want reference material for those books. They're really lovely. I want to make one.
+[00:25:15] Adam: So now I want now I want reference material for those books. They're really lovely. I want to make one.
 
 [00:25:20] Will: There's two things.
 
@@ -502,9 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:25:37] Adam: No. No other paper in the entire.
 
-[00:25:39] Norm: Cloth.
-
-[00:25:40] Norm: Maybe it's cloth.
+[00:25:39] Norm: Cloth. Maybe it's cloth.
 
 [00:25:40] Will: Can can we talk about? Well, okay,
 
@@ -566,9 +546,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:28:24] Will: Oh yeah.
 
-[00:28:24] Adam: That is puppet was beautifully built. It had so much of Yoda in it, Um, and
-
-[00:28:30] Adam: it almost made up for Chewbacca's upper lip.
+[00:28:24] Adam: That is puppet was beautifully built. It had so much of Yoda in it, Um, and it almost made up for Chewbacca's upper lip.
 
 [00:28:32] Norm: Too stiff. His stiff upper lip.
 
@@ -636,9 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:30:44] Will: It was it was hard. That was hard to watch, but but it's it's Rian Rian Johnson's saying, " Look, Star Wars can be about more than Skywalker's."
 
-[00:30:52] Norm: They say, " Well, that's what he said.
-
-[00:30:54] Norm: " Great Skywalker blood, yeah, sarcastically, facetiously, three times.
+[00:30:52] Norm: They say, " Well, that's what he said. " Great Skywalker blood, yeah, sarcastically, facetiously, three times.
 
 [00:30:59] Adam: Everyone who mentions the Skywalker blood is mentioning it because it didn't do what they expected it to do,
 
@@ -648,9 +624,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:31:27] Norm: And it's not a comp, it's not complex. It's it's more complex than just light or dark. It's not seduced. He is just a bad person.
 
-[00:31:35] Will: Well, but interesting. More interesting than that is it solves what I think is the main problem with all the Star Warses except for the first Star Wars, which is that you know you you open on the Tantive IV, you see Darth Vader for the first time. He is clearly just an evil motherfucker, right? Like he is
-
-[00:31:49] Will: he is the worst guy in the universe. And then they immediately in the next movie introduce a bigger bad who maybe isn't as big and as bad, but and scary. But he is with Kylo Ren. They they've written a character that is truly truly terrifying, really really scary. Like he's impulsive and he has he has he has a temper and he's he's destructive and he has no kind of filters and he's the actual first villain since Darth Vader that's good.
+[00:31:35] Will: Well, but interesting. More interesting than that is it solves what I think is the main problem with all the Star Warses except for the first Star Wars, which is that you know you you open on the Tantive IV, you see Darth Vader for the first time. He is clearly just an evil motherfucker, right? Like he is he is the worst guy in the universe. And then they immediately in the next movie introduce a bigger bad who maybe isn't as big and as bad, but and scary. But he is with Kylo Ren. They they've written a character that is truly truly terrifying, really really scary. Like he's impulsive and he has he has he has a temper and he's he's destructive and he has no kind of filters and he's the actual first villain since Darth Vader that's good.
 
 [00:32:15] Norm: Yes, that's right.
 
@@ -754,9 +728,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:35:37] Adam: Yeah.
 
-[00:35:37] Will: Oh yeah.
-
-[00:35:40] Will: I didn't get the dark side experience.
+[00:35:37] Will: Oh yeah. I didn't get the dark side experience.
 
 [00:35:42] Norm: Like you don't understand why she did that?
 
@@ -790,9 +762,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:37:36] Norm: No, no, no, no, no, no. I'm saying not him dying. I'm saying his fight with Kylo Ren.
 
-[00:37:40] Adam: Fight with Kylo Ren. So the second he comes out and pulls out that lightsaber. The prop guy in me was like, " How's
-
-[00:37:47] Adam: he holding the Graflex? There's only one Graflex. There's only one. No, there's only one Graflex. I don't know what the fuck he's holding, but that's not the lightsaber.
+[00:37:40] Adam: Fight with Kylo Ren. So the second he comes out and pulls out that lightsaber. The prop guy in me was like, " How's he holding the Graflex? There's only one Graflex. There's only one. No, there's only one Graflex. I don't know what the fuck he's holding, but that's not the lightsaber.
 
 [00:37:53] Will: That's it. I know.
 
@@ -810,9 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:38:10] Norm: He has the green one.
 
-[00:38:10] Adam: Yeah.
-
-[00:38:10] Adam: Wait. Oh, you mean the one he made?
+[00:38:10] Adam: Yeah. Wait. Oh, you mean the one he made?
 
 [00:38:12] Will: The one he made at the start of Jedi. Oh, at the end of, after he lost the Graflex, right? Right. Right. Right. The Empire. Yeah. His hand.
 
@@ -842,9 +810,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:39:08] Will: Another usurped expectation, like oh, it's a snow planet. It's going to be like Hoth. Nope, not so much.
 
-[00:39:13] Adam: Salt. Salt.
-
-[00:39:13] Adam: And I love that the rebels are all old white dudes.
+[00:39:13] Adam: Salt. Salt. And I love that the rebels are all old white dudes.
 
 [00:39:15] Norm: Well, the guy who says the guy who says salt, the one next to him is Gareth Edwards, director of Rogue One.
 
@@ -870,9 +836,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:40:09] Adam: They voted Donald, they voted Donald Trump, and everything went from there.
 
-[00:40:12] Norm: I don't. I don't.
-
-[00:40:14] Norm: That’s not the point.
+[00:40:12] Norm: I don't. I don't. That’s not the point.
 
 [00:40:15] Will: Make the make the make the Republic great again.
 
@@ -926,9 +890,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:41:58] Norm: Where was this?
 
-[00:41:58] Adam: This is I. I can't even remember. It might have been in Portland or it might have been in San Francisco, but it might have been Soma. But Fon keeps pulling into this parking garage, parking lot, and like you know, once
-
-[00:42:10] Adam: he's established it once, yeah, they let him park there for.
+[00:41:58] Adam: This is I. I can't even remember. It might have been in Portland or it might have been in San Francisco, but it might have been Soma. But Fon keeps pulling into this parking garage, parking lot, and like you know, once he's established it once, yeah, they let him park there for.
 
 [00:42:10] Unknown speaker: Yeah. Yeah. Yeah. Yeah. Yeah. Yeah.
 
@@ -946,9 +908,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:42:37] Will: the the scene with the kids, Yep. the slave kids,
 
-[00:42:39] Adam: Yes.
-
-[00:42:40] Adam: like the new resistance.
+[00:42:39] Adam: Yes. like the new resistance.
 
 [00:42:41] Will: I mean, presumably, I mean, I think, I think
 
@@ -1028,11 +988,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:46:24] Adam: Oh my gosh! Right, you were saying in the cab on the way back that Benicio del Toro gets the two best cameos within franchise films. this year.
 
-[00:46:32] Will: I mean, look, he's the collector, and he's like an unnamed smuggler, gambler, thief, hacker.
-
-[00:46:39] Will: He’s really good. I think
-
-[00:46:40] Will: Yeah.
+[00:46:32] Will: I mean, look, he's the collector, and he's like an unnamed smuggler, gambler, thief, hacker. He’s really good. I think Yeah.
 
 [00:46:40] Norm: All right. Okay. Well. These thoughts will be ongoing.
 
@@ -1058,9 +1014,7 @@ Episode URL: https://www.youtube.com/watch?v=dNdk7JJY6mg
 
 [00:47:02] Adam: Beautiful. So amazingly beautiful.
 
-[00:47:05] Norm: Perfect opportunity for someone in the theater to go. Oh shit. Happened in every screening.
-
-[00:47:10] Norm: Yeah.
+[00:47:05] Norm: Perfect opportunity for someone in the theater to go. Oh shit. Happened in every screening. Yeah.
 
 [00:47:10] Will: Yeah.
 

@@ -90,9 +90,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:02:49] Norm: and not so expensive. But the fake tree technology and how well I appreciate the artifice what they've done, and they're very load bearing. The branches are all load bearing.
 
-[00:02:59] Adam: That's something that Julia pointed out too. Is you can put ornaments way out at the end of things because you can. Turn the wire up,
-
-[00:03:06] Adam: and it'll hold on to stuff. And you're totally right. You get a lot more balance. Look, every every year our tree looks like a Hallmark card.
+[00:02:59] Adam: That's something that Julia pointed out too. Is you can put ornaments way out at the end of things because you can. Turn the wire up, and it'll hold on to stuff. And you're totally right. You get a lot more balance. Look, every every year our tree looks like a Hallmark card.
 
 [00:03:14] Jen Schachter: Oh,
 
@@ -144,11 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:06:39] Jen Schachter: yeah, yeah.
 
-[00:06:40] Norm: It's fun to kind of like happen upon it sometimes too. Like you're
-
-[00:06:43] Norm: just going
-
-[00:06:43] Norm: to go get a [unclear: breeder/bird] on Mission, and suddenly there's a big parade. Oh, it's the Day of the Dead festival, and it's just wonderful just to stand around and watch. Adam, what are your big recommendations? I know we promised people some some picks for people who may be traveling the Bay Area,
+[00:06:40] Norm: It's fun to kind of like happen upon it sometimes too. Like you're just going to go get a [unclear: breeder/bird] on Mission, and suddenly there's a big parade. Oh, it's the Day of the Dead festival, and it's just wonderful just to stand around and watch. Adam, what are your big recommendations? I know we promised people some some picks for people who may be traveling the Bay Area,
 
 [00:06:54] Adam: yeah,
 
@@ -260,9 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:12:05] Norm: it's 3D printed titanium, all sorts of custom built.
 
-[00:12:08] Adam: It's an amazing costume.
-
-[00:12:08] Adam: Up close, it looks even better than it does in the film, and it looks amazing.
+[00:12:08] Adam: It's an amazing costume. Up close, it looks even better than it does in the film, and it looks amazing.
 
 [00:12:14] Jen Schachter: I think I because you guys did a piece on what it's like to act as a robot, right? I think I had that bookmarked, and I was like, I need to watch the movie before I watch this behind the scenes thing about it. But, uh, yeah, I haven't actually finished it, so don't tell me how it ends.
 
@@ -276,9 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:12:42] Norm: Yeah, Mandalorian. Yeah, continuing on that.
 
-[00:12:45] Adam: Yeah,
-
-[00:12:46] Adam: I love the last episode. Was basically Magnificent Seven, or at least like the major plot points of
+[00:12:45] Adam: Yeah, I love the last episode. Was basically Magnificent Seven, or at least like the major plot points of
 
 [00:12:51] Norm: right. And and there was this online kind of discussion, I'll call it that, about its influences, and people were saying it's a western, it's a western. No, it's not a western. It's a samurai film.
 
@@ -462,9 +452,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:19:28] Norm: Yeah, yeah.
 
-[00:19:29] Adam: For if I remember correctly, he's
-
-[00:19:31] Adam: just the voice.
+[00:19:29] Adam: For if I remember correctly, he's just the voice.
 
 [00:19:32] Norm: Yeah.
 
@@ -528,9 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:24:25] Norm: right. And the way the armor still looks so cool and so weary. The way that his big his rifle.
 
-[00:24:32] Adam: Yeah,
-
-[00:24:32] Adam: I love that rifle.
+[00:24:32] Adam: Yeah, I love that rifle.
 
 [00:24:33] Norm: Yeah.
 
@@ -616,9 +602,7 @@ Episode URL: https://www.youtube.com/watch?v=PVPmNFOcIcM
 
 [00:29:44] Jen Schachter: Uh, it's. How do I describe this? It's just it's a simple plywood cart that kind of fits into the.
 
-[00:29:51] Adam: I will say that we recently have been utilizing the. Do you say creecut?
-
-[00:29:56] Adam: The cricket.
+[00:29:51] Adam: I will say that we recently have been utilizing the. Do you say creecut? The cricket.
 
 [00:29:57] Norm: I say cricket.
 

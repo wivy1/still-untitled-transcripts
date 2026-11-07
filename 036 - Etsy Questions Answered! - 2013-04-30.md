@@ -74,9 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:02:10] Norm: Yeah, point graph.
 
-[00:02:11] Adam: Yeah, exactly.
-
-[00:02:12] Adam: It's really really cool. I, I, I'm—it's, it's gorgeous. I'm very excited about the Google, about the autonomous car. I think that our kids, I think that in 20 or 30 years most major currently congested downtowns of major cities won't allow non-autonomous cars.
+[00:02:11] Adam: Yeah, exactly. It's really really cool. I, I, I'm—it's, it's gorgeous. I'm very excited about the Google, about the autonomous car. I think that our kids, I think that in 20 or 30 years most major currently congested downtowns of major cities won't allow non-autonomous cars.
 
 [00:02:32] Will: Yeah.
 
@@ -90,9 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:02:52] Adam: Like, fully driving you from one place to another, because people will always want to drive.
 
-[00:02:56] Will: Well, but—
-
-[00:02:56] Will: But—
+[00:02:56] Will: Well, but— But—
 
 [00:02:57] Adam: But—
 
@@ -130,9 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:04:35] Will: Velodyne, I think, yeah. Um, and there's—because it's light, there's shadows. So when there's a car in the lane beside the the Google car, if it can't see over that car, then the area on the other side of it is unknown, and and and there be dragons, I guess.
 
-[00:04:50] Norm: Um.
-
-[00:04:52] Norm: Laser radar.
+[00:04:50] Norm: Um. Laser radar.
 
 [00:04:54] Will: So. Right now, well, first off, you should explain what you're doing for the people on—
 
@@ -196,11 +190,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:07:51] Will: Uh, Still Untitled, and that has a hardcoded 30-minute video.
 
-[00:07:54] Norm: All DSLRs and all all cameras,
-
-[00:07:57] Norm: photo—
-
-[00:07:57] Norm: cameras that shoot video,
+[00:07:54] Norm: All DSLRs and all all cameras, photo— cameras that shoot video,
 
 [00:07:59] Will: thanks Germany.
 
@@ -234,9 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:08:41] Adam: Um, you know the joke about the woman who's in Germany. She doesn't speak a word in German, but she sneezes, and someone says Gesundheit, and she says, "Oh, thank God, someone here speaks English."
 
-[00:08:49] Will: Um.
-
-[00:08:53] Will: The most asked question by far was a surprise. Many people wanted to know how Adam browses Etsy. How do you browse? Do you start at the homepage? Do you use keywords? Are you looking at categories, colors? Um, when you're looking around on Etsy, what are the sorts of things that really stand out to you about a seller or their store?
+[00:08:49] Will: Um. The most asked question by far was a surprise. Many people wanted to know how Adam browses Etsy. How do you browse? Do you start at the homepage? Do you use keywords? Are you looking at categories, colors? Um, when you're looking around on Etsy, what are the sorts of things that really stand out to you about a seller or their store?
 
 [00:09:10] Adam: That's great. Um, I want to start from the beginning and say Etsy's practice of, and I don't know whether they do this daily or hourly or what the protocol is, of grouping things together on the homepage of like 9 or 12 things that you can see when you go to Etsy first, and they're generally of a similar color or a similar attitude or shape.
 
@@ -260,9 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:10:57] Norm: Do you sort by, like, you know, stuff that's only handmade or—
 
-[00:11:01] Adam: I actually.
-
-[00:11:03] Adam: No, I generally don't. Um, when I've got a category I really like, I usually sort by highest price first, um, and I do that because—
+[00:11:01] Adam: I actually. No, I generally don't. Um, when I've got a category I really like, I usually sort by highest price first, um, and I do that because—
 
 [00:11:13] Norm: You know, people do the opposite.
 
@@ -276,9 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:11:50] Will: 32 pages. You're at $5.
 
-[00:11:51] Adam: Um.
-
-[00:11:52] Adam: So if I'm interested in something, so a really good example of that is over Christmas, my wife and I made a mole.
+[00:11:51] Adam: Um. So if I'm interested in something, so a really good example of that is over Christmas, my wife and I made a mole.
 
 [00:12:00] Will: Do you want this timer?
 
@@ -320,9 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:14:28] Adam: I really enjoy that. And like somebody has a, a, an aesthetic that I like. I've bought paintings on Etsy. I've bought drawings and prints and stuff. And you know, if somebody sells a kind of a print like a map or something that I like, oh, I did buy some recent documents, some letters of the marque from a from a calligrapher on Etsy who makes these lovely replica letters of the marque. Which is a letter of the marque is something you would have gotten in Napoleonic England that would have. Allowed you to effectively be a legal pirate as long as the ships you were robbing were French.
 
-[00:15:02] Will: Makes perfect sense.
-
-[00:15:04] Will: Who wouldn't want to rob from the French?
+[00:15:02] Will: Makes perfect sense. Who wouldn't want to rob from the French?
 
 [00:15:05] Adam: And it was one of the ways in which the British kept their navy really robust was that you know the the the the crew of a ship could share in the spoils of a ship that they captured. So that put their backs really into it because you could absolutely get nice and rich being a naval seaman in the British Navy in around the
 
@@ -356,9 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:17:12] Adam: Yeah.
 
-[00:17:15] Will: Um.
-
-[00:17:16] Will: Mary Ellen, cool. I'm not going to say your last name, Mary Ellen. I apologize because I'll just mangle it. How did you make the leap from sculpting to science? Are you ambibrained? And a lot of somebody else wanted to know if you were sinusoidal. I don't know what sinusoidal means.
+[00:17:15] Will: Um. Mary Ellen, cool. I'm not going to say your last name, Mary Ellen. I apologize because I'll just mangle it. How did you make the leap from sculpting to science? Are you ambibrained? And a lot of somebody else wanted to know if you were sinusoidal. I don't know what sinusoidal means.
 
 [00:17:29] Adam: Sinusoidal.
 
@@ -380,9 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:18:32] Norm: Right.
 
-[00:18:33] Adam: And once I worked with an art director who saw that I could do that, I got the added bonus of getting a lot more freedom to do what I wanted to do. So, for instance, I was working on episode one and an episode two. Similar thing happened. Doug Chiang, the production designer. I don't know if he was officially listed as a production designer, but he really was the production designer, would make the rounds every day, and he'd go by every model maker's table, and you know, you'd have questions for him. What do you think this should look like? He'd make a little sketch or something, or you know, good, good, no, no, no, stop that, and move in this direction. And one of the things that Doug is really brilliant at, in addition to being an amazing designer, is if he if he saw you were if he saw you understood, he would give you less and less feedback because you were just on the right path, and that's a lovely thing to find an art director who's willing to do that because it just means you're having more fun, you're coming up with aesthetic solutions to stuff.
-
-[00:19:28] Adam: And—
+[00:18:33] Adam: And once I worked with an art director who saw that I could do that, I got the added bonus of getting a lot more freedom to do what I wanted to do. So, for instance, I was working on episode one and an episode two. Similar thing happened. Doug Chiang, the production designer. I don't know if he was officially listed as a production designer, but he really was the production designer, would make the rounds every day, and he'd go by every model maker's table, and you know, you'd have questions for him. What do you think this should look like? He'd make a little sketch or something, or you know, good, good, no, no, no, stop that, and move in this direction. And one of the things that Doug is really brilliant at, in addition to being an amazing designer, is if he if he saw you were if he saw you understood, he would give you less and less feedback because you were just on the right path, and that's a lovely thing to find an art director who's willing to do that because it just means you're having more fun, you're coming up with aesthetic solutions to stuff. And—
 
 [00:19:29] Norm: You're asking why?
 
@@ -600,9 +578,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:33:32] Adam: Oh, gross! That would be awful. Jamie would be so mad if we wasted, you know, 100,000 eggs.
 
-[00:33:37] Will: Well, you'd probably—
-
-[00:33:40] Will: What you'd probably have to do is figure out something that is exactly the same mechanical—
+[00:33:37] Will: Well, you'd probably— What you'd probably have to do is figure out something that is exactly the same mechanical—
 
 [00:33:44] Adam: Right.
 
@@ -688,9 +664,7 @@ Episode URL: https://www.youtube.com/watch?v=FjWNlm1umls
 
 [00:37:37] Adam: Yeah, absolutely.
 
-[00:37:38] Will: Um. So then, it's a tie,
-
-[00:37:42] Will: a mixed bag, is what you're saying?
+[00:37:38] Will: Um. So then, it's a tie, a mixed bag, is what you're saying?
 
 [00:37:44] Adam: Yeah. Well, you know, look, when I'm in a hotel in the middle of nowhere, it's all about the looking at things to collect or to actually I do both. So I look for things to collect and I look for things to add to the collection. But I also do work with projects that I've got on the burner, sorting photos and sub-sorting subfolders of things I want to build or contract out.
 

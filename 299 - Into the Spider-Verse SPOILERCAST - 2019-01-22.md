@@ -52,11 +52,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:01:12] Will: Earthlink. I was going to say Yahoo.
 
-[00:01:17] Ben: Yahoo.
-
-[00:01:17] Ben: Hotmail.
-
-[00:01:17] Ben: Nah, I got the crank on the computer.
+[00:01:17] Ben: Yahoo. Hotmail. Nah, I got the crank on the computer.
 
 [00:01:20] Adam: 452735 at Hotmail.
 
@@ -240,9 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:06:46] Adam: Or who?
 
-[00:06:46] Norm: Wow.
-
-[00:06:50] Norm: Yeah, I love that logo. Taylor pressure helmet.
+[00:06:46] Norm: Wow. Yeah, I love that logo. Taylor pressure helmet.
 
 [00:06:52] Adam: Isn't that beautiful?
 
@@ -322,9 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:09:23] Ben: That's the very specific content people are after. Tell me a story about a building you shot a gun in, and then talk about a movie.
 
-[00:09:30] Will: Ben, what we didn't tell you was that today we're actually going to rank all 20 Marvel Universe movies in order, 1 to 20. We're going to pick the best one, and we're going to pick the worst, and all the ones in between in order.
-
-[00:09:42] Will: So I hope you're ready for the next 16 hours.
+[00:09:30] Will: Ben, what we didn't tell you was that today we're actually going to rank all 20 Marvel Universe movies in order, 1 to 20. We're going to pick the best one, and we're going to pick the worst, and all the ones in between in order. So I hope you're ready for the next 16 hours.
 
 [00:09:44] Ben: Argument settler.
 
@@ -372,9 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:10:19] Will: Nobody's going to pass on the Nobel Peace Prize. It's it's only a Hydra agent would pass on.
 
-[00:10:19] Adam: No, it’s happened.
-
-[00:10:31] Adam: Somebody's passed on the Nobel Peace Prize.
+[00:10:19] Adam: No, it’s happened. Somebody's passed on the Nobel Peace Prize.
 
 [00:10:32] Will: Look, they were probably really smarmy about it too. Nobody wants to hear about somebody who passed on the Nobel Peace Prize.
 
@@ -652,11 +642,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:21:48] Will: That's the
 
-[00:21:49] Ben: lineage. He failed to save. Spider Man, and that drives him to understand: with great power comes great responsibility.
-
-[00:22:00] Ben: Right,
-
-[00:22:00] Ben: and and so I am coming into this movie going, I don't know how you do that,
+[00:21:49] Ben: lineage. He failed to save. Spider Man, and that drives him to understand: with great power comes great responsibility. Right, and and so I am coming into this movie going, I don't know how you do that,
 
 [00:22:00] Adam: right?
 
@@ -722,9 +708,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:24:14] Ben: I know that there was.
 
-[00:24:14] Norm: there are two post credits.
-
-[00:24:16] Norm: yeah, and
+[00:24:14] Norm: there are two post credits. yeah, and
 
 [00:24:16] Ben: two,
 
@@ -768,11 +752,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:25:22] Adam: When when Nancy Reagan came out with just say no, we we chose to interpret it as just say no.
 
-[00:25:22] Ben: Just say no.
-
-[00:25:31] Ben: Would you like some drugs?
-
-[00:25:35] Ben: No. No.
+[00:25:22] Ben: Just say no. Would you like some drugs? No. No.
 
 [00:25:35] Norm: There is subtext in there.
 
@@ -790,9 +770,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:26:11] Ben: a real bop.
 
-[00:26:13] Will: Yeah,
-
-[00:26:13] Will: but but they they they pulled like they they changed the back. The movie looked like a comic book in motion.
+[00:26:13] Will: Yeah, but but they they they pulled like they they changed the back. The movie looked like a comic book in motion.
 
 [00:26:21] Unknown speaker: Yeah,
 
@@ -904,13 +882,9 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:29:35] Ben: Well, when you read Harry Potter, you want to start with three.
 
-[00:29:38] Will: You like you like the the slash order, not the not the not the cuts order. Wow, bold.
+[00:29:38] Will: You like you like the the slash order, not the not the not the cuts order. Wow, bold. But yeah, back to the Spider Verse, I guess.
 
-[00:31:04] Will: But yeah, back to the Spider Verse, I guess.
-
-[00:31:09] Adam: Back to the Spider Verse, I guess.
-
-[00:31:11] Adam: Is there any inkling of what those guys might tackle next? Because the idea that this could have a follow up is really exciting.
+[00:31:09] Adam: Back to the Spider Verse, I guess. Is there any inkling of what those guys might tackle next? Because the idea that this could have a follow up is really exciting.
 
 [00:31:19] Norm: They've already talked about a sequel is in the works. Plus, I think at least two spinoffs: a Spider Gwen spinoff, and they are talking about, I believe, Spider Spider Ham having maybe like a TV show or something.
 
@@ -948,9 +922,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:32:02] Will: People are probably in the car.
 
-[00:32:03] Ben: he's like, " Hey, go fuck yourself, Green Lantern. Shove it in your ass.
-
-[00:32:12] Ben: Take that and shove it in your ass. Stick it in your dick and open it like an umbrella, you bag of shit." They're like, " Okay."
+[00:32:03] Ben: he's like, " Hey, go fuck yourself, Green Lantern. Shove it in your ass. Take that and shove it in your ass. Stick it in your dick and open it like an umbrella, you bag of shit." They're like, " Okay."
 
 [00:32:18] Norm: Glad you got that out of your system. Now
 
@@ -962,9 +934,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:32:59] Norm: Shocker!
 
-[00:33:03] Ben: Iron Fist,
-
-[00:33:04] Ben: Purple Man,
+[00:33:03] Ben: Iron Fist, Purple Man,
 
 [00:33:04] Norm: Power Man.
 
@@ -972,9 +942,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:33:08] Will: Juggernaut.
 
-[00:33:13] Ben: Um, try and
-
-[00:33:15] Ben: think of any guy. Yeah, Green Goblin, Sub Goblin.
+[00:33:13] Ben: Um, try and think of any guy. Yeah, Green Goblin, Sub Goblin.
 
 [00:33:19] Will: So there were two things that kind of surprised me. One is that they managed to make go the whole movie without doing a JJ, sorry, a Joss Whedon style like clever, just just superheroes sitting around being clever at each other, which was which was kind of pleasant. Like I I like those most of the time, but usually they don't. It didn't seem like it would be right for that movie.
 
@@ -1132,9 +1100,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:38:22] Will: People love that.
 
-[00:38:23] Ben: People. You're in the industry, man. You know how hard it is to make a thing, and
-
-[00:38:23] Ben: Respect, respect.
+[00:38:23] Ben: People. You're in the industry, man. You know how hard it is to make a thing, and Respect, respect.
 
 [00:38:28] Adam: You're right. You're right. You're right.
 
@@ -1154,11 +1120,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:38:35] Will: Gross.
 
-[00:38:35] Adam: Yeah. And it's got like
-
-[00:38:52] Adam: 88
-
-[00:38:53] Adam: percent on Rotten Tomatoes.
+[00:38:35] Adam: Yeah. And it's got like 88 percent on Rotten Tomatoes.
 
 [00:38:53] Will: Uh huh.
 
@@ -1412,9 +1374,7 @@ Episode URL: https://www.youtube.com/watch?v=I1v4PRb_XPY
 
 [00:50:06] Adam: their yard and has superpowers, and turns out in the trailer at least to seem to be a psychopathic killer.
 
-[00:50:06] Norm: Is it
-
-[00:50:14] Norm: Mark Miller or something?
+[00:50:06] Norm: Is it Mark Miller or something?
 
 [00:50:15] Ben: It's Jason Voorhees, Superman.
 

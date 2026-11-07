@@ -166,9 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=hhdZxzCxhd4
 
 [00:16:39] Norm: Well, and also Jonesy, right? It keeps on cutting back to Jonesy's, like you're reading off the emotion of the the witness of the emotion of the cat, and you can. It's like there's a. It's perfect that it's a cat because. There's that like you can't read the face, but also you does the cat just not care? Also, right? There's like no reaction. It's just like staring.
 
-[00:16:59] Adam: Also, it occurs to me, you know, the famous thing about like in a romantic comedy when you want someone to like the main character, you have them save the cat. This is turning that completely on its head.
-
-[00:17:11] Adam: Um, how about you guys? Like, what are the have there been scenes or movies that you guys return to for for succor?
+[00:16:59] Adam: Also, it occurs to me, you know, the famous thing about like in a romantic comedy when you want someone to like the main character, you have them save the cat. This is turning that completely on its head. Um, how about you guys? Like, what are the have there been scenes or movies that you guys return to for for succor?
 
 [00:17:20] Norm: It's it's always Back to the Future for me. Okay, and that's just it's just so it's it's so it's so much it's chicken soup that that movie like just the the dialogue, um, all the beats of it roll so smoothly into each other, and it's all the fact that you know you recognize the Universal backlot, that whole you know the Court Square, uh, you know when when Mister Sandman comes on, it's just like it's very very it's a happy place.
 

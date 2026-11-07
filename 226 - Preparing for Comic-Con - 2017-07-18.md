@@ -214,9 +214,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:07:09] Will: I'm so excited.
 
-[00:07:09] Adam: [unclear: Do you guys get your packing in the car today? / Did you guys give me a room this year? You’re packing the car today.]
-
-[00:07:10] Adam: Oh
+[00:07:09] Adam: [unclear: Do you guys get your packing in the car today? / Did you guys give me a room this year? You’re packing the car today.] Oh
 
 [00:07:11] Norm: yes, the car. I'm literally as you guys are listening to this. Wow. I'm probably packing a big van to drive things in this room down to Comic Con.
 
@@ -224,9 +222,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:07:20] Norm: Uh, well, it's all all secret.
 
-[00:07:20] Will: What?
-
-[00:07:22] Will: You're not going to even tell me?
+[00:07:20] Will: What? You're not going to even tell me?
 
 [00:07:23] Adam: No.
 
@@ -344,9 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:10:49] Will: I mean, we're reaching the point now where my daughter's four and a half, and her friends are going to a lot of her friends are going to kindergarten. She was born in January, so she has another year with us, basically. And like I, I'm seeing the end of like the little like the the the talking to stuffed animals and like the little girl and little boy fa- stuff. And I'm like, oh man, I'm gonna be so sad when this goes. And she's like, Dad, no, I don't have imaginary friends anymore. Um. So yeah, are your kids coming to Comic Con? I guess.
 
-[00:10:49] Adam: Look at that segue.
-
-[00:11:19] Adam: That was nice.
+[00:10:49] Adam: Look at that segue. That was nice.
 
 [00:11:19] Norm: Bring it back. Bring it back.
 
@@ -394,9 +388,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:14:53] Adam: waiting for that train for an hour while it's going by in the middle of the night,
 
-[00:14:55] Will: when the guys with the megaphones are yelling at you about about
-
-[00:15:00] Will: their religious beliefs,
+[00:14:55] Will: when the guys with the megaphones are yelling at you about about their religious beliefs,
 
 [00:15:00] Adam: yeah,
 
@@ -510,9 +502,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:18:18] Will: It must have been last year.
 
-[00:18:19] Adam: Last year. Okay, so last year I did Kylo Ren, and I had since I came down with two or three Kylo Ren helmets. I wore one as the casual walkaround helmet, and I'm standing at the Weta booth because I'm about to say hi to Richard Taylor and Greg Broadmore and my friends from Weta, and I see Setrakian and his wife, and I look over at them. Setrakian pauses and goes, " Hey, Adam." And to this day, I have no idea how he knew. He just [unclear: could / couldn’t] tell from the way I was standing,
-
-[00:18:50] Adam: like that is a that is that was an amazing bit of uh, of uh, Sherlock Holmes detective level.
+[00:18:19] Adam: Last year. Okay, so last year I did Kylo Ren, and I had since I came down with two or three Kylo Ren helmets. I wore one as the casual walkaround helmet, and I'm standing at the Weta booth because I'm about to say hi to Richard Taylor and Greg Broadmore and my friends from Weta, and I see Setrakian and his wife, and I look over at them. Setrakian pauses and goes, " Hey, Adam." And to this day, I have no idea how he knew. He just [unclear: could / couldn’t] tell from the way I was standing, like that is a that is that was an amazing bit of uh, of uh, Sherlock Holmes detective level.
 
 [00:18:57] Norm: Or like every magician, he just said that to everyone, and it paid off.
 
@@ -524,13 +514,9 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:19:16] Unknown speaker: Wow.
 
-[00:19:16] Adam: good friend,
+[00:19:16] Adam: good friend, and so he's coming to Comic Con. I think this is the first year that I've been to Comic Con with him.
 
-[00:19:36] Adam: and so he's coming to Comic Con. I think this is the first year that I've been to Comic Con with him.
-
-[00:19:42] Norm: Right,
-
-[00:19:42] Norm: we bumped into him last year in New York Comic Con,
+[00:19:42] Norm: Right, we bumped into him last year in New York Comic Con,
 
 [00:19:42] Adam: right,
 
@@ -612,9 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:23:15] Will: [unclear: like snake thing / Dragon snake thing],
 
-[00:23:15] Adam: yes,
-
-[00:23:16] Adam: yeah. And the those time lapse of the animator moving all around it, animating all of its parts is like I could sit and watch that forever. Oh my god! Do you know what I sat and watched for 30 minutes last night?
+[00:23:15] Adam: yes, yeah. And the those time lapse of the animator moving all around it, animating all of its parts is like I could sit and watch that forever. Oh my god! Do you know what I sat and watched for 30 minutes last night?
 
 [00:23:30] Will: I I
 
@@ -648,9 +632,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:24:23] Adam: Well, that's called a clock.
 
-[00:24:23] Will: Yeah.
-
-[00:24:25] Will: A big watch.
+[00:24:23] Will: Yeah. A big watch.
 
 [00:24:25] Norm: But in that form.
 
@@ -782,9 +764,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:29:31] Adam: Okay,
 
-[00:29:31] Norm: O K,
-
-[00:29:32] Norm: J A.
+[00:29:31] Norm: O K, J A.
 
 [00:29:33] Will: I watched Riverdale. Riverdale, the Archie and Veronica and Betty teen drama.
 
@@ -798,11 +778,7 @@ Episode URL: https://www.youtube.com/watch?v=nu6b1KWTBXE
 
 [00:29:59] Adam: I, uh, bring bring it on. Is that the TV movie?
 
-[00:30:01] Will: Bring it on is a, is a classic example of that.
-
-[00:30:01] Will: A masterpiece.
-
-[00:30:01] Will: Your easy A, your um, uh, Mean Girls, Clueless.
+[00:30:01] Will: Bring it on is a, is a classic example of that. A masterpiece. Your easy A, your um, uh, Mean Girls, Clueless.
 
 [00:30:01] Unknown speaker: I think it’s more Twin Peaks then than those.
 

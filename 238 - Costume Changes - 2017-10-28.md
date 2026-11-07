@@ -72,11 +72,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:01:34] Will: Blonde, they call it.
 
-[00:01:36] Adam: But I'm very happy to be back. My dogs are now old enough that they don't bark when I come home anymore. They're both sleeping on the bed in the heat. Oh no, they. They're both sleeping on the bed, and I walked into the bedroom, and I was like, " Hey guys," and they're like, " Oh,
-
-[00:01:48] Adam: he's here." The happy tails, but they don't. Yeah, they're not
-
-[00:01:51] Adam: like rushing downstairs.
+[00:01:36] Adam: But I'm very happy to be back. My dogs are now old enough that they don't bark when I come home anymore. They're both sleeping on the bed in the heat. Oh no, they. They're both sleeping on the bed, and I walked into the bedroom, and I was like, " Hey guys," and they're like, " Oh, he's here." The happy tails, but they don't. Yeah, they're not like rushing downstairs.
 
 [00:01:53] Will: Chloe turns 13 this year.
 
@@ -84,9 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:01:58] Norm: Ripley’s one.
 
-[00:01:59] Will: [unclear: Maggie’s / ] still pretty spry.
-
-[00:01:59] Will: Right.
+[00:01:59] Will: [unclear: Maggie’s / ] still pretty spry. Right.
 
 [00:02:00] Adam: Yeah, she's she's a she's a what do you call it? She's calming down in her old age.
 
@@ -100,9 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:02:22] Will: Wow, that's a pretty good gig.
 
-[00:02:22] Adam: Michael Giacchino,
-
-[00:02:25] Adam: composer. Michael Giacchino, my friend, who composes all the movies.
+[00:02:22] Adam: Michael Giacchino, composer. Michael Giacchino, my friend, who composes all the movies.
 
 [00:02:28] Will: Star Trek, Inside Out, a million lovely movies.
 
@@ -118,9 +110,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:02:51] Will: before you went on this trip. You described. You said, " Hey, I'm going to Michael Giacchino's birthday party at Royal Albert Hall."
 
-[00:02:56] Adam: How did you
-
-[00:02:57] Adam: imagine?
+[00:02:56] Adam: How did you imagine?
 
 [00:02:57] Will: You did not mention that you were emceeing it.
 
@@ -188,9 +178,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:06:08] Norm: Didn't realize it was licensed. That's crazy. It's a Jurassic World thing.
 
-[00:06:11] Will: Oh, yeah, yeah.
-
-[00:06:11] Will: I didn't know it was licensed.
+[00:06:11] Will: Oh, yeah, yeah. I didn't know it was licensed.
 
 [00:06:13] Norm: Before Adam left, it was a mad rush because we'll hear about what he did in New York, but we would see coming into the cave and you trying on costumes. It was like a mad, like incognito rush.
 
@@ -258,17 +246,13 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:08:38] Norm: Right.
 
-[00:08:38] Adam: So let's just make it fully absurd. Go out in a costume, and I'm, you know, I'm not there to take up any time, just to move things along and
-
-[00:09:02] Adam: kind of
+[00:08:38] Adam: So let's just make it fully absurd. Go out in a costume, and I'm, you know, I'm not there to take up any time, just to move things along and kind of
 
 [00:09:02] Will: kill time if you need between setups or whatever.
 
 [00:09:02] Unknown speaker: exactly
 
-[00:09:02] Adam: just a little bit.
-
-[00:09:04] Adam: And that was that was that's a fun gig to do, you know. It's not a you're just moving things forward, and that's that was really entertaining.
+[00:09:02] Adam: just a little bit. And that was that was that's a fun gig to do, you know. It's not a you're just moving things forward, and that's that was really entertaining.
 
 [00:09:12] Will: That's rad,
 
@@ -278,9 +262,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:09:14] Norm: Wow,
 
-[00:09:14] Adam: that was incredible. And London is beautiful. It was a little bit rainy, but it was warm. We had there was sort of an October warm rush, and it was you know London one of my favorite cities.
-
-[00:09:27] Adam: What's that?
+[00:09:14] Adam: that was incredible. And London is beautiful. It was a little bit rainy, but it was warm. We had there was sort of an October warm rush, and it was you know London one of my favorite cities. What's that?
 
 [00:09:27] Will: Were you there for the hurricane?
 
@@ -320,9 +302,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:10:33] Will: Very good.
 
-[00:10:33] Adam: Oh, awesome.
-
-[00:10:34] Adam: Yeah, the last the last time I did Colbert, or maybe two times ago, I was backstage with my mom and my lawyer Joel was also there, and I took a selfie with the three of them, and I wrote, " My mom, my lawyer, and I backstage at Colbert," and someone wrote, " Do you always bring your lawyer and your mother to every appearance
+[00:10:33] Adam: Oh, awesome. Yeah, the last the last time I did Colbert, or maybe two times ago, I was backstage with my mom and my lawyer Joel was also there, and I took a selfie with the three of them, and I wrote, " My mom, my lawyer, and I backstage at Colbert," and someone wrote, " Do you always bring your lawyer and your mother to every appearance
 
 [00:10:53] Will: as your attorney?" Joel never makes as your attorney. He doesn't seem like that. That he
 
@@ -360,9 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:12:15] Will: oh, awesome,
 
-[00:12:15] Norm: like a 40 minute video
-
-[00:12:16] Norm: that’ll be up on Tested in a few weeks.
+[00:12:15] Norm: like a 40 minute video that’ll be up on Tested in a few weeks.
 
 [00:12:18] Adam: Stunning!
 
@@ -436,17 +414,13 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:14:12] Norm: Does Mindhunter feel like Zodiac?
 
-[00:14:14] Adam: It does actually. So Mindhunter is set in 1977. So the music is amazing and the cars are just delightful. You know, it's like a Chevy Nova pulling up into frame.
-
-[00:14:27] Adam: Right. That was my first car.
+[00:14:14] Adam: It does actually. So Mindhunter is set in 1977. So the music is amazing and the cars are just delightful. You know, it's like a Chevy Nova pulling up into frame. Right. That was my first car.
 
 [00:14:29] Will: Oh, wow.
 
 [00:14:29] Adam: A $100 Chevy Nova was my first car in 1990.
 
-[00:14:33] Norm: Oh, man.
-
-[00:14:33] Norm: It's one of those things where because he's a film director and diving into TV, even though this is, I believe, is HBO or Netflix.
+[00:14:33] Norm: Oh, man. It's one of those things where because he's a film director and diving into TV, even though this is, I believe, is HBO or Netflix.
 
 [00:14:33] Adam: Netflix,
 
@@ -464,9 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:16:13] Will: My my, I have I've spent more time than I probably care to admit trying to isolate the tittering laugh from the end of " They'll Be Back," the last one. The
 
-[00:16:26] Adam: Yeah.
-
-[00:16:26] Adam: the, the [unclear: / dominus]
+[00:16:26] Adam: Yeah. the, the [unclear: / dominus]
 
 [00:16:26] Will: yes, yeah, yeah, exactly, and and because I think that would make such a such an amazing horrible ringtone. Oh my god! Like the most obnoxious ringtone is the tittering laugh every time it rings. You're like, oh, I'm happy.
 
@@ -524,9 +496,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:19:05] Will: Jesse Eisenberg
 
-[00:19:13] Adam: Jesse Eisenberg
-
-[00:19:13] Adam: in the in
+[00:19:13] Adam: Jesse Eisenberg in the in
 
 [00:19:13] Will: Actors.
 
@@ -536,9 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:19:28] Adam: 97 takes.
 
-[00:19:28] Will: Yeah,
-
-[00:19:29] Will: but but that film in general, like I think you can pop into kind of any scene and like it is a thing that anytime I flip a channel and I see it, like that's the next two hours gone.
+[00:19:28] Will: Yeah, but but that film in general, like I think you can pop into kind of any scene and like it is a thing that anytime I flip a channel and I see it, like that's the next two hours gone.
 
 [00:19:38] Adam: Totally, totally. Yeah, I love the line. Dating you is like dating a Stairmaster.
 
@@ -594,13 +562,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:22:00] Adam: Oh my God!
 
-[00:22:01] Norm: American Vandal. As produced by the AV club,
-
-[00:22:06] Norm: of
-
-[00:22:06] Norm: that school,
-
-[00:22:08] Norm: and done totally seriously.
+[00:22:01] Norm: American Vandal. As produced by the AV club, of that school, and done totally seriously.
 
 [00:22:08] Will: I mean, the Mindhunter thing sounds great too, but this is where I'm going tonight.
 
@@ -786,9 +748,7 @@ Episode URL: https://www.youtube.com/watch?v=vLxQdBPSfhI
 
 [00:27:52] Will: You gotta watch it. You don't need too much.
 
-[00:27:52] Adam: You gotta watch your p values.
-
-[00:27:55] Adam: Okay. Yeah. Is anything, anything specific on the site?
+[00:27:52] Adam: You gotta watch your p values. Okay. Yeah. Is anything, anything specific on the site?
 
 [00:27:55] Norm: Well, no.
 

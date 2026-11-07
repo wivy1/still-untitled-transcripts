@@ -80,9 +80,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:03:45] Norm: part. Okay, yeah.
 
-[00:03:46] Adam: Look, it's not as bad as it used to be. I mean, you really used to be there like you'd you'd be allowed to enter the United States with two bags, but while switching, we went to Africa through Heathrow while switching to the African plane. Heathrow was like one bag, one bag, and they literally it was like one bag, and if you are going to join your two bags, you've got like. 30 seconds to do it, and you have to get it on your first try. Otherwise, they send you back out of the airport to come back through security. This was years ago, but the other day when I was coming through Heathrow, my bag got flagged because I had a thing of hair product. That's all.
-
-[00:03:46] Adam: Hmm.
+[00:03:46] Adam: Look, it's not as bad as it used to be. I mean, you really used to be there like you'd you'd be allowed to enter the United States with two bags, but while switching, we went to Africa through Heathrow while switching to the African plane. Heathrow was like one bag, one bag, and they literally it was like one bag, and if you are going to join your two bags, you've got like. 30 seconds to do it, and you have to get it on your first try. Otherwise, they send you back out of the airport to come back through security. This was years ago, but the other day when I was coming through Heathrow, my bag got flagged because I had a thing of hair product. That's all. Hmm.
 
 [00:04:26] Norm: Why? What is it? Because liquid?
 
@@ -122,9 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:07:14] Adam: He did. He did.
 
-[00:07:15] Norm: Yes.
-
-[00:07:15] Norm: I hope he listens.
+[00:07:15] Norm: Yes. I hope he listens.
 
 [00:07:16] Adam: I didn't. You know, it's the it's those moments. The moments I find really difficult to interact with fans are when I'm trying to figure out where I'm supposed to go. Until I know where I'm supposed to go, I have I'm nothing but discomfort.
 
@@ -154,9 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:08:22] Adam: Absolutely gorgeous.
 
-[00:08:23] Joey Fameli: Yeah,
-
-[00:08:23] Joey Fameli: it was much more. It was much prettier than I imagined it being, and it had a little bit of. There were some areas that are a little bit more of like the, you know, Eastern European,
+[00:08:23] Joey Fameli: Yeah, it was much more. It was much prettier than I imagined it being, and it had a little bit of. There were some areas that are a little bit more of like the, you know, Eastern European,
 
 [00:08:31] Adam: yeah,
 
@@ -172,9 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:09:12] Adam: urban
 
-[00:09:12] Joey Fameli: urban area. Yeah. Then you get over across Chain Bridge to the Buda side, and then you have a lot of hills, a lot of real gorgeous architecture and old buildings. It's much more. It feels much more European over on the the Buda side. But I've been walking past the Four Seasons all weekend, and I was like, I kept looking at this building. Like that is a beautiful building. And then I come to check in, and I was like, woo! All right, that's the building.
-
-[00:09:31] Joey Fameli: Inside it was
+[00:09:12] Joey Fameli: urban area. Yeah. Then you get over across Chain Bridge to the Buda side, and then you have a lot of hills, a lot of real gorgeous architecture and old buildings. It's much more. It feels much more European over on the the Buda side. But I've been walking past the Four Seasons all weekend, and I was like, I kept looking at this building. Like that is a beautiful building. And then I come to check in, and I was like, woo! All right, that's the building. Inside it was
 
 [00:09:33] Adam: nice,
 
@@ -486,9 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:25:05] Joey Fameli: I don’t think so. Well,
 
-[00:25:05] Norm: yeah,
-
-[00:25:07] Norm: yeah. Joey does.
+[00:25:05] Norm: yeah, yeah. Joey does.
 
 [00:25:07] Joey Fameli: I am. I'm relocating a bit.
 
@@ -648,9 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=WdanZ0guUAs
 
 [00:30:08] Adam: We're idiots. All right. Woo! Okay, we'll get down there.
 
-[00:30:08] Norm: Yeah,
-
-[00:30:14] Norm: and once again, please vote.
+[00:30:08] Norm: Yeah, and once again, please vote.
 
 [00:30:15] Adam: Please vote. Vote. Vote. Vote. Vote, and I've said this before. I don't care who you vote for. Actually, I do care who you vote for. But it doesn't mean that you should vote for who I care that you vote for. Vote. It's really vital that you vote. It's super important. Even if you're in a in a state like California where the outcome is more preordained than in a battleground state, it still matters that you vote. The higher the numbers are every election, the more people will go vote the next election. We need those numbers up. This is how we participate in our democracy. Yeah. Damn it.
 

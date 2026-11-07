@@ -136,9 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:05:26] Simone: but they were amazing.
 
-[00:05:48] Adam: So this is this group is Oakland School for the Arts choir called Vocal Rush. They do a lot of different gigs. They Do they were playing at Yoshi's the night you saw them, Yoshi's Jazz Club in in in Oakland.
-
-[00:06:01] Adam: But they also do corporate gigs. You can hire them for your corporate event. They're not that expensive, and they're incredible. I mean, really, like mind-blowingly great. And I love traveling with them. I love going to other. I went to Memphis with them last year. I saw them all in London, and I watched them perform. And the the the London acapella conference was just lovely. So this is like great acapella groups from all over the world performing. You know, showing you what acapella looks like from all these different cultural standpoints.
+[00:05:48] Adam: So this is this group is Oakland School for the Arts choir called Vocal Rush. They do a lot of different gigs. They Do they were playing at Yoshi's the night you saw them, Yoshi's Jazz Club in in in Oakland. But they also do corporate gigs. You can hire them for your corporate event. They're not that expensive, and they're incredible. I mean, really, like mind-blowingly great. And I love traveling with them. I love going to other. I went to Memphis with them last year. I saw them all in London, and I watched them perform. And the the the London acapella conference was just lovely. So this is like great acapella groups from all over the world performing. You know, showing you what acapella looks like from all these different cultural standpoints.
 
 [00:06:32] Simone: Proud parent.
 
@@ -256,9 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:15:37] Unknown speaker: [unclear: and he's an amazing patch designer / I didn't know that / I just got].
 
-[00:15:37] Simone: No,
-
-[00:15:37] Simone: it's a great patch. I wear it with pride.
+[00:15:37] Simone: No, it's a great patch. I wear it with pride.
 
 [00:15:41] Adam: I gave it to I gave one to Al Worden when he came by the shop a couple of weeks ago. Apollo 15 astronaut Al Worden, and he totally loved it.
 
@@ -356,9 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:20:13] Adam: No, no, not even a little bit.
 
-[00:20:15] Simone: No, I mean, I did.
-
-[00:20:18] Simone: I did appreciate, like, ever since I didn't, I've joined Tested. I've started appreciating movie props more. I did appreciate a lot of the props that they had in there, and thought that they had a lot of really beautiful items in it.
+[00:20:15] Simone: No, I mean, I did. I did appreciate, like, ever since I didn't, I've joined Tested. I've started appreciating movie props more. I did appreciate a lot of the props that they had in there, and thought that they had a lot of really beautiful items in it.
 
 [00:20:29] Adam: I agree. I thought the yeah, I loved his coat.
 
@@ -412,9 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:22:38] Simone: Uh, and it's kind of hard to be like, no, Simo, you need to like lay on the couch for a while and take it easy.
 
-[00:22:44] Adam: Yeah.
-
-[00:22:44] Adam: Um. I um. I came back from Amsterdam and I had some packages to open and I started opening them and I cut my finger.
+[00:22:44] Adam: Yeah. Um. I um. I came back from Amsterdam and I had some packages to open and I started opening them and I cut my finger.
 
 [00:22:44] Simone: Oh no.
 
@@ -432,9 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:23:42] Adam: I, I do the same thing. Um, I I had I used to have a benchtop Enco Mill here. It weighs 600 pounds, and I got it onto its stand myself alone here. And I I did it carefully. Don't worry. But I love doing stuff like that. I'm like you. I I'm not gonna call people on a Sunday. I'm just gonna be like, let's just work through this problem.
 
-[00:23:42] Simone: Yeah,
-
-[00:24:02] Simone: it's also like it is. Extra satisfying because you're like, no, I did it myself. Yeah, I just like lowered it. You figure it out how to how to do it. I mean, it's a sweaty process, like, because I got these really strong. What what are those like cable? No,
+[00:23:42] Simone: Yeah, it's also like it is. Extra satisfying because you're like, no, I did it myself. Yeah, I just like lowered it. You figure it out how to how to do it. I mean, it's a sweaty process, like, because I got these really strong. What what are those like cable? No,
 
 [00:24:17] Adam: yeah, straps,
 
@@ -460,9 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:26:04] Simone: It's funny; it's a slippery slope. You start with like the tiniest like ukulele, and then you are going to have like one a cello or whatever. I just need something bigger.
 
-[00:26:12] Adam: I I was told by my son's music teacher at his old school that the biggest secret in music is that the standup bass is by far the most fun instrument to play physically. That, like, if you get good at it, it is just super. She's like, " Oh my god, there is nothing better."
-
-[00:26:27] Adam: No, I can believe that. I mean, if you go and see Penn and Teller's stage show in Vegas, Penn and Jonesy is their their musical director and plays beautiful, amazing jazz piano as the audience is coming in, and Penn is often playing with him on the standup bass,
+[00:26:12] Adam: I I was told by my son's music teacher at his old school that the biggest secret in music is that the standup bass is by far the most fun instrument to play physically. That, like, if you get good at it, it is just super. She's like, " Oh my god, there is nothing better." No, I can believe that. I mean, if you go and see Penn and Teller's stage show in Vegas, Penn and Jonesy is their their musical director and plays beautiful, amazing jazz piano as the audience is coming in, and Penn is often playing with him on the standup bass,
 
 [00:26:27] Unknown speaker: yeah,
 
@@ -506,9 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:28:20] Adam: Someone asked me on Twitter, " Have you ever seen Phineas and Ferb?" And I was like, " I didn't say this, but seen it. I played, Jamie and I played all the stormtroopers in their Star Wars episode.
 
-[00:28:20] Simone: Really?
-
-[00:28:31] Simone: What's this?
+[00:28:20] Simone: Really? What's this?
 
 [00:28:32] Adam: Phineas and Ferb? Oh, Phineas and Ferb is a wonderful animated show. It's deeply invested with the heart of making and problem solving and a critical thinking way of looking at the world. It's it's fantastic.
 
@@ -586,9 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:31:22] Simone: Yes.
 
-[00:31:22] Adam: Right.
-
-[00:31:24] Adam: Every label from a label maker displays the pleasure of the owner
+[00:31:22] Adam: Right. Every label from a label maker displays the pleasure of the owner
 
 [00:31:29] Simone: and toothbrush,
 
@@ -656,11 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:33:44] Simone: Alexa.
 
-[00:33:46] Adam: I
-
-[00:33:46] Adam: am leaving in half an hour.
-
-[00:33:46] Adam: Roger that, Simone. I'll power up the smoke machine.
+[00:33:46] Adam: I am leaving in half an hour. Roger that, Simone. I'll power up the smoke machine.
 
 [00:33:50] Simone: Yeah, no, that that'd be great. I feel that there needs to be more smoke machines in everyday life.
 
@@ -708,9 +688,7 @@ Episode URL: https://www.youtube.com/watch?v=tOPacgIAOuE
 
 [00:35:44] Norm: Yeah, you see what's actually below you.
 
-[00:35:46] Adam: And here's the best part: is going up, you're like, " Ooh, this is scary! This is scary!" You get up, you look, you have lunch. It's nice up here, and then you realize you've got to go down, which is twice as bad
-
-[00:35:54] Adam: because it looks twice as far when you're facing the incline, facing away from the incline.
+[00:35:46] Adam: And here's the best part: is going up, you're like, " Ooh, this is scary! This is scary!" You get up, you look, you have lunch. It's nice up here, and then you realize you've got to go down, which is twice as bad because it looks twice as far when you're facing the incline, facing away from the incline.
 
 [00:36:00] Simone: It's terrifying. Yeah, terrifying. I actually had a nightmare tonight, or like last night, about skiing.
 

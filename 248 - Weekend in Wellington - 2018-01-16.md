@@ -48,9 +48,7 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:01:32] Joey: Isn't that weird.
 
-[00:01:33] Adam: Yeah,
-
-[00:01:34] Adam: we're right across the hall from Richard Taylor, CEO and co-founder of of Weta. His office, and as always is the case when we come here, the hospitality is off the charts. It feels we feel like family, and as you said, distant cousins visiting after a long absence.
+[00:01:33] Adam: Yeah, we're right across the hall from Richard Taylor, CEO and co-founder of of Weta. His office, and as always is the case when we come here, the hospitality is off the charts. It feels we feel like family, and as you said, distant cousins visiting after a long absence.
 
 [00:01:50] Norm: We're lucky. It's twice removed, right? So last time we were here, we shot a bunch of pieces. We covered some of the production they that they had been doing at that point, Ghost in the Shell.
 
@@ -70,9 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:02:46] Adam: That was the so okay, so that was the most mind blowing thing. So I knew that Peter has been a World War One and airplane fanatic, and he has started and been building these planes and collecting them and restoring them for years. And he said, next time you come, let me know, and we'll set up some flights. And so they did, and I took off. I was the first one to fly. I didn't know about the second plane. But about five minutes into my flight, this triplane German Fokker comes in, and we're like dogfighting, and we get to really feel from the back gunner's position on the plane what was the plane?
 
-[00:03:22] Norm: It's a it's a British RE8.
-
-[00:03:22] Norm: Which was a reconnaissance plane in World War One. This is, you know, aerial combat in World War One was its unique thing because it was mostly trench warfare. Yeah, definitely flew these to take pictures, and this plane that we were sitting in, we didn't actually fly ourselves.
+[00:03:22] Norm: It's a it's a British RE8. Which was a reconnaissance plane in World War One. This is, you know, aerial combat in World War One was its unique thing because it was mostly trench warfare. Yeah, definitely flew these to take pictures, and this plane that we were sitting in, we didn't actually fly ourselves.
 
 [00:03:39] Adam: No, no, no, we were all passengers every time.
 
@@ -130,11 +126,7 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:05:55] Joey: It’s a total.
 
-[00:05:56] Adam: Oh yeah, No, it's Vietnam era. There's literally
-
-[00:05:59] Adam: it looks like.
-
-[00:06:00] Adam: totally. Wow.
+[00:05:56] Adam: Oh yeah, No, it's Vietnam era. There's literally it looks like. totally. Wow.
 
 [00:06:01] Joey: So for our viewpoint on the ground, you took off, and then they get that other plane rolling, and I go, " What's going on?" Peter says, " Oh, he's going to go chase him." Like, ha ha, funny. Like,
 
@@ -170,15 +162,11 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:09:03] Joey: Runways,
 
-[00:09:04] Norm: yeah,
-
-[00:09:04] Norm: grassy runway, but it was you know from where the hangar was maybe a kilometer out. And so, to get a better vantage point, when you and when when you know when we were loading up on the plane and rolling out to the runway, he has a bus.
+[00:09:04] Norm: yeah, grassy runway, but it was you know from where the hangar was maybe a kilometer out. And so, to get a better vantage point, when you and when when you know when we were loading up on the plane and rolling out to the runway, he has a bus.
 
 [00:09:20] Adam: Yeah,
 
-[00:09:21] Norm: He has a double decker, a, a, a.
-
-[00:09:22] Norm: Double decker era World War One, like a London.
+[00:09:21] Norm: He has a double decker, a, a, a. Double decker era World War One, like a London.
 
 [00:09:25] Adam: It's like a viewing platform.
 
@@ -210,9 +198,7 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:10:32] Norm: And I know for many people in the states, Australians and New Zealanders get piled and grouped in one pile.
 
-[00:10:38] Adam: They are two different people. Two different
-
-[00:10:40] Adam: countries.
+[00:10:38] Adam: They are two different people. Two different countries.
 
 [00:10:40] Norm: Very different. They speak about each other very differently, even how they participated in the war. And the people here have been extremely gracious. Let's try to paint a word picture of like what what a workshop is like, like an operation, because you know we've shown workshops and effect houses of different scales, and of course a little bit of the rooms in Weta. But I think it's it's hard to communicate that. It is over 100 people here.
 
@@ -300,9 +286,7 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:16:37] Joey: No, no, Bigger than that, right?
 
-[00:16:39] Adam: No, no, no, less than that.
-
-[00:16:41] Adam: I think it's. I. But I actually can’t call them
+[00:16:39] Adam: No, no, no, less than that. I think it's. I. But I actually can’t call them
 
 [00:16:43] Norm: many scale larger than human size dioramas of these scenes.
 
@@ -396,17 +380,13 @@ Episode URL: https://www.youtube.com/watch?v=bL_koBwYY-o
 
 [00:21:41] Norm: Joe, are you going to do anything in the week while we're here? Any anything?
 
-[00:21:45] Adam: I've been
-
-[00:21:45] Adam: running every day.
+[00:21:45] Adam: I've been running every day.
 
 [00:21:45] Joey: I'm gonna run. I run everywhere. Usually, yeah, I bring some jogging shoes and just and that's how I see places. But I'm trying to surf. Um, taking surf lessons because we have like nine p.m. days here, so they do an evening classes.
 
 [00:21:59] Norm: Oh wow, that's the other weird thing. The sun sets at nine here.
 
-[00:22:01] Joey: Yeah, it's like summer time in Cornwall.
-
-[00:22:02] Joey: It was it was the sun was setting at 10 p.m. So I was watching the sunset. All right, it's time for dinner. Like everything was closed.
+[00:22:01] Joey: Yeah, it's like summer time in Cornwall. It was it was the sun was setting at 10 p.m. So I was watching the sunset. All right, it's time for dinner. Like everything was closed.
 
 [00:22:09] Adam: Right, like as we're recording this, we have like five more hours of sunlight, and the sun sets in California in like an hour.
 

@@ -28,9 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:01:32] Adam: Okay. And but I have another piece too, and this is my, this is my Cthulhu octopus cane.
 
-[00:01:39] Will: This is one of the first things we talked about on this podcast.
-
-[00:01:38] Will: I think, years ago.
+[00:01:39] Will: This is one of the first things we talked about on this podcast. I think, years ago.
 
 [00:01:42] Adam: Was it really?
 
@@ -122,9 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:03:31] Norm: really, and that's terrifying.
 
-[00:03:35] Adam: Right.
-
-[00:03:36] Adam: Well, I think of it as, yeah, I know what you mean.
+[00:03:35] Adam: Right. Well, I think of it as, yeah, I know what you mean.
 
 [00:03:38] Will: I mean, we've done what a couple hundred hours of this now, and we, I mean, and Norm and I have done another 300 episodes of the other podcast.
 
@@ -270,9 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:08:30] Norm: that they've been looking on a flat screen,
 
-[00:08:31] Will: yeah.
-
-[00:08:32] Will: And and it becomes like it becomes real for them in a in a really short order. And we're all in the room together, so there's three people in the VR room, which is kind of an unusual unusual situation. And the people who are watching this in their goggles get that same experience. So, like when I'm talking to Jake, Jake can pick up a prop from the room and say, " Hey, take a look at this." You know, I Jane made this. Their their modeler made this in an afternoon. She streamed the making of it on YouTube, so you can see how she turned this thing from a from a cylinder into a a thing that looks like a Coleman lantern.
+[00:08:31] Will: yeah. And and it becomes like it becomes real for them in a in a really short order. And we're all in the room together, so there's three people in the VR room, which is kind of an unusual unusual situation. And the people who are watching this in their goggles get that same experience. So, like when I'm talking to Jake, Jake can pick up a prop from the room and say, " Hey, take a look at this." You know, I Jane made this. Their their modeler made this in an afternoon. She streamed the making of it on YouTube, so you can see how she turned this thing from a from a cylinder into a a thing that looks like a Coleman lantern.
 
 [00:09:03] Adam: Right?
 
@@ -366,9 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:13:57] Will: you can work longer, so they can increase their profits.
 
-[00:13:59] Adam: Yeah,
-
-[00:14:00] Adam: okay, and then. I saw Hamilton.
+[00:13:59] Adam: Yeah, okay, and then. I saw Hamilton.
 
 [00:14:04] Norm: You did.
 
@@ -382,9 +374,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:14:08] Adam: We did. We made it, and we saw it a week ago Thursday in New York City. We saw it with most of the original company. There was a couple of understudies; they were amazing.
 
-[00:14:20] Norm: Was Lin Manuel?
-
-[00:14:21] Norm: Yes.
+[00:14:20] Norm: Was Lin Manuel? Yes.
 
 [00:14:22] Adam: Lin Manuel Miranda was in it, and more than that, in a wonderful fantasy camp day, we got to hang out a little bit afterwards.
 
@@ -444,9 +434,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:15:22] Norm: Birthday present.
 
-[00:15:25] Adam: It's it's it's.
-
-[00:15:26] Adam: You know it’s getting out. You know.
+[00:15:25] Adam: It's it's it's. You know it’s getting out. You know.
 
 [00:15:27] Norm: No one listens to this podcast.
 
@@ -608,9 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=4rSSG-DvmCQ
 
 [00:26:26] Norm: Yeah. You get like there's an underdog status there, and it comes through, and then the end because it's a long musical.
 
-[00:26:35] Adam: Yeah,
-
-[00:26:36] Adam: two and a half hours.
+[00:26:35] Adam: Yeah, two and a half hours.
 
 [00:26:36] Norm: And when you get to the end,
 

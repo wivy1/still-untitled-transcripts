@@ -168,13 +168,9 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:07:26] Adam: I will say, you know, after after what do you call it? The Amazing Race won for best host for like 20 years in a row.
 
-[00:07:35] Will: Phil
+[00:07:35] Will: Phil Seems pretty good.
 
-[00:07:35] Will: Seems pretty good.
-
-[00:07:35] Adam: Oh, he's wonderful. He's fantastic.
-
-[00:07:35] Adam: But I really appreciate that RuPaul's been taking home best host for the last four years.
+[00:07:35] Adam: Oh, he's wonderful. He's fantastic. But I really appreciate that RuPaul's been taking home best host for the last four years.
 
 [00:07:35] Will: I mean,
 
@@ -198,9 +194,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:09:04] Adam: I haven't watched it.
 
-[00:09:04] Will: Oh, you've got to watch that one. All right.
-
-[00:09:06] Will: Because because she's just she's just like she's ready to go,
+[00:09:04] Will: Oh, you've got to watch that one. All right. Because because she's just she's just like she's ready to go,
 
 [00:09:06] Adam: yeah, totally.
 
@@ -214,9 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:09:31] Will: Hot Ones is a YouTube series where I can't remember the host name, but he they they basically have an escalating series of wings.
 
-[00:09:38] Adam: It's
-
-[00:09:38] Adam: Shameful that we don't have his name at the tip of our tongues because he's a he's a phenomenal host and a really really incredible interviewer with insanely insightful questions that probe deep. And so his method is he eats successively hotter wings along with his guest, and it's times 10. You know, just 10 wings, and the last one is like you know, set your house on fire hot. But what he does is he takes a bite. His guest takes a bite, and then he immediately asks a deeply probing question while they're in extreme pain.
+[00:09:38] Adam: It's Shameful that we don't have his name at the tip of our tongues because he's a he's a phenomenal host and a really really incredible interviewer with insanely insightful questions that probe deep. And so his method is he eats successively hotter wings along with his guest, and it's times 10. You know, just 10 wings, and the last one is like you know, set your house on fire hot. But what he does is he takes a bite. His guest takes a bite, and then he immediately asks a deeply probing question while they're in extreme pain.
 
 [00:10:07] Will: While they're having this incredible mouth experience,
 
@@ -240,9 +232,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:10:28] Norm: We can make an audition video. We can make an audition video.
 
-[00:10:28] Adam: Exactly.
-
-[00:10:30] Adam: I had the hot fried chicken from Westbury yesterday for lunch,
+[00:10:28] Adam: Exactly. I had the hot fried chicken from Westbury yesterday for lunch,
 
 [00:10:33] Will: and I had a sandwich at the Presidio picnic on Sunday.
 
@@ -270,9 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:11:26] Will: the big the the big categories, right?
 
-[00:11:26] Norm: Yeah.
-
-[00:11:29] Norm: But and in the general public, I think that's not as transparent as it always can be because the assumption the public way it's presented these big awards is that these are the definitive ranking. Like this is like it will stand the test of time.
+[00:11:26] Norm: Yeah. But and in the general public, I think that's not as transparent as it always can be because the assumption the public way it's presented these big awards is that these are the definitive ranking. Like this is like it will stand the test of time.
 
 [00:11:29] Adam: Right.
 
@@ -292,9 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:12:40] Adam: and I feel like this this is something that that we dealt with on MythBusters, and this isn't sour grapes. It's just you know talk about it. Like there are there are like seven different genres of reality television, and many times the roster of nominees in our category would be like five different types of show, and they have reality competition, they have reality scripted and unscripted, but even still, like within within fiction and nonfiction television. I there are far more categories, and I'm not saying you have to accommodate every single one, but right now it feels like they're very limited.
 
-[00:13:13] Will: Well,
-
-[00:13:14] Will: it's a Golden Globe problem of the you know the Martian as best comedy or musical.
+[00:13:13] Will: Well, it's a Golden Globe problem of the you know the Martian as best comedy or musical.
 
 [00:13:18] Adam: So at one point, the head of Discovery PR was lobbying for new categories for reality television, and the Emmy Academy member she was talking to said, " Well, let me ask you this: Is MythBusters more candid camera or Wild Kingdom?" And she was like, " Both of those shows are more than 40 years old. Maybe maybe we should have some more recent cultural markers."
 
@@ -312,9 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:14:51] Norm: Right between the ages of right December 2017 and September 2018.
 
-[00:14:51] Adam: Yeah,
-
-[00:14:59] Adam: movies that were important to you, movies that you loved this year, movies that really blew your mind, movies that you love but can't watch anymore.
+[00:14:51] Adam: Yeah, movies that were important to you, movies that you loved this year, movies that really blew your mind, movies that you love but can't watch anymore.
 
 [00:15:05] Norm: Okay, to change,
 
@@ -348,9 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:17:11] Adam: I was also really impressed.
 
-[00:17:11] Will: Yeah, I mean, this is,
-
-[00:17:14] Will: this is. I kind of lobbed you a far right field one there, and you just reached for it, man. Easy.
+[00:17:11] Will: Yeah, I mean, this is, this is. I kind of lobbed you a far right field one there, and you just reached for it, man. Easy.
 
 [00:17:21] Adam: This is amazing.
 
@@ -458,9 +440,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:23:55] Norm: And maybe the discs are because there were some really bad DVDs.
 
-[00:23:55] Will: Oh, there's absolutely bad DVDs,
-
-[00:24:01] Will: Back to the Future, yeah, all sorts of stuff.
+[00:23:55] Will: Oh, there's absolutely bad DVDs, Back to the Future, yeah, all sorts of stuff.
 
 [00:24:03] Norm: And the discs now, the the UHDs with HDR, they are only as good as they are because the The market demands it because the people on the AVS forums are are demanding the quality. There are the people.
 
@@ -480,9 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:25:00] Adam: Actually, it is the there is the famous thing of the Kubrick note to projectionists for 2001 that which is still in some dispute as to what is the proper aspect ratio to watch some of these movies,
 
-[00:25:12] Will: right?
-
-[00:25:12] Will: 2001?
+[00:25:12] Will: right? 2001?
 
 [00:25:12] Adam: Actually, I don’t remember.
 
@@ -498,9 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:26:16] Adam: right
 
-[00:26:16] Will: and like they look at that stuff
-
-[00:26:16] Will: as as a really good indicator about what people want to watch. Um, I I think I mean I think that it is important to think about how these kind of ephemeral streaming services are impacting our archives. This is why I run a Plex server. Yeah, I have a machine that runs in my garage around the clock and has a couple thousand movies on it that I've ripped off of Blu-rays and DVDs because it's the stuff that I want to have available whether Amazon or Netflix or whatever has a deal with the with the places you know.
+[00:26:16] Will: and like they look at that stuff as as a really good indicator about what people want to watch. Um, I I think I mean I think that it is important to think about how these kind of ephemeral streaming services are impacting our archives. This is why I run a Plex server. Yeah, I have a machine that runs in my garage around the clock and has a couple thousand movies on it that I've ripped off of Blu-rays and DVDs because it's the stuff that I want to have available whether Amazon or Netflix or whatever has a deal with the with the places you know.
 
 [00:26:16] Unknown speaker: Yeah,
 
@@ -524,9 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:27:25] Will: Like I've learned so much from listening to director's commentaries over the years,
 
-[00:27:34] Norm: totally.
-
-[00:27:35] Norm: And a lot of times, the streaming, the iTunes, if even if you buy it on iTunes, you won't get the commentary.
+[00:27:34] Norm: totally. And a lot of times, the streaming, the iTunes, if even if you buy it on iTunes, you won't get the commentary.
 
 [00:27:40] Will: You won't get. You get a subset.
 
@@ -574,9 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:28:56] Adam: that it might have been a region coding thing. He might have moved to a different region,
 
-[00:29:05] Will: so he like went to Japan or something, and it didn't work because he
-
-[00:29:07] Will: was in Japan.
+[00:29:05] Will: so he like went to Japan or something, and it didn't work because he was in Japan.
 
 [00:29:08] Adam: If you owned a DVD that was region coded, which they almost all of them are,
 
@@ -592,9 +564,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:29:25] Adam: Really?
 
-[00:29:25] Will: Everything's real easy on DVD these days.
-
-[00:29:29] Will: DVD is well and truly broken.
+[00:29:25] Will: Everything's real easy on DVD these days. DVD is well and truly broken.
 
 [00:29:30] Adam: The last time I tried to strip a Sony machine of its region coding,
 
@@ -678,9 +648,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:32:16] Norm: Regenerative braking is the great metaphor for achievement in our life. If you reach the top of the mountain, that's all you need. It's like Gattaca, just energy to get there. You don't need to save anything for the way back.
 
-[00:32:26] Adam: Wow, that is that's deeply philosophical.
-
-[00:32:29] Adam: We're going to leave you with that deep thought this week.
+[00:32:26] Adam: Wow, that is that's deeply philosophical. We're going to leave you with that deep thought this week.
 
 [00:32:30] Will: Yeah, next week on Norm's deep thoughts.
 
@@ -704,9 +672,7 @@ Episode URL: https://www.youtube.com/watch?v=Tt7Y8DetpLI
 
 [00:32:52] Norm: his videos, his very his his take on puppeteering on Facebook and YouTube. Check out, subscribe to his channel.
 
-[00:32:59] Adam: Really
-
-[00:32:59] Adam: Largely self invented,
+[00:32:59] Adam: Really Largely self invented,
 
 [00:33:00] Norm: yes, incredibly from the puppets he designs to the mechs, and we learn a lot about his process and his origins. I didn't realize that. You know, for example, he used to be a stop motion animator.
 

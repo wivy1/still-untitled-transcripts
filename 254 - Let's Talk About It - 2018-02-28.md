@@ -12,11 +12,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:00:34] Will: Hey guys, how are you all doing this lovely Tuesday morning?
 
-[00:00:37] Adam: Doing really good. Doing really good. Yeah.
-
-[00:00:37] Adam: Having
-
-[00:00:37] Adam: A productive week. A lot of a lot of planning and plotting. in the cave this week,
+[00:00:37] Adam: Doing really good. Doing really good. Yeah. Having A productive week. A lot of a lot of planning and plotting. in the cave this week,
 
 [00:00:43] Will: that's good.
 
@@ -58,19 +54,13 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:02:19] Norm: I did see three billboards, which I know you mentioned. Both of you mentioned with conflicting opinions on it, and I will and Will you have recommended Adam continue to push through.
 
-[00:02:33] Adam: I know I had a conversation with my mom. Hi mom. By the way,
-
-[00:02:36] Adam: my mom watches religiously. She's she's. We were talking a couple days ago, and she was like, " What was the problem you had?" And we talked about it, and she said, " Like you, you know, muscle through, and you will be rewarded." And I will. I will.
+[00:02:33] Adam: I know I had a conversation with my mom. Hi mom. By the way, my mom watches religiously. She's she's. We were talking a couple days ago, and she was like, " What was the problem you had?" And we talked about it, and she said, " Like you, you know, muscle through, and you will be rewarded." And I will. I will.
 
 [00:02:49] Norm: I don't think it's a movie about redemption.
 
 [00:02:51] Will: No,
 
-[00:02:53] Norm: no one is redeemed.
-
-[00:02:55] Norm: So it’s not about that.
-
-[00:02:55] Norm: But it is satisfactory.
+[00:02:53] Norm: no one is redeemed. So it’s not about that. But it is satisfactory.
 
 [00:02:59] Will: I think everything is earned, is what I would say.
 
@@ -228,9 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:16:18] Will: we’re not the people to do that.
 
-[00:16:18] Adam: No, but, but, but,
-
-[00:16:20] Adam: You know, I think it's important to just like bring up the fact that we're debating this with each other. We're debating it with ourselves, and we're debating this as a as a as a as a content producer.
+[00:16:18] Adam: No, but, but, but, You know, I think it's important to just like bring up the fact that we're debating this with each other. We're debating it with ourselves, and we're debating this as a as a as a as a content producer.
 
 [00:16:31] Norm: And we can talk about in the framework of how we celebrate what people make.
 
@@ -238,15 +226,11 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:16:36] Will: Yeah.
 
-[00:16:36] Adam: and they think less of me for this. That's fine. They totally, you know, that that is. There are people who invent everything out of whole cloth, and I like my hats off to them. This is part of how, like, this is how I breathe in my culture, and I am agnostic as to how someone comes to making. And again, remember when I say making, we mean everything: we mean storytelling, we mean filmmaking, we mean recording,
-
-[00:16:36] Adam: Music.
+[00:16:36] Adam: and they think less of me for this. That's fine. They totally, you know, that that is. There are people who invent everything out of whole cloth, and I like my hats off to them. This is part of how, like, this is how I breathe in my culture, and I am agnostic as to how someone comes to making. And again, remember when I say making, we mean everything: we mean storytelling, we mean filmmaking, we mean recording, Music.
 
 [00:17:14] Will: programming, 3D art, programming, yeah, sewing the whole thing.
 
-[00:17:17] Adam: So, so, you know,
-
-[00:17:17] Adam: I don't care how someone gets interested in the need to make something. I think the act in and of itself is an affirm is a life affirming one, and a culture affirming one. And I think it makes you a critical thinker. I I think [unclear: a / of] gateway drug. I think making is a gateway drug to critical thinking.
+[00:17:17] Adam: So, so, you know, I don't care how someone gets interested in the need to make something. I think the act in and of itself is an affirm is a life affirming one, and a culture affirming one. And I think it makes you a critical thinker. I I think [unclear: a / of] gateway drug. I think making is a gateway drug to critical thinking.
 
 [00:17:36] Will: Well, what I mean, not to circle back, but to circle to circle back to the Blade Runner blaster,
 
@@ -270,9 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:19:07] Will: Like in the movies that she’s watched.
 
-[00:19:12] Adam: I'm not against people smoking on screen. I just think. I I like the the reversion back to less smoking in movies that has happened over the last 20.
-
-[00:19:12] Adam: Years.
+[00:19:12] Adam: I'm not against people smoking on screen. I just think. I I like the the reversion back to less smoking in movies that has happened over the last 20. Years.
 
 [00:19:20] Will: It's good that we're not normalizing that behavior from a very young age.
 
@@ -348,15 +330,11 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:21:13] Adam: Oh, right, right, right, David Chang.
 
-[00:21:14] Norm: But this is David Chang's new. It's his Netflix's Parts Unknown.
-
-[00:21:14] Norm: Bourdain-type show.
+[00:21:14] Norm: But this is David Chang's new. It's his Netflix's Parts Unknown. Bourdain-type show.
 
 [00:21:20] Will: Is it the same production team as " Mind of a Chef"?
 
-[00:21:22] Norm: Not. It's not.
-
-[00:21:23] Norm: And what I didn't know, " Mind of a Chef" was a PBS series that Anthony Bourdain produced. It was multiple seasons. Dave Chang was the face of season one, but apparently that wasn't supposed to be a TV show. That was supposed to be a documentary, and then they recut it up into a TV show. This is through and through a TV show. Eight episodes. Each episode is about a type of food, and Dave Chang, along with his collaborators Pete Meehan, which was the New York Times food critic, who was the who co ran Lucky Peach with him.
+[00:21:22] Norm: Not. It's not. And what I didn't know, " Mind of a Chef" was a PBS series that Anthony Bourdain produced. It was multiple seasons. Dave Chang was the face of season one, but apparently that wasn't supposed to be a TV show. That was supposed to be a documentary, and then they recut it up into a TV show. This is through and through a TV show. Eight episodes. Each episode is about a type of food, and Dave Chang, along with his collaborators Pete Meehan, which was the New York Times food critic, who was the who co ran Lucky Peach with him.
 
 [00:21:51] Adam: Yeah, they they also wrote the Momofuku cookbook.
 
@@ -370,9 +348,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:22:32] Norm: This is an important show.
 
-[00:22:33] Adam: Yeah, yeah, yeah. That you want all the parts
-
-[00:22:33] Adam: and bits and bobs.
+[00:22:33] Adam: Yeah, yeah, yeah. That you want all the parts and bits and bobs.
 
 [00:22:35] Norm: and I want I I I could replay, watch again. Um, and he talks about you read some of the interviews that Dave Chang talks about. Uh, he says that food is one of the last bastions of really passive racism. Um, in how people think about food, I'll just talk about like Chinese food, for example. Like you know, we have uh fancy. Yeah, in the high echelon of cooking, when you read a New Yorker review for restaurant, you're going to look at French restaurants and Italian restaurants, but you'll never see like a Chinese restaurant get more than two stars. And why is that?
 
@@ -438,9 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:26:10] Norm: Then what has it done? Yeah, that's is that really authentic? Right. You're using the same ingredients, but the idea of using fresh food isn't there. So he actually contends like the best, the most authentic pizza made right now is like in Japan because it's some of the people who are taking the philosophies of pizza making and then doing that stuff using the ingredients and using it their way and with what they have and and with to their taste.
 
-[00:26:34] Adam: That's really.
-
-[00:26:34] Adam: Cool.
+[00:26:34] Adam: That's really. Cool.
 
 [00:26:35] Will: Did either of you watch Ants on a Shrimp yet?
 
@@ -552,9 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:29:36] Adam: who will try anything, and you gave him one of the shittiest food experiences he's had. I would consider that a badge of honor.
 
-[00:29:43] Will: I look, it's it's a if nothing else, we got a lovely story out of it.
-
-[00:29:43] Will: Exactly.
+[00:29:43] Will: I look, it's it's a if nothing else, we got a lovely story out of it. Exactly.
 
 [00:29:43] Norm: Yeah.
 
@@ -572,9 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:30:32] Adam: exactly.
 
-[00:30:32] Will: And let's really have a like. If we can't quantify semi-automatic assault rifles in an easy way, then we need to talk about what makes them semi-automatic assault rifles, and just talk about you know dialing that.
-
-[00:30:32] Will: Back.
+[00:30:32] Will: And let's really have a like. If we can't quantify semi-automatic assault rifles in an easy way, then we need to talk about what makes them semi-automatic assault rifles, and just talk about you know dialing that. Back.
 
 [00:30:42] Adam: I totally agree. And so, listen, if you're getting activated by us talking about this and you want to post in the comments, I just exhort you not to represent that I'm or any of us are thinking we got to get rid of all the guns, or that you know look up what a straw man argument is and don't be guilty of it.
 
@@ -592,15 +562,11 @@ Episode URL: https://www.youtube.com/watch?v=WVa9oEJ0jTA
 
 [00:31:05] Will: And and that's not that that to me does not seem okay.
 
-[00:31:22] Adam: The sorry, the last thing I will say that I really somebody tweeted. You know what? If a network wanted, based on the CNN town hall that happened with the kids from Stoneman and the sheriff of Broward and Marco Rubio and the representative from the NRA and Jake Tapper, somebody posted. You know what? If a network wanted to have a weekly show in which children yelled at politicians, I would watch
-
-[00:31:46] Adam: that show religiously.
+[00:31:22] Adam: The sorry, the last thing I will say that I really somebody tweeted. You know what? If a network wanted, based on the CNN town hall that happened with the kids from Stoneman and the sheriff of Broward and Marco Rubio and the representative from the NRA and Jake Tapper, somebody posted. You know what? If a network wanted to have a weekly show in which children yelled at politicians, I would watch that show religiously.
 
 [00:31:47] Will: I mean, just just the the moment when Marco Rubio stood up and said, " Look, it's really difficult to to identify assault rifles." There are 2,000, 3,000 on the market, and we, you know, blah blah blah blah blah, and
 
-[00:31:57] Adam: and the crowd went,
-
-[00:31:57] Adam: Nuts.
+[00:31:57] Adam: and the crowd went, Nuts.
 
 [00:31:58] Will: the crowd was like, yeah, that's fine, ban them all,
 

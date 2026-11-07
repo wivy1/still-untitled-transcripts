@@ -280,9 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=vCCnwH8l1nY
 
 [00:16:34] Will: So you have preferred materials that you like to work with.
 
-[00:16:36] Adam: And preferred things you like to do.
-
-[00:16:36] Adam: Right. But so, and when I say things like I’ve spent a lot—I invest in the best of a tool—the trick is, what—why would you do that unless you know that you need that tool?
+[00:16:36] Adam: And preferred things you like to do. Right. But so, and when I say things like I’ve spent a lot—I invest in the best of a tool—the trick is, what—why would you do that unless you know that you need that tool?
 
 [00:16:45] Will: Right.
 

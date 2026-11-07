@@ -20,9 +20,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:00:53] Will: The balls are in the air.
 
-[00:00:54] Adam: Yeah.
-
-[00:00:54] Adam: I'm also. I'm also. Yeah. I'm. I'm teaching my son how to drive a stick this afternoon.
+[00:00:54] Adam: Yeah. I'm also. I'm also. Yeah. I'm. I'm teaching my son how to drive a stick this afternoon.
 
 [00:00:59] Will: So. So I took a test drive. I did a. Long test drive
 
@@ -76,9 +74,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:03:16] Will: and a complete lack of fear.
 
-[00:03:18] Adam: Yeah,
-
-[00:03:18] Adam: There's that too, right? He still thinks he's immortal.
+[00:03:18] Adam: Yeah, There's that too, right? He still thinks he's immortal.
 
 [00:03:21] Will: He's daredevil essentially.
 
@@ -116,9 +112,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:04:26] Norm: do you have any desire for scooters or Vespas or
 
-[00:04:29] Adam: no, no?
-
-[00:04:30] Adam: And I'm I'm steering. I've actually long inculcated them with the idea that those are terrible ideas for transport. They're fun, but they're death machines.
+[00:04:29] Adam: no, no? And I'm I'm steering. I've actually long inculcated them with the idea that those are terrible ideas for transport. They're fun, but they're death machines.
 
 [00:04:40] Will: Yeah,
 
@@ -398,9 +392,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:15:08] Norm: yeah, and it might not be your fault because if someone else is going 120,
 
-[00:15:11] Adam: it doesn't matter.
-
-[00:15:12] Adam: But you have to just. I mean, my parents. That was one of the things when my dad. The two things I remember my dad teaching me was get your foot up. Get off that clutch. Yeah, like I'd rest my foot on the clutch, but
+[00:15:11] Adam: it doesn't matter. But you have to just. I mean, my parents. That was one of the things when my dad. The two things I remember my dad teaching me was get your foot up. Get off that clutch. Yeah, like I'd rest my foot on the clutch, but
 
 [00:15:22] Will: oh yeah,
 
@@ -602,9 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=ejGtb7HsUqA
 
 [00:22:59] Will: Okay, I'm interested to hear.
 
-[00:23:00] Adam: I'm going to try and stay calm.
-
-[00:23:03] Adam: I'm going to show up with a helmet.
+[00:23:00] Adam: I'm going to try and stay calm. I'm going to show up with a helmet.
 
 [00:23:04] Will: Are you going to put the helmet on? I was going to ask. You have plenty, so
 

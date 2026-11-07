@@ -50,13 +50,9 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:01:59] Unknown speaker: Nailed it.
 
-[00:02:00] Adam: So you know,
+[00:02:00] Adam: So you know, of course, we get to Barcelona, and the first thing we wanted to do after we'd after we'd spent a day wandering around, we watched Vicky Cristina Barcelona.
 
-[00:02:01] Adam: of course, we get to Barcelona, and the first thing we wanted to do after we'd after we'd spent a day wandering around, we watched Vicky Cristina Barcelona.
-
-[00:02:13] Will: Of course,
-
-[00:02:13] Will: it's the perfect thing to do. It's in the name of the movie.
+[00:02:13] Will: Of course, it's the perfect thing to do. It's in the name of the movie.
 
 [00:02:16] Adam: It is almost unwatchable. That's a
 
@@ -132,9 +128,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:07:29] Adam: And then, literally, you walk in, you look around, and then 5,000 people show up.
 
-[00:07:35] Will: Yeah,
-
-[00:07:37] Will: all of it's amazing. But, like that five minutes.
+[00:07:35] Will: Yeah, all of it's amazing. But, like that five minutes.
 
 [00:07:38] Adam: Oh, yeah, no, it's real. It's totally incredible. And the guides have all of this wonderful history. We spent in Granada. We went to the, what was it, the big castle over there? The the the Alhambra in Granada is incredible because it's literally been, like, it's been there since the 12th century, and you get to see like all of these buildings that got built up. It was a Roman fort. Right, I mean, like the amount of history going on in Spain was was super thrilling, and the guides are all amazing at telling you the stories about what this room. We stood in a room in which Queen Isabella of Spain received Christopher Columbus in chains because he'd been arrested for his poor treatment of the colonies.
 
@@ -178,9 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:10:28] Will: Yeah, little receivers.
 
-[00:10:29] Adam: Yes.
-
-[00:10:29] Adam: This is really cool because it means that the guides aren't yelling.
+[00:10:29] Adam: Yes. This is really cool because it means that the guides aren't yelling.
 
 [00:10:33] Will: Yeah.
 
@@ -278,15 +270,11 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:14:57] Will: You can't even find the Apple Store to go buy a new phone.
 
-[00:15:00] Adam: No.
-
-[00:15:01] Adam: Wow. So he called us. Yeah, in the middle of the night, he called us, and we were like, okay, well, maybe you can get it, and which basically it ended up he only had three days left on the trip anyway, so we ended up. Changing his ticket and flying home a couple days early.
+[00:15:00] Adam: No. Wow. So he called us. Yeah, in the middle of the night, he called us, and we were like, okay, well, maybe you can get it, and which basically it ended up he only had three days left on the trip anyway, so we ended up. Changing his ticket and flying home a couple days early.
 
 [00:15:16] Will: Oh, that stinks, though.
 
-[00:15:17] Adam: Yeah, no, it was brutal.
-
-[00:15:19] Adam: It's look. It also it's like part of that is welcome to the world.
+[00:15:17] Adam: Yeah, no, it was brutal. It's look. It also it's like part of that is welcome to the world.
 
 [00:15:23] Will: Yeah.
 
@@ -294,9 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:15:33] Will: Well, it's part of our job to teach them.
 
-[00:15:34] Adam: Deal with it. Yeah.
-
-[00:15:36] Adam: So for some reason, teenagers getting really stressed out is something I find deeply pleasurable.
+[00:15:34] Adam: Deal with it. Yeah. So for some reason, teenagers getting really stressed out is something I find deeply pleasurable.
 
 [00:15:40] Will: Well, it's because you're still scared of them a little bit, right? It's funny. My my daughter is in first grade now, and like the thing we've realized is that they have either feelings that are all the way or none at all. So like, there's no in between on disappointment or scared or upset. It's either 100% or like no, everything's cool, Dad. What's wrong? So yeah, learning to.
 
@@ -446,9 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:22:05] Will: no. Everybody in the world has told me I should watch Succession.
 
-[00:22:08] Adam: I really love it,
-
-[00:22:08] Adam: but I it's an acquired taste. I found it a little too upsetting to watch. I so I had to. I watched the first season slowly because I find the the emotional damage of all the characters to be a little bit grueling. But holy hell, the second season finish is delightful.
+[00:22:08] Adam: I really love it, but I it's an acquired taste. I found it a little too upsetting to watch. I so I had to. I watched the first season slowly because I find the the emotional damage of all the characters to be a little bit grueling. But holy hell, the second season finish is delightful.
 
 [00:22:24] Will: Okay,
 
@@ -564,9 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:27:36] Norm: [unclear: No more fantasy / More fantasy],
 
-[00:27:37] Adam: and this one's moving way more into the comic book
-
-[00:27:40] Adam: style of the filmmaking. But still, they took time to do all this origin story stuff, repeating literally entire scenes from the first Hellboy film.
+[00:27:37] Adam: and this one's moving way more into the comic book style of the filmmaking. But still, they took time to do all this origin story stuff, repeating literally entire scenes from the first Hellboy film.
 
 [00:27:50] Will: If there's anything Spider-Man has taught us, is that everybody loves a good origin story.
 
@@ -648,9 +630,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:30:44] Adam: Oh, stem cells or something.
 
-[00:30:45] Will: Yeah, whatever. Maybe maybe
-
-[00:30:48] Will: maybe they maybe they choose to put the the maybe they're like we have room for 2 million people in the bunkers that will survive the radiation from this.
+[00:30:45] Will: Yeah, whatever. Maybe maybe maybe they maybe they choose to put the the maybe they're like we have room for 2 million people in the bunkers that will survive the radiation from this.
 
 [00:30:54] Adam: Fascinating.
 
@@ -814,9 +794,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:38:05] Norm: Pause that for one second.
 
-[00:38:29] Adam: We're finishing up a podcast.
-
-[00:38:31] Adam: Sorry, come on in. Give me a sec. Okay. Sorry about that.
+[00:38:29] Adam: We're finishing up a podcast. Sorry, come on in. Give me a sec. Okay. Sorry about that.
 
 [00:38:32] Norm: All right,
 
@@ -842,9 +820,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:39:21] Adam: And Tested is just about to make a trip to another show that, um, that we like, and, uh, we've, uh, we're going to go on set again.
 
-[00:39:30] Will: Ooh, there are early screenings of Knives Out happening.
-
-[00:39:31] Will: around the country.
+[00:39:30] Will: Ooh, there are early screenings of Knives Out happening. around the country.
 
 [00:39:34] Norm: That's the other one. That's Knives Out's the Rian Johnson movie. I really want to see that.
 
@@ -902,11 +878,7 @@ Episode URL: https://www.youtube.com/watch?v=Qd6kSfePQkQ
 
 [00:41:17] Will: okay,
 
-[00:41:17] Norm: it's not the thing. It's not about body horror.
-
-[00:41:20] Norm: It's good.
-
-[00:41:20] Norm: It is social commentary, and it's, yeah,
+[00:41:17] Norm: it's not the thing. It's not about body horror. It's good. It is social commentary, and it's, yeah,
 
 [00:41:25] Will: it's good.
 

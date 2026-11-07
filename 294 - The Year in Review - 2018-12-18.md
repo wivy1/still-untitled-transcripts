@@ -158,9 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:10:12] Kayte: I need to meet him after studying all these reference photos and seeing him there, and now I need to see him in person.
 
-[00:10:16] Adam: He's got a painting in the attic. That's totally clear. But so the original blimp had practical lights on it. However, because of the way they shot Blade Runner, and the biggest scene you see the blimp in is, of course, when Deckard looks up at the end from the through the skylight of the of the Bradbury Building in Los Angeles. The way they shot that scene, I think it might have actually it was a stop motion scene. But in order to look up through the skylight, they basically took a photo of the skylight and cut out every window panel of the photo, and then they shot the blimp through the silhouette
-
-[00:10:53] Adam: so that the so that the spotlights from it would actually be broken up by the by the lattice of the skylight. But again, it wasn't a single pass. So in Blade Runner, all of the all of the effects in Blade Runner, there's pretty much no composites. It's All in camera, so they would run the blimp past the window for a single pass, which would probably be a rear light pass, then a front light pass.
+[00:10:16] Adam: He's got a painting in the attic. That's totally clear. But so the original blimp had practical lights on it. However, because of the way they shot Blade Runner, and the biggest scene you see the blimp in is, of course, when Deckard looks up at the end from the through the skylight of the of the Bradbury Building in Los Angeles. The way they shot that scene, I think it might have actually it was a stop motion scene. But in order to look up through the skylight, they basically took a photo of the skylight and cut out every window panel of the photo, and then they shot the blimp through the silhouette so that the so that the spotlights from it would actually be broken up by the by the lattice of the skylight. But again, it wasn't a single pass. So in Blade Runner, all of the all of the effects in Blade Runner, there's pretty much no composites. It's All in camera, so they would run the blimp past the window for a single pass, which would probably be a rear light pass, then a front light pass.
 
 [00:11:17] Norm: A multiple exposures,
 
@@ -224,13 +222,9 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:16:59] Adam: I I might have to just physically walk it. home.
 
-[00:17:02] Norm: Oh, gosh.
+[00:17:02] Norm: Oh, gosh. wow! The ring of protection around you.
 
-[00:17:02] Norm: wow! The ring of protection around you.
-
-[00:17:06] Adam: Right.
-
-[00:17:06] Adam: What are you going to do? I can't even cover it with a sheet. It's too delicate.
+[00:17:06] Adam: Right. What are you going to do? I can't even cover it with a sheet. It's too delicate.
 
 [00:17:09] Kayte: I was going to say, get a pickup truck. I will sit in the bed of the pickup truck, holding it on for dear life, and you drive very slowly.
 
@@ -242,9 +236,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:17:34] Norm: Yes,
 
-[00:17:34] Adam: it'll tease the video.
-
-[00:18:58] Adam: Norm, what are you doing for the holidays?
+[00:17:34] Adam: it'll tease the video. Norm, what are you doing for the holidays?
 
 [00:19:00] Norm: I'm I'm staying at home raising a child.
 
@@ -260,9 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:19:31] Norm: Mm-hmm.
 
-[00:19:32] Adam: And in addition,
-
-[00:19:32] Adam: I we flew to we flew to New Zealand a couple of times.
+[00:19:32] Adam: And in addition, I we flew to we flew to New Zealand a couple of times.
 
 [00:19:37] Norm: Twice this year.
 
@@ -278,11 +268,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:20:56] Norm: And meeting new people and you know building that community of of people that you can reach out to and collaborate with.
 
-[00:21:02] Adam: A Nation of Makers had held their first conference, NOMCon, in Santa Fe, New Mexico. I took the train with a bunch of my board members and friends down there. Jen Schachter supervised with We the Builders an incredible six foot tall Rosie the Riveter made of 1,800 parts from 700 makerspaces around the world. Jen and I are going to be doing more collaboration in the future on Tested and on other projects.
-
-[00:21:27] Adam: Yeah,
-
-[00:21:27] Adam: the family gets bigger.
+[00:21:02] Adam: A Nation of Makers had held their first conference, NOMCon, in Santa Fe, New Mexico. I took the train with a bunch of my board members and friends down there. Jen Schachter supervised with We the Builders an incredible six foot tall Rosie the Riveter made of 1,800 parts from 700 makerspaces around the world. Jen and I are going to be doing more collaboration in the future on Tested and on other projects. Yeah, the family gets bigger.
 
 [00:21:27] Kayte: Yeah,
 
@@ -324,9 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:22:51] Kayte, then Adam: It's buy Kayte two presents. Don't be a cheapskate.
 
-[00:22:54] Kayte: And don't go out of town until the 23rd, because it's really hard to hang out with people. Like, oh, I'm going to get together for my birthday, and everybody's like, I'm on the East Coast.
-
-[00:23:02] Kayte: I’m here,
+[00:22:54] Kayte: And don't go out of town until the 23rd, because it's really hard to hang out with people. Like, oh, I'm going to get together for my birthday, and everybody's like, I'm on the East Coast. I’m here,
 
 [00:23:02] Adam: Right, right.
 
@@ -380,11 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=lUe0h9WuO-0
 
 [00:26:32] Adam: Please share what you've made. Yeah, we love seeing that. We love putting together those galleries of things. We love highlighting wonderful makers. I love my Twitter feed. Whenever I post something like about Machination Studios or some of those guys, I get extra tweets from people going, " Do you know about these guys? You know about these guys? You know about this person?" And it's just the best.
 
-[00:26:51] Kayte: Well, and hearing from, I know that we've done a few garage kit builds this year, and hearing about the plight of some of them, the guys who make them, who a lot of people are are making copies
-
-[00:27:05] Kayte: and recasting,
-
-[00:27:05] Kayte: and this is their livelihood. So it's been really nice to be able to to buy the kits straight from these guys, put them together. Showcase it and help them get some more business as well.
+[00:26:51] Kayte: Well, and hearing from, I know that we've done a few garage kit builds this year, and hearing about the plight of some of them, the guys who make them, who a lot of people are are making copies and recasting, and this is their livelihood. So it's been really nice to be able to to buy the kits straight from these guys, put them together. Showcase it and help them get some more business as well.
 
 [00:27:15] Adam: Absolutely, some of these there's some beautiful things being made out there by people who are only making 20 or 30 of something.
 

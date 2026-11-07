@@ -68,9 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:01:26] Adam: for a friend named John.
 
-[00:01:26] Will: Okay,
-
-[00:01:28] Will: Just make this one out. Just make this one out to eBay, please. That show was like for cheesy science fiction. I haven't watched it as an adult.
+[00:01:26] Will: Okay, Just make this one out. Just make this one out to eBay, please. That show was like for cheesy science fiction. I haven't watched it as an adult.
 
 [00:01:37] Adam: I have not either.
 
@@ -96,9 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:01:58] Norm: Charles, or
 
-[00:01:59] Adam: the more like Charles—
-
-[00:01:59] Adam: Charlton Heston. Yeah,
+[00:01:59] Adam: the more like Charles— Charlton Heston. Yeah,
 
 [00:02:01] Will: okay, kind of like Charlton Heston. He gets sucked forward into time, but when he lands, the planet's not filled of damn dirty apes. It's a advanced civilization. We've had some apparently it seems like some bad things had happened. Oh, in the interval,
 
@@ -160,17 +156,13 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:03:34] Adam: Wow. What if there's? Never mind.
 
-[00:03:36] Will: How
-
-[00:03:37] Will: many? Anyway, um,
+[00:03:36] Will: How many? Anyway, um,
 
 [00:03:40] Norm: so but it's a fascinating thing. What anthropological, uh, uh, experiment to look at as how the '70s envisioned the far future?
 
 [00:03:48] Adam: Right, right. It was very optimistic.
 
-[00:03:50] Will: I have. I I was thinking about that because I was watching. I realized that I stopped watching, as I do, Battlestar, the reboot of Battlestar Galactica, let's say midway through the third season. So after they got off of New Caprica, I was just like, I'm done.
-
-[00:04:04] Will: I've had enough.
+[00:03:50] Will: I have. I I was thinking about that because I was watching. I realized that I stopped watching, as I do, Battlestar, the reboot of Battlestar Galactica, let's say midway through the third season. So after they got off of New Caprica, I was just like, I'm done. I've had enough.
 
 [00:04:04] Adam: New, that New Caprica season is a rough—
 
@@ -216,9 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:05:30] Will: possibly. Why? Why is Buck Rogers laying fallow all these many years?
 
-[00:05:30] Adam: I know,
-
-[00:05:35] Adam: Jesus.
+[00:05:30] Adam: I know, Jesus.
 
 [00:05:35] Norm: It's not a proven franchise.
 
@@ -244,23 +234,17 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:06:04] Adam: Leftovers is Damon's new series that he's written and producing. Uh, and he's writing all the episodes for. Uh, it's directed by Peter Berg, and it basically takes place effectively now, uh, except that two years ago, this is where the show opens. Two years ago, 2% of the world's population disappeared.
 
-[00:06:25] Will: Got ruptured.
-
-[00:06:25] Will: They were raptured. So it's like the Kirk Cameron thing.
+[00:06:25] Will: Got ruptured. They were raptured. So it's like the Kirk Cameron thing.
 
 [00:06:28] Adam: Unknown. It's not. It's it's it's sort of like the Elmore Leonard book Touch. Uh, it's a long story, but basically, something supernatural has happened. But we're not talking about the supernatural. We're just dealing with the people who are still on Earth and what it means that they're still here.
 
-[00:06:41] Will: And and do they know? Like, was it? Is it clear that it was a good rapture, or could they have all been kidnapped by aliens?
-
-[00:06:41] Will: Or getting probed?
+[00:06:41] Will: And and do they know? Like, was it? Is it clear that it was a good rapture, or could they have all been kidnapped by aliens? Or getting probed?
 
 [00:06:47] Adam: Well, no. Some of the people who left were like cardinals, and others were serial killers. It was all over the place.
 
 [00:06:53] Will: So, so—
 
-[00:06:53] Adam: or on
-
-[00:06:54] Adam: death row for being a serial killer.
+[00:06:53] Adam: or on death row for being a serial killer.
 
 [00:06:55] Will: So it's not like everybody that's left knows that they were evil.
 
@@ -296,11 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:07:40] Adam: glimpse into Will's brain.
 
-[00:07:41] Will: Yeah. Nice. Three three to seven steps behind or ahead, depending on which way time flows
-
-[00:07:46] Will: for you. Right. Um. We were
-
-[00:07:47] Will: going to talk about exercise and diet and and you know maintaining a, uh, healthy lifestyle in a world full of temptation and evil.
+[00:07:41] Will: Yeah. Nice. Three three to seven steps behind or ahead, depending on which way time flows for you. Right. Um. We were going to talk about exercise and diet and and you know maintaining a, uh, healthy lifestyle in a world full of temptation and evil.
 
 [00:07:56] Adam: Well, so, uh, recently, uh, my friend. My friend Max Landis, whose Twitter handle is up to my knees,
 
@@ -316,9 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:08:07] Adam: right. Max is so Max wrote the secret. He said the secret, untold history of MythBusters is that Adam keeps losing weight and looking younger and getting more hair as the seasons progress. And I was like, " I love you," and he says, " I'm only if—" He's. I won't tell that joke. Anyway. Um, the fact is, yeah, I've, uh, I've managed to lose, uh, about 30 pounds over the last two. Uh, uh, is it 2014? Yeah. Two and a half years. What's
 
-[00:08:38] Norm: your one secret
-
-[00:08:38] Norm: trick?
+[00:08:38] Norm: your one secret trick?
 
 [00:08:38] Will: This was the one simple trick. Since you met us.
 
@@ -330,9 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:08:42] Adam: My simple trick is lunch,
 
-[00:08:45] Norm: lunch, not eating.
-
-[00:08:45] Norm: Or eating only—
+[00:08:45] Norm: lunch, not eating. Or eating only—
 
 [00:08:46] Adam: No, only. Well, so I started out by not eating lunch. I just eliminated lunch from my day.
 
@@ -360,9 +336,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:10:07] Adam: Yeah. Um, so after about eight months of lunch only two or three days a week, I found I found a couple of problems. One is that yes, if you don't eat anything until you sit down at dinner, I would not only eat my meal, I eat all of everybody's leftovers at the table. I just vacuum it up, And so my body started—
 
-[00:10:07] Will: Oh, hey.
-
-[00:10:25] Will: You want some cake?
+[00:10:07] Will: Oh, hey. You want some cake?
 
 [00:10:26] Adam: Yeah. All right. I'll have the whole thing. Yeah. And my body started going. Oh, you're not packing enough calories on during the day. We'll just save all the calories from dinner.
 
@@ -386,9 +360,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:12:08] Adam: Well, 200 was I. I 200 was, uh, the heaviest I've been, and I was at 200 for really most of MythBusters. 195, 200. Um, so I worked to get down to 180, and then 180 became like this wall, and I just started really. I started weighing myself every day, again, not with the goal of like achieving something, but just noticing my patterns of what I was eating and what it was doing and changing things
 
-[00:12:33] Norm: after you
-
-[00:12:34] Norm: use the bathroom.
+[00:12:33] Norm: after you use the bathroom.
 
 [00:12:34] Adam: What's that?
 
@@ -444,9 +416,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:14:55] Norm: Terrible truth. Eating healthy is expensive.
 
-[00:14:55] Will: Yeah,
-
-[00:14:57] Will: if you look in if you look in the cost per calorie, the outside edges of the grocery store are the most expensive places in the store.
+[00:14:55] Will: Yeah, if you look in if you look in the cost per calorie, the outside edges of the grocery store are the most expensive places in the store.
 
 [00:15:02] Norm: I'm not like eating at McDonald's, but shopping smart also.
 
@@ -530,9 +500,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:20:40] Adam: So for the tribble, so for the most part, yeah, I I now eat a light lunch between 200 and 400 calories. I drink almost nothing but zero calorie drinks or water.
 
-[00:20:50] Will: Water, no juice, no none of
-
-[00:20:52] Will: that stuff.
+[00:20:50] Will: Water, no juice, no none of that stuff.
 
 [00:20:52] Adam: No juice, boy, is juice a killer.
 
@@ -566,9 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:22:31] Adam: seven 168. That's 15% of my body weight. You were right. I heard it. You got it fast.
 
-[00:22:39] Will: He
-
-[00:22:39] Will: explained the joke before too.
+[00:22:39] Will: He explained the joke before too.
 
 [00:22:40] Adam: Um, and that that so that means my sleep is better as well. Um, and since I'd done a sleep study, I learned that my sleep apnea is the worst when I lie on my back. So in addition to losing the 15% of my body weight, I also taught myself never to sleep on my back and. That has also been a key part of stress management. Eight hours of sleep a night—that's good quality sleep. It's done a tremendous amount for my ability to maintain my mood.
 
@@ -594,23 +560,15 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:23:44] Will: All right,
 
-[00:23:44] Norm: we
-
-[00:23:49] Norm: want
-
-[00:23:50] Norm: to hear what your your experience.
+[00:23:44] Norm: we want to hear what your your experience.
 
 [00:23:51] Will: Yeah, if you have questions,
 
-[00:23:52] Adam: I do also ascribe to Tim Ferriss's rule of one day a week you can just forget everything and eat. Anything you want, like whatever diet
-
-[00:24:01] Adam: you're on.
+[00:23:52] Adam: I do also ascribe to Tim Ferriss's rule of one day a week you can just forget everything and eat. Anything you want, like whatever diet you're on.
 
 [00:24:01] Will: Well, because the thing is,
 
-[00:24:01] Adam: you can
-
-[00:24:02] Adam: throw it to the wind way a day a week, and your body will adjust.
+[00:24:01] Adam: you can throw it to the wind way a day a week, and your body will adjust.
 
 [00:24:04] Will: Most of it just goes through.
 
@@ -618,9 +576,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:24:04] Will: you know.
 
-[00:24:04] Adam: Yeah,
-
-[00:24:07] Adam: you have an 8,000 calorie dinner. Your body's only going to store however many it's used to storing just from that.
+[00:24:04] Adam: Yeah, you have an 8,000 calorie dinner. Your body's only going to store however many it's used to storing just from that.
 
 [00:24:13] Will: Yeah, exactly. There's some side—
 
@@ -628,9 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:24:15] Adam: There are some side effects.
 
-[00:24:15] Norm: Day before
-
-[00:24:17] Norm: the cleaning lady comes.
+[00:24:15] Norm: Day before the cleaning lady comes.
 
 [00:24:18] Will: Enjoy.
 
@@ -640,9 +594,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:24:22] Will: Gross.
 
-[00:24:22] Adam: Oh my gosh!
-
-[00:24:23] Adam: Oh my gosh! I just found out my kids hadn't cleaned out their toilet or told me that it was clogged, and I had to go home and deal with it. Those little bastards.
+[00:24:22] Adam: Oh my gosh! Oh my gosh! I just found out my kids hadn't cleaned out their toilet or told me that it was clogged, and I had to go home and deal with it. Those little bastards.
 
 [00:24:31] Will: You should just get a snake. Go to the hardware store.
 
@@ -658,11 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:25:01] Will: And just just spin it around. Okay, spin
 
-[00:25:03] Adam: it around. Yeah,
-
-[00:25:04] Adam: And you can rub the Clorox all over
-
-[00:25:05] Adam: that. And I taste it to make sure it's clean.
+[00:25:03] Adam: it around. Yeah, And you can rub the Clorox all over that. And I taste it to make sure it's clean.
 
 [00:25:07] Will: You lick it.
 
@@ -682,15 +630,11 @@ Episode URL: https://www.youtube.com/watch?v=0A1rpGGqYew
 
 [00:25:16] Will: Slash premium and you can see more of the? We'll we'll we'll go record a video of you cleaning out the toilet and post that as a premium. No. We won’t do that.
 
-[00:25:16] Adam: We’re totally—
-
-[00:25:33] Adam: that's not premium content. No, that's not. That's whatever the opposite of premium content is.
+[00:25:16] Adam: We’re totally— that's not premium content. No, that's not. That's whatever the opposite of premium content is.
 
 [00:25:35] Will: Yeah, if you don't pay us, you'll have to watch that.
 
-[00:25:35] Adam: We'll pay
-
-[00:25:37] Adam: you to see that.
+[00:25:35] Adam: We'll pay you to see that.
 
 [00:25:38] Will: Exactly. See you guys next week.
 

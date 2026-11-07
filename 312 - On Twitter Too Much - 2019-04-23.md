@@ -22,9 +22,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:00:34] Michael Green: Going to parties becomes part of your job, and you know we all have to like put on a clean shirt. I wore a suit, and it's this one party. And now I'm remembering it. It's the one where you have to go on a Disney line, the meandering Disney line,
 
-[00:00:46] Adam: It's because and specifically, it's about the red carpet. 
-
-[00:00:46] Adam: Yeah, so that you were there with American Gods.
+[00:00:46] Adam: It's because and specifically, it's about the red carpet.  Yeah, so that you were there with American Gods.
 
 [00:00:49] Michael Green: you have to get photographed, and I was there with American Gods, and normally it is my wont to avoid all photographic representations of myself.
 
@@ -68,9 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:02:26] Michael Green: So you're like a full inch and a half shorter if you survive.
 
-[00:02:29] Adam: In a car accident, they often refer to the impacts as multiple. There's the car against the car, then there's you against your seatbelt, hopefully, and then there's your organs inside of you against the inside
-
-[00:02:29] Adam: of you.
+[00:02:29] Adam: In a car accident, they often refer to the impacts as multiple. There's the car against the car, then there's you against your seatbelt, hopefully, and then there's your organs inside of you against the inside of you.
 
 [00:02:42] Norm: Cascading effect. Yeah,
 
@@ -136,11 +132,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:05:29] Michael Green: so he can like
 
-[00:05:29] Adam: Well, no, and there's a slot at the floor where he can chuck in and actually operate the yoke of the plane. And there's a handle on one of the aileron cables on the on the on the tail fin, so the the the gunner
-
-[00:05:42] Adam: can actually potentially
-
-[00:05:44] Adam: fly the plane with a handle on a cable and a tiny little. It is again, it is better than death. Right, right, that's what this is.
+[00:05:29] Adam: Well, no, and there's a slot at the floor where he can chuck in and actually operate the yoke of the plane. And there's a handle on one of the aileron cables on the on the on the tail fin, so the the the gunner can actually potentially fly the plane with a handle on a cable and a tiny little. It is again, it is better than death. Right, right, that's what this is.
 
 [00:05:51] Norm: But and also on a swivel seat.
 
@@ -278,9 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:14:11] Unknown speaker (Norm or Adam): Yeah, [unclear: I think after / I think I have to ask her]
 
-[00:14:13] Michael Green: That's the most cynical thing I've ever heard you say. I always think of you as like this force of positivity. Like method of control.
-
-[00:14:18] Michael Green: Let's just tamp them down.
+[00:14:13] Michael Green: That's the most cynical thing I've ever heard you say. I always think of you as like this force of positivity. Like method of control. Let's just tamp them down.
 
 [00:14:19] Adam: She's a mirror for me.
 
@@ -294,11 +284,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:14:56] Michael Green: may well be. As I say, all of these things have feature. Where do you land on that?
 
-[00:15:01] Norm: I think on that side as well as a mirror for for for K
-
-[00:15:07] Norm: and
-
-[00:15:08] Norm: his desires.
+[00:15:01] Norm: I think on that side as well as a mirror for for for K and his desires.
 
 [00:15:09] Michael Green: And it's funny, you know, I, I argue with this, not, I, Denis and I discussed this a lot. I always felt like I wanted her to be real, and therefore I'm, you know, but but I couldn't. But the the story had to allow her to be both, you know. That is there a an epochal moment in her coding where she becomes something she wasn't, or is it all fantasy, or does it matter?
 
@@ -400,9 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:23:32] Michael Green: You know, they're they're they're different mediums. So you just the goals are different. One, you're trying to fill up more space. You know, one, you're looking for like what's the ongoing tale, and one, it's how can we blow out the story and tell everything we have to say in a bit of time. I don't know if I have anything specific. Like unique to say on this subject that I'm sure other writers will say on great podcasts that I can recommend. John August and Chris, me—, Craig Mazin script notes. You know, I'll say this because I did have an interesting experience recently where I'm helping some writers. I'm overseeing a story, that historical story that they brought to us, and we were thinking, great, that's an amazing. Like at first, I thought, is it a movie? And like, no, no, we want to do this as a series. And they told me how they want to, and I'm helping them develop it out. And a series of circumstances occurred where we suddenly thought, rather than like everything we were doing was how is this going to be six years? How are we going to tell an ongoing tale? You know, maybe it's five, maybe it's seven, but you're really thinking how are we going to expand out the story? Where we thought, you know what? What if we did it as two years? Like it is not a miniseries, it is not an ongoing series. It's this new thing that that's the length it wants to be. Like we realized it wanted to be 16 hours with you know some time in between the two, and it that is neither.
 
-[00:24:42] Adam: Yeah,
-
-[00:24:42] Adam: that's a middle ground.
+[00:24:42] Adam: Yeah, that's a middle ground.
 
 [00:24:43] Michael Green: This is a lungfish.
 
@@ -412,11 +396,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:25:23] Adam: Yeah,
 
-[00:25:23] Michael Green: like you used to have to think like, How do we smash it into that box? You know, if you had a genre idea, great. How do you turn it into two cops trying to solve magic crimes?
-
-[00:25:36] Michael Green: Right,
-
-[00:25:36] Michael Green: because that was what network television would say. You know, it's well, it's either a soap or a procedural. Those are the genres.
+[00:25:23] Michael Green: like you used to have to think like, How do we smash it into that box? You know, if you had a genre idea, great. How do you turn it into two cops trying to solve magic crimes? Right, because that was what network television would say. You know, it's well, it's either a soap or a procedural. Those are the genres.
 
 [00:25:36] Adam: Right.
 
@@ -444,9 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:27:07] Michael Green: But he paints. Have you ever seen his paintings?
 
-[00:27:08] Adam: No.
-
-[00:27:09] Adam: Oh, I didn't realize he painted.
+[00:27:08] Adam: No. Oh, I didn't realize he painted.
 
 [00:27:10] Michael Green: He paints like with every movie you see, the world is deprived to like museum quality paintings. He's and and the funny thing is if you ask him about he goes I hate fucking painting because what it means is I have time for it.
 
@@ -566,9 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:33:41] Michael Green: like 13 year old me is like, you got to do what?
 
-[00:33:43] Adam: Yeah, I I engage in that calling across the void between 10 year old, 12 year old me and now.
-
-[00:33:50] Adam: all the time.
+[00:33:43] Adam: Yeah, I I engage in that calling across the void between 10 year old, 12 year old me and now. all the time.
 
 [00:33:50] Michael Green: Come on.
 
@@ -598,9 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:34:46] Michael Green: Come on.
 
-[00:34:46] Adam: Yeah.
-
-[00:34:48] Adam: It's really hard to.
+[00:34:46] Adam: Yeah. It's really hard to.
 
 [00:34:48] Michael Green: Conroy Hamill's mine. Yeah. So, so reaching across, so oh, other things coming up. What do I have coming up? Yeah, there's some things in the works. They all going to take a really long time to come out, though. It's funny, like in no other field are people like, " Wow, that took a long time." I'm like, my brother builds buildings. No one ever says, " Why isn't that building?"
 
@@ -662,9 +636,7 @@ Episode URL: https://www.youtube.com/watch?v=NDc6AItNaNI
 
 [00:38:08] Adam: Michael Chabon uses a program that disconnects him from the internet for an allotted period of time, and unless he restarts his computer, which he said is just past the shame threshold required to keep him.
 
-[00:38:19] Michael Green: A good friend of mine just told me he took Twitter off his phone. So it's just like you know he he keeps it exclusively on his iPad, which he routinely only looks at in the morning and at night.
-
-[00:38:30] Michael Green: Which to me means while he's pooping.
+[00:38:19] Michael Green: A good friend of mine just told me he took Twitter off his phone. So it's just like you know he he keeps it exclusively on his iPad, which he routinely only looks at in the morning and at night. Which to me means while he's pooping.
 
 [00:38:34] Adam: Twitter is great while you're pooping,
 

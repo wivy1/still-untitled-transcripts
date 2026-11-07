@@ -44,9 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:01:04] Adam: I think we did like 14 over 31 days.
 
-[00:01:04] Will: Okay.
-
-[00:01:07] Will: When you tour the U.S., it's like every day or every other day.
+[00:01:04] Will: Okay. When you tour the U.S., it's like every day or every other day.
 
 [00:01:10] Adam: Yeah. So when I tour this fall, when Jamie and I tour this fall, it'll be. I think it'll be 26 cities in 32 days, or something like that.
 
@@ -66,9 +64,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:02:03] Norm: Encounter.
 
-[00:02:03] Will: Yes.
-
-[00:02:05] Will: Did you see any drop bears?
+[00:02:03] Will: Yes. Did you see any drop bears?
 
 [00:02:06] Adam: I got fooled by the drop bear in my first interview.
 
@@ -124,15 +120,11 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:03:47] Adam: Through the deserted part, you actually have to bring extra fuel.
 
-[00:03:48] Will: we should go do that. Wow, I keep turning Norm up, thinking it's me.
-
-[00:03:54] Will: Was that you?
+[00:03:48] Will: we should go do that. Wow, I keep turning Norm up, thinking it's me. Was that you?
 
 [00:03:55] Adam: Let me say from the from the get go that. And I told the Australians I would keep their secret, but I'm blowing it right now. Australia is a beautiful country.
 
-[00:04:03] Will: Of course.
-
-[00:04:03] Will: It has to be, right?
+[00:04:03] Will: Of course. It has to be, right?
 
 [00:04:04] Adam: I I was not prepared for how beautiful it actually was. And look, we live in San Francisco. It is a gorgeous city, and we think of it as like a city on the water because the water is part of every view, and the bridges are part of the the lore and the physical layout of the city. But not like Australian cities are part of the water. They are deeply in and of the water with little ferries that run everywhere and waterways and houses running. It's like Sausalito everywhere. The density of San Francisco, but it looks like Sausalito.
 
@@ -232,11 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:09:04] Will: Did you? What
 
-[00:09:05] Norm: instructions? They could have left. Dropped off in L.A. and that's it. That's the last few of them. No, no,
-
-[00:09:08] Norm: Become
-
-[00:09:09] Norm: celebrities of their own.
+[00:09:05] Norm: instructions? They could have left. Dropped off in L.A. and that's it. That's the last few of them. No, no, Become celebrities of their own.
 
 [00:09:12] Adam: Thing two, knew enough to pull Kevin Mitnick's business card out of his wallet before going through customs in L.A.
 
@@ -376,9 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:14:16] Will: Look, you'll never believe what I use these washcloths for.
 
-[00:14:20] Adam: I don't even.
-
-[00:14:20] Adam: That's the other reason, right?
+[00:14:20] Adam: I don't even. That's the other reason, right?
 
 [00:14:21] Will: The Upworthy headline, right?
 
@@ -530,9 +516,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:22:03] Adam: But I also but yeah. We also then Peter Jackson joined us.
 
-[00:22:08] Norm: What?
-
-[00:22:10] Norm: It makes a lot of sense because the third Hobbit movie is still coming out, so this is interesting.
+[00:22:08] Norm: What? It makes a lot of sense because the third Hobbit movie is still coming out, so this is interesting.
 
 [00:22:15] Adam: He turns out to be a. He turns out to be very similar to Guillermo and I in his prop collecting habits, and we went to one of his caves and spent
 
@@ -954,9 +938,7 @@ Episode URL: https://www.youtube.com/watch?v=ERhxnoLNW7A
 
 [00:42:46] Will: It could be Australia. I kind of want to go see it again before we talk talk about it. So,
 
-[00:42:49] Adam: you want to do that tonight?
-
-[00:42:51] Adam: I'm sure my kids would be willing.
+[00:42:49] Adam: you want to do that tonight? I'm sure my kids would be willing.
 
 [00:42:55] Will: We’ll see you guys next week.
 

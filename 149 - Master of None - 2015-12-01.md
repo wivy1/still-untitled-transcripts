@@ -20,17 +20,13 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:01:13] Will: Wow! So, so what? What are you guys still shooting stuff? Are you doing pickups and stuff like that??
 
-[00:01:17] Adam: We are still shooting stuff.
-
-[00:01:18] Adam: We have some. We have some small pickups. We have some press interviews to do. We have some cold opens. Those are the little pastiches with which we start the shows.
+[00:01:17] Adam: We are still shooting stuff. We have some. We have some small pickups. We have some press interviews to do. We have some cold opens. Those are the little pastiches with which we start the shows.
 
 [00:01:28] Norm: What's going to happen? Where is the last day going to happen? Or can you say?
 
 [00:01:31] Adam: No, it's going to happen here in San Francisco. It's not going to be. Yeah, this isn't like a big finish,
 
-[00:01:37] Will: Unfortunately.
-
-[00:01:38] Will: not with a bang, but with a whimper.
+[00:01:37] Will: Unfortunately. not with a bang, but with a whimper.
 
 [00:01:40] Adam: Yeah, it's lots of little, lots of little details.
 
@@ -66,13 +62,9 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:03:13] Will: museum is called. Wow. Yeah, shivs, shivs, et cetera.
 
-[00:03:16] Adam: They have they have a semi or seemingly an automatic rifle made out of plumbing parts that could fire multiple bullets. It's it's like
+[00:03:16] Adam: They have they have a semi or seemingly an automatic rifle made out of plumbing parts that could fire multiple bullets. It's it's like where do these guys get?
 
-[00:03:29] Adam: where do these guys get?
-
-[00:03:30] Will: [unclear: Where does most exist / Most exhibit / The world’s most exempt]? It's like they you know they might have had access to the shop,
-
-[00:03:34] Will: but are they unsu— like? I guess they just have unsupervised. I mean, I've watched Orange Is the New Black. I know how this works. Yeah, you smell that. They have unsupervised time.
+[00:03:30] Will: [unclear: Where does most exist / Most exhibit / The world’s most exempt]? It's like they you know they might have had access to the shop, but are they unsu— like? I guess they just have unsupervised. I mean, I've watched Orange Is the New Black. I know how this works. Yeah, you smell that. They have unsupervised time.
 
 [00:03:41] Adam: One of my neighbors seems to have a
 
@@ -192,9 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:07:33] Adam: appearing to be attempting reentry, sir.
 
-[00:07:35] Norm: Oh boy!
-
-[00:07:37] Norm: And they didn't do that.
+[00:07:35] Norm: Oh boy! And they didn't do that.
 
 [00:07:37] Adam: They didn't do
 
@@ -416,9 +406,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:17:36] Adam: which is which is the one with dinner with the parents.
 
-[00:17:38] Norm: That's the second one.
-
-[00:17:39] Norm: You need to watch the second one.
+[00:17:38] Norm: That's the second one. You need to watch the second one.
 
 [00:17:41] Adam: I really dug the second one. That was what I thought. I saw two and a half episodes. I thought the second one was the best.
 
@@ -484,9 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:19:09] Will: But you're right. When I think back, it's a little up and down.
 
-[00:19:13] Adam: It is a little up and down.
-
-[00:19:14] Adam: And some of it is in his mannerist, like I love his character when he's talking about himself in standup. I find it endlessly hilarious. It translates most of the time in this show, but sometimes it feels like in a way that Seinfeld stiffness worked mostly for Seinfeld, but occasionally showed some spotty edges when you know the show required a little more. I mean, Jerry never was doing anything except Jerry.
+[00:19:13] Adam: It is a little up and down. And some of it is in his mannerist, like I love his character when he's talking about himself in standup. I find it endlessly hilarious. It translates most of the time in this show, but sometimes it feels like in a way that Seinfeld stiffness worked mostly for Seinfeld, but occasionally showed some spotty edges when you know the show required a little more. I mean, Jerry never was doing anything except Jerry.
 
 [00:19:43] Will: He was. He is not. He is a self-professed bad actor.
 
@@ -510,13 +496,9 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:20:40] Adam: Okay, let's take a question.
 
-[00:20:41] Norm: Yeah.
+[00:20:41] Norm: Yeah. All right. So we've been taking questions from you guys out there, and I just want to say that if you want to send a question, just send an email to podcast at tested dot com with question for Adam in the subject line, or send us Twitter message at tested com, and we'll have them all queued up. We'll take one or two every episode, hopefully in the future. So Clinton asks, " What is your favorite tool to use, and which tool is actually the most fun versus most useful?"
 
-[00:20:42] Norm: All right. So we've been taking questions from you guys out there, and I just want to say that if you want to send a question, just send an email to podcast at tested dot com with question for Adam in the subject line, or send us Twitter message at tested com, and we'll have them all queued up. We'll take one or two every episode, hopefully in the future. So Clinton asks, " What is your favorite tool to use, and which tool is actually the most fun versus most useful?"
-
-[00:21:10] Adam: Whoa! Wow, that's a really good question. I mean, you know, I am almost never without my Leatherman Wave. I've been meaning to re-buy a Leatherman Charge, which fits my old holster.
-
-[00:21:23] Adam: Yes.
+[00:21:10] Adam: Whoa! Wow, that's a really good question. I mean, you know, I am almost never without my Leatherman Wave. I've been meaning to re-buy a Leatherman Charge, which fits my old holster. Yes.
 
 [00:21:23] Norm: we should also, and this is directly related. At test of the show, which was for you guys a month and a half ago, we met a fan there who had the same holster.
 
@@ -628,9 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=KYHAzoKALlE
 
 [00:29:09] Adam: yeah it's it's um the yeah it's pretty cool we got to get Roman on this podcast
 
-[00:29:14] Will: yeah
-
-[00:29:15] Will: I I mean we can probably make that happen
+[00:29:14] Will: yeah I I mean we can probably make that happen
 
 [00:29:16] Adam: I think we can.
 

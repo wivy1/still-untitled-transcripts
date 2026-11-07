@@ -10,17 +10,13 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:00:31] Norm: And I'm Norm.
 
-[00:00:32] Adam: We should get you to record a few of those like chiclets so that we can actually sprinkle them into the podcast.
-
-[00:00:32] Adam: When you're not there.
+[00:00:32] Adam: We should get you to record a few of those like chiclets so that we can actually sprinkle them into the podcast. When you're not there.
 
 [00:00:36] Norm: You could be replaced by an iPad.
 
 [00:00:37] Will: We did that for you for a long time.
 
-[00:00:37] Adam: Yes.
-
-[00:00:39] Adam: We'll get an easy button and we'll hit it, and it'll say, "
+[00:00:37] Adam: Yes. We'll get an easy button and we'll hit it, and it'll say, "
 
 [00:00:42] Will: Look, you have like 200 of them right now. You just have to chop one out of the beginning.
 
@@ -64,9 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:02:25] Will: Yeah, I've been in the dark for the last nine months.
 
-[00:02:25] Norm: Why?
-
-[00:02:28] Norm: Will, this is the first time you hadn't been to Comic Con in maybe four, five, six years, almost or something like that.
+[00:02:25] Norm: Why? Will, this is the first time you hadn't been to Comic Con in maybe four, five, six years, almost or something like that.
 
 [00:02:33] Will: Probably since the Whiskey Media days. Yeah, [unclear: I think / I don't think] I went back then.
 
@@ -126,9 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:04:45] Norm: Yeah,
 
-[00:04:45] Will: yeah,
-
-[00:04:47] Will: like the playground that I played on most when I was a kid. I grew up in a rural part of Northeast Tennessee where we didn't have money to spend on things like playgrounds. So when it came time to build a new playground for the elementary school, I'm pretty sure that they just went out to the hardware store and bought a bunch of pipes and pipe fittings, and they like made these crazy monkey bars that were like 15 feet high out of that. They were awesome,
+[00:04:45] Will: yeah, like the playground that I played on most when I was a kid. I grew up in a rural part of Northeast Tennessee where we didn't have money to spend on things like playgrounds. So when it came time to build a new playground for the elementary school, I'm pretty sure that they just went out to the hardware store and bought a bunch of pipes and pipe fittings, and they like made these crazy monkey bars that were like 15 feet high out of that. They were awesome,
 
 [00:04:47] Adam: Right?
 
@@ -168,9 +160,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:05:40] Will: And the the neighbor has a big tree right between their house and the tower.
 
-[00:05:40] Norm: Oh my god!
-
-[00:06:03] Norm: So, literal shade.
+[00:05:40] Norm: Oh my god! So, literal shade.
 
 [00:06:05] Will: If I go up, if I went upstairs in my in my parents in in the bed in our bedroom at my parents' house, and hold my phone to the window, I can just about get two bars of LTE, which was just enough to to see tweets about the the Republican National Convention and and say I'm just going to turn off internet for this week. So I have a
 
@@ -282,11 +272,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:10:25] Will: the first year. Yeah, after. That's less sweaty than you've been in the past.
 
-[00:10:25] Norm: Mm-hmm.
-
-[00:10:29] Norm: So they had the plan was for them to leave Leo in the middle of the lobby of Comic Con.
-
-[00:10:29] Norm: That's
+[00:10:25] Norm: Mm-hmm. So they had the plan was for them to leave Leo in the middle of the lobby of Comic Con. That's
 
 [00:10:35] Will: for Adam
 
@@ -336,9 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:11:43] Will: Did you get the hugs like you do? I didn't
 
-[00:11:45] Adam: get the hugs.
-
-[00:11:47] Adam: No, people didn't want to come up and hug the bear. I think he looked a little scary.
+[00:11:45] Adam: get the hugs. No, people didn't want to come up and hug the bear. I think he looked a little scary.
 
 [00:11:49] Will: Imagine why? He's a very affable looking bear. He doesn't look scary at all.
 
@@ -406,13 +390,9 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:14:20] Adam: Yes.
 
-[00:14:20] Norm: We have.
+[00:14:20] Norm: We have. Yeah.
 
-[00:14:21] Norm: Yeah.
-
-[00:14:21] Adam: Yeah.
-
-[00:14:21] Adam: Check this out.
+[00:14:21] Adam: Yeah. Check this out.
 
 [00:14:21] Norm: Yeah.
 
@@ -562,9 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:19:57] Adam: Yeah, I mean, good question.
 
-[00:19:58] Will: Did they have mimes for that?
-
-[00:20:00] Will: That seems like mime work to me.
+[00:19:58] Will: Did they have mimes for that? That seems like mime work to me.
 
 [00:20:02] Norm: See, it's a more physical performance than many other shows.
 
@@ -596,9 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:21:29] Unknown speaker [Will / Norm]: Saturday night?
 
-[00:21:38] Adam: This year was Thing One's turn to go because he'd never been with me. Thing Two has gone with me. Thing One was going to go, and then my friend David Silverman from The Simpsons added Thing Two as his plus one. So both boys came with me to the EW, and we danced every night. We on on Thursday night we danced at the Nerdist party. On Friday night I can't remember where we went. Wednesday night we were at the after party for Star Trek.
-
-[00:21:38] Adam: We danced every night of Comic Con,
+[00:21:38] Adam: This year was Thing One's turn to go because he'd never been with me. Thing Two has gone with me. Thing One was going to go, and then my friend David Silverman from The Simpsons added Thing Two as his plus one. So both boys came with me to the EW, and we danced every night. We on on Thursday night we danced at the Nerdist party. On Friday night I can't remember where we went. Wednesday night we were at the after party for Star Trek. We danced every night of Comic Con,
 
 [00:21:38] Unknown speaker: That's awesome.
 
@@ -668,9 +644,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:23:46] Will: Like I, I look at that and think that they're doing the same thing they did with the MCU Marvel Cinematic Universe, where they're saying, " Look, here is a different set of rules. Batman uses guns here. You know, his parents clearly didn't get killed by yeah. Like, there’s a bunch of stuff going on.
 
-[00:23:59] Norm: It’s an old, bitter Batman, so he's
-
-[00:24:01] Norm: Oh.
+[00:23:59] Norm: It’s an old, bitter Batman, so he's Oh.
 
 [00:24:01] Adam: fascinating.
 
@@ -686,9 +660,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:24:05] Will: are across the bay from each other.
 
-[00:24:05] Adam: Right,
-
-[00:24:11] Adam: right,
+[00:24:05] Adam: Right, right,
 
 [00:24:11] Norm: right. Geography and comics—no one ever knows where is Springfield in The Simpsons.
 
@@ -826,9 +798,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:31:13] Adam: I think, I think you might be right. I can't quite remember.
 
-[00:31:15] Will: So it’s not unabridged.
-
-[00:31:15] Will: I don't know how I feel about that.
+[00:31:15] Will: So it’s not unabridged. I don't know how I feel about that.
 
 [00:31:17] Norm: It's not exactly abridged.
 
@@ -844,9 +814,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:31:29] Adam: Exactly. [unclear: Redundancy / It’s not the redundancy / It’s not a redundant scene]. Oh, speaking of reading, okay. Now we're bouncing all over the place.
 
-[00:31:33] Will: It's fine.
-
-[00:31:33] Will: It's been a while.
+[00:31:33] Will: It's fine. It's been a while.
 
 [00:31:34] Adam: I just finished The Dark Forest.
 
@@ -890,9 +858,7 @@ Episode URL: https://www.youtube.com/watch?v=6331f4zABQ0
 
 [00:32:19] Norm: We’ll save that for the next episode.
 
-[00:32:19] Adam: Oh, okay.
-
-[00:32:20] Adam: Right. You didn't know until this morning.
+[00:32:19] Adam: Oh, okay. Right. You didn't know until this morning.
 
 [00:32:23] Will: Let's assign it.
 

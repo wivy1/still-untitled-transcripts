@@ -92,9 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:04:26] Will: Oh, it's it's. Do
 
-[00:04:27] Norm: you have the the
-
-[00:04:28] Norm: dot photo?.
+[00:04:27] Norm: you have the the dot photo?.
 
 [00:04:29] Will: I did not. I did not let Gina take a photo.
 
@@ -152,11 +150,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:07:11] Norm: and it makes the world think about your favorite pair of shoes or your favorite shirt and why it's your favorite shirt. It's probably because it fits well and because you think you look good in it. That feeling is kind of priceless. And when you think like you can turn any shirt or any piece of clothing that you get off the rack and make it feel like that, the $15 is worth it.
 
-[00:07:29] Will: Well, it's it's the same thing for shoes. There's a cobbler down just down the street from here. Again, this is one of the benefits of living in a big city. If you live in a smaller town, someplace you may not
-
-[00:07:37] Will: have quite
-
-[00:07:37] Will: accessible. Yeah, but but like I have a pair of shoes that I really love, and they had gotten damaged, and I took them down. He was like, " Yeah, okay, it'll be like three days, and it's going to be $15 to fix what was a $200 pair of shoes.
+[00:07:29] Will: Well, it's it's the same thing for shoes. There's a cobbler down just down the street from here. Again, this is one of the benefits of living in a big city. If you live in a smaller town, someplace you may not have quite accessible. Yeah, but but like I have a pair of shoes that I really love, and they had gotten damaged, and I took them down. He was like, " Yeah, okay, it'll be like three days, and it's going to be $15 to fix what was a $200 pair of shoes.
 
 [00:07:37] Adam: Amazing.
 
@@ -190,9 +184,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:10:01] Adam: they can see the blank spots. There was a guy a few years ago who was really mad on his Florida commute about people talking on their cell phones. So he bought a Chinese cell phone jammer, and when he pulled up next to people, he turned it on, and their phone would shut off. And the f the the local cell towers were picking this up. And over literally a couple of years, they were able to triangulate and figure out that it was a guy. It was a regular thing, and they eventually waited for him and they caught him. And it's a big fine, and it's a real crime.
 
-[00:10:01] Will: Whoa!
-
-[00:10:36] Will: But but you also remember we used to see that guy with like six cell phones in a briefcase in the park by battery, and he was one of the roving signal quality testers. And they would these guys just walk around with these with these cases. It's a really you actually really love it because it's like totally like you open it up, and at the time it was like 6 or 10 feature phones
+[00:10:01] Will: Whoa! But but you also remember we used to see that guy with like six cell phones in a briefcase in the park by battery, and he was one of the roving signal quality testers. And they would these guys just walk around with these with these cases. It's a really you actually really love it because it's like totally like you open it up, and at the time it was like 6 or 10 feature phones
 
 [00:10:36] Adam: Yeah.
 
@@ -268,11 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:13:37] Will: But like, I'm increasingly thinking maybe we should all be building glasses with IR LEDs in them so that you know William Gibson style, so that people can't, so the cameras don't work in public because they're everywhere.
 
-[00:13:59] Adam: Or we just become juggalos.
-
-[00:14:01] Adam: [unclear: Because the the juggling posse / Because the insane club / Because the insane…].
-
-[00:14:02] Adam: they they foil all the facial
+[00:13:59] Adam: Or we just become juggalos. [unclear: Because the the juggling posse / Because the insane club / Because the insane…]. they they foil all the facial
 
 [00:14:07] Norm: Does it really?
 
@@ -286,13 +274,9 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:14:09] Norm: Wow.
 
-[00:14:09] Adam: Yeah.
+[00:14:09] Adam: Yeah. Yeah, turns out the juggalo is the most consistently successful at foiling facial recognition.
 
-[00:14:16] Adam: Yeah, turns out the juggalo is the most consistently successful at foiling facial recognition.
-
-[00:14:21] Norm: To all.
-
-[00:14:21] Norm: on the flip side that you've seen those computer generated human images where like you can't tell that this photo of a person was 100%
+[00:14:21] Norm: To all. on the flip side that you've seen those computer generated human images where like you can't tell that this photo of a person was 100%
 
 [00:14:21] Adam: manufactured
 
@@ -346,9 +330,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:18:38] Adam: So, but here's what my son said. Have you seen it? And I go, okay, let me guess. Bomb shot of someone sad. Bomb shot of a big thing. Bomb! Shot of an explosion. He's like, " Yeah, you pretty much got it."
 
-[00:18:54] Will: So yeah. So the the one thing that I saw was the memes about Hawkeye being really sad and pissed, and I love how that character has come full circle. Because remember when Avengers one the first trailer came out and it closed with that that shot the the the like orbital shot around the heroes,
-
-[00:18:54] Will: the six heroes standing away in a circle facing out, and and everybody's like, " Oh man, it's it's the Hulk and it's Captain America, it's Iron Man, it's and it's the God of of hammers and and then all of a sudden it's like, oh, it's a girl with a gun and a bow and arrow guy, what what the hell? And now and now we are setting up the bow and arrow man
+[00:18:54] Will: So yeah. So the the one thing that I saw was the memes about Hawkeye being really sad and pissed, and I love how that character has come full circle. Because remember when Avengers one the first trailer came out and it closed with that that shot the the the like orbital shot around the heroes, the six heroes standing away in a circle facing out, and and everybody's like, " Oh man, it's it's the Hulk and it's Captain America, it's Iron Man, it's and it's the God of of hammers and and then all of a sudden it's like, oh, it's a girl with a gun and a bow and arrow guy, what what the hell? And now and now we are setting up the bow and arrow man
 
 [00:19:32] Adam: and and Hawkeye.
 
@@ -368,9 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:19:43] Unknown speaker: I’m ready to punch the universe.
 
-[00:19:50] Adam: I'm already excited.
-
-[00:19:50] Adam: I'm dying to go.
+[00:19:50] Adam: I'm already excited. I'm dying to go.
 
 [00:19:51] Will: Yeah, I would go see it right now if it were an option. What
 
@@ -424,15 +404,11 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:22:20] Unknown speaker: No,
 
-[00:22:20] Adam: it turns out Chris McQuarrie he can make a movie.
-
-[00:22:25] Adam: I watched my wife and I watched it twice, yeah, and that never happens.
+[00:22:20] Adam: it turns out Chris McQuarrie he can make a movie. I watched my wife and I watched it twice, yeah, and that never happens.
 
 [00:22:28] Will: No, it well, like Henry Cavill's mustache is just,
 
-[00:22:28] Adam: dude,
-
-[00:22:33] Adam: and I just never get tired of watching him cock his arms.
+[00:22:28] Adam: dude, and I just never get tired of watching him cock his arms.
 
 [00:22:36] Will: Yeah, it's
 
@@ -496,9 +472,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:24:32] Will: The Fallout or Rogue Nation,
 
-[00:24:32] Norm: yeah.
-
-[00:24:34] Norm: Rogue Nation Fallout, which that itself is, I think, is a trilogy. It's the it's the Ethan Hunt Ilsa Faust relationship.
+[00:24:32] Norm: yeah. Rogue Nation Fallout, which that itself is, I think, is a trilogy. It's the it's the Ethan Hunt Ilsa Faust relationship.
 
 [00:24:41] Will: The Brad Bird one is going to be like an in betweener.
 
@@ -624,13 +598,9 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:28:09] Adam: With a qualified instructor.
 
-[00:28:09] Will: Private property, You can
+[00:28:09] Will: Private property, You can do whatever you want.
 
-[00:28:14] Will: do whatever you want.
-
-[00:28:14] Adam: Which it turns out that I am.
-
-[00:28:15] Adam: Yeah. No, it's awesome.
+[00:28:14] Adam: Which it turns out that I am. Yeah. No, it's awesome.
 
 [00:28:16] Will: Everything is legal
 
@@ -652,9 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=qDbK6lQHOd8
 
 [00:28:36] Unknown speaker: Or are you guys going to be back?.
 
-[00:28:39] Norm: I think so.
-
-[00:28:40] Norm: I don't know. If Adam has time, we might do one more recording.
+[00:28:39] Norm: I think so. I don't know. If Adam has time, we might do one more recording.
 
 [00:28:44] Adam: Absolutely. Yeah. Yeah. We'll we'll see you in the new year.
 

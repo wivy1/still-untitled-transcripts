@@ -18,9 +18,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:00:38] Norm: Good morning.
 
-[00:00:38] Adam: Good morning.
-
-[00:00:40] Adam: If the shop looks cleaner,
+[00:00:38] Adam: Good morning. If the shop looks cleaner,
 
 [00:00:41] Will: it does,
 
@@ -40,9 +38,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:01:09] Will: it's an un like wow all these good people
 
-[00:01:12] Norm: Sketchfest
-
-[00:01:12] Norm: we talked about before for people you know it's an annual festival run co-run by Janet Varney it's a comedy shows special events it's
+[00:01:12] Norm: Sketchfest we talked about before for people you know it's an annual festival run co-run by Janet Varney it's a comedy shows special events it's
 
 [00:01:22] Will: it's kind of variety it's kind of a variety show at this point though it's like it's like live performances of all sorts
 
@@ -98,9 +94,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:03:43] Will: No, no, you you used film.
 
-[00:03:43] Adam: Yeah,
-
-[00:03:46] Adam: it was one. So you had to go to a photostat camera, get photo paper in a dark room, load it in, put your object down, figure out exactly what size it needed to be, spec by the designer. Then you turned on the lights, turned them back off again, and developed the photo paper and handed it to the designer.
+[00:03:43] Adam: Yeah, it was one. So you had to go to a photostat camera, get photo paper in a dark room, load it in, put your object down, figure out exactly what size it needed to be, spec by the designer. Then you turned on the lights, turned them back off again, and developed the photo paper and handed it to the designer.
 
 [00:03:46] Will: It was a laborious process.
 
@@ -178,9 +172,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:07:38] Will: [unclear: Reverse lorem / You have to reverse lorem ipsum].
 
-[00:07:38] Norm: 10 lines
-
-[00:07:39] Norm: is good enough for
+[00:07:38] Norm: 10 lines is good enough for
 
 [00:07:40] Adam: 10 lines was good. It was good enough to get you really to get you into the zone.
 
@@ -234,9 +226,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:09:43] Norm: Racetrack
 
-[00:09:43] Adam: and they removed it. They removed it in post, obviously. But apparently, everyone on the crew was so sick of this music by the end of the day. I can't even remember what it was. You know, Chamillionaire or something like that.
-
-[00:10:10] Adam: Maybe not
+[00:09:43] Adam: and they removed it. They removed it in post, obviously. But apparently, everyone on the crew was so sick of this music by the end of the day. I can't even remember what it was. You know, Chamillionaire or something like that. Maybe not
 
 [00:10:10] Will: a Jamiroquai. What it's it's funny that so that happened. The analog to digital transition happened with print, and then everything's been kind of like in 2004, 2005. We switched from the from the film prepress to PDF,
 
@@ -270,9 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:11:48] Will: So, so the thing about that is, you probably weren't working in that world anymore when that transition happened. So,
 
-[00:11:48] Adam: no,
-
-[00:11:53] Adam: it wasn't.
+[00:11:48] Adam: no, it wasn't.
 
 [00:11:54] Will: You never had to embed and spend two weeks learning it.
 
@@ -282,9 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:12:09] Adam: Right, I'm right there with less menus.
 
-[00:12:11] Will: Yeah.
-
-[00:12:11] Will: So I, I, um, I got a friend who is very good at Illustrator and and lasering stuff to walk me through it, and she spent 30 minutes on the phone with me one afternoon and made a world of difference in my ability to use that. Just like she gave me enough of the basic stuff that I could then move forward, and and and like a lot of that is for people who like to learn stuff on their own instead of going and sitting down taking a boring class or something, which I think we're probably all in that category.
+[00:12:11] Will: Yeah. So I, I, um, I got a friend who is very good at Illustrator and and lasering stuff to walk me through it, and she spent 30 minutes on the phone with me one afternoon and made a world of difference in my ability to use that. Just like she gave me enough of the basic stuff that I could then move forward, and and and like a lot of that is for people who like to learn stuff on their own instead of going and sitting down taking a boring class or something, which I think we're probably all in that category.
 
 [00:12:36] Adam: Yeah.
 
@@ -508,9 +494,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:25:00] Unknown speaker (Adam or Norm): Those were in two scenes; they had to shoot those two scenes back to back.
 
-[00:25:00] Will: Oh, yeah,
-
-[00:25:02] Will: and and bang it out really fast. Like it was, it was. There were. Great, I mean, everybody knows the story about Michelle Yeoh's ring, which was the the you know the
+[00:25:00] Will: Oh, yeah, and and bang it out really fast. Like it was, it was. There were. Great, I mean, everybody knows the story about Michelle Yeoh's ring, which was the the you know the
 
 [00:25:02] Norm: The green, the jade ring.
 
@@ -550,11 +534,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:26:12] Norm: Really,
 
-[00:26:12] Adam: I'll wager.
-
-[00:26:12] Adam: And then the fact that—
-
-[00:26:12] Adam: I mean, I don't begrudge that. I don't begrudge that at all. If I was him up on that mountain, I would get that shot too because you need the the storytelling.
+[00:26:12] Adam: I'll wager. And then the fact that— I mean, I don't begrudge that. I don't begrudge that at all. If I was him up on that mountain, I would get that shot too because you need the the storytelling.
 
 [00:26:34] Norm: And every oh, you mean they they refilmed it in that moment?
 
@@ -580,9 +560,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:27:34] Will: pitons and stuff.
 
-[00:27:34] Norm: Yes,
-
-[00:27:35] Norm: exactly, and so a climb up Half Dome the first climb took 18, 18 weeks.
+[00:27:34] Norm: Yes, exactly, and so a climb up Half Dome the first climb took 18, 18 weeks.
 
 [00:27:42] Adam: Oh my God! Because they just keep incrementally adding hardware.
 
@@ -604,9 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:27:58] Norm: but it was just especially like that was the accomplishment back then.
 
-[00:27:58] Adam: Yeah,
-
-[00:28:02] Adam: yeah.
+[00:27:58] Adam: Yeah, yeah.
 
 [00:28:02] Will: Well, figuring out the routes was unbelievably challenging on those. Yeah,
 
@@ -622,9 +598,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:28:19] Will: Yeah,
 
-[00:28:19] Adam: is it Winterbottom?
-
-[00:28:22] Adam: No, it's not Winterbottom.
+[00:28:19] Adam: is it Winterbottom? No, it's not Winterbottom.
 
 [00:28:23] Will: It's the one with Claire Danes.
 
@@ -676,9 +650,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:29:52] Will: Six eight,
 
-[00:29:53] Adam: right? Six five, six six, and like 250 pounds, like just muscle and not not you know
-
-[00:29:53] Adam: not super attractive, but like just like get it done.
+[00:29:53] Adam: right? Six five, six six, and like 250 pounds, like just muscle and not not you know not super attractive, but like just like get it done.
 
 [00:30:03] Will: Yeah.
 
@@ -740,9 +712,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:33:15] Norm: I would love to hear from people if they have favorite documentaries or books about type graphic design because that's something I totally collect and love love reading.
 
-[00:33:15] Adam: Yeah.
-
-[00:33:26] Adam: Well, so then there's all the then there's all the design guides like the New York City subway, Massimo Vignelli subway design,
+[00:33:15] Adam: Yeah. Well, so then there's all the then there's all the design guides like the New York City subway, Massimo Vignelli subway design,
 
 [00:33:33] Will: the NASA ones,
 
@@ -768,9 +738,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:35:11] Adam: Who who took a? There was a street, a highway sign that was not as clear as it should be.
 
-[00:35:11] Norm: Oh, remember this?
-
-[00:35:18] Norm: Yeah, dividing between like 405 and
+[00:35:11] Norm: Oh, remember this? Yeah, dividing between like 405 and
 
 [00:35:21] Adam: and the 10 or something.
 
@@ -790,9 +758,7 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:35:39] Norm: because it worked.
 
-[00:35:40] Will: Yeah, because it actually.
-
-[00:35:41] Will: I think they left it. It was the end of the story, right?
+[00:35:40] Will: Yeah, because it actually. I think they left it. It was the end of the story, right?
 
 [00:35:43] Unknown speaker (Norm or Adam): They did the
 
@@ -808,23 +774,15 @@ Episode URL: https://www.youtube.com/watch?v=WVXI1IbZ698
 
 [00:35:57] Norm: That was thrown away and they never found it.
 
-[00:35:58] Adam: Spoiler alert. Yeah, rip.
+[00:35:58] Adam: Spoiler alert. Yeah, rip. Well, I think that's a very good
 
-[00:35:58] Adam: Well, I think that's a very good
-
-[00:36:02] Will: way to leave it.
-
-[00:36:02] Will: Yeah, so
-
-[00:36:02] Will: 99% invisible, great podcast. I wish you'd listen to it. The takeaway.
+[00:36:02] Will: way to leave it. Yeah, so 99% invisible, great podcast. I wish you'd listen to it. The takeaway.
 
 [00:36:08] Norm: One last thing: we talked about a Ghost in the Shell. There was a big auction that Propstore did, and we got some pieces from it. They're doing more pieces from that movie in an auction, I believe, January 16. The Thermoptic suit. There's another Thermoptic suit that's going to go up for auction.
 
 [00:36:22] Adam: Are you going to buy it for Danica?
 
-[00:36:22] Norm: No.
-
-[00:36:25] Norm: She just had a baby. There would be. I would. It would
+[00:36:22] Norm: No. She just had a baby. There would be. I would. It would
 
 [00:36:27] Will: not. You're going to get in trouble, Norm. Be careful.
 

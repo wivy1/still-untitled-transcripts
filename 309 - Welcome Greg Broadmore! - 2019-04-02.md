@@ -10,9 +10,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:00:42] Greg: And I'm Greg Broadmore.
 
-[00:00:44] Adam: Greg Broadmore.
-
-[00:00:44] Adam: Welcome.
+[00:00:44] Adam: Greg Broadmore. Welcome.
 
 [00:00:47] Greg: Thank you.
 
@@ -36,13 +34,9 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:01:01] Greg: Well, I’m not often here, to be honest.
 
-[00:01:01] Adam: It's true.
+[00:01:01] Adam: It's true. You're in New Zealand,
 
-[00:01:01] Adam: You're in New Zealand,
-
-[00:01:01] Greg: I’ve been to San Francisco
-
-[00:01:01] Greg: maybe three or four times, altogether. So.
+[00:01:01] Greg: I’ve been to San Francisco maybe three or four times, altogether. So.
 
 [00:01:06] Adam: But we've also done our podcast from Comic Con, which is where we met. We met at San Diego Comic Con in I think 2009.
 
@@ -76,15 +70,11 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:02:36] Greg: That's right.
 
-[00:02:37] Adam: Yeah, yeah, yeah.
-
-[00:02:38] Adam: Ah.
+[00:02:37] Adam: Yeah, yeah, yeah. Ah.
 
 [00:02:38] Greg: So my first day was a surprise, literally. But it was that was good fun. And but actually, the next day I was in and I was drawing pictures of of monsters. Actually, I was drawing pictures of giant robots and dinosaurs because I sent in my folio with I'm a dinosaur nut and I love robots and sci-fi and I think my folio had basically robots. Dinosaurs and ray guns, and it just so happened that King Kong was about to start up.
 
-[00:02:38] Adam: Oh my god!
-
-[00:02:38] Adam: Yeah.
+[00:02:38] Adam: Oh my god! Yeah.
 
 [00:02:38] Greg: In conceptual design, and they were working on a live-action version of Evangelion that didn't end up making it anywhere. But they needed giant robots, and so my folio had just the right ingredients in it.
 
@@ -94,11 +84,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:03:20] Adam: That was the movie where I looked up the design and and found you and became your fan.
 
-[00:03:25] Will: I went and watched that movie because of the guns that were in the trailer for the movie. I saw it and was like, " Oh, great! Okay, this is
-
-[00:03:31] Will: this is
-
-[00:03:31] Will: something I should go see."
+[00:03:25] Will: I went and watched that movie because of the guns that were in the trailer for the movie. I saw it and was like, " Oh, great! Okay, this is this is something I should go see."
 
 [00:03:31] Greg: Yeah, that was a great fun project, and that came out of Halo. We were working on Halo with with Neill Blomkamp, and that's how we met him. And that was super exciting. Like it was a fantastic opportunity, and I was I saw I'd already seen Neill Blomkamp's shorts like Alive in Joburg and so on and Tetra Vaal, which became Chappie, and so it was exciting working on it. But at the same time, and I'm a Halo fan. At the same time, it's like I'm having to kind of reinvent a known universe, you know, and like, and so that that's not super exciting as a as an artist. So when Halo fell over, was depressing for about a day, but then the next day we were already talking about District Nine, and then Peter and Neill got this idea that we'll turn Alive in Joburg into a feature film. That became District Nine, and that was that was an inspiration. That was just like lit the lid off because it's like, okay, I get to design a science fiction world from the ground up. Yeah. And and and bring use all those sort of '80s touchstones, so it's very much inspired by '80s, you know, '80s movies, a lot of Chris Foss references and and just all that good stuff. So yeah, worked on District Nine, and then most in that spare time, I was coming back to rayguns. I was had this kind of raygun world in my mind, and so I invented this idea of this kind of 1920s, 1930s Flash Gordon Buck Rogers rayguns, and then I thought I need I need characters and a world around this, so I started building that. Came up with the idea of Dr. Grordbort’s rayguns, and then layer by layer was building that, and then in the last. Seven years or so, we met this chap, Rony Abovitz, who was the CEO of Magic Leap, and he came to me and Richard and said, " I'm going to make this these goggles, and you're going to be able to help you know see virtual things in your real world with you. Imagine if you could. Wouldn't you like to have your ray guns in your living room and have Doctor Grordbort and Lord Cockswain in the room with you?" And I'm like, " Yes, of course I would." I also thought, " Okay, you're I don't know what you're smoking." Right. Because that this is you know a few years back, it's like that that idea doesn't exist. I had kind of thought, " Yeah, I've been thinking about the virtual coexisting with the real since I was a kid. I think we all have if you read science fiction." Yeah. But I thought it was going to happen probably when I'm gone. So [unclear: I had / I hadn’t] you know I I went to Florida, met a bunch of his early early people. The first person I met actually was this guy Sam Miller, and Sam I asked Sam outside a diner in Fort Lauderdale, " So what do you do?" And he's this tall, erudite looking chap. He looks he actually. Like one of your Gemini astronaut suits, he looks like he could be. You'd put him in one of those, and he would just look like one of the astronauts.
 
@@ -232,11 +218,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:13:37] Unknown speaker (Will or Greg): Yeah,
 
-[00:13:45] Will: that and the playset are the are my two. Like in terms of one of the things that's exciting to me about spatial computing is it doesn't always have to be about shooting,
-
-[00:13:45] Will: right?
-
-[00:13:45] Will: Nothing personal.
+[00:13:45] Will: that and the playset are the are my two. Like in terms of one of the things that's exciting to me about spatial computing is it doesn't always have to be about shooting, right? Nothing personal.
 
 [00:13:55] Greg: No, no, I understand.
 
@@ -272,9 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:14:33] Will: That's that's really cool. It's it's it was neat because she's done enough VR stuff that she's familiar now with VR and like it's not it's still she still loves it. It's novel and it's exciting. But this, she would have stayed in. Like, she stayed in until the battery ran out.
 
-[00:14:33] Greg: Yeah, cool.
-
-[00:14:48] Greg: That's awesome to hear.
+[00:14:33] Greg: Yeah, cool. That's awesome to hear.
 
 [00:14:48] Will: I was like, this is bad parenting. But I’m only gonna have this for a couple more days. [unclear: to let her know what’s she gonna do / Oh, it’s probably, what’s it going to do]?
 
@@ -316,9 +296,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:18:49] Adam: What I find really interesting about Grordbort now that I'm thinking about it is. I'm a big fan of parody, and I enjoy a lot of it here in the United States. But there's a cultural difference in the parody that you do with Doctor Grordbort, because even though you take no prisoners in sending up the racism and all of that, it is also still a bit of a loving portrait. It's a forgiving portrait. It's not forgiving his trespasses, but it's forgiving. It's it's understanding that there's still a person, however crazy and ridiculous.
 
-[00:18:49] Greg: Yeah,
-
-[00:19:21] Greg: the exemplar of it is Lord Cockswain. He's the kind of centre of it, and I think of him as a lovable sociopath. He he doesn't actually know that he's racist. He doesn't know that he's sexist. He doesn't know that he's doing these terrible things. He's like he's just a product of his environment, and you know, like I think there's someone quite powerful in your culture at the moment that actually is like a person like that, right? And I don't think the a person like that knows that they're being bad necessarily, you know. And so in the case of Lord Cockswain.
+[00:18:49] Greg: Yeah, the exemplar of it is Lord Cockswain. He's the kind of centre of it, and I think of him as a lovable sociopath. He he doesn't actually know that he's racist. He doesn't know that he's sexist. He doesn't know that he's doing these terrible things. He's like he's just a product of his environment, and you know, like I think there's someone quite powerful in your culture at the moment that actually is like a person like that, right? And I don't think the a person like that knows that they're being bad necessarily, you know. And so in the case of Lord Cockswain.
 
 [00:19:50] Will: Let's not give. Let's not give our person any credit.
 
@@ -388,13 +366,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:23:32] Adam: And I'm like, that's not the help that I want. I want you to rewrite the software.
 
-[00:23:38] Will: From scratch. Couldn't they just roll it back like 100 versions or something? I think would.
-
-[00:23:42] Will: Wouldn't that be a solution?
-
-[00:23:44] Will: Well, but the thing where you get in the car.
-
-[00:23:44] Will: today, I'm like, grinds my gears. The thing where you get in the car and it just starts playing a random song that you haven't listened to in 15 years.
+[00:23:38] Will: From scratch. Couldn't they just roll it back like 100 versions or something? I think would. Wouldn't that be a solution? Well, but the thing where you get in the car. today, I'm like, grinds my gears. The thing where you get in the car and it just starts playing a random song that you haven't listened to in 15 years.
 
 [00:23:54] Adam: For Julia, for my wife, it's always the specific Michael Giacchino tune from Star Trek. She has no idea why it's the default. I'm just going to play.
 
@@ -438,9 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:26:13] Adam: among many other things, is a is a friend of Tested, and I feel like you guys would get along famously talking about extraterrestrial design.
 
-[00:26:13] Greg: Yeah,
-
-[00:26:31] Greg: yeah, absolutely.
+[00:26:13] Greg: Yeah, yeah, absolutely.
 
 [00:26:32] Will: Well, and retrofuturism too.
 
@@ -466,9 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:27:30] Greg: pretty much yeah? So the when I was a kid, you know, black and white television. Before I ever saw Star Wars, the first things I saw were the King Kong movie, Tarzan, the black and white serials, and Flash Gordon. And actually, I have this burning memory of like there was one episode where there was a bottomless pit. All right, and they're having a fight. Flash and someone were having a fight on the edge of a bottomless pit. And I would think about that bottomless pit all the time. Like, what happens if we fall in? Like, do it? You just fall forever, and then you die of old age at some point. Like, what happens? Well, and then when I got older, I realized, oh, would you hit the side, and then just grind on down the side?
 
-[00:28:02] Will: Oh, oh, that’s alright.
-
-[00:28:02] Will: You hope that you grind, and that's not starvation. Well,
+[00:28:02] Will: Oh, oh, that’s alright. You hope that you grind, and that's not starvation. Well,
 
 [00:28:08] Greg: I suppose you would, and then ricochet. Oh, anyway, it's not good for you. Anyway, but that science fiction was what inspired me, and like that age of adventure when the world was still kind of unknown. There were still corners of the world that were unexplored, and so that's really where the fiction came from. Both from that era of like, there's still a Skull Island. There's still a place that Tarzan can exist, right?
 
@@ -478,9 +446,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:28:57] Will: became very common in video games, right?
 
-[00:28:57] Greg: That’s right.
-
-[00:28:59] Greg: Yeah, yeah, and I still see, you know, most video games to me look like they have that design style, and it's amazing. People, the artistry is exceptional, but it's it starts to feel kind of homogenous. And so, one of the reasons for focusing on Doctor Grordbort was, well, I'll go back to this other style, and I'll also better reinvent it in my own way. I don't have to be a slave to it, as if it's a history. I can use it as a starting point and riff on that. So it feels like an open canvas from that point of view.
+[00:28:57] Greg: That’s right. Yeah, yeah, and I still see, you know, most video games to me look like they have that design style, and it's amazing. People, the artistry is exceptional, but it's it starts to feel kind of homogenous. And so, one of the reasons for focusing on Doctor Grordbort was, well, I'll go back to this other style, and I'll also better reinvent it in my own way. I don't have to be a slave to it, as if it's a history. I can use it as a starting point and riff on that. So it feels like an open canvas from that point of view.
 
 [00:29:24] Will: One of the things you just mentioned, kind of as a throwaway minute ago, is that at the end of the weekend, whether you do an all hands, where everybody gets together, and this is like this is one of the process things that I love learning about in people's shops and in restaurants. I mean, when David Chang was on, he talked about family dinners at his restaurants being the place where all of the development for new recipes and all the things that they're doing going forward happens. New restaurants and the whole thing.
 
@@ -518,9 +484,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:33:23] Greg: Yeah, that's so cool to hear. Thank you. But that's genuine too, like you know, Richard. That's why Richard is.
 
-[00:33:29] Adam: It's amazing. Yeah. Yeah. Last time I was there, he said, " I've got to go get something at the farm. Would you like to come on a drive with me?"
-
-[00:33:35] Adam: My accent's all shite because I haven't practiced it.
+[00:33:29] Adam: It's amazing. Yeah. Yeah. Last time I was there, he said, " I've got to go get something at the farm. Would you like to come on a drive with me?" My accent's all shite because I haven't practiced it.
 
 [00:33:39] Greg: I don't know what that is. I can hear a little Richard.
 
@@ -550,9 +514,7 @@ Episode URL: https://www.youtube.com/watch?v=U7d1rWbrOHk
 
 [00:34:18] Adam: one visiting the cave, but being on the podcast, and I hope it's not the last time.
 
-[00:34:24] Greg: Yeah, we'll do it again.
-
-[00:34:27] Greg: Anytime.
+[00:34:24] Greg: Yeah, we'll do it again. Anytime.
 
 [00:34:27] Adam: Oh, I have a I have an announcement. So I've got a a book coming out on May 7.
 

@@ -44,11 +44,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:00:51] Norm: Okay.
 
-[00:00:51] Adam: At Outside Lands, they had a comedy tent, and in that comedy tent, they also had some serious political panels, and I sat on one about climate change. And one of the wonderful radicals in the in the panel with me sang this song as her final like send off for the panel, and it was really affecting. And it's about a mom. The lyrics are things like you know, welcome to the end of the end. Alone inside your mind, you're tethered to another, and you're worried all the time, right? Yeah. And then there's this part in the lyric that gets me every single time. She says, " The out outside of my windows are the mountains and the snow. Oh, I hold you while you're sleeping, and I wish that I could go. All my rowdy friends are out accomplishing their dreams, but I am the mother of Evangeline.
-
-[00:01:42] Adam: And then she says,
-
-[00:01:43] Adam: they still have their morning papers and their coffee and their time, and they still enjoy the evenings with the skeptics and the wine. Oh, but all the wonders I have seen, I will see a second time." I have. I will see a second time from inside of the ages of your eyes.
+[00:00:51] Adam: At Outside Lands, they had a comedy tent, and in that comedy tent, they also had some serious political panels, and I sat on one about climate change. And one of the wonderful radicals in the in the panel with me sang this song as her final like send off for the panel, and it was really affecting. And it's about a mom. The lyrics are things like you know, welcome to the end of the end. Alone inside your mind, you're tethered to another, and you're worried all the time, right? Yeah. And then there's this part in the lyric that gets me every single time. She says, " The out outside of my windows are the mountains and the snow. Oh, I hold you while you're sleeping, and I wish that I could go. All my rowdy friends are out accomplishing their dreams, but I am the mother of Evangeline. And then she says, they still have their morning papers and their coffee and their time, and they still enjoy the evenings with the skeptics and the wine. Oh, but all the wonders I have seen, I will see a second time." I have. I will see a second time from inside of the ages of your eyes.
 
 [00:02:03] Will: Oh.
 
@@ -162,9 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:07:42] Will: So the elf on the shelf, you you had this elf. And you can buy it at Target, which makes the whole thing a little shady to begin with, in my opinion. But but people move it around, and if it doesn't move, it's because the kid's been bad or something. I don't. We don't. We don't do it, but like it's it's a thing that people do. Oh, it's another one of the lies we tell our kids.
 
-[00:08:01] Adam: Yeah, yeah.
-
-[00:08:01] Adam: This is a book, by the way. [unclear: Realize / Russ]
+[00:08:01] Adam: Yeah, yeah. This is a book, by the way. [unclear: Realize / Russ]
 
 [00:08:04] Unknown (Adam or Will): the lies we tell our children.
 
@@ -316,9 +310,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:12:08] Will: Is rock climbing an extreme sport? If you have ropes,
 
-[00:12:10] Adam: with the
-
-[00:12:12] Adam: it's listed on the form that I signed.
+[00:12:10] Adam: with the it's listed on the form that I signed.
 
 [00:12:14] Will: Oh, on the list of things you're not allowed to do.
 
@@ -452,13 +444,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:20:14] Will: Not just the mountain, and it's not just his hands and his body, but it's also he's fighting his Dunning Kruger and knows knows what he's not capable of. Right.
 
-[00:20:22] Adam: Here's a tweet from a couple weeks ago: The first rule of Dunning Kruger. Club is that you don't know you're in Dunning-Kruger Club. Oh boy!
-
-[00:21:18] Adam: Hey Mythbusters,
-
-[00:21:19] Adam: Yeah.
-
-[00:21:18] Adam: when is this going to go up?
+[00:20:22] Adam: Here's a tweet from a couple weeks ago: The first rule of Dunning Kruger. Club is that you don't know you're in Dunning-Kruger Club. Oh boy! Hey Mythbusters, Yeah. when is this going to go up?
 
 [00:21:21] Norm: This is going to go up today. Okay, Mythbusters Junior.
 
@@ -562,9 +548,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:26:50] Norm: So much in flux.
 
-[00:26:51] Adam: There is so much in flux. Holy hell! How exciting is it to see the most distant object NASA has ever?
-
-[00:27:00] Adam: I
+[00:26:51] Adam: There is so much in flux. Holy hell! How exciting is it to see the most distant object NASA has ever? I
 
 [00:27:00] Norm: turns out it's BB8.
 
@@ -938,9 +922,7 @@ Episode URL: https://www.youtube.com/watch?v=BJ_gKxnxpw0
 
 [00:36:49] Will: If you want to go see it again, I'm I'm down to go again.
 
-[00:36:51] Adam: Oh, cool.
-
-[00:36:51] Adam: I will. Yes,
+[00:36:51] Adam: Oh, cool. I will. Yes,
 
 [00:36:52] Norm: we'll talk about this offline.
 

@@ -116,9 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:04:33] Adam: Yeah, yeah.
 
-[00:04:33] Norm: So, I
-
-[00:04:36] Norm: Adam’s seen it.
+[00:04:33] Norm: So, I Adam’s seen it.
 
 [00:04:36] Adam: Yeah, I saw it.
 
@@ -220,17 +218,13 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:06:54] Will: Jesus, we just had the whole conversation.
 
-[00:06:55] Adam: Hudson.
-
-[00:06:56] Adam: and Big Love, yeah, most amazing show.
+[00:06:55] Adam: Hudson. and Big Love, yeah, most amazing show.
 
 [00:06:58] Norm: So this is his bookend to Hudson. Where in Hudson he plays the kind of
 
 [00:07:02] Will: game over man,
 
-[00:07:03] Norm: Insubordinate. Why did you put her in charge?
-
-[00:07:03] Norm: Yeah.
+[00:07:03] Norm: Insubordinate. Why did you put her in charge? Yeah.
 
 [00:07:03] Adam: Send the android.
 
@@ -322,9 +316,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:10:06] Norm: So it’s directed by Doug Liman, who directed Swingers, Bourne Identity.
 
-[00:10:11] Adam: Mr. Smith directed. Doug Liman’s brilliant.
-
-[00:10:14] Adam: He has directed a dud or two.
+[00:10:11] Adam: Mr. Smith directed. Doug Liman’s brilliant. He has directed a dud or two.
 
 [00:10:16] Norm: Yep.
 
@@ -352,9 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:11:04] Norm: That that's a thing.
 
-[00:11:05] Adam: No, bitchy resting face.
-
-[00:11:07] Adam: Sure.
+[00:11:05] Adam: No, bitchy resting face. Sure.
 
 [00:11:08] Will: It means something completely different the other way around.
 
@@ -380,9 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:11:45] Will: the new Captain America. Yeah,
 
-[00:11:46] Adam: Yes.
-
-[00:11:47] Adam: wonderful. She does some really great. And was good in Avengers too.
+[00:11:46] Adam: Yes. wonderful. She does some really great. And was good in Avengers too.
 
 [00:11:50] Norm: My point being that she had not done a big action movie like this before. Up until this.
 
@@ -398,9 +386,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:12:14] Adam: No, it’s actually a helicopter blade.
 
-[00:12:14] Will: Fuck! They—
-
-[00:12:17] Will: ruined the goddamn book.
+[00:12:14] Will: Fuck! They— ruined the goddamn book.
 
 [00:12:18] Norm: She has a giant sword.
 
@@ -424,9 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:13:11] Norm: It's well, you see his journey. But to go back to your point, by her having a problem with shooting, Doug Liman's shooting style is very guerrilla. The beach scene, they had to scrap a full day of shooting and talk about expenses, right?
 
-[00:13:11] Adam: Wow. And why—
-
-[00:13:24] Adam: would they have to scrap a full day?
+[00:13:11] Adam: Wow. And why— would they have to scrap a full day?
 
 [00:13:25] Norm: Because he wanted to shoot differently the second day.
 
@@ -458,9 +442,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:14:31] Adam: Well, but the point—
 
-[00:14:31] Norm: Sorry.
-
-[00:14:33] Norm: To to learn all those abilities.
+[00:14:31] Norm: Sorry. To to learn all those abilities.
 
 [00:14:33] Adam: Yeah.
 
@@ -518,15 +500,11 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:16:46] Will: Do they actually repeat? Like, are they reshooting each day? Or is it that they just reuse the Paxton monologue?
 
-[00:16:46] Adam: They do. They do a very—
-
-[00:16:53] Adam: good job at letting you know you're seeing the same day again, without ever letting you be bored at seeing the same scene again.
+[00:16:46] Adam: They do. They do a very— good job at letting you know you're seeing the same day again, without ever letting you be bored at seeing the same scene again.
 
 [00:16:59] Will: Like the the book was like one of the things I love. So I love kind of like I I don't know enough about where this book falls in Japanese fiction, but I kind of assume it's in the same place as like the battle royale novel, which if you've never read, you've only seen the movie is is a fascinating exercise in how do you make a kind of shitty movie off of a an amazing book, Um,
 
-[00:16:59] Adam: Right.
-
-[00:17:22] Adam: interesting.
+[00:16:59] Adam: Right. interesting.
 
 [00:17:22] Will: And and it's it's kind of like you know, kind of pop fiction is what I assume. Is it's not something that's it's not like Murakami where you know you're reading this and you're feeling enlightened. This is just a trashy action novel.
 
@@ -544,9 +522,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:17:49] Adam: Yeah, it is.
 
-[00:17:49] Will: What’s—
-
-[00:17:50] Will: The twist?
+[00:17:49] Will: What’s— The twist?
 
 [00:17:50] Adam: The twist is that he finally gets to where he thinks the Omega is, and it's not there. And it turns out that the aliens are already hyped to his ability to reset the day, and they're trying to trick him.
 
@@ -634,9 +610,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:21:06] Norm: Yeah. Yep.
 
-[00:21:08] Adam: Yeah, man. I mean, this book had a good ending.
-
-[00:21:09] Adam: Complicated endings are easier to achieve in books, I guess.
+[00:21:08] Adam: Yeah, man. I mean, this book had a good ending. Complicated endings are easier to achieve in books, I guess.
 
 [00:21:14] Norm: I really like the alien creature design and the animation.
 
@@ -726,9 +700,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:25:00] Norm: And sound design, Oblivion, an amazing sound design.
 
-[00:25:03] Will: Really good robots.
-
-[00:25:03] Will: Story any good?
+[00:25:03] Will: Really good robots. Story any good?
 
 [00:25:05] Norm: Eh, derivative.
 
@@ -808,9 +780,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:26:48] Norm: Oh boy. Oh boy. Yes.
 
-[00:26:54] Adam: That’s one of my favorite lines in Big Bang Theory, is when Koothrappali meets Summer Glau on the train, and his opening line is, " It's hot in here. It must be summer." Oh boy! Jesus, that is a hell of a line.
-
-[00:27:16] Adam: How do you?
+[00:26:54] Adam: That’s one of my favorite lines in Big Bang Theory, is when Koothrappali meets Summer Glau on the train, and his opening line is, " It's hot in here. It must be summer." Oh boy! Jesus, that is a hell of a line. How do you?
 
 [00:27:16] Norm: The actress you’re talking about—
 
@@ -870,9 +840,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:28:48] Will: It was a good show this week. Um, so edge of tomorrow, like I just I'm just bummed. When a science fiction movie that reviews well seems like it's pretty pretty well thought out, maybe a couple of holes comes out and it doesn't do well in movie theaters. I get a little bummed out because we had a long stretch there where nobody made big budget science fiction movies because they bombed.
 
-[00:28:48] Adam: Yeah. And it—
-
-[00:29:07] Adam: Would be a shame if this was part of the same trend.
+[00:28:48] Adam: Yeah. And it— Would be a shame if this was part of the same trend.
 
 [00:29:07] Will: Yeah.
 
@@ -904,9 +872,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:29:41] Will: It’s good.
 
-[00:29:42] Adam: I mean, I look.
-
-[00:29:43] Adam: I'm not saying I don't love that film. I love it. It's beautiful.
+[00:29:42] Adam: I mean, I look. I'm not saying I don't love that film. I love it. It's beautiful.
 
 [00:29:45] Will: Brick was better.
 
@@ -916,9 +882,7 @@ Episode URL: https://www.youtube.com/watch?v=ItXfPh7xFv4
 
 [00:29:50] Adam: Brick is totally my alley. Yeah yeah. 100%.
 
-[00:29:50] Will: 100%.
-
-[00:29:55] Will: It's so good.
+[00:29:50] Will: 100%. It's so good.
 
 [00:29:55] Adam: I think we should wrap this up.
 

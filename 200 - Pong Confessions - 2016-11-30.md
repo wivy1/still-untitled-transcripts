@@ -42,9 +42,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:03:24] Simone: How’s marriage treating, No.
 
-[00:03:26] Adam: and we were also talking about how freaking cold it is here today. It is, uh, when I went to get coffee. I came home and changed my jacket because it's 46 degrees outside. Which I know the I know I know where you are. It's a lot
-
-[00:03:42] Adam: freaking colder, but in San Francisco, 46 degrees is a noteworthy cold.
+[00:03:26] Adam: and we were also talking about how freaking cold it is here today. It is, uh, when I went to get coffee. I came home and changed my jacket because it's 46 degrees outside. Which I know the I know I know where you are. It's a lot freaking colder, but in San Francisco, 46 degrees is a noteworthy cold.
 
 [00:03:47] Norm: Yeah, and this is Fahrenheit.
 
@@ -104,9 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:06:16] Norm: But your grandmother?
 
-[00:06:18] Adam: Right.
-
-[00:06:18] Adam: No, that's what he's talking about.
+[00:06:18] Adam: Right. No, that's what he's talking about.
 
 [00:06:19] Unknown speaker: [unclear: That's ego. That's a killer, killer, insta spirit man. / That's ego. That is ego. The killer in your spirit, man.]
 
@@ -148,9 +144,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:08:18] Norm: Pongfinity.
 
-[00:08:19] Adam: Pongfinity.
-
-[00:08:19] Adam: That is a lovely Mission District. Yeah. Making its morning sounds.
+[00:08:19] Adam: Pongfinity. That is a lovely Mission District. Yeah. Making its morning sounds.
 
 [00:08:23] Simone: Good morning.
 
@@ -256,9 +250,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:12:33] Norm: Yeah, your mom was like wiping her brow, like, " Oh, I got a good one."
 
-[00:12:36] Simone: Me too.
-
-[00:12:37] Simone: Yeah, it was. I was the most boring teenager of all time. I just wanted to be home and study. I love school. Yeah, I love school.
+[00:12:36] Simone: Me too. Yeah, it was. I was the most boring teenager of all time. I just wanted to be home and study. I love school. Yeah, I love school.
 
 [00:12:47] Adam: I certainly wasn't studying.
 
@@ -386,9 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:19:24] Adam: Frankly, look, there's a most people in the rest of the country don't realize, but there's this rivalry between San Francisco and Los Angeles that Los Angeles doesn't really know about.
 
-[00:19:35] Norm: Am I right?
-
-[00:19:35] Norm: You’re saying We have a chip on our shoulder.
+[00:19:35] Norm: Am I right? You’re saying We have a chip on our shoulder.
 
 [00:19:36] Adam: Yeah, I'm saying San Francisco has a chip on their…. Most San Franciscans are like, oh, L.A., L.A. I hate L.A. And I'm just here to say, L.A. is a gorgeous, beautiful, vibrant, wonderful city. I love both cities for totally different. Reasons, you're not.
 
@@ -484,9 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:22:46] Simone: If that's a spoiler alert to you, you deserve to be spoiled.
 
-[00:22:50] Adam: Exactly. When Sonny gets killed, um, in the very first note he makes on it, he writes, " Um, oh no, not Sonny!" When when Michael shoots Sollozzo and the police captain, uh, Coppola writes a red mist of blood,
-
-[00:23:07] Adam: Hmm, and sure enough, in the film, there it is. It's like this first impression he has of how the scene should play out, and it's there in in black and white. It's just a gorgeous book, and he's a lovely talker. I think I asked five questions in
+[00:22:50] Adam: Exactly. When Sonny gets killed, um, in the very first note he makes on it, he writes, " Um, oh no, not Sonny!" When when Michael shoots Sollozzo and the police captain, uh, Coppola writes a red mist of blood, Hmm, and sure enough, in the film, there it is. It's like this first impression he has of how the scene should play out, and it's there in in black and white. It's just a gorgeous book, and he's a lovely talker. I think I asked five questions in
 
 [00:23:20] Norm: in all stories
 
@@ -554,9 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:25:37] Adam: gone for a month.
 
-[00:25:38] Simone: Yeah,
-
-[00:25:39] Simone: I was in Scotland.
+[00:25:38] Simone: Yeah, I was in Scotland.
 
 [00:25:41] Adam: Scotland,
 
@@ -588,11 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:26:41] Adam: [unclear: Okay, but / Okay, north]
 
-[00:26:42] Simone: [unclear: yeah. Yeah, um, in / side. Yeah, in Queen,]  Queen Elizabeth National Park,
-
-[00:26:42] Simone: is that something?
-
-[00:26:42] Simone: A big national park.
+[00:26:42] Simone: [unclear: yeah. Yeah, um, in / side. Yeah, in Queen,]  Queen Elizabeth National Park, is that something? A big national park.
 
 [00:26:49] Adam: Scotland’s tiny, by the way. Yeah, you can drive the length of the country in a couple of days.
 
@@ -614,9 +596,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:27:23] Adam: Hey, um, so, uh, Germany. What were you doing in Germany?
 
-[00:27:26] Simone: In Germany, I was on two TV shows. Um, one that was called the Luke Show, one that was called the Elton Show, and it was such a it was such a surprising thing. I was in Cologne, and I was kind of I was going to be there for four days, and I was like, this is just going to suck. Because it was just during the evening time, and I'd spend a lot of time alone in hotel rooms, and you just like walk around the city, it grows old very quick. But, um, but then I met this super cool girl named Laura Kampf. So I just tweeted that I was in Cologne, and and, uh, one of our mutual followers said like, hey, you should hang out. So she's also like a maker YouTuber, and she was just like, come and hang out at my workshop. So I was building for two days straight with her, and we built two different projects together. Yeah, so we did like, yeah, we filmed one one video for her channel. Yeah, so we did a, uh, you know, like how, um, I always say this wrong, donkeys, donkeys, yeah, donkeys, donkeys. How how there's like this cartoon about a donkey having a fishing rod with a carrot at the end of it. So we did that, but for her dog, but and with a sausage. So we made like
-
-[00:28:29] Simone: this whole harness and a little sausage suspension, which was a really fun project to build. And then we also built the pussy grabs back machine.
+[00:27:26] Simone: In Germany, I was on two TV shows. Um, one that was called the Luke Show, one that was called the Elton Show, and it was such a it was such a surprising thing. I was in Cologne, and I was kind of I was going to be there for four days, and I was like, this is just going to suck. Because it was just during the evening time, and I'd spend a lot of time alone in hotel rooms, and you just like walk around the city, it grows old very quick. But, um, but then I met this super cool girl named Laura Kampf. So I just tweeted that I was in Cologne, and and, uh, one of our mutual followers said like, hey, you should hang out. So she's also like a maker YouTuber, and she was just like, come and hang out at my workshop. So I was building for two days straight with her, and we built two different projects together. Yeah, so we did like, yeah, we filmed one one video for her channel. Yeah, so we did a, uh, you know, like how, um, I always say this wrong, donkeys, donkeys, yeah, donkeys, donkeys. How how there's like this cartoon about a donkey having a fishing rod with a carrot at the end of it. So we did that, but for her dog, but and with a sausage. So we made like this whole harness and a little sausage suspension, which was a really fun project to build. And then we also built the pussy grabs back machine.
 
 [00:28:38] Adam: Yeah, good. So I didn't realize that was part of that build. Awesome.
 
@@ -882,9 +862,7 @@ Episode URL: https://www.youtube.com/watch?v=KdM5ipIUFI0
 
 [00:36:24] Norm: I’m sure we’ll have you back on sooner
 
-[00:36:26] Simone: Now you make me feel like a guest.
-
-[00:36:28] Simone: Gosh, thank you so much for stopping by. What? I'm a part of the crew. Don't alienate me like this, Norm.
+[00:36:26] Simone: Now you make me feel like a guest. Gosh, thank you so much for stopping by. What? I'm a part of the crew. Don't alienate me like this, Norm.
 
 [00:36:34] Adam: No, we don't mean to alienate you. It's been very lovely to have you on the podcast where you are not normally sitting on the podcast.
 

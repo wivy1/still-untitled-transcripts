@@ -16,9 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:00:23] Will: Oh yeah,
 
-[00:00:24] Norm: We missed you. Welcome,
-
-[00:00:24] Norm: everyone. Yeah, welcome all back.
+[00:00:24] Norm: We missed you. Welcome, everyone. Yeah, welcome all back.
 
 [00:00:25] Will: I feel like I missed a couple episodes there, but I watched one of them and it was really great.
 
@@ -94,9 +92,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:02:05] Adam: Not that watch.
 
-[00:02:06] Will: You know, I bet if you sent it to Walken's people, he could probably make that happen.
-
-[00:02:11] Will: Is he method? Did he really do that?
+[00:02:06] Will: You know, I bet if you sent it to Walken's people, he could probably make that happen. Is he method? Did he really do that?
 
 [00:02:12] Adam: Has actually been in Christopher Walken's butt?
 
@@ -108,9 +104,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:02:29] Adam: That.
 
-[00:02:30] Will: that that
-
-[00:02:30] Will: makes perfect sense, doesn't it?
+[00:02:30] Will: that that makes perfect sense, doesn't it?
 
 [00:02:32] Norm: He determines the cadence of the way he talks, not the script.
 
@@ -288,9 +282,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:08:23] Adam: I forgot about that.
 
-[00:08:24] Will: and also acid
-
-[00:08:24] Will: at the compound out in San Bernardino, wherever the hell that ended up being. So there's a point where Hunter Thompson appears in Tom Wolfe's book, and Tom Wolfe appears in Hunter Thompson's book.
+[00:08:24] Will: and also acid at the compound out in San Bernardino, wherever the hell that ended up being. So there's a point where Hunter Thompson appears in Tom Wolfe's book, and Tom Wolfe appears in Hunter Thompson's book.
 
 [00:08:34] Adam: I totally did not realize at the time.
 
@@ -410,9 +402,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:15:31] Will: which I I want to say was called Fear and Loathing in Kentucky Kentucky Derby, but I I don't think that was it.
 
-[00:15:36] Adam: Yeah, I don't think that was it. And he goes there with Steadman,
-
-[00:15:38] Adam: right?
+[00:15:36] Adam: Yeah, I don't think that was it. And he goes there with Steadman, right?
 
 [00:15:39] Will: Yeah.
 
@@ -468,9 +458,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:17:57] Will: Yeah, well, there's on the Fear and Loathing on the Fear and Loathing DVD, the special edition, the Criterion one. I think I think it's on the Criterion one, maybe in the original. There's a short of Johnny Depp and Hunter Thompson shooting propane bottles.
 
-[00:18:11] Adam: Yeah,
-
-[00:18:12] Adam: yeah, yeah, yeah.
+[00:18:11] Adam: Yeah, yeah, yeah, yeah.
 
 [00:18:13] Norm: They hung out a lot, right?
 
@@ -594,9 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=ZvOyzC6PFh4
 
 [00:22:10] Will: Before my time.
 
-[00:22:10] Adam: Asterisk next to that one.
-
-[00:22:10] Adam: But yet, more Thompson. He also worked for a couple of years as the night doorman at the O'Farrell Club, the Mitchell Brothers topless club here in San Francisco.
+[00:22:10] Adam: Asterisk next to that one. But yet, more Thompson. He also worked for a couple of years as the night doorman at the O'Farrell Club, the Mitchell Brothers topless club here in San Francisco.
 
 [00:22:26] Will: I didn't know that.
 

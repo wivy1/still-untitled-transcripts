@@ -280,17 +280,13 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:12:14] Adam: It's like 17 or 18 hours. I got a sleeper car.
 
-[00:12:17] Kayte: Wow.
-
-[00:12:18] Kayte: Yeah. So envious.
+[00:12:17] Kayte: Wow. Yeah. So envious.
 
 [00:12:19] Adam: Have you taken train travels?
 
 [00:12:20] Kayte: Not overnight. Well, I did an overnight in India one time, but I'm guessing that's gonna be a lot different than what you're doing.
 
-[00:12:26] Adam: Yeah.
-
-[00:12:26] Adam: Were you on top?
+[00:12:26] Adam: Yeah. Were you on top?
 
 [00:12:27] Kayte: I was.
 
@@ -348,9 +344,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:15:15] Kayte: Yeah.
 
-[00:15:15] Adam: There's the the fact that we're I you know even on this trip we'll be the youngest people on the train by 10 or 15 years. Yeah, a lot of older folks. Um, the dining car is all four tops, and if you're a couple, there you have to sit with other people because they got to cycle the whole train through.
-
-[00:15:34] Adam: So you're always meeting new people, which is kind of which is amazing. But then, really, for most train trips, the view out the window hasn't changed in 120 years.
+[00:15:15] Adam: There's the the fact that we're I you know even on this trip we'll be the youngest people on the train by 10 or 15 years. Yeah, a lot of older folks. Um, the dining car is all four tops, and if you're a couple, there you have to sit with other people because they got to cycle the whole train through. So you're always meeting new people, which is kind of which is amazing. But then, really, for most train trips, the view out the window hasn't changed in 120 years.
 
 [00:15:43] Kayte: Totally.
 
@@ -376,9 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:16:53] Adam: is totally somnambulistic on me. So it's like reading, napping, and eating is the only things you can really do. And they now have Wi-Fi.
 
-[00:17:00] Will: See,
-
-[00:17:00] Will: that makes it worse.
+[00:17:00] Will: See, that makes it worse.
 
 [00:17:02] Kayte: Oh.
 
@@ -416,9 +408,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:18:08] Adam: That's a good question.
 
-[00:18:09] Will: Educators.
-
-[00:18:10] Will: I'm curious who comes to this.
+[00:18:09] Will: Educators. I'm curious who comes to this.
 
 [00:18:11] Adam: That is a really good question. I'll have to report back on that. Okay. I'm I'm curious myself as to who's chosen to attend.
 
@@ -470,9 +460,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:19:34] Kayte: So dreamy.
 
-[00:19:35] Adam: No, no, he's one of the prisoners.
-
-[00:19:37] Adam: He was the British. He was the British prisoner.
+[00:19:35] Adam: No, no, he's one of the prisoners. He was the British. He was the British prisoner.
 
 [00:19:40] Will: Yeah, like I didn't, I didn't remember seeing that movie. I think I, I think I watched it on satellite when I was a kid.
 
@@ -594,9 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:24:50] Adam: And so they built all these costumes for six foot three Tom Selleck, and then they had to. Deborah Nadoolman Landis told me that when Harrison Ford came on, they they had one jacket in the beginning because that's all they had time to make before he arrived. Yeah, but Harrison Ford is so amazing, and he's on this set, and he says. Yeah, I don't really like being in front of people. I know that seems weird, but I'm just not comfortable being in front of people. And that sort of low affect he can have in interviews, and he's like, " This being on camera, this this is I find this pretty easy. Not the acting part, but just like the it doesn't it doesn't bother him. Yeah, he's like, I can do my job here. I just don't like being in front of people.
 
-[00:25:38] Will: Yeah, that that
-
-[00:25:39] Will: every time I watch that movie, I I see the last time I watched, I noticed the one of the I think it's the first one when he's teaching class and he the the girl in the front row blinks and her eyes she's written like I love you on her eyelids or something.
+[00:25:38] Will: Yeah, that that every time I watch that movie, I I see the last time I watched, I noticed the one of the I think it's the first one when he's teaching class and he the the girl in the front row blinks and her eyes she's written like I love you on her eyelids or something.
 
 [00:25:51] Adam: Yeah,
 
@@ -636,9 +622,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:29:03] Adam: One will become male. One will become female. But it's never known which.
 
-[00:29:09] Will: Oh, I read this.
-
-[00:29:10] Will: I read this years ago.
+[00:29:09] Will: Oh, I read this. I read this years ago.
 
 [00:29:09] Adam: And so the female will actually then could have could get pregnant and give birth, and then they go back to being androdites.
 
@@ -694,9 +678,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:31:18] Kayte: Yeah.
 
-[00:31:18] Adam: Um,
-
-[00:31:19] Adam: you can head over and next time you're at the Tested offices, I think that's where it is right now.
+[00:31:18] Adam: Um, you can head over and next time you're at the Tested offices, I think that's where it is right now.
 
 [00:31:24] Will: Okay.
 
@@ -710,9 +692,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:31:36] Kayte: Probably.
 
-[00:31:37] Adam: Okay.
-
-[00:31:38] Adam: Some cool stuff happening on Tested this week.
+[00:31:37] Adam: Okay. Some cool stuff happening on Tested this week.
 
 [00:31:39] Will: I saw the second part of the Zoe Bell thing went up yesterday or today. And also, I
 
@@ -752,9 +732,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:32:44] Will: Wow, really?
 
-[00:32:44] Adam: So Norm and Gunther and Ryan all dressed up in dinosaur costumes, and we shot them, and it's just a It's a GIF masterpiece. There's so many
-
-[00:32:55] Adam: awesome GIFs within it.
+[00:32:44] Adam: So Norm and Gunther and Ryan all dressed up in dinosaur costumes, and we shot them, and it's just a It's a GIF masterpiece. There's so many awesome GIFs within it.
 
 [00:32:57] Will: I'm very excited to go see that.
 
@@ -776,9 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=fc8JSbhwQ_Y
 
 [00:33:22] Adam: I don't try this at Twitter. The real Adam Savage is Instagram, and I'm other names on other platforms.
 
-[00:33:28] Will: Okay, very good.
-
-[00:33:29] Will: We'll be back next week with more. I'm Will.
+[00:33:28] Will: Okay, very good. We'll be back next week with more. I'm Will.
 
 [00:33:31] Adam: I'm Adam.
 

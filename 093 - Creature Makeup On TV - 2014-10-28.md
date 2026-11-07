@@ -54,9 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:00:54] Will: We'll probably post this after the first episode of your show is up, maybe the first two, depending on how you guys are going.
 
-[00:01:03] Norm: The cool
-
-[00:01:03] Norm: thing is that Frank, you're going to be talking, and Len has a lot of podcasting experience. He's interviewed everyone for his Geek a Week card collection, but we're actually hosting your podcast. So if you like the stuff that we're going to talk about today, then check it out. It's on Tested. There's going to be a directory there, and you'll be able to find it.
+[00:01:03] Norm: The cool thing is that Frank, you're going to be talking, and Len has a lot of podcasting experience. He's interviewed everyone for his Geek a Week card collection, but we're actually hosting your podcast. So if you like the stuff that we're going to talk about today, then check it out. It's on Tested. There's going to be a directory there, and you'll be able to find it.
 
 [00:01:19] Frank: Yes.
 
@@ -90,9 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:02:32] Frank: Yeah, yeah, pretty much. Like a lot of times, you have to be more frugal. Like I'm sure that I know that on Star Trek, they had to reuse pieces a lot of times. Like reuse a big cowl, and then they would just put a new face piece on.
 
-[00:02:32] Adam: Ah.
-
-[00:02:42] Adam: Whereas in the movies, they—
+[00:02:32] Adam: Ah. Whereas in the movies, they—
 
 [00:02:44] Frank: just use a
 
@@ -126,9 +122,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:04:05] Adam: Right. Okay. That's the only season I don't know very well.
 
-[00:04:09] Frank: Well, there you go. That was the first
-
-[00:04:11] Frank: time I got to see anything I worked on.
+[00:04:09] Frank: Well, there you go. That was the first time I got to see anything I worked on.
 
 [00:04:13] Adam: Wait. So how was that? Right. So you worked on it.
 
@@ -182,9 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:06:00] Norm: but the prophets, but the rules of acquisition. ways to live by
 
-[00:06:00] Adam: At any rate,
-
-[00:06:05] Adam: Babylon Five. Some really innovative makeups. Some really cool stuff going on.
+[00:06:00] Adam: At any rate, Babylon Five. Some really innovative makeups. Some really cool stuff going on.
 
 [00:06:09] Frank: And incidentally, Buffy and Babylon Five all came out of a company called Optic Nerve, which at that time was owned by the original owners, John Vulich, and I think Everett Burrell had left, but it was John Vulich's Optic Nerve.
 
@@ -232,13 +224,9 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:08:08] Frank: Then you would be allowed to buy it.
 
-[00:08:08] Adam: No way! Yeah, I had no
+[00:08:08] Adam: No way! Yeah, I had no idea it was that.
 
-[00:08:11] Adam: idea it was that.
-
-[00:08:11] Frank: Wow.
-
-[00:08:12] Frank: So I had to write in, and I'd send him some pictures. He'd go, " Oh, well, these are okay. Show me something else." And so I'd have to make something else and send him a second set of pictures.
+[00:08:11] Frank: Wow. So I had to write in, and I'd send him some pictures. He'd go, " Oh, well, these are okay. Show me something else." And so I'd have to make something else and send him a second set of pictures.
 
 [00:08:22] Adam: So wait a second.
 
@@ -276,13 +264,9 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:09:51] Frank: Yeah.
 
-[00:09:51] Adam: yeah. I mean, and one was actually one was really open about it. I said, " Do you mind if I take pictures of the thing you're doing?" And he said, " Yeah, but I'm not going to tell you everything I know about it." And I was like, " Really?" And he goes, " Yeah, I know that's weird, but it's one of the things I get hired for a lot." And wow, I I said that I'm sad that I'm sad about that. And he was like, " Yeah, I
+[00:09:51] Adam: yeah. I mean, and one was actually one was really open about it. I said, " Do you mind if I take pictures of the thing you're doing?" And he said, " Yeah, but I'm not going to tell you everything I know about it." And I was like, " Really?" And he goes, " Yeah, I know that's weird, but it's one of the things I get hired for a lot." And wow, I I said that I'm sad that I'm sad about that. And he was like, " Yeah, I know.
 
-[00:10:19] Adam: know.
-
-[00:10:19] Frank: All
-
-[00:10:20] Frank: right,
+[00:10:19] Frank: All right,
 
 [00:10:21] Adam: I know.
 
@@ -324,9 +308,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:12:43] Frank: yeah,
 
-[00:12:43] Adam: and you
-
-[00:13:00] Adam: don't mean refrigerators.
+[00:12:43] Adam: and you don't mean refrigerators.
 
 [00:13:01] Will: No, no, no. Yeah, I mean this is
 
@@ -396,9 +378,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:15:09] Frank: No,
 
-[00:15:09] Adam: or you
-
-[00:15:09] Adam: get a net and apply it, and
+[00:15:09] Adam: or you get a net and apply it, and
 
 [00:15:12] Frank: it's it's
 
@@ -418,9 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:15:37] Adam: I’ll ask her next time I see her.
 
-[00:15:38] Will: Her hair looks
-
-[00:15:39] Will: really weird.
+[00:15:38] Will: Her hair looks really weird.
 
 [00:15:40] Adam: I wish.
 
@@ -502,9 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:18:15] Will: Yeah,
 
-[00:18:15] Adam: I want to
-
-[00:18:19] Adam: visit the Millennium Falcon. I want to stand on the Millennium Falcon.
+[00:18:15] Adam: I want to visit the Millennium Falcon. I want to stand on the Millennium Falcon.
 
 [00:18:23] Will: I'm coming with you when you. do that.
 
@@ -614,13 +590,9 @@ Episode URL: https://www.youtube.com/watch?v=kYMFoGFX91c
 
 [00:20:44] Frank: Me too.
 
-[00:20:44] Adam: And
+[00:20:44] Adam: And we're going to have more of Frank in the cave because he's going to be spending more time up in Northern California.
 
-[00:20:46] Adam: we're going to have more of Frank in the cave because he's going to be spending more time up in Northern California.
-
-[00:20:46] Frank: Yeah,
-
-[00:20:51] Frank: I’ll be up here doing a couple more things.
+[00:20:46] Frank: Yeah, I’ll be up here doing a couple more things.
 
 [00:20:51] Adam: Yeah,
 

@@ -166,9 +166,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:05:30] Norm: sales guys and crime solving.
 
-[00:05:32] Adam: So okay, so we
-
-[00:05:32] Adam: will have a nice dinner.
+[00:05:32] Adam: So okay, so we will have a nice dinner.
 
 [00:05:35] Will: You and Jamie sit down by yourself by candlelight. You guys have cooked a turkey with a with a calorimetry bomb.
 
@@ -282,9 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:11:07] Adam: wide streets, a block from the Hudson River. It was gorgeous, and the house was built with a billiard room in its basement,
 
-[00:11:15] Norm: That’s convenient.
-
-[00:11:15] Norm: of which you still have one of the balls.
+[00:11:15] Norm: That’s convenient. of which you still have one of the balls.
 
 [00:11:17] Adam: I still actually I so I have the I have the two original cue balls made of ivory, because back then in 1910 when the house was built, that's what the high quality billiard balls were made out of.
 
@@ -368,9 +364,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:17:09] Norm: That handshake was serious.
 
-[00:17:10] Adam: And That’s really.
-
-[00:17:12] Adam: But I mean, to me, it's like the skill is an international membership, right?
+[00:17:10] Adam: And That’s really. But I mean, to me, it's like the skill is an international membership, right?
 
 [00:17:17] Will: I mean, and there's nothing you really want more than the respect of the kind of people who hang out of pool halls.
 
@@ -482,9 +476,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:24:48] Will: Really?
 
-[00:24:49] Adam: Yes. Oscar from The Odd Couple or Quincy from Quincy, MD. Jack Klugman was grew up as a pool hustler and actually beat Minnesota Fats in an exhibition game on television back in the early '60s. Yeah, he was the real thing. He was a genuine New York,
-
-[00:25:05] Adam: terrifying pool pool player.
+[00:24:49] Adam: Yes. Oscar from The Odd Couple or Quincy from Quincy, MD. Jack Klugman was grew up as a pool hustler and actually beat Minnesota Fats in an exhibition game on television back in the early '60s. Yeah, he was the real thing. He was a genuine New York, terrifying pool pool player.
 
 [00:25:07] Norm: Do you find yourself watching pool?
 
@@ -514,9 +506,7 @@ Episode URL: https://www.youtube.com/watch?v=Gb2FLvZi_DQ
 
 [00:27:13] Will: like like a a theatrical failing.
 
-[00:27:15] Adam: Theatrical failing. I had one in which I um I had one in which in a game of eight ball in a nightclub I cleared the entire table, including spotting a pair of balls per... touching but perpendicular to the pocket, and did a two bank kick
-
-[00:27:31] Adam: shot to sink one in the corner, and the crowd went bananas. That I called what looked like a ball wedged into the middle of a stack right into the corner, and then through literally no fault of my own scratched on the eight ball. I mean, it was one of those no one could have seen it, but the rest of the night as I walked up to the table, people would clear. For me, and there was one night. There was this bar in New York called MK. Back in the in the mid '80s, it was the place, and they had a top room full of glass fronted cabinets filled with bones, which is an early inspiration for this room. And they had this big gold pool table in the middle of the room, and you put quarters up to play. And I used to go there alone. I I had a friend who got me on the list of the nightclub a lot, and I would go and play alone. I was a weird kid, but one night I'm playing, and I’m on the eight ball. And the eight ball is right in front of a corner, and I'm just about to sink it for the game when the guy I'm playing says, " No, no, no, no, no, no, we're playing last pocket." And last pocket is a variant of eight ball, which means that your eight ball has to go into the pocket that the that you sunk your last ball in. It just so happens that the last ball I'd sunk was in the opposite corner pocket, and the eight ball I'll remind you is nearly wedged into the corner pocket. And he goes last pocket, and I'm like. Fuck you, last pocket. He's like, no, last pocket, and the rest of the crowd's like, yeah, last pocket, last pocket. And I'm like, you are all. I, I can tell you don't want me here. And I, I did a kick shot banking off the horn of the corner with the cue ball.
+[00:27:15] Adam: Theatrical failing. I had one in which I um I had one in which in a game of eight ball in a nightclub I cleared the entire table, including spotting a pair of balls per... touching but perpendicular to the pocket, and did a two bank kick shot to sink one in the corner, and the crowd went bananas. That I called what looked like a ball wedged into the middle of a stack right into the corner, and then through literally no fault of my own scratched on the eight ball. I mean, it was one of those no one could have seen it, but the rest of the night as I walked up to the table, people would clear. For me, and there was one night. There was this bar in New York called MK. Back in the in the mid '80s, it was the place, and they had a top room full of glass fronted cabinets filled with bones, which is an early inspiration for this room. And they had this big gold pool table in the middle of the room, and you put quarters up to play. And I used to go there alone. I I had a friend who got me on the list of the nightclub a lot, and I would go and play alone. I was a weird kid, but one night I'm playing, and I’m on the eight ball. And the eight ball is right in front of a corner, and I'm just about to sink it for the game when the guy I'm playing says, " No, no, no, no, no, no, we're playing last pocket." And last pocket is a variant of eight ball, which means that your eight ball has to go into the pocket that the that you sunk your last ball in. It just so happens that the last ball I'd sunk was in the opposite corner pocket, and the eight ball I'll remind you is nearly wedged into the corner pocket. And he goes last pocket, and I'm like. Fuck you, last pocket. He's like, no, last pocket, and the rest of the crowd's like, yeah, last pocket, last pocket. And I'm like, you are all. I, I can tell you don't want me here. And I, I did a kick shot banking off the horn of the corner with the cue ball.
 
 [00:29:07] Will: Okay.
 

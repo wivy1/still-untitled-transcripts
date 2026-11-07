@@ -130,9 +130,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:03:03] Adam: Yeah.
 
-[00:03:03] Norm: He—it was offensive. There's a scene in Thunderball, and the, the movies are great because they're all two hours long. I think the newest, uh, Skyfall is supposed to be two hours and 25, two hour—two and a half hours—
-
-[00:03:14] Norm: The longest one by far. Previously, I think it was, uh, Her Majesty's Secret Service was two hours and 20 minutes. They're all really long. They all have like first act, which has nothing to do with the movie.
+[00:03:03] Norm: He—it was offensive. There's a scene in Thunderball, and the, the movies are great because they're all two hours long. I think the newest, uh, Skyfall is supposed to be two hours and 25, two hour—two and a half hours— The longest one by far. Previously, I think it was, uh, Her Majesty's Secret Service was two hours and 20 minutes. They're all really long. They all have like first act, which has nothing to do with the movie.
 
 [00:03:22] Unknown speaker: Yeah.
 
@@ -166,9 +164,7 @@ Episode URL: https://www.youtube.com/watch?v=948aYYAWvsY
 
 [00:04:07] Will: The nurse.
 
-[00:04:07] Norm: Nurse, yeah.
-
-[00:04:08] Norm: She rejects his advances three times. Then he almost dies, and he goes, "Oh no, I'm gonna be fired." He goes, "Well, we can make an arrangement about that." And he goes, "Oh no, no, no, you don't." And he goes, "Oh yes, yes, yes." And then they walk into a steam room, and that's—and they fade to black. He is a rapist.
+[00:04:07] Norm: Nurse, yeah. She rejects his advances three times. Then he almost dies, and he goes, "Oh no, I'm gonna be fired." He goes, "Well, we can make an arrangement about that." And he goes, "Oh no, no, no, you don't." And he goes, "Oh yes, yes, yes." And then they walk into a steam room, and that's—and they fade to black. He is a rapist.
 
 [00:04:23] Adam: It's a total—
 

@@ -34,9 +34,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:00:28] Adam: Right.
 
-[00:00:28] Will: So last night was the night that we were cooking, and I was supposed to get a pork tenderloin. I got a pork butt instead. So what was a quick sear and like low roast to get the pork tenderloin cooked became a four-hour braise to get the connective tissue broken down and stuff like that.
-
-[00:00:28] Will: So it was tasty.
+[00:00:28] Will: So last night was the night that we were cooking, and I was supposed to get a pork tenderloin. I got a pork butt instead. So what was a quick sear and like low roast to get the pork tenderloin cooked became a four-hour braise to get the connective tissue broken down and stuff like that. So it was tasty.
 
 [00:00:28] Adam: No, was Gene a little pissed about that?
 
@@ -144,9 +142,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:05:19] Adam: Yeah,
 
-[00:05:19] Will: Yeah.
-
-[00:05:20] Will: don't wait. Don't wait too long. It's much easier when you are younger.
+[00:05:19] Will: Yeah. don't wait. Don't wait too long. It's much easier when you are younger.
 
 [00:05:22] Adam: What's really funny is, and I might have said this on the cast before, but what's very funny is the moment you see your kid, the very moment you first see your kid,
 
@@ -274,9 +270,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:09:38] Adam: Exactly. What's that? He can whittle. Yeah, he was whittling, but his finger was ahead of the blade. He was whittling a carrot.
 
-[00:09:46] Norm: That's one in the morning.
-
-[00:09:48] Norm: That's what these kids do these days.
+[00:09:46] Norm: That's one in the morning. That's what these kids do these days.
 
 [00:09:49] Adam: Yes. Okay.
 
@@ -480,11 +474,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:21:30] Adam: Wow, that is such a good idea. I totally want someone to run and do that.
 
-[00:21:32] Will: I'm cutting this question out. But but the other thing that will happen is I think we'll see more. The the best films that use practical the CGI and practical effects are merging them to the point that it's really hard to tell what's practical and what's CG. Like, like the shot in the you mentioned it before the shot in Pacific Rim where the robot or the kaiju punches through the building and it hits the little Newton's cradle
-
-[00:21:32] Will: Mm-hmm.
-
-[00:21:32] Will: and it it starts tapping at the end is a is a good example of that.
+[00:21:32] Will: I'm cutting this question out. But but the other thing that will happen is I think we'll see more. The the best films that use practical the CGI and practical effects are merging them to the point that it's really hard to tell what's practical and what's CG. Like, like the shot in the you mentioned it before the shot in Pacific Rim where the robot or the kaiju punches through the building and it hits the little Newton's cradle Mm-hmm. and it it starts tapping at the end is a is a good example of that.
 
 [00:21:59] Adam: Absolutely, absolutely.
 
@@ -578,11 +568,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:30:08] Norm: You want to give them freedom.
 
-[00:30:08] Adam: I want to give them freedom, and I want to see what their response is. I'm not going to take too much care of them because that's not how the world works. Your boss isn't going to hold your hand through the whole thing. I'm going to want someone to ask questions. I'm going to want someone who's curious and interested in how things work, but I'm also going to want someone who can absolutely take a ball and run with it, and who understands the answer to their question, or if they don't feel like it's fully answered, asks again. You know.
-
-[00:30:38] Adam: So, what do you think?
-
-[00:30:39] Adam: I mean, you've probably actually supervised more interns than I have.
+[00:30:08] Adam: I want to give them freedom, and I want to see what their response is. I'm not going to take too much care of them because that's not how the world works. Your boss isn't going to hold your hand through the whole thing. I'm going to want someone to ask questions. I'm going to want someone who's curious and interested in how things work, but I'm also going to want someone who can absolutely take a ball and run with it, and who understands the answer to their question, or if they don't feel like it's fully answered, asks again. You know. So, what do you think? I mean, you've probably actually supervised more interns than I have.
 
 [00:30:43] Will: I've both. I've been an intern, and then I supervised tons of interns over the 10 years I was in magazine publishing. And the thing, including some mutual friends, the the thing that we did was we had a set of assigned tasks. Here are the things that you have to do. Like these, these are you're required to do these as part of the job,
 
@@ -654,9 +640,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:34:45] Will: But I mean, it's it's within your rights to make a portfolio, right?
 
-[00:34:45] Adam: Or kind of.
-
-[00:34:49] Adam: No, no, no, no, no. Your employment contract really usually explicitly states at ILM they were very clear. You know, you could be fired for taking pictures within the model shop.
+[00:34:45] Adam: Or kind of. No, no, no, no, no. Your employment contract really usually explicitly states at ILM they were very clear. You know, you could be fired for taking pictures within the model shop.
 
 [00:34:57] Will: So how? So then, how do you? When you leave ILM and you go someplace else, how do you say, " Hey, this is what my because like
 
@@ -672,9 +656,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:36:07] Will: We don’t burn the locals.
 
-[00:36:07] Adam: Is there such a limitation?
-
-[00:36:09] Adam: You don’t burn the locals, but and frankly, I will tell you that, like, I have a sort of a spongy. I think that is a big gray area. I understand my employment contract at ILM stipulated I wasn't to take pictures of what I was working on, and part of me says the heck with that. I'm going to take pictures for posterity, so my kids can see stuff that I built. Yeah. And if I'm not going to post them anywhere, then everyone should be fine.
+[00:36:07] Adam: Is there such a limitation? You don’t burn the locals, but and frankly, I will tell you that, like, I have a sort of a spongy. I think that is a big gray area. I understand my employment contract at ILM stipulated I wasn't to take pictures of what I was working on, and part of me says the heck with that. I'm going to take pictures for posterity, so my kids can see stuff that I built. Yeah. And if I'm not going to post them anywhere, then everyone should be fine.
 
 [00:36:33] Will: None the wiser.
 
@@ -722,9 +704,7 @@ Episode URL: https://www.youtube.com/watch?v=69dpNCOyN7g
 
 [00:38:31] Will: Next week,
 
-[00:38:32] Adam: excellent.
-
-[00:38:32] Adam: Or in our reality, 10 minutes from now.
+[00:38:32] Adam: excellent. Or in our reality, 10 minutes from now.
 
 [00:38:35] Will: Yeah, five minutes from now. If you like the podcast, always reviews feedback on iTunes. The best thing you can do to help the podcast is to subscribe on iTunes.
 

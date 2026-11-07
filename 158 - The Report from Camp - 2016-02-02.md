@@ -66,9 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:01:16] Adam: I could just see the Law and Order SVU. So you are telling me that there is some guy that gets off for watching babies sleep.
 
-[00:01:16] Will: It's worse.
-
-[00:02:01] Will: It was good.
+[00:01:16] Will: It's worse. It was good.
 
 [00:02:02] Norm: On hydration.
 
@@ -114,17 +112,11 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:03:52] Will: Internet of shit.
 
-[00:03:53] Adam: Right?
-
-[00:03:53] Adam: The Internet of shit. There's a guy who's been tweeting. I follow it. I love it. And then there's a couple of people who are tweeting some of the worst stuff at CES. Yeah.
+[00:03:53] Adam: Right? The Internet of shit. There's a guy who's been tweeting. I follow it. I love it. And then there's a couple of people who are tweeting some of the worst stuff at CES. Yeah.
 
 [00:04:02] Norm: It's a
 
-[00:04:02] Will: some of the most misguided.
-
-[00:04:02] Will: It's a high bar actually to get the worst stuff.
-
-[00:04:02] Will: Is you have to really work to find the. The terrible garbage.
+[00:04:02] Will: some of the most misguided. It's a high bar actually to get the worst stuff. Is you have to really work to find the. The terrible garbage.
 
 [00:04:08] Norm: The camera that's inside your fridge to look inside your fridge. Right.
 
@@ -142,9 +134,7 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:04:34] Norm: flashlight.
 
-[00:04:34] Will: Right.
-
-[00:04:36] Will: Like, look, I'm, I am, I am the worst. Like, I put all the smart bulbs and all that stuff in my house last year, and when the smart bulbs stop, stop talking to my hub in December, basically, I wasn't able to turn on lights. I wasn't able to control the lights in my kids' room because I'd taken her agency away.
+[00:04:34] Will: Right. Like, look, I'm, I am, I am the worst. Like, I put all the smart bulbs and all that stuff in my house last year, and when the smart bulbs stop, stop talking to my hub in December, basically, I wasn't able to turn on lights. I wasn't able to control the lights in my kids' room because I'd taken her agency away.
 
 [00:04:51] Adam: So mad. I got the hue and I got the puck, and I, I pretty much only use that lamp in my living room when I have a party, which is whatever. It's not every weekend, so every single time I want to turn on this goddamn lamp, someone has to go to the basement and push a. Button makes me so mad.
 
@@ -270,9 +260,7 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:11:24] Will: It's so it's not. It's applications. Um, and usually they they get people by having nominations. So it started out as like 75 people eight years ago, and this year there were 350 or 400 people there. Um,
 
-[00:11:24] Adam: oh,
-
-[00:11:35] Adam: that's a lot. That's a lot more than I thought.
+[00:11:24] Adam: oh, that's a lot. That's a lot more than I thought.
 
 [00:11:36] Will: But the interesting thing about it is it's self organizing. So if you wanted to do one,
 
@@ -290,9 +278,7 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:11:48] Adam: and that's really cool.
 
-[00:11:49] Will: Yeah,
-
-[00:11:49] Will: the self organizing nature of it is the thing that I think is really interesting, and it means that if like you have a community of people who make games or people who make or woodworkers or people who do this, you can bring them all in. And have your fun weekend. Send them out and tell them to bring to invite three friends next year, and you can you can grow it, um, like it will grow organically over time.
+[00:11:49] Will: Yeah, the self organizing nature of it is the thing that I think is really interesting, and it means that if like you have a community of people who make games or people who make or woodworkers or people who do this, you can bring them all in. And have your fun weekend. Send them out and tell them to bring to invite three friends next year, and you can you can grow it, um, like it will grow organically over time.
 
 [00:12:09] Adam: Yeah,
 
@@ -326,9 +312,7 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:13:23] Will: That's a completely different taste.
 
-[00:13:23] Adam: I didn't realize
-
-[00:13:23] Adam: That.
+[00:13:23] Adam: I didn't realize That.
 
 [00:13:23] Will: The honey's very light, and they come in different. And we talked about like why some honeys are thicker and crystallize at a different temperature. One honey, some honeys, um, have different. You know, obviously, different flavors come from different nectars.
 
@@ -370,9 +354,7 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:15:19] Adam: Well, welcome back.
 
-[00:15:20] Will: Hey, thanks.
-
-[00:15:21] Will: It was a good good good time.
+[00:15:20] Will: Hey, thanks. It was a good good good time.
 
 [00:15:22] Norm: Intellectual venture.
 
@@ -388,9 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:15:41] Norm: coming. X Carve and Carvey,
 
-[00:15:41] Will: okay.
-
-[00:15:43] Will: And Brian Fitzpatrick, who was formerly at Google and now has a startup, but he was he's he was in charge of data takeout. So, like the thing that you can use to pull all your data off Google stuff, I think, was him back in the old days.
+[00:15:41] Will: okay. And Brian Fitzpatrick, who was formerly at Google and now has a startup, but he was he's he was in charge of data takeout. So, like the thing that you can use to pull all your data off Google stuff, I think, was him back in the old days.
 
 [00:15:43] Adam: Oh, okay.
 
@@ -490,16 +470,12 @@ Episode URL: https://www.youtube.com/watch?v=-JuuUH5Dy5E
 
 [00:20:01] Norm: What have you been enjoying reading, watching, listening to? Again, there's so much good stuff to go go around.
 
-[00:20:01] Will: Yeah.
-
-[00:20:11] Will: Okay, we'll see you guys next week. Thanks for watching. Like us on YouTube, Facebook, iTunes podcast, all the places you can. Just press that thumbs up or the thumb. It's fine. We love feedback. See you guys
+[00:20:01] Will: Yeah. Okay, we'll see you guys next week. Thanks for watching. Like us on YouTube, Facebook, iTunes podcast, all the places you can. Just press that thumbs up or the thumb. It's fine. We love feedback. See you guys
 
 [00:20:22] Adam: next week.
 
 [00:20:23] Norm: Bye guys.
 
-[00:20:23] Will: Bye bye.
-
-[00:20:24] Will: And I'm out of practice on that.
+[00:20:23] Will: Bye bye. And I'm out of practice on that.
 
 [00:20:32] Norm: Thanks for listening to that episode of Still Untitled. And we'll see you next week for another episode of Still Untitled. Thanks a lot.

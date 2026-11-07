@@ -36,9 +36,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:01:25] Adam: Because I don't want to put a lot of clothing on it. First of all, it's made of bead foam, so it'll collapse. Second of all, it's so weird having the cutout of myself in the shop that I don't want to cover it over because it puts me in the uncanny valley every time I pass it.
 
-[00:01:38] Norm: Yeah,
-
-[00:01:38] Norm: I thought it was going to be a hat stand for you.
+[00:01:38] Norm: Yeah, I thought it was going to be a hat stand for you.
 
 [00:01:40] Adam: Yeah, except that I don't want to dent it by putting hats on it.
 
@@ -110,9 +108,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:06:29] Adam: Absolutely, and we'd be well served. It it falls into the same category to me of thinking of science as an uncreative endeavor, and as we know, scientists, every scientist I know loves their job because of how deeply creative it is.
 
-[00:06:47] Norm: You know, I will use this opportunity to say that analyzing process and our own processes is the theme of our live show this year.
-
-[00:06:47] Norm: Yes, nicely.
+[00:06:47] Norm: You know, I will use this opportunity to say that analyzing process and our own processes is the theme of our live show this year. Yes, nicely.
 
 [00:06:55] Adam: Nice segue. Well done.
 
@@ -140,9 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:08:24] Norm: Twice in a life. Yeah. Once. A twice in a lifetime chance.
 
-[00:08:24] Adam: Look,
-
-[00:08:28] Adam: I, I have, I have, and I have an interesting theory about why he said one and done. Because I I think that as a franchise rebooter, which JJ is par excellence, I mean. You know that first Star Trek is amazing. I think the second Star Trek film that he directed has issues, and I think that when he looked at that, I have this feeling in my head. We haven't spoken about it, but I have this feeling in my head that he was like, " There's not a lot of percentage in directing the second one because if the first one's good, everyone's going to be holding that up against your second one, and it's just it's it's a shit sandwich. There's nothing you can't get anything out of that. Let someone else have it, which makes all the sense in the world. And I, you know, I I know Rian Johnson a little bit, and he's really ecstatic about Episode Eight.
+[00:08:24] Adam: Look, I, I have, I have, and I have an interesting theory about why he said one and done. Because I I think that as a franchise rebooter, which JJ is par excellence, I mean. You know that first Star Trek is amazing. I think the second Star Trek film that he directed has issues, and I think that when he looked at that, I have this feeling in my head. We haven't spoken about it, but I have this feeling in my head that he was like, " There's not a lot of percentage in directing the second one because if the first one's good, everyone's going to be holding that up against your second one, and it's just it's it's a shit sandwich. There's nothing you can't get anything out of that. Let someone else have it, which makes all the sense in the world. And I, you know, I I know Rian Johnson a little bit, and he's really ecstatic about Episode Eight.
 
 [00:09:14] Jeremy Williams: Yeah,
 
@@ -186,11 +180,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:11:20] Adam: I tell you, if you pulled up in some like McLaren sports car, you might not be able to drive away with the Lego set unless you didn't have a passenger. Let's just put it that way.
 
-[00:11:30] Norm: Right. The instruction manual is seven pounds. I love like these little tidbits,
-
-[00:11:30] Norm: right?
-
-[00:11:30] Norm: Like, but it was such an enjoyable build, both because of the finished model's beautiful and it being the biggest, the most pieces for any official Lego set, but also. The collaboration that we got to—you know—we had a dozen people total working on it.
+[00:11:30] Norm: Right. The instruction manual is seven pounds. I love like these little tidbits, right? Like, but it was such an enjoyable build, both because of the finished model's beautiful and it being the biggest, the most pieces for any official Lego set, but also. The collaboration that we got to—you know—we had a dozen people total working on it.
 
 [00:11:50] Adam: Super fun,
 
@@ -380,9 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:25:13] Norm: Got it.
 
-[00:25:13] Adam: So the first one was with Jared Leto. The second one is with, uh, Dave
-
-[00:25:17] Adam: Bautista, and I don't know what the third one entails. Luke Scott directed the first two. I'm not sure if he directed the third.
+[00:25:13] Adam: So the first one was with Jared Leto. The second one is with, uh, Dave Bautista, and I don't know what the third one entails. Luke Scott directed the first two. I'm not sure if he directed the third.
 
 [00:25:23] Norm: I don't know either.
 
@@ -448,9 +436,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:28:42] Norm: Presence on screen.
 
-[00:28:43] Adam: Presence on screen, and you just love this person. You you need to be near them. They draw you towards them, and he. Doesn't quite sell that to me in the opening in the opening two bits, but that is the most minor thing. It is a super fun movie that had me like putting knuckle marks into my couch because I was so. Plus, I will also say this: the driving is maybe some of the best driving I have ever seen in a movie ever,
-
-[00:29:12] Adam: and it it it feels. I'm not spoiling anything. If I hope not, it feels to me watching it like it feels when you're doing that kind of tactical driving. I'm not saying I'm as good as that character.
+[00:28:43] Adam: Presence on screen, and you just love this person. You you need to be near them. They draw you towards them, and he. Doesn't quite sell that to me in the opening in the opening two bits, but that is the most minor thing. It is a super fun movie that had me like putting knuckle marks into my couch because I was so. Plus, I will also say this: the driving is maybe some of the best driving I have ever seen in a movie ever, and it it it feels. I'm not spoiling anything. If I hope not, it feels to me watching it like it feels when you're doing that kind of tactical driving. I'm not saying I'm as good as that character.
 
 [00:29:24] Norm: You mean the filming, the the way they filmed it, the way. Yeah,
 
@@ -544,9 +530,7 @@ Episode URL: https://www.youtube.com/watch?v=pXqxl-48h8Y
 
 [00:33:26] Adam: That's, that's okay. Politics now moving back.
 
-[00:33:30] Norm: And I think that's a, that's a reasonable place [unclear: to stop / to stop. To stop].
-
-[00:33:32] Norm: Again, thank you for bearing with us for one for late episode this week, but we will be back next week. We're all gearing up for New York Comic Con as well. So if you're in the New York area, Adam's doing not one, but I think. Two panels this year, so you can check their schedule for that. And we'll hope to see you in New York, and not we'll see you on the podcast next week.
+[00:33:30] Norm: And I think that's a, that's a reasonable place [unclear: to stop / to stop. To stop]. Again, thank you for bearing with us for one for late episode this week, but we will be back next week. We're all gearing up for New York Comic Con as well. So if you're in the New York area, Adam's doing not one, but I think. Two panels this year, so you can check their schedule for that. And we'll hope to see you in New York, and not we'll see you on the podcast next week.
 
 [00:33:50] Adam: Also, I’m also going to appear in a staged reading of Plan Nine from Outer Space on Friday night at New York Comic Con with Janet Varney and Scott Adsit and John Hodgman and some other friends of mine.
 

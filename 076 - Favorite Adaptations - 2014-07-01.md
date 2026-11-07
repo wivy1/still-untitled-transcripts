@@ -44,23 +44,17 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:00:39] Will: Yeah, I have a I have a Southern lawyer name. I'm Verlin William Smith III. So if I was a Southern lawyer, it would be the offices of V William Smith III.
 
-[00:00:47] Adam: Wow.
-
-[00:00:47] Adam: Nice, Esquire.
+[00:00:47] Adam: Wow. Nice, Esquire.
 
 [00:00:48] Will: Esquire. That that was always the the family joke because my my my family thought my father was insane when he wanted to name me a third.
 
 [00:00:48] Adam: A third.
 
-[00:00:48] Will: He is
-
-[00:00:56] Will: correct.
+[00:00:48] Will: He is correct.
 
 [00:00:56] Adam: I wanted to name both of my kids George Foreman.
 
-[00:00:59] Will: I think that would have been amazing.
-
-[00:01:01] Will: The seventh and eighth,
+[00:00:59] Will: I think that would have been amazing. The seventh and eighth,
 
 [00:01:01] Adam: yeah, exactly. It's good enough for George.
 
@@ -72,9 +66,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:01:16] Adam: It's pronounced Ozwipe.
 
-[00:01:21] Norm: And
-
-[00:01:22] Norm: there's a great Key and Peele bit about names names in schools. Key and Peele.
+[00:01:21] Norm: And there's a great Key and Peele bit about names names in schools. Key and Peele.
 
 [00:01:26] Adam: Oh, yeah. Oh, Jay Quellan.
 
@@ -110,17 +102,11 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:02:36] Adam: We came, so we we we found out early it was twins. Then we found out they were both boys, and we had, we had, we had one girl's name picked out and two boys' names picked out. Okay. The oh right, so I don't generally say my kids' names on air, so I won't this time. Um. Wow, this that discussion ends up sort of
 
-[00:02:59] Will: yes,
-
-[00:02:59] Will: pretty short. Hit a
-
-[00:03:00] Will: hit a wall.
+[00:02:59] Will: yes, pretty short. Hit a hit a wall.
 
 [00:03:02] Adam: One son is named after a famous 1940s film character, and the other is named after Sam Neill's first major television role in the '80s.
 
-[00:03:11] Norm: That that you just gave it
-
-[00:03:13] Norm: away.
+[00:03:11] Norm: That that you just gave it away.
 
 [00:03:13] Adam: Still pretty.
 
@@ -128,9 +114,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:03:16] Will: Well, I mean, but but it's the whole names are important things. I can't remember that's a that's a quote from a movie. Names are powerful things. It's like Dune or something, right?
 
-[00:03:25] Adam: It's what one of the protesters yells at Noam Chomsky in the movie, The Manufacturing Manufacturing Consent,
-
-[00:03:34] Adam: which
+[00:03:25] Adam: It's what one of the protesters yells at Noam Chomsky in the movie, The Manufacturing Manufacturing Consent, which
 
 [00:03:34] Will: [unclear: I don't think]
 
@@ -140,17 +124,11 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:03:38] Adam: Oh, yeah, it's linguist. You are linguist. Language has meaning.
 
-[00:03:42] Will: Is it an adaptation, perchance?
-
-[00:03:44] Will: No.
+[00:03:42] Will: Is it an adaptation, perchance? No.
 
 [00:03:46] Adam: Nice segue, though, because I like adaptations. Why do you ask?
 
-[00:03:48] Will: I think we all like adaptations. We got a letter which I lost when my mail program crashed, but I'm going to read it here in a moment if I find it, and if not, I'm just going to say it was from.
-
-[00:03:58] Will: Uh,
-
-[00:04:00] Will: Joseph Swick. That's it. Uh, he says, " Hey, Adam, Will, and Norm. The recent spoiler cast for Edge of Tomorrow slash All You Need Is Kill got me wondering what movies based on books, including comic books, you felt were better than the original source material, rather than just good enough or reasonably close. I'd be willing to bet that Blade Runner is probably on that list for Adam, but I'm curious as to what other movie adaptations rank highly.
+[00:03:48] Will: I think we all like adaptations. We got a letter which I lost when my mail program crashed, but I'm going to read it here in a moment if I find it, and if not, I'm just going to say it was from. Uh, Joseph Swick. That's it. Uh, he says, " Hey, Adam, Will, and Norm. The recent spoiler cast for Edge of Tomorrow slash All You Need Is Kill got me wondering what movies based on books, including comic books, you felt were better than the original source material, rather than just good enough or reasonably close. I'd be willing to bet that Blade Runner is probably on that list for Adam, but I'm curious as to what other movie adaptations rank highly.
 
 [00:04:20] Adam: Well, Blade Runner is on that list. Um, I love Philip K. Dick for his ideas, um, not as much for his actual writing.
 
@@ -198,15 +176,9 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:07:09] Will: Ooh, Miller's Miller's Crossing? I didn't know was based on a book, but it's wonderful.
 
-[00:07:12] Adam: Well, it's based on the Glass Key by Dashiell Hammett, and it's again, there are a lot of key there are a lot of differences, but whatever is interesting about the Glass Key is in Miller's Crossing, and a lot more.
+[00:07:12] Adam: Well, it's based on the Glass Key by Dashiell Hammett, and it's again, there are a lot of key there are a lot of differences, but whatever is interesting about the Glass Key is in Miller's Crossing, and a lot more. And it's beautiful. I mean, I just love Miller's Crossing. I love that dialogue. I think that's perfect movie.
 
-[00:07:25] Adam: And
-
-[00:07:25] Adam: it's beautiful. I mean, I just love Miller's Crossing. I love that dialogue. I think that's perfect movie.
-
-[00:07:31] Norm: It's
-
-[00:07:32] Norm: it happens. It seems to happen all the time in Hollywood that good ideas come out of either books, comic books, short stories, short films, and then they are adapted for big screen, and the studios buy the rights, and there is no pretense. You know, they can say to tell the narrative of the production that it was taken from the source, but it is really the screenwriter and director's work. On the other
+[00:07:31] Norm: It's it happens. It seems to happen all the time in Hollywood that good ideas come out of either books, comic books, short stories, short films, and then they are adapted for big screen, and the studios buy the rights, and there is no pretense. You know, they can say to tell the narrative of the production that it was taken from the source, but it is really the screenwriter and director's work. On the other
 
 [00:07:52] Adam: And they're totally different.
 
@@ -346,9 +318,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:15:46] Will: Oh, oh, he was much older, over 60. Yeah.
 
-[00:15:49] Norm: Okay,
-
-[00:15:52] Norm: I'm sorry.
+[00:15:49] Norm: Okay, I'm sorry.
 
 [00:15:53] Adam: Blow your mind.
 
@@ -362,9 +332,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:16:03] Will: What's Barney Miller?
 
-[00:16:04] Adam: Barney
-
-[00:16:06] Adam: Miller was it? Do you really asking?
+[00:16:04] Adam: Barney Miller was it? Do you really asking?
 
 [00:16:07] Will: I know what Barney Miller is. You might have to tell Norm though.
 
@@ -432,9 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:19:23] Will: I can buy that.
 
-[00:19:23] Adam: I'm sure. Absolutely.
-
-[00:19:25] Adam: I'm sure there are thousands of super attractive doctors all over the place. What I'm saying is, is the classic Hollywood sort of
+[00:19:23] Adam: I'm sure. Absolutely. I'm sure there are thousands of super attractive doctors all over the place. What I'm saying is, is the classic Hollywood sort of
 
 [00:19:32] Will: like, yeah, yeah.
 
@@ -472,11 +438,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:21:05] Norm: I mean, we're talking about good cinematic remakes, but Italian job, I think, is the most.
 
-[00:21:10] Will: No, Gone in 60 seconds, man.
-
-[00:21:12] Will: Gone in 60 seconds is a
-
-[00:21:13] Will: terrible movie.
+[00:21:10] Will: No, Gone in 60 seconds, man. Gone in 60 seconds is a terrible movie.
 
 [00:21:14] Norm: Both car movies, but
 
@@ -488,9 +450,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:21:23] Norm: Remakes as reboot,
 
-[00:21:25] Adam: but the original
-
-[00:21:26] Adam: Star Trek books.
+[00:21:25] Adam: but the original Star Trek books.
 
 [00:21:28] Will: No, no, no, no, no. So,
 
@@ -532,9 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:23:48] Will: Yeah.
 
-[00:23:48] Adam: Yeah, I said, " Robin, I have to go back to work
-
-[00:23:52] Adam: now."
+[00:23:48] Adam: Yeah, I said, " Robin, I have to go back to work now."
 
 [00:23:57] Will: And then you have a sad, hairy man.
 
@@ -592,21 +550,11 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:25:28] Adam: wasn't available for Silence of the Lambs, so I'm told.
 
-[00:25:31] Will: Oops.
-
-[00:25:34] Will: Yeah,
-
-[00:25:34] Will: the adaptations. What about comic adaptations? There's like
+[00:25:31] Will: Oops. Yeah, the adaptations. What about comic adaptations? There's like
 
 [00:25:39] Norm: 300.
 
-[00:25:39] Adam: Oh,
-
-[00:25:40] Adam: I'll tell you
-
-[00:25:41] Adam: an abysmal
-
-[00:25:42] Adam: comic adaptation, Elektra.
+[00:25:39] Adam: Oh, I'll tell you an abysmal comic adaptation, Elektra.
 
 [00:25:45] Norm: Oh yeah,
 
@@ -626,11 +574,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:26:04] Adam: Wait, three words. She speaks three words in one scene, and it's mind-blowingly great. And My best friend and I spent years casting Elektra, and then they made this terrible movie with Jennifer Garner, who tried, but she
 
-[00:27:05] Will: she should
-
-[00:27:06] Will: have.
-
-[00:27:07] Will: Like, you watch Alias.
+[00:27:05] Will: she should have. Like, you watch Alias.
 
 [00:27:09] Adam: Yeah.
 
@@ -640,9 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:27:07] Will: She's great.
 
-[00:27:07] Adam: Absolutely,
-
-[00:27:12] Adam: I totally love her.
+[00:27:07] Adam: Absolutely, I totally love her.
 
 [00:27:12] Norm: And it was a spinoff of Daredevil.
 
@@ -696,9 +638,7 @@ Episode URL: https://www.youtube.com/watch?v=9EndwpK_b9w
 
 [00:28:34] Adam: And all of these movies adapted from Elmore Leonard novels. So his great thing as a writer is character and dialogue. And I don't even remember almost any of his plots, but I remember his characters. And actually, one of his one of my favorite characters of his, Raylan Givens, is the main character of Justified, the TV show based on Elmore Leonard's novels. Starring Raylan Givens, I think he wrote three novels with Raylan.
 
-[00:29:04] Will: Well, the the his characters have cadence, like their voices have a kind of boom,
-
-[00:29:09] Will: boom, boom.
+[00:29:04] Will: Well, the the his characters have cadence, like their voices have a kind of boom, boom, boom.
 
 [00:29:09] Adam: Nobody writes better dialogue. Nobody writes better dialogue, and even with missing words and a patois, like criminal underclass, and all of that. I mean, Elmore Leonard is one of the was he's RIP. I really, I'm sad that he passed away this year. One of the great voices of American speech, totally, and really frequently gets made into terrific adaptations. There is a really abysmal one, which is called The Big Bounce, starring Luke Wilson and Morgan Freeman.
 

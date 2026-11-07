@@ -28,9 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:01:49] Adam: Like all of our endeavors did.
 
-[00:01:49] Tom Spina: yeah, yeah, totally.
-
-[00:01:51] Tom Spina: And it grew out of me making masks and monsters and things like that, and morphed into this amazing journey of restoring original movie props and wardrobe and making awesome custom mannequins and. displays and things like that.
+[00:01:49] Tom Spina: yeah, yeah, totally. And it grew out of me making masks and monsters and things like that, and morphed into this amazing journey of restoring original movie props and wardrobe and making awesome custom mannequins and. displays and things like that.
 
 [00:02:08] Adam: This is how I first became acquainted with you: is that I had visited Bob Burns' place and seen and seen the the American Werewolf in London head of the werewolf and its its decaying state as foam latex
 
@@ -62,9 +60,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:03:47] Tom Spina: Yeah.
 
-[00:03:47] Adam: So it's whatever anyone needs.
-
-[00:03:54] Adam: You do a lot of that kind of work.
+[00:03:47] Adam: So it's whatever anyone needs. You do a lot of that kind of work.
 
 [00:03:54] Tom Spina: Right. Yeah. You know, sometimes it's creature work, doing like Cantina monsters for Star Wars commercials and things like that.
 
@@ -74,9 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:04:02] Adam: Yeah.
 
-[00:04:02] Tom Spina: Regal
-
-[00:04:02] Tom Spina: Robot is really focused, and that grew out of we made the Han Solo in Carbonite desk about 10 years ago that went crazy viral, and kind of told us like, hey, maybe you're on to something.
+[00:04:02] Tom Spina: Regal Robot is really focused, and that grew out of we made the Han Solo in Carbonite desk about 10 years ago that went crazy viral, and kind of told us like, hey, maybe you're on to something.
 
 [00:04:02] Adam: There's a market.
 
@@ -112,9 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:06:07] Adam: Got to order one of those.
 
-[00:06:07] Tom Spina: Yeah,
-
-[00:06:09] Tom Spina: but you know it's and thank you. But it's just cool, and I get excited just talking about it if it's not clear.
+[00:06:07] Tom Spina: Yeah, but you know it's and thank you. But it's just cool, and I get excited just talking about it if it's not clear.
 
 [00:06:16] Adam: So what? So since you're on the West Coast, what was the last thing you were working on in the shop?
 
@@ -160,9 +152,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:08:25] Tom Spina: Okay,
 
-[00:08:25] Adam: a restoration project.
-
-[00:08:27] Adam: of the largest proportion.
+[00:08:25] Adam: a restoration project. of the largest proportion.
 
 [00:08:27] Tom Spina: This isn't for you guys, but we'll yeah
 
@@ -184,9 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:08:57] Adam: Wow.
 
-[00:08:57] Tom Spina: Yeah,
-
-[00:08:57] Tom Spina: and this is
+[00:08:57] Tom Spina: Yeah, and this is
 
 [00:09:22] Adam: someone had just stored this completely out of the light.
 
@@ -220,9 +208,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:11:01] Norm: [unclear: so a lot / So it's like witness marks].
 
-[00:11:02] Tom Spina: of times, yeah, no, there there are a lot of times where we're that able to take it take advantage or whatever, capitalize on the knowing these people, where you can say like. Oh, you know what? Jon Berg worked on that, or oh, Rick Baker made this. Like, I'll call Rick up. So, this is not necessarily relating to the restoration, but when we restored Muftak, which is the big furry, four-eyed, as Rick called him, spider guy from Star Wars, with the little sausage snout, so we did that for Bob and Kathy. One of my favorite things I've ever worked on, obviously. I'm a little bit of a cantina nut, if people don't already know this, but I look at the cost the the costume, and it's that was in really rough shape. It was like on the verge of if we didn't do this when we did it, he could have just sort of crumbled apart because the foam inside of him it was just a poly foam, but it started to crumble, and the seams on the costume were starting to crumble because he was sort of being supported by the head weight, so the whole weight of the costume was on the neck, and yada yada yada
-
-[00:12:08] Tom Spina: Ah. But so we get the thing, and I look inside, and there's a shirt built into the costume as part of it.
+[00:11:02] Tom Spina: of times, yeah, no, there there are a lot of times where we're that able to take it take advantage or whatever, capitalize on the knowing these people, where you can say like. Oh, you know what? Jon Berg worked on that, or oh, Rick Baker made this. Like, I'll call Rick up. So, this is not necessarily relating to the restoration, but when we restored Muftak, which is the big furry, four-eyed, as Rick called him, spider guy from Star Wars, with the little sausage snout, so we did that for Bob and Kathy. One of my favorite things I've ever worked on, obviously. I'm a little bit of a cantina nut, if people don't already know this, but I look at the cost the the costume, and it's that was in really rough shape. It was like on the verge of if we didn't do this when we did it, he could have just sort of crumbled apart because the foam inside of him it was just a poly foam, but it started to crumble, and the seams on the costume were starting to crumble because he was sort of being supported by the head weight, so the whole weight of the costume was on the neck, and yada yada yada Ah. But so we get the thing, and I look inside, and there's a shirt built into the costume as part of it.
 
 [00:12:08] Adam: Yeah.
 
@@ -272,9 +258,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:14:12] Adam: Okay, so um, good. Oh, I finished it.
 
-[00:14:15] Tom Spina: Oh, did you?
-
-[00:14:16] Tom Spina: Yeah,
+[00:14:15] Tom Spina: Oh, did you? Yeah,
 
 [00:14:16] Adam: I finished the season yesterday.
 
@@ -296,9 +280,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:14:35] Tom Spina: Yeah.
 
-[00:14:36] Adam: I was. I loved it. Was Mike Elizalde who built the the Demogorgon for the first one?
-
-[00:14:36] Adam: Am I right?
+[00:14:36] Adam: I was. I loved it. Was Mike Elizalde who built the the Demogorgon for the first one? Am I right?
 
 [00:14:36] Tom Spina: Yeah. Yeah. Yeah.
 
@@ -370,43 +352,31 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:17:14] Adam: Yeah, absolutely. Like every aspect of the technical stuff was dead on the money. The animation was great.
 
-[00:17:21] Tom Spina: And I'm I'm keep hitting my phone because I I jotted things down because I was like
-
-[00:17:26] Tom Spina: oh, nice. But. Did you catch when the dart escapes the AV room?
+[00:17:21] Tom Spina: And I'm I'm keep hitting my phone because I I jotted things down because I was like oh, nice. But. Did you catch when the dart escapes the AV room?
 
 [00:17:26] Norm: Yes.
 
 [00:17:26] Tom Spina: There was a hint. I and maybe I'm just imagining this. I heard a little Gremlins theme, like almost a little like that. It was just a hint of it. I don't know if it was on purpose or what, but I was thinking Gremlins the whole time, where he's bringing him to to school to show the professor.
 
-[00:17:47] Norm: That sounds like.
-
-[00:17:47] Norm: and that feel like the '80s thing that they brought in.
+[00:17:47] Norm: That sounds like. and that feel like the '80s thing that they brought in.
 
 [00:17:47] Tom Spina: Oh, totally.
 
 [00:17:47] Norm: This this season.
 
-[00:17:51] Adam: So, which episode have you just watched? Which is episode five?
-
-[00:17:54] Adam: I watched it all at once. So, what what just happened?
+[00:17:51] Adam: So, which episode have you just watched? Which is episode five? I watched it all at once. So, what what just happened?
 
 [00:17:56] Tom Spina: I'm trying to remember now. So, oh, they just called. They they just sent the the the letters off to the newspapers.
 
-[00:17:56] Adam: Oh, okay.
-
-[00:18:06] Adam: So they so so right.
+[00:17:56] Adam: Oh, okay. So they so so right.
 
 [00:18:07] Tom Spina: And how great now? How great that was the reporter guy who does he not look like they could just plucked him out of Fletch and just dropped him down?
 
-[00:18:14] Adam: Right, exactly.
-
-[00:18:17] Adam: It's so perfect. That actor, you're totally right.
+[00:18:14] Adam: Right, exactly. It's so perfect. That actor, you're totally right.
 
 [00:18:19] Norm: He has he has the what is the best line he says to the two the two kids. When he when he talks about oh to know everything or like there's one thing he says
 
-[00:18:28] Adam: oh it's a burden seeing things as clearly as I do, right?
-
-[00:18:32] Adam: you've told me a lot of whoppers tonight but that's the first lie yeah that was great interaction so what's going on with Hop right now in in oh
+[00:18:28] Adam: oh it's a burden seeing things as clearly as I do, right? you've told me a lot of whoppers tonight but that's the first lie yeah that was great interaction so what's going on with Hop right now in in oh
 
 [00:18:40] Tom Spina: so he they just saved him from the right the tunnels
 
@@ -428,11 +398,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:19:37] Tom Spina: mine were in malls,
 
-[00:19:39] Adam: but yeah, no, mine was at the Premier Theater down in Tarrytown, New York, and there was a big arcade. And I think it was like my 12th birthday. Yeah, only a dick in middle school would have asked for this. It was my 12th birthday. I was like,
-
-[00:19:53] Adam: all
-
-[00:19:54] Adam: I want for my birthday is a roll of quarters and a trip to the arcade, which of course sounded like a dream come true. I spent it in like seven minutes flat, and then I got shitty with my mom, and my mom was like, " What kind of asshole are you?"
+[00:19:39] Adam: but yeah, no, mine was at the Premier Theater down in Tarrytown, New York, and there was a big arcade. And I think it was like my 12th birthday. Yeah, only a dick in middle school would have asked for this. It was my 12th birthday. I was like, all I want for my birthday is a roll of quarters and a trip to the arcade, which of course sounded like a dream come true. I spent it in like seven minutes flat, and then I got shitty with my mom, and my mom was like, " What kind of asshole are you?"
 
 [00:20:09] Norm: And the Dragon's Lair was exactly.
 
@@ -444,9 +410,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:20:16] Unknown speaker: Right,
 
-[00:20:22] Tom Spina: like I never
-
-[00:20:22] Tom Spina: figured out the gameplay on it.
+[00:20:22] Tom Spina: like I never figured out the gameplay on it.
 
 [00:20:23] Norm: Five minutes, right? Like the timing.
 
@@ -534,21 +498,15 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:22:51] Tom Spina: Yeah.
 
-[00:22:52] Norm: Yeah.
-
-[00:22:52] Norm: And they jump a year forward.
+[00:22:52] Norm: Yeah. And they jump a year forward.
 
 [00:22:52] Tom Spina: Right.
 
 [00:22:52] Norm: Yeah. 1984. It opens weird. It opens. It opens in the city. It takes it out of. It's weird to see scenes.
 
-[00:23:01] Tom Spina: That's true. Yeah. And do we do we come back to that? Because I'm
+[00:23:01] Tom Spina: That's true. Yeah. And do we do we come back to that? Because I'm starting to feel like we're like, okay, we set up eight, and I'm just waiting, and then it's okay. I'm still waiting.
 
-[00:23:04] Tom Spina: starting to feel like we're like, okay, we set up eight, and I'm just waiting, and then it's okay. I'm still waiting.
-
-[00:23:04] Norm: We do, we do, we do.
-
-[00:23:09] Norm: You will see it.
+[00:23:04] Norm: We do, we do, we do. You will see it.
 
 [00:23:09] Tom Spina: Okay. Cool.
 
@@ -568,9 +526,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:23:24] Tom Spina: Yeah.
 
-[00:23:24] Adam: I heard them say it's like a black hole, and I thought, huh, was black hole in common parlance back then? Right. As that means someplace that all and it turns out yes,
-
-[00:23:45] Adam: we've
+[00:23:24] Adam: I heard them say it's like a black hole, and I thought, huh, was black hole in common parlance back then? Right. As that means someplace that all and it turns out yes, we've
 
 [00:23:24] Tom Spina: Well, you had the movie The Black Hole.
 
@@ -586,9 +542,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:24:10] Norm: That's tough to do because as a writer, I'm sure they're. It's not like they had a list of things they wanted to use,
 
-[00:24:10] Adam: No,
-
-[00:24:16] Adam: but you have to have someone in the room who goes, " Wait a minute, is that how that would have been said?"
+[00:24:10] Adam: No, but you have to have someone in the room who goes, " Wait a minute, is that how that would have been said?"
 
 [00:24:20] Tom Spina: Well, and I. I definitely the one that caught me was the KFC one, and I'm just thinking. And this is just my family. Yeah, it was always Kentucky Fried Chicken. It wasn't KFC until they started to, you know, try and disguise the fact that it wasn't, you know, totally healthy.
 
@@ -618,9 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:26:39] Norm: Oh, in a drink.
 
-[00:26:39] Adam: Uh huh.
-
-[00:26:42] Adam: So imagine a drink that's spicy.
+[00:26:39] Adam: Uh huh. So imagine a drink that's spicy.
 
 [00:26:44] Tom Spina: Right.
 
@@ -654,9 +606,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:27:32] Adam: Who was that?
 
-[00:27:32] Norm: Harold Ramis.
-
-[00:27:33] Norm: Harold Ramis.
+[00:27:32] Norm: Harold Ramis. Harold Ramis.
 
 [00:27:35] Adam: Harold Ramis. Sorry, right, right,
 
@@ -684,9 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:27:55] Adam: So good.
 
-[00:27:55] Norm: Yeah.
-
-[00:27:56] Norm: So good. Providing that tech support.
+[00:27:55] Norm: Yeah. So good. Providing that tech support.
 
 [00:27:56] Tom Spina: No, he was.
 
@@ -714,9 +662,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:28:16] Adam: I'm I'm losing it. Nope, it's gone.
 
-[00:28:16] Norm: Sorry,
-
-[00:28:16] Norm: eleven, Mike.
+[00:28:16] Norm: Sorry, eleven, Mike.
 
 [00:28:19] Tom Spina: Yeah. No, I could have used more eleven in the first five episodes. That's the. I mean, and I don't know where this goes.
 
@@ -764,9 +710,7 @@ Episode URL: https://www.youtube.com/watch?v=eorK2QKIG38
 
 [00:29:47] Tom Spina: Yeah,
 
-[00:29:47] Adam: tell me everything that's great about D and D in two minutes flat. Tell me everything that's formative about it, and they really did. Yeah, they nailed. I felt like jumping to the arcade
-
-[00:30:11] Adam: and the the social aspect of the arcade and the games and the who's got the high scores.
+[00:29:47] Adam: tell me everything that's great about D and D in two minutes flat. Tell me everything that's formative about it, and they really did. Yeah, they nailed. I felt like jumping to the arcade and the the social aspect of the arcade and the games and the who's got the high scores.
 
 [00:30:16] Tom Spina: The other shared experience of the time,
 

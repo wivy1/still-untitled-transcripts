@@ -186,9 +186,7 @@ Episode URL: https://www.youtube.com/watch?v=fwM1wYjqiDw
 
 [00:05:24] Adam: no, yeah, I, I, Lone Star,
 
-[00:05:24] Will: Lone Star,
-
-[00:05:24] Will: that's it.
+[00:05:24] Will: Lone Star, that's it.
 
 [00:05:24] Adam: Lone Star,
 
@@ -360,9 +358,7 @@ Episode URL: https://www.youtube.com/watch?v=fwM1wYjqiDw
 
 [00:09:31] Will: It's it's breathtaking. I mean, both both the diagrams and sketches and the plans, as well as the actual
 
-[00:09:31] Norm: Not quite.
-
-[00:09:31] Norm: So as you accumulate,
+[00:09:31] Norm: Not quite. So as you accumulate,
 
 [00:09:31] Will: finishing, yeah,
 
@@ -408,9 +404,7 @@ Episode URL: https://www.youtube.com/watch?v=fwM1wYjqiDw
 
 [00:11:50] Will: Yes.
 
-[00:11:50] Adam: Along with this, because we can't just do this and show nothing.
-
-[00:11:50] Adam: Uh, I, I think.
+[00:11:50] Adam: Along with this, because we can't just do this and show nothing. Uh, I, I think.
 
 [00:12:29] Will: Why don't we show the—
 

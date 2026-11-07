@@ -96,9 +96,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:01:53] Norm: Maybe TROS. TROS. The Rise of Skywalker.
 
-[00:01:56] Adam: TROS. It rises,
-
-[00:01:59] Adam: So we just got back from it.
+[00:01:56] Adam: TROS. It rises, So we just got back from it.
 
 [00:02:01] Will: We literally went to [unclear: a talk / a hot / an all-night] show.
 
@@ -160,9 +158,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:03:21] Norm: Yeah. So let's go like five minutes.
 
-[00:03:23] Adam: Okay. Okay. We're going to
-
-[00:03:24] Adam: start spoiler free, and then we'll get spoilerific.
+[00:03:23] Adam: Okay. Okay. We're going to start spoiler free, and then we'll get spoilerific.
 
 [00:03:27] Norm: Yes. Just in case there are some of you out there who have not seen it, and very reasonable, a lot of people are waiting for Christmas.
 
@@ -196,9 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:05:21] Norm: True.
 
-[00:05:10] Adam: and how well that felt. All the performances were stunning. The music is actually some of the—it's like
-
-[00:05:28] Adam: maybe my favorite Star Wars score ever.
+[00:05:10] Adam: and how well that felt. All the performances were stunning. The music is actually some of the—it's like maybe my favorite Star Wars score ever.
 
 [00:05:30] Will: It it wraps up all of the the best themes from all of the Star Wars movies. Like there's there's Duel of the Fates, there's Leia's theme, there's Luke's theme, there's the Imperial March. It's it's A plus. Like John if John Williams is
 
@@ -332,9 +326,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:11:12] Will: Somebody's making a podcast about that. In in in each of the two predecessors to this film, Force Awakens and Rise and Last Jedi, like I I missed the spectacle. You know, the Return of the Jedi spectacle, the big space battle, the attack of the sorry, the Revenge of the Sith spectacle of the that that cold open in Revenge of the Sith. This is my favorite Star Wars space battle.
 
-[00:11:30] Adam: Is it really?
-
-[00:11:30] Adam: I find it so overwhelming. I can't stand it.
+[00:11:30] Adam: Is it really? I find it so overwhelming. I can't stand it.
 
 [00:11:33] Will: Oh, so you loved this one then?
 
@@ -354,9 +346,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:11:52] Norm: Let's go into spoilers.
 
-[00:11:54] Adam: Spoilers.
-
-[00:11:55] Adam: Okay, Darth Vader is Luke's father. Get that motherfucker! Sorry.
+[00:11:54] Adam: Spoilers. Okay, Darth Vader is Luke's father. Get that motherfucker! Sorry.
 
 [00:12:00] Will: Whoa, wait. Do you know that Luke and Leia are brother and sister? It's awkward. So, okay, I there's really good characterizations all the way through, and then there's a couple of really massively unearned moments. I thought.
 
@@ -380,9 +370,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:13:06] Adam: aren't you a millennial?
 
-[00:13:06] Will: I am.
-
-[00:13:06] Will: Norm is a self-evident millennial.
+[00:13:06] Will: I am. Norm is a self-evident millennial.
 
 [00:13:11] Norm: Yeah, that was a little cheese.
 
@@ -504,9 +492,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:16:56] Adam: Almost nobody died. To be honest, that they might have had more power had they decided to really kill someone much more central.
 
-[00:17:03] Norm: Exactly,
-
-[00:17:05] Norm: and I mean, why not? It's supposed to be the end of the story here.
+[00:17:03] Norm: Exactly, and I mean, why not? It's supposed to be the end of the story here.
 
 [00:17:07] Will: They resurrected C3— They killed C-3PO and then resurrected C-3PO.
 
@@ -586,9 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:20:13] Norm: They, you know, how people were up in arms after the last Jedi because of the the newfound force powers, right? Like, how can Luke force project himself across the galaxy on another planet? Like, it's fiction. It's fantasy, folks. It felt like Disney did this thing where they introduced, and we're gonna have minor Mandalorian spoilers here in the penultimate episode of the season of Mandalorian, episode seven, the most recent one, where Baby Yoda gives life force to revive Carl Weathers' character, and that was a way to ease new viewers into like
 
-[00:20:52] Will: I was totally ready for that.
-
-[00:20:53] Will: I was like, oh, this is a new thing for the force.
+[00:20:52] Will: I was totally ready for that. I was like, oh, this is a new thing for the force.
 
 [00:20:53] Norm: Yes, exactly. And they they did this little bit of kind of this world building synergy without having like exact connections.
 
@@ -616,11 +600,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:22:14] Will: They're human. It makes them human.
 
-[00:22:16] Adam: Yeah, and I I wanted some of that because this movie felt like a pod race in in the just
-
-[00:22:23] Adam: unending
-
-[00:22:23] Adam: stream of relentless
+[00:22:16] Adam: Yeah, and I I wanted some of that because this movie felt like a pod race in in the just unending stream of relentless
 
 [00:22:25] Norm: barrels along.
 
@@ -680,17 +660,11 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:24:04] Norm: Quill, quill, quill, quill. Oh, the silence.
 
-[00:24:07] Will: Wait, is he the? Is he the Whills?
-
-[00:24:08] Will: He's Nick Nolte.
-
-[00:24:07] Will: Is he the things that the microscopic universe that was going to be the original third trilogy?
+[00:24:07] Will: Wait, is he the? Is he the Whills? He's Nick Nolte. Is he the things that the microscopic universe that was going to be the original third trilogy?
 
 [00:24:17] Norm: No, no,
 
-[00:24:18] Adam: stop it! No, stop it! Sorry, I will. I will make this thing work,
-
-[00:24:21] Adam: and I will pierce you. Don't, don't. It's Whills, Whills.
+[00:24:18] Adam: stop it! No, stop it! Sorry, I will. I will make this thing work, and I will pierce you. Don't, don't. It's Whills, Whills.
 
 [00:24:27] Will: Oh, oh, okay,
 
@@ -720,9 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:25:11] Norm: No thank you. No thank you.
 
-[00:25:12] Adam: No thank you. No thank you.
-
-[00:25:12] Adam: I thought that was hilarious.
+[00:25:12] Adam: No thank you. No thank you. I thought that was hilarious.
 
 [00:25:14] Will: Did he?
 
@@ -812,9 +784,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:27:48] Adam: I mean Chewbacca even got his medal of Yavin finally.
 
-[00:27:50] Will: I cried at that. I had legit tears when Chewbacca got the medal. I was like, this is the shittiest fan servicey thing ever, and I'm like,
-
-[00:27:56] Will: yes, he got the medal.
+[00:27:50] Will: I cried at that. I had legit tears when Chewbacca got the medal. I was like, this is the shittiest fan servicey thing ever, and I'm like, yes, he got the medal.
 
 [00:27:59] Norm: Wedge Wedge Antilles. Popped in at the end.
 
@@ -914,9 +884,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:30:09] Norm: Because it's universal acclaim; it deserves it. He deserves all the praise for that. And I hope that Disney and Lucasfilm take a look at his work, take a step back after, of course, all this * Rise of Skywalker* stuff, and say, " I think people are going to get really excited about Rian Johnson taking something and doing something different, and the expectation is not being it being a * Star Wars* Episode X
 
-[00:30:33] Will: Yeah, yeah.
-
-[00:30:34] Will: movie." Well, I mean, it's—I mean, look, movie executives should pay less attention to YouTube and more, more to the work, right? Like, look at look at the work.
+[00:30:33] Will: Yeah, yeah. movie." Well, I mean, it's—I mean, look, movie executives should pay less attention to YouTube and more, more to the work, right? Like, look at look at the work.
 
 [00:30:45] Adam: I am, um, look at the work and look at specifically the prop that I wanted to make from this movie, the Sith Wayfinder.
 
@@ -928,9 +896,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:30:54] Adam: is really good.
 
-[00:30:54] Norm: Very cool prop.
-
-[00:30:55] Norm: They only made two of them, Adam.
+[00:30:54] Norm: Very cool prop. They only made two of them, Adam.
 
 [00:30:57] Adam: I can make another. There is another.
 
@@ -942,9 +908,7 @@ Episode URL: https://www.youtube.com/watch?v=CFj5c3r94-k
 
 [00:31:09] Norm: light control, yes, exactly. Yeah, and the flickering, yeah, yeah, yeah.
 
-[00:31:12] Adam: Hmm.
-
-[00:31:13] Adam: We can print clear now. We can 3D print in clear resins now. It's very exciting.
+[00:31:12] Adam: Hmm. We can print clear now. We can 3D print in clear resins now. It's very exciting.
 
 [00:31:17] Will: Yeah.
 

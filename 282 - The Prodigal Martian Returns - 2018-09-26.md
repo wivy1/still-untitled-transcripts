@@ -88,9 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:01:36] Norm: so the reason we were there, yeah, we were hanging out with our old friend Frank Ippolito, and this
 
-[00:01:40] Adam: Mm-hmm.
-
-[00:01:41] Adam: It was time after three years to finally start
+[00:01:40] Adam: Mm-hmm. It was time after three years to finally start
 
 [00:01:44] Will: That was three years ago?
 
@@ -112,19 +110,13 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:02:40] Norm: There are hundreds of processes and steps to get to a suit,
 
-[00:02:44] Adam: and he's been chipping away at it. A lot of the suit is made out of spray polyurea, a spray truck bed liner.
-
-[00:02:50] Adam: And.
-
-[00:02:50] Adam: There's actually turnkey services that now do this in L.A. So You know, Frank's shop—they—they've really done the bulk of all the work on this. They—they sculpted some of the parts. They had them mold. They had open molds made and had them sprayed. So most of the pieces are there. It's now time for us to just start sanding and finishing and mechanizing and painting.
+[00:02:44] Adam: and he's been chipping away at it. A lot of the suit is made out of spray polyurea, a spray truck bed liner. And. There's actually turnkey services that now do this in L.A. So You know, Frank's shop—they—they've really done the bulk of all the work on this. They—they sculpted some of the parts. They had them mold. They had open molds made and had them sprayed. So most of the pieces are there. It's now time for us to just start sanding and finishing and mechanizing and painting.
 
 [00:03:13] Norm: Yeah. It's like this is no easy feat, and I think when we started three years ago, there was a thinking of well, we could approach this as what cost from the fan perspective and what cosplayers would do, and maybe make some stuff out of foam. But I think Frank wanted to because he was still scaling up and building out his business. He wanted to really use this as an exercise to do it exactly as FBFX would have done it with you know very close reference. We had access to a suit.
 
 [00:03:45] Adam: FBFX friends of Tested who actually built the Martian suit. They build all the spacesuits for all of Ridley Scott's films for the past few years.
 
-[00:03:51] Will: Did
-
-[00:03:51] Will: they do the Interstellar suits too, or was that
+[00:03:51] Will: Did they do the Interstellar suits too, or was that
 
 [00:03:53] Adam: No.
 
@@ -242,9 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:07:58] Norm: Oh, no.
 
-[00:07:58] Adam: Yeah, all six kids
-
-[00:07:58] Adam: , all six MythBusters were there, and we did an appearance on stage and took questions from the audience, moderated by Jen Schachter of We the Builders and friend of Tested. She's fantastic and did a great job. The best part about it was that all the audience questions were for the kids.
+[00:07:58] Adam: Yeah, all six kids , all six MythBusters were there, and we did an appearance on stage and took questions from the audience, moderated by Jen Schachter of We the Builders and friend of Tested. She's fantastic and did a great job. The best part about it was that all the audience questions were for the kids.
 
 [00:08:18] Norm: Oh, that's great!
 
@@ -308,9 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:11:30] Adam: Ah.
 
-[00:11:30] Will: But it was 20
-
-[00:11:30] Will: different people's worth of stuff. So there was like it was it just felt really organic and neat, and it's the kind of place I could have spent three or four hours just walking around and asking, " Hey, what's this? Hey, what's this?
+[00:11:30] Will: But it was 20 different people's worth of stuff. So there was like it was it just felt really organic and neat, and it's the kind of place I could have spent three or four hours just walking around and asking, " Hey, what's this? Hey, what's this?
 
 [00:11:41] Adam: Fantastic!
 
@@ -384,19 +372,13 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:14:39] Will: So Gina and I, I tend to be a door side, and Gina tends to be a window side.
 
-[00:14:42] Adam: Yeah,
-
-[00:14:43] Adam: I tend to be a window side.
+[00:14:42] Adam: Yeah, I tend to be a window side.
 
 [00:14:45] Will: Um, because she likes to have the window open, likes a little bit more air than I do. But she hurt her ankle a few weeks ago and has had like. Hasn't been able to keep it under the covers, and the side that it's on means that we've had to switch sides of the bed at home, which has been—it was really discomforting. Like we've lived in this house for 12 years, I've slept on the same side of the bed every night for 12 years. Yeah, it's real weird, man.
 
-[00:15:08] Adam: Yeah,
+[00:15:08] Adam: Yeah, that's a thing. That's so funny.
 
-[00:15:09] Adam: that's a thing. That's so funny.
-
-[00:15:10] Will: Yeah.
-
-[00:16:37] Will: So what's the plan for New York Comic Con? Where’s your segue for that, Chan.
+[00:15:10] Will: Yeah. So what's the plan for New York Comic Con? Where’s your segue for that, Chan.
 
 [00:16:41] Norm: No, that got nothing.
 
@@ -408,9 +390,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:16:54] Will: Oh man, that's a fun school.
 
-[00:16:54] Adam: On Thursday, on Thursday, and then Friday.
-
-[00:16:57] Adam: What's that?
+[00:16:54] Adam: On Thursday, on Thursday, and then Friday. What's that?
 
 [00:16:58] Norm: I wish it was mimes.
 
@@ -420,9 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:17:12] Norm: Tuesday morning, everyone.
 
-[00:17:13] Adam: Um. So yeah, and then I'm in LA. We're my wife and I are having a fundraiser for our Children's Trust on Saturday. Uh, our Children's Trust.
-
-[00:17:22] Adam: Do you know about this group?
+[00:17:13] Adam: Um. So yeah, and then I'm in LA. We're my wife and I are having a fundraiser for our Children's Trust on Saturday. Uh, our Children's Trust. Do you know about this group?
 
 [00:17:23] Norm: No.
 
@@ -436,9 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:17:41] Adam: Well, I I'll send you the download the the the donate link, and we can put it in line after this.
 
-[00:17:47] Norm: Sure,
-
-[00:17:47] Norm: Yeah, absolutely.
+[00:17:47] Norm: Sure, Yeah, absolutely.
 
 [00:17:47] Adam: Um, we we've been supporting them for a long time. We've been we've been helping them out, and now we're throwing a fundraiser for them. So a couple of the plaintiffs will come. So I'm really excited about it.
 
@@ -534,9 +510,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:23:33] Adam: I sand until, yeah.
 
-[00:23:35] Will: Okay.
-
-[00:23:36] Will: I was going to say, I wondered how much of I was curious how much of the changes is in your head and your approach, and how much the because the technology of 3D printing has also advanced dramatically in the last five or six years.
+[00:23:35] Will: Okay. I was going to say, I wondered how much of I was curious how much of the changes is in your head and your approach, and how much the because the technology of 3D printing has also advanced dramatically in the last five or six years.
 
 [00:23:46] Adam: It has. No, it's mostly in my thinking about what what I want to try and build out of here.
 
@@ -592,15 +566,9 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:25:28] Norm: Adam, let me let me recommend you watch Michael Fassbender's Assassin's Creed film.
 
-[00:25:33] Adam: I tried to watch that.
+[00:25:33] Adam: I tried to watch that. I tried to watch it. I got about 15 minutes in and it took it.
 
-[00:25:35] Adam: I tried to watch it. I got about
-
-[00:25:37] Adam: 15 minutes in and it took it.
-
-[00:25:38] Norm: or Jake Gyllenhaal's
-
-[00:25:39] Norm: Prince of Persia.
+[00:25:38] Norm: or Jake Gyllenhaal's Prince of Persia.
 
 [00:25:41] Will: That one, that that
 
@@ -728,9 +696,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:28:21] Will: But but yeah, like like are these the Civil War reenactors of the Predator world that we see? Are they going out and living the way things used to be? Like, but like Steve in accounting is like, man, look look Shane, I don't want to see your.
 
-[00:28:32] Adam: I think you actually—
-
-[00:28:33] Adam: The Predator is the alt right of the Predator planet?
+[00:28:32] Adam: I think you actually— The Predator is the alt right of the Predator planet?
 
 [00:28:35] Will: Right, that's my question.
 
@@ -754,9 +720,7 @@ Episode URL: https://www.youtube.com/watch?v=-6I7nx94cgo
 
 [00:29:09] Adam: It was that that those effects, the the invisibility effect specifically, were done by a company called R. Greenberg Associates out of New York, a really high end special effects shop in the '80s. You can read all about them in all sorts of different issues of Cinefex. So if you remember, the effect had this kind of lensing from the outer steps, and and the so they had the actor wear a red predator suit for high contrast to the green forest behind him, and then they optically printed each layer and rotoscoped in each of those layers by hand. It was so painstakingly meticulous. This is the kind of thing you could build a filter for now and just do.
 
-[00:29:48] Will: Yeah,
-
-[00:29:48] Will: It takes like 10 seconds.
+[00:29:48] Will: Yeah, It takes like 10 seconds.
 
 [00:29:48] Adam: but back then it was insanely intensive.
 

@@ -102,9 +102,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:03:14] Adam: Ah, right, right. Or Lao Che's Diamond from Temple of Doom.
 
-[00:03:18] Will: Exactly. She hasn't seen. She's six. I'm not showing her Temple of Doom.
-
-[00:03:21] Will: Are you out of your mind.
+[00:03:18] Will: Exactly. She hasn't seen. She's six. I'm not showing her Temple of Doom. Are you out of your mind.
 
 [00:03:21] Adam: Hey, sweetie, I'm going to show you someone plunging their hand into someone's heart.
 
@@ -120,9 +118,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:03:32] Norm: It exists.
 
-[00:03:33] Adam: It exists.
-
-[00:03:34] Adam: I'm glad it's not considered part of the canon
+[00:03:33] Adam: It exists. I'm glad it's not considered part of the canon
 
 [00:03:36] Norm: In. Head canon. I appreciate all the employees of those places that work on those days.
 
@@ -140,9 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:04:12] Norm: Feels like there needs to be some type of zine that is shared of the list of places and holidays and events and public events that are aligned in which you get to be at popular and interesting places with the fewest amount of people possibly in San Francisco during Burning Man.
 
-[00:04:26] Adam: Right, right, oh yeah.
-
-[00:04:28] Adam: And actually, to be clear, San Francisco during how during Thanksgiving this year was about as empty as I have ever seen San Francisco.
+[00:04:26] Adam: Right, right, oh yeah. And actually, to be clear, San Francisco during how during Thanksgiving this year was about as empty as I have ever seen San Francisco.
 
 [00:04:35] Will: Think about the holidays that you went home to see your parents on when you were like 26. And San Francisco will empty out.
 
@@ -180,9 +174,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:05:37] Norm: So
 
-[00:05:37] Will: I quite liked it.
-
-[00:05:38] Will: I thought it was really good.
+[00:05:37] Will: I quite liked it. I thought it was really good.
 
 [00:05:38] Norm: It stars Samara Weaving, who I believe is Hugo Weaving's niece. I want to say, and she is also like Hugo Weaving from I think Australia. They're basically she and Margot Robbie are cut from the same cloth.
 
@@ -360,9 +352,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:11:20] Will: Okay, sorry.
 
-[00:11:20] Norm: Yes, it's going to come to me.
-
-[00:11:21] Norm: I thought that was exactly five five minutes from now. I would say.
+[00:11:20] Norm: Yes, it's going to come to me. I thought that was exactly five five minutes from now. I would say.
 
 [00:11:24] Will: Five minutes after we start recording,
 
@@ -404,9 +394,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:12:44] Norm: but the balance is because of the hive mind that we exist in now
 
-[00:12:48] Adam: it's very difficult to hide. It's very difficult. I mean, it's it's basically like I post a picture of some scraps on my floor, and someone's like, " Oh, well, clearly you've made the blah blah blah armor from this movie."
-
-[00:12:58] Adam: because I noticed this shape.
+[00:12:48] Adam: it's very difficult to hide. It's very difficult. I mean, it's it's basically like I post a picture of some scraps on my floor, and someone's like, " Oh, well, clearly you've made the blah blah blah armor from this movie." because I noticed this shape.
 
 [00:12:58] Norm: Exactly, It takes the one person to guess, and that's it. And everyone's like, " That's right, that's right." Now we will jump on this theory, and and the surprise will be. So there is something to stepping away from the conversation and just enjoying the episodes.
 
@@ -468,9 +456,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:15:52] Norm: These things are all we have conversations off off podcast about this. We shall. We shall. This past weekend, I was also at the Dickens Fair.
 
-[00:17:08] Adam: Oh yes, I saw baby's first Dickens Fair.
-
-[00:17:08] Adam: [Coach — unclear].
+[00:17:08] Adam: Oh yes, I saw baby's first Dickens Fair. [Coach — unclear].
 
 [00:17:10] Norm: Yes,
 
@@ -660,9 +646,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:22:13] Adam: Yes, Lady Trieu is truly an incredible performance, and she like, she could be the villain of a Wachowski film. She's like super compelling.
 
-[00:22:24] Will: She's inscrutable.
-
-[00:22:25] Will: She could be inscrutable and warm.
+[00:22:24] Will: She's inscrutable. She could be inscrutable and warm.
 
 [00:22:27] Adam: Yep, yep, yep. She has a very mannerist and yet warm way of like she's just one of the most compelling actors in the show.
 
@@ -674,9 +658,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:22:37] Adam: she could be a phenomenal villain or a phenomenal hero.
 
-[00:22:38] Will: I don't think she's the villain.
-
-[00:22:39] Will: Yeah, I'm. I'm not sure. Yeah, I don't know. I mean, I know. I know that there are some people that are definitely villains.
+[00:22:38] Will: I don't think she's the villain. Yeah, I'm. I'm not sure. Yeah, I don't know. I mean, I know. I know that there are some people that are definitely villains.
 
 [00:22:45] Adam: Um, I so at the there's a new episode that aired last night.
 
@@ -706,11 +688,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:23:45] Norm: And they talk around it, intentionally.
 
-[00:23:46] Adam: right?
-
-[00:23:47] Adam: We still, we still don't know. Do we know?
-
-[00:23:49] Adam: Like Angela's story of her leaving Vietnam happens much younger than she supposedly left Vietnam with Cal.
+[00:23:46] Adam: right? We still, we still don't know. Do we know? Like Angela's story of her leaving Vietnam happens much younger than she supposedly left Vietnam with Cal.
 
 [00:23:55] Will: Yeah,
 
@@ -868,9 +846,7 @@ Episode URL: https://www.youtube.com/watch?v=PijuTb8EnA0
 
 [00:29:33] Norm: There's some good stuff.
 
-[00:29:33] Will: I'm going to see Knives Out this week. I'm going to commit to seeing Knives Out this week.
-
-[00:29:36] Will: Because I haven't seen it yet. I haven't seen it in theaters.
+[00:29:33] Will: I'm going to see Knives Out this week. I'm going to commit to seeing Knives Out this week. Because I haven't seen it yet. I haven't seen it in theaters.
 
 [00:29:37] Norm: Yeah, Star Wars is out next week.
 

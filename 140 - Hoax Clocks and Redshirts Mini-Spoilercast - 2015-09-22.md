@@ -116,9 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:04:42] Adam: Yeah,
 
-[00:04:42] Norm: That's nice.
-
-[00:04:42] Norm: made specifically for your your car model.
+[00:04:42] Norm: That's nice. made specifically for your your car model.
 
 [00:04:45] Adam: No they they make these for they make there is there is probably a dozen different makers of these kind of tents. I got this one; it's one of the lightest ones made, and also one of the lowest. Like it's only seven inches tall total.
 
@@ -236,9 +234,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:08:37] Norm: Tons of kits for that.
 
-[00:08:37] Adam: Exactly.
-
-[00:08:39] Adam: And he brought it to school. He was apparently telling everyone, " I'm making a clock. I'm making a clock." And he brought it to school, and he showed it to his teachers. And the response, I think, what I heard was one of the teachers, the science teacher,
+[00:08:37] Adam: Exactly. And he brought it to school. He was apparently telling everyone, " I'm making a clock. I'm making a clock." And he brought it to school, and he showed it to his teachers. And the response, I think, what I heard was one of the teachers, the science teacher,
 
 [00:08:50] Will: his engineering teacher,
 
@@ -256,9 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:09:19] Will: So that I mean, I I can't imagine what kind of amazing bastard you have to be to look at this scrawny 14-year-old nerd
 
-[00:09:28] Norm: wearing a NASA wearing a NASA shirt.
-
-[00:09:31] Norm: Yes.
+[00:09:28] Norm: wearing a NASA wearing a NASA shirt. Yes.
 
 [00:09:32] Adam: Okay, Ahmed, if you are listening, scrawny here is a marker for how harmless you totally are. We were all scrawny.
 
@@ -272,9 +266,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:09:54] Adam: You must have seemed like a particularly dim adult.
 
-[00:09:56] Will: I had I had the I had the like the hole underneath your ribcage
-
-[00:10:04] Will: because there was just nothing there.
+[00:09:56] Will: I had I had the I had the like the hole underneath your ribcage because there was just nothing there.
 
 [00:10:05] Adam: Right. The nanobots hadn't finished
 
@@ -348,9 +340,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:13:10] Adam: I've known many people who have—I've known many people of color who said they trust Southerners better, more because at least they're honest about the racism. when it exists
 
-[00:13:19] Will: predictable and yeah, the the rural rural
-
-[00:13:24] Will: poor, scary conservative. Those are the three markers,
+[00:13:19] Will: predictable and yeah, the the rural rural poor, scary conservative. Those are the three markers,
 
 [00:13:28] Adam: right, right, right. The MIT student who was arrested, I think, at Logan Airport for wearing the shirt with blinky LEDs wired into it.
 
@@ -488,9 +478,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:17:54] Adam: So Scalzi is a is a renowned science fiction author, New York Times bestseller. He's written books like Old Man's War and The Android's Dream.
 
-[00:18:12] Will: Agent to the Stars.
-
-[00:18:12] Will: which is also great.
+[00:18:12] Will: Agent to the Stars. which is also great.
 
 [00:18:13] Adam: Agent to the Stars, which I still haven't read,
 
@@ -530,9 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:20:01] Will: he worked on Stargate Universe, right?
 
-[00:20:01] Adam: He actually says it in the
-
-[00:20:04] Adam: He says, This is not about Stargate Universe.
+[00:20:01] Adam: He actually says it in the He says, This is not about Stargate Universe.
 
 [00:20:06] Will: This is I'm not, and we'll explain why in a minute. Well,
 
@@ -628,9 +614,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:23:32] Adam: So that show is in one hour spurts, and occasionally for an hour at a time, the universe of Star Trek gets affected, and everyone says things they don't believe, and things happen that are totally crazy
 
-[00:23:32] Norm: Memories pop in.
-
-[00:24:00] Norm: yeah, and the rules change. They don't know why they behave that way, and then everything goes back to normal,
+[00:23:32] Norm: Memories pop in. yeah, and the rules change. They don't know why they behave that way, and then everything goes back to normal,
 
 [00:24:00] Will: yeah,
 
@@ -706,9 +690,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:26:13] Adam: right?
 
-[00:26:13] Will: Yeah.
-
-[00:26:13] Will: And they go back to the place that they met. That they were on Earth in the future in the fictional future.
+[00:26:13] Will: Yeah. And they go back to the place that they met. That they were on Earth in the future in the fictional future.
 
 [00:26:24] Adam: Yes,
 
@@ -800,9 +782,7 @@ Episode URL: https://www.youtube.com/watch?v=iAvT6iX88-g
 
 [00:30:20] Adam: Yeah, I just, I, I just watched it a couple of years ago with Julia, and it's it's not quite.
 
-[00:30:20] Norm: Oh.
-
-[00:30:32] Norm: So Jenkins, the character who ends up being the lead writer,
+[00:30:20] Norm: Oh. So Jenkins, the character who ends up being the lead writer,
 
 [00:30:32] Adam: yeah,
 

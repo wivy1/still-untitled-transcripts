@@ -16,9 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:00:10] Will: I wanted to do a woo!
 
-[00:00:11] Adam: Across the thing. A little
-
-[00:00:13] Adam: Doppler effect. We—it's a spoiler cast today.
+[00:00:11] Adam: Across the thing. A little Doppler effect. We—it's a spoiler cast today.
 
 [00:00:13] Will: Yeah.
 
@@ -70,9 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:01:12] Adam: Christopher Nolan’s Interstellar with Matthew McConaughey and a whole bunch of like people who aren't listed on the poster or in any of the trailers.
 
-[00:01:19] Norm: No.
-
-[00:01:19] Norm: A movie that originally was supposed to be directed by Steven Spielberg,
+[00:01:19] Norm: No. A movie that originally was supposed to be directed by Steven Spielberg,
 
 [00:01:19] Unknown speaker: Oh, really?
 
@@ -238,15 +234,9 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:06:20] Norm: And I love that he monologues because he's been isolation for 10 years. It was that's that's psychology.
 
-[00:06:24] Adam: Well, I don’t know.
+[00:06:24] Adam: Well, I don’t know. I I get what you're saying. It was hilarious. and I actually that that puts a layer on it, which gives me more respect for it because I see the point of why he would be doing that. I just but at that point I was not along for the ride. Sorry,
 
-[00:06:26] Adam: I I get what you're saying. It was hilarious. and I actually that that puts a layer on it, which gives me more respect for it because I see the point of why he would be doing that. I just but at that point I was not along for the ride. Sorry,
-
-[00:06:38] Will: It was so heavy handed though, and it was like the moment he's like don't don't fix the robot, whatever you do, don't touch the memory banks. You're like well that name is going to go on a murdering spree. The the the point that it broke was when Anne Hathaway makes the pitch to go to her boyfriend's planet, and it’s like I don’t
-
-[00:06:56] Will: have science behind trying to save the whole human race. I just like love.
-
-[00:07:00] Will: And you’re just like, well, fuck right off.
+[00:06:38] Will: It was so heavy handed though, and it was like the moment he's like don't don't fix the robot, whatever you do, don't touch the memory banks. You're like well that name is going to go on a murdering spree. The the the point that it broke was when Anne Hathaway makes the pitch to go to her boyfriend's planet, and it’s like I don’t have science behind trying to save the whole human race. I just like love. And you’re just like, well, fuck right off.
 
 [00:07:02] Adam: So let's just point out that that the plot holes start in the beginning of why is Earth dead and there's no more technology because of the blight.
 
@@ -264,9 +254,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:08:26] Will: No, no, that was the moment that I realized, oh, he's fucking with us. Nolan is fucking with us, the audience, based on our assumption of Hal.
 
-[00:08:32] Norm: Sure.
-
-[00:08:32] Norm: The very first time you see the robot, I mean, it's the girl screaming in reaction to a light in her face because when they've reached NASA and he's being McConaughey is being interrogated by the robot, and you think your brain doesn't realize it's a robot.
+[00:08:32] Norm: Sure. The very first time you see the robot, I mean, it's the girl screaming in reaction to a light in her face because when they've reached NASA and he's being McConaughey is being interrogated by the robot, and you think your brain doesn't realize it's a robot.
 
 [00:08:32] Will: You don’t know it’s a robot.
 
@@ -318,9 +306,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:10:19] Will: and and True Detective was unbelievable.
 
-[00:10:21] Norm: Yes.
-
-[00:10:21] Norm: So this movie suffers from I think True Detective being so good, and also Matthew McConaughey. Then after that, doing the Lincoln commercials, where he's all he's doing, driving a truck, and there are literally shots.
+[00:10:21] Norm: Yes. So this movie suffers from I think True Detective being so good, and also Matthew McConaughey. Then after that, doing the Lincoln commercials, where he's all he's doing, driving a truck, and there are literally shots.
 
 [00:10:32] Unknown speaker: When my day, we had a thing with an engineer.
 
@@ -442,9 +428,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:16:02] Norm: And where the the only two movies, the big two movies he's done after the Batman movies, Inception and Interstellar. And Inception, while I think much better movie than Interstellar, ended ambiguously, and I love that the spinning top at the end and wondering and making you look back at the movie. I think a lot of people didn't like that, and this movie has three extra endings that it doesn't need.
 
-[00:16:23] Will: No.
-
-[00:16:23] Will: So here's the thing. Well, they set up a sequel too, which.
+[00:16:23] Will: No. So here's the thing. Well, they set up a sequel too, which.
 
 [00:16:26] Norm: No, I don't think they set up a sequel.
 
@@ -544,23 +528,15 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:19:07] Norm: In IMAX 70 millimeters.
 
-[00:19:08] Adam: Preferably.
-
-[00:19:08] Adam: Totally. I mean, Really,
+[00:19:08] Adam: Preferably. Totally. I mean, Really,
 
 [00:19:08] Unknown speaker: If you can find it.
 
-[00:19:10] Adam: Yeah, you will not be disappointed. Is gorgeous.
-
-[00:19:13] Adam: The um,
-
-[00:19:15] Adam: but I was craving the plot holes of gravity.
+[00:19:10] Adam: Yeah, you will not be disappointed. Is gorgeous. The um, but I was craving the plot holes of gravity.
 
 [00:19:17] Will: So the other thing. The other thing that I thought is, I found the the solution that Matthew McConaughey sent the answers back to himself in time and touched Anne Hathaway's hands, much more satisfying than well, you know, future space god whatever. Yeah. Was like that's much better. than God made us do it.
 
-[00:19:17] Adam: I like that too.
-
-[00:19:34] Adam: But it's not that yeah, or it's not those super beings that we don't know about, as they refer to in Contact.
+[00:19:17] Adam: I like that too. But it's not that yeah, or it's not those super beings that we don't know about, as they refer to in Contact.
 
 [00:19:39] Will: Right.
 
@@ -650,9 +626,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:22:20] Norm: just you know, the survivors, the smartest people, to repopulate and like a generation ship.
 
-[00:22:25] Will: What if that really happened? What if we sent our best of the best of the best? But
-
-[00:22:25] Will: Away 30 years ago?
+[00:22:25] Will: What if that really happened? What if we sent our best of the best of the best? But Away 30 years ago?
 
 [00:22:27] Norm: it was all '60s. It was in the '60s, and
 
@@ -660,9 +634,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:22:32] Norm: And then, of course, because it's of that those politics and the mentality of the people living back in the '60s, the kids they raise, it's still that kind of mindset, and you have all the conflicts of that. But people in the comments like it would make the most sense to send just all all women. All
 
-[00:22:46] Will: Yeah.
-
-[00:22:47] Will: all women,
+[00:22:46] Will: Yeah. all women,
 
 [00:22:47] Norm: all women,
 
@@ -714,9 +686,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:23:55] Norm: Michael Caine and Anne Hathaway; those parallels are very important to the movie because the way they each choose to save their daughters was different.
 
-[00:24:03] Adam: I’m looking forward to hearing that.
-
-[00:24:03] Adam: One was
+[00:24:03] Adam: I’m looking forward to hearing that. One was
 
 [00:24:04] Norm: sending the daughter away and sacrificing himself,
 
@@ -740,9 +710,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:24:24] Norm: Did [unclear: Christian Horne] also read that?
 
-[00:24:25] Adam: Oh. So I I think it's worth seeing.
-
-[00:24:30] Adam: Here’s the thing: the plot holes really really annoyed me. The acting was on the largest part phenomenal, and it's visually gorgeous. But the plot holes drove me.
+[00:24:25] Adam: Oh. So I I think it's worth seeing. Here’s the thing: the plot holes really really annoyed me. The acting was on the largest part phenomenal, and it's visually gorgeous. But the plot holes drove me.
 
 [00:24:38] Will: Do you know what I? You know what I do now when plot holes bother me?
 
@@ -756,9 +724,7 @@ Episode URL: https://www.youtube.com/watch?v=PAVw7X3z4-M
 
 [00:24:55] Adam: He said the script said the kid’s going down. The kid’s going down.
 
-[00:24:58] Will: Right.
-
-[00:24:59] Will: At the end of the day, it's a movie.
+[00:24:58] Will: Right. At the end of the day, it's a movie.
 
 [00:25:01] Norm: They they wrote the script. It’s true. They could have written a better script.
 

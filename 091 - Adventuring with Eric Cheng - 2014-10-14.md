@@ -28,11 +28,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:00:32] Adam: They're not spying in their business.
 
-[00:00:36] Eric Cheng: We used one as a camera, right?
-
-[00:00:38] Eric Cheng: Yeah, exactly.
-
-[00:00:38] Eric Cheng: We hovered one, used it as a as a B, B camera.
+[00:00:36] Eric Cheng: We used one as a camera, right? Yeah, exactly. We hovered one, used it as a as a B, B camera.
 
 [00:00:40] Will: Uh huh. And flew it around basically over Treasure Island, which I think you can't fly on now, right? Is it in the no fly zone?
 
@@ -120,9 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:04:42] Eric Cheng: Really remote. So the go/no-go is basically we're going to go unless it's way too dangerous to go, which we can only discover by going. So there's a there's a checkpoint, it’s, you know, two hours in or something, and it's a police checkpoint, and you go there and you present your credentials, press press credentials, things like that, and that's the point at which you you get the go/no-go.
 
-[00:05:04] Norm: Wow.
-
-[00:05:05] Norm: And so you get there, you get the go, and it's this quadcopter you have in front of you that you take there.
+[00:05:04] Norm: Wow. And so you get there, you get the go, and it's this quadcopter you have in front of you that you take there.
 
 [00:05:11] Adam: Did you only bring one? You brought two.
 
@@ -198,9 +192,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:08:53] Eric Cheng: the guy who drove anyway, and um and so I I slept for three hours on the way there, and the rest was really just adrenaline fueled
 
-[00:08:53] Adam: Because it’s so crazy cool
-
-[00:09:05] Adam: what you're getting to do.
+[00:08:53] Adam: Because it’s so crazy cool what you're getting to do.
 
 [00:09:06] Eric Cheng: I mean, there's a Volcano there.
 
@@ -306,9 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:13:25] Norm: The three laws of drone botics.
 
-[00:13:25] Adam: Right. Go home.
-
-[00:13:28] Adam: Get home.
+[00:13:25] Adam: Right. Go home. Get home.
 
 [00:13:29] Eric Cheng: Go home. Yeah.
 
@@ -424,9 +414,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:17:24] Will: Okay, it's good that nobody’s
 
-[00:17:25] Eric Cheng: tested it.
-
-[00:17:25] Eric Cheng: It’s good to know.
+[00:17:25] Eric Cheng: tested it. It’s good to know.
 
 [00:17:26] Adam: I don’t want to test that. We've never tested it.
 
@@ -686,9 +674,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:24:21] Eric Cheng: Or put sensors on it and work with researchers.
 
-[00:24:22] Norm: Right.
-
-[00:24:22] Norm: A SpaceX launch or something?
+[00:24:22] Norm: Right. A SpaceX launch or something?
 
 [00:24:25] Eric Cheng: Oh well, those were done with with DJI S800s.
 
@@ -716,9 +702,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:25:41] Eric Cheng: Um,
 
-[00:25:42] Adam: but you know, Northern Lights showed up. Oh no. I mean, at the end of.
-
-[00:25:45] Adam: They always show up late to the party.
+[00:25:42] Adam: but you know, Northern Lights showed up. Oh no. I mean, at the end of. They always show up late to the party.
 
 [00:25:46] Eric Cheng: They always show up late.
 
@@ -750,9 +734,7 @@ Episode URL: https://www.youtube.com/watch?v=p0_9le2NnFo
 
 [00:26:23] Eric Cheng: After you know two hours of sleep, and I knew we had to then drive back to Reykjavik to fly out.
 
-[00:26:55] Adam: Wow.
-
-[00:26:57] Adam: Awesome, awesome!
+[00:26:55] Adam: Wow. Awesome, awesome!
 
 [00:26:59] Eric Cheng: It was awesome. It was really great.
 

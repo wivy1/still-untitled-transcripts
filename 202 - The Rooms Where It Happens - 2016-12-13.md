@@ -68,9 +68,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:03:09] Will: I couldn't tell you. I I watched Keanu this week.
 
-[00:03:09] Norm: Oh, was it good?
-
-[00:03:11] Norm: the Key and Peele movie?
+[00:03:09] Norm: Oh, was it good? the Key and Peele movie?
 
 [00:03:12] Will: The Key and Peele movie, yeah, is stupendously dumb in the best possible way.
 
@@ -100,9 +98,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:03:54] Adam: I don't know if he hosted it, but he played Luther behind Obama.
 
-[00:03:58] Norm: Oh, that's what it was.
-
-[00:03:59] Norm: Obama's anger counter. Yes, one of the best bits,
+[00:03:58] Norm: Oh, that's what it was. Obama's anger counter. Yes, one of the best bits,
 
 [00:04:02] Adam: 100
 
@@ -118,15 +114,11 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:04:09] Adam: he's really good. Because I like, I had to ask myself. And of course, we're going to draw attention to all segues to make sure that
 
-[00:04:19] Will: It's my podcast, it's how people know it's a podcast.
-
-[00:04:21] Will: Wow, Norm, that was a really awesome, super smooth segue. No one would have ever noticed that it was there.
+[00:04:19] Will: It's my podcast, it's how people know it's a podcast. Wow, Norm, that was a really awesome, super smooth segue. No one would have ever noticed that it was there.
 
 [00:04:26] Adam: I meant to ask you if, in your Kickstarter video, if you tried the oh hi, I didn't see you there.
 
-[00:04:31] Will: We did that. The first time we did that was when we moved into a new office before Whalerock bought us in 2010 or 2011. Yeah.
-
-[00:04:31] Will: And at that point, I thought at that point, I we did that and we watched the video and I was like, oh wait, probably a little late on this one.
+[00:04:31] Will: We did that. The first time we did that was when we moved into a new office before Whalerock bought us in 2010 or 2011. Yeah. And at that point, I thought at that point, I we did that and we watched the video and I was like, oh wait, probably a little late on this one.
 
 [00:04:31] Adam: Yeah.
 
@@ -408,11 +400,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:19:04] Will, then Adam, then Will: When was that made? Do you know? '30s. '30s?
 
-[00:19:07] Adam: Okay.
-
-[00:19:07] Adam: Yeah.
-
-[00:19:07] Adam: I tell you, Vampire is one of the creepiest, weirdest movies you've ever seen. With like, it's not vampires as. Fang bloodsuckers. It's more like as like within Eastern Europe, as Guillermo was telling me, the vampire isn't always necessarily a monster. It's a monster possessed by a foul spirit. So it might not possess a monster. It might just be a foul spirit. So there's all these shadow plays. So you see lots of things like a one-legged soldier sits down on a bench and then his shadow gets up and leaves, and it's all done in camera, and you realize it's all stage technique, but it's super eerie and amazing.
+[00:19:07] Adam: Okay. Yeah. I tell you, Vampire is one of the creepiest, weirdest movies you've ever seen. With like, it's not vampires as. Fang bloodsuckers. It's more like as like within Eastern Europe, as Guillermo was telling me, the vampire isn't always necessarily a monster. It's a monster possessed by a foul spirit. So it might not possess a monster. It might just be a foul spirit. So there's all these shadow plays. So you see lots of things like a one-legged soldier sits down on a bench and then his shadow gets up and leaves, and it's all done in camera, and you realize it's all stage technique, but it's super eerie and amazing.
 
 [00:19:07] Will: Yeah.
 
@@ -630,11 +618,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:28:46] Adam: I've got some moon boots for him. Cool. We can talk about that right here on the podcast.
 
-[00:28:52] Will: I know [unclear qualifier: “it’s not a secret” / “it’s good”]. Anything else?
-
-[00:28:57] Will: Does anyone else want to listen to our logistics?
-
-[00:28:58] Will: [unclear: Just I’m going to be gone from the 23rd to the now / Does someone want to be gone from the 23rd to the, no]. What What's your holiday? What are you staying here?
+[00:28:52] Will: I know [unclear qualifier: “it’s not a secret” / “it’s good”]. Anything else? Does anyone else want to listen to our logistics? [unclear: Just I’m going to be gone from the 23rd to the now / Does someone want to be gone from the 23rd to the, no]. What What's your holiday? What are you staying here?
 
 [00:29:03] Adam: I am going. My mom's coming into town. My 82 year old amazing mom, who's been on the show. She's coming to town. We are heading up to Portland to the in-laws. I'm really looking forward to it. Can't wait. Then we're coming back here and doing New Year's.
 
@@ -790,9 +774,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:33:54] Will: Why wouldn't he?
 
-[00:33:55] Adam: Of course. Yeah. And I sometimes come home and hug him. Yeah.
-
-[00:33:55] Adam: He's holding a single strand of Christmas lights. It's very festive.
+[00:33:55] Adam: Of course. Yeah. And I sometimes come home and hug him. Yeah. He's holding a single strand of Christmas lights. It's very festive.
 
 [00:34:03] Will: I um my my daughter's four, and she is. This is the first year she's really been super excited about. Like last year, she was kind of excited.
 
@@ -826,9 +808,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:34:43] Norm: on the site. In addition to not this most recent visit to the White House, but previously when you went to the White House South by South Lawn event, some videos from there are also going to be popping up on the site this week. So a lot of content throughout the rest of the year, and I think we're going to kick off next year with some exciting stuff from our trip from to Australia.
 
-[00:35:02] Adam: Yeah, we we we have so much.
-
-[00:35:02] Adam: in the hopper.
+[00:35:02] Adam: Yeah, we we we have so much. in the hopper.
 
 [00:35:04] Will: You had to save it for Australian summer when you shot here, right?
 
@@ -854,9 +834,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:35:29] Adam: No, it's it's a long story, but it takes a long time. It's a very complicated experiment to test.
 
-[00:35:38] Will: [unclear question/ending: “I assume you have to just go take a toilet” / “I assume you have to just go take a toilet instead of on the equator”].
-
-[00:35:38] Will: No, no, no, no.
+[00:35:38] Will: [unclear question/ending: “I assume you have to just go take a toilet” / “I assume you have to just go take a toilet instead of on the equator”]. No, no, no, no.
 
 [00:35:40] Adam: Toilets all actually guide the water in a specific direction.
 
@@ -884,9 +862,7 @@ Episode URL: https://www.youtube.com/watch?v=WODlxJdBW_U
 
 [00:36:19] Adam: have. All right, thank you guys.
 
-[00:36:21] Will: Bye guys.
-
-[00:36:21] Will: Thanks for listening to the podcast.
+[00:36:21] Will: Bye guys. Thanks for listening to the podcast.
 
 [00:36:23] Norm: We'll see you next week.
 

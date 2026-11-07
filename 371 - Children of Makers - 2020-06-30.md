@@ -154,9 +154,7 @@ Episode URL: https://www.youtube.com/watch?v=6XTL4cF5GtA
 
 [00:12:38] Unknown speaker: Go ahead, Adam.
 
-[00:12:39] Will: Okay.
-
-[00:12:40] Will: Go. Overpoliting. Go ahead, Adam.
+[00:12:39] Will: Okay. Go. Overpoliting. Go ahead, Adam.
 
 [00:12:43] Adam: Endless loop. The chipmunks. Um, I will tell you, I this is a subject near and dear to my heart because I spent a long time thinking about it. Um, and I spent a long time thinking about my parents because I am very grateful for. The opportunities they put in front of me, and the degree to which they listened to me and to my interests, and I tried to do the same with the boys. Um, I certainly like had other parents that I that were colleagues or or compatriots at the time that I was raising the boys, who like had kids that were like making films in their bedrooms and doing stop motion animation, and I would be thinking like, why aren't you doing that cool stuff? Um, and I definitely brought the boys in here and taught them some shop practice stuff, but for the most part, I just kept on each time they were interested in something, I would try and put more about it in front of them.
 
@@ -172,9 +170,7 @@ Episode URL: https://www.youtube.com/watch?v=6XTL4cF5GtA
 
 [00:14:20] Norm: You mean you can't passively get them to like it by you know by by just doing those things, and they watch you and they see you role model, and then
 
-[00:14:29] Will: dude, you totally can. I mean, there's a eight year period it seems like where monkey see monkey do, and like when my daughter sees me soldering, she's like, hey, how, what is that? What are you doing? Can I do that? And I'm like, yeah, let me get the lead free solder out and and or make sure the solder I have is lead free, which is and then get into it.
-
-[00:14:49] Will: Um, but you can't force them.
+[00:14:29] Will: dude, you totally can. I mean, there's a eight year period it seems like where monkey see monkey do, and like when my daughter sees me soldering, she's like, hey, how, what is that? What are you doing? Can I do that? And I'm like, yeah, let me get the lead free solder out and and or make sure the solder I have is lead free, which is and then get into it. Um, but you can't force them.
 
 [00:14:50] Adam: No, you can't force them, and you really have to let them find it. You really, yeah, like that's your job, and it also meant that. I still have crap around me in storage and in other places of stuff that I got for them on Craigslist that they never used. Um, there certainly were a lot of, uh, a lot of dead ends in in that case, but frankly, they're both they're both really creative and they're both really uh, uh, uh, uh, uh, excellent at executing in their fields of creativity, and they work hard. Then you can't really ask for more than that.
 
@@ -246,9 +242,7 @@ Episode URL: https://www.youtube.com/watch?v=6XTL4cF5GtA
 
 [00:20:35] Norm: all the clothes still work.
 
-[00:20:36] Will: Yeah.
-
-[00:20:37] Will: And also, like you can have you're starting to be able to have it won't be long before you're able to have conversations, and he'll start asking questions and things like that. And and it's it's really really compelling. One of the things you told me early on, I think Adam was that they understand you. Well before you think they'll understand you, and to talk like even if they're not particularly verbal at at 12 or 18 months or whatever, to to talk to them like they're human beings and not you know not just parrot noises back to them and stuff like that and and like we already were doing that but but once you start once I started talking to our daughter and like it it was really clear that she knew what was going on at a level that I had no idea
+[00:20:36] Will: Yeah. And also, like you can have you're starting to be able to have it won't be long before you're able to have conversations, and he'll start asking questions and things like that. And and it's it's really really compelling. One of the things you told me early on, I think Adam was that they understand you. Well before you think they'll understand you, and to talk like even if they're not particularly verbal at at 12 or 18 months or whatever, to to talk to them like they're human beings and not you know not just parrot noises back to them and stuff like that and and like we already were doing that but but once you start once I started talking to our daughter and like it it was really clear that she knew what was going on at a level that I had no idea
 
 [00:21:22] Adam: yeah
 

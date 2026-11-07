@@ -120,9 +120,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:02:54] Adam: Oh, yeah.
 
-[00:02:46] Norm: And Lorne Peterson—
-
-[00:02:46] Norm: And they did a talk about miniature making.
+[00:02:46] Norm: And Lorne Peterson— And they did a talk about miniature making.
 
 [00:02:57] Adam: Yeah.
 
@@ -250,9 +248,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:06:43] Adam: No, no, you, you could recover from a mistake. Okay. Chrome ends up actually hiding more crimes than you think. Like once you are stepping back, if there is a seam or a slight overlap, your eye just totally doesn't notice it.
 
-[00:06:57] Will: Okay.
-
-[00:06:58] Will: We once chromed a PC case.
+[00:06:57] Will: Okay. We once chromed a PC case.
 
 [00:07:00] Adam: Did you?
 
@@ -308,9 +304,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:08:54] Adam: Oh, right, right.
 
-[00:08:55] Will: Right.
-
-[00:08:55] Will: Not the one—
+[00:08:55] Will: Right. Not the one—
 
 [00:08:55] Adam: Yeah, no, that was not entirely CG.
 
@@ -328,9 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:09:09] Will: Wow.
 
-[00:09:09] Adam: Yeah.
-
-[00:09:10] Adam: Where were we, though?
+[00:09:09] Adam: Yeah. Where were we, though?
 
 [00:09:11] Will: I went back and watched that movie again. It's, it's, it's still not great, but it's very pretty.
 
@@ -440,9 +432,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:14:07] Adam: Like, George Foreman decided to change his life, and, I mean, he talked to Terry Gross a few years ago, and he said, "I was so locked up in being a badass." He said all I would do is walk into a room and think, "I can kick everyone's ass here."
 
-[00:14:17] Will: Wow.
-
-[00:14:19] Will: Well, he was probably right.
+[00:14:17] Will: Wow. Well, he was probably right.
 
 [00:14:20] Adam: Right.
 
@@ -522,9 +512,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:19:18] Adam: Oh, great.
 
-[00:19:18] Will: It's fantastic. I get it. I mean, I understand. It's a great.
-
-[00:19:21] Will: I'm in a different kind of price range than Vogue clothes,
+[00:19:18] Will: It's fantastic. I get it. I mean, I understand. It's a great. I'm in a different kind of price range than Vogue clothes,
 
 [00:19:23] Norm: and it's perfect because there's actually three movies, two other movies you can watch along with that September issue, uh, which is a page one New York Times.
 
@@ -766,9 +754,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:24:29] Norm: That's a trilogy. The guy made three movies. It's Helvetica, Urbanized, and the other design one. It's a design trilogy.
 
-[00:24:37] Will: Oh,
-
-[00:24:38] Will: Helvetica is great. Like, if you ever want to learn more about fonts, if you if you think you know,
+[00:24:37] Will: Oh, Helvetica is great. Like, if you ever want to learn more about fonts, if you if you think you know,
 
 [00:24:41] Adam: I need to see that movie.
 
@@ -834,21 +820,13 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:26:35] Will: Yes, " Man on Wire" is great. Beautiful.
 
-[00:26:37] Norm: Yeah,
+[00:26:37] Norm: Yeah, absolutely beautiful.
 
-[00:26:38] Norm: absolutely beautiful.
-
-[00:26:38] Will: Both, but there's two versions of " Man on Wire," so you got to be careful. There's an animated. There's there's one that tells the story of
-
-[00:26:44] Will: Man on Wire
+[00:26:38] Will: Both, but there's two versions of " Man on Wire," so you got to be careful. There's an animated. There's there's one that tells the story of Man on Wire
 
 [00:26:45] Adam: Oh.
 
-[00:26:45] Will: in a short.
-
-[00:26:45] Will: That is like a 14 minute animated short that was, uh, it was nominated or maybe won an Academy Award for short film
-
-[00:26:52] Will: a few years ago.
+[00:26:45] Will: in a short. That is like a 14 minute animated short that was, uh, it was nominated or maybe won an Academy Award for short film a few years ago.
 
 [00:26:53] Adam: Hmm.
 
@@ -868,9 +846,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:27:12] Will: Yeah.
 
-[00:27:12] Adam: I mean, that's the thing is, you people may have seen the picture of him on the, uh, between the two towers walking on a tightrope and didn't realize that everything about the operation was illegal and against the wishes of the towers and done on the sly, which makes it first of all, it's like the joke about the dog walking on its hind legs. It's amazing that they could do it at all. I don't wonder how well they do it. So you see a guy in a tightrope between the World Trade Center towers is like, holy crap!
-
-[00:27:40] Adam: But then you find out.
+[00:27:12] Adam: I mean, that's the thing is, you people may have seen the picture of him on the, uh, between the two towers walking on a tightrope and didn't realize that everything about the operation was illegal and against the wishes of the towers and done on the sly, which makes it first of all, it's like the joke about the dog walking on its hind legs. It's amazing that they could do it at all. I don't wonder how well they do it. So you see a guy in a tightrope between the World Trade Center towers is like, holy crap! But then you find out.
 
 [00:27:42] Will: Yeah.
 
@@ -974,9 +950,7 @@ Episode URL: https://www.youtube.com/watch?v=tK7UK_0QTYE
 
 [00:30:55] Adam: They’re just not that into you.
 
-[00:30:56] Will: Yeah.
-
-[00:30:56] Will: It turns out. And I guess on that note, uh,
+[00:30:56] Will: Yeah. It turns out. And I guess on that note, uh,
 
 [00:30:58] Norm: we should also ask people, uh,
 

@@ -16,9 +16,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:00:21] Will: And we flew well. We flew like DJI stuff, which at this point I feel like we're pretty comfortable with. We’ve flown the Phantom a lot. Norm and I had a race where we put on the FPV goggles.
 
-[00:00:32] Adam: How is that?
-
-[00:00:32] Adam: Is it like a pod race?
+[00:00:32] Adam: How is that? Is it like a pod race?
 
 [00:00:34] Will: Oh my god, it's the best.
 
@@ -32,9 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:00:49] Norm: and if you can't get the exposure to correct fast enough, it's going to look blown out. You won't know you're flying into a tree. So when we were flying, one of the trickiest things was the sun was setting, and past like a third turn, we'd see the sun, and we'd both be blinded, and we tried to navigate.
 
-[00:01:18] Adam: It was amazing.
-
-[00:01:18] Adam: Okay, so turn, are you flying around flags?
+[00:01:18] Adam: It was amazing. Okay, so turn, are you flying around flags?
 
 [00:01:21] Will: So we, yeah, we they had flags placed, and you could go high, low. You didn't like it was it was their infinite posts, right? So you could go as high as you wanted as long as you went around the flag.
 
@@ -74,9 +70,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:02:17] Will: FPV racing. And I understand why he came back so stoked about it because, like, I'm I am I finished the race and I went right back. I was like, I want to I want to do this some more.
 
-[00:02:17] Adam: Awesome,
-
-[00:02:36] Adam: but my my Inspire arrives soon.
+[00:02:17] Adam: Awesome, but my my Inspire arrives soon.
 
 [00:02:39] Will: That that things that's like a gunboat. We I want I want the little tiny super fast one. Oh,
 
@@ -252,9 +246,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:11:08] Will: Well, in the amount of time, I mean, just the amount of time, because I'm sure it was a full day out there to dig the hole, pour the concrete, and then another full day to come back out and and you know break it out, and probably somebody drove out a couple of times in between to make sure it had dried, cured appropriately.
 
-[00:11:08] Adam: Yep.
-
-[00:11:21] Adam: And then there's all the problem solving of the metal structure inside and how those are going to join together, and then how you're going to fill it with concrete, etc. And then Jamie’s got to polish his balls.
+[00:11:08] Adam: Yep. And then there's all the problem solving of the metal structure inside and how those are going to join together, and then how you're going to fill it with concrete, etc. And then Jamie’s got to polish his balls.
 
 [00:11:29] Will: Yeah, and and you had to put some tape on the outside. You had to tape his balls.
 
@@ -302,17 +294,13 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:14:06] Will: probably haunted.
 
-[00:14:07] Adam: That was that was a thing to fly it indoors. It's totally it's totally
-
-[00:14:07] Adam: it's very loud
+[00:14:07] Adam: That was that was a thing to fly it indoors. It's totally it's totally it's very loud
 
 [00:14:07] Unknown: Oh, yeah.
 
 [00:14:07] Adam: and
 
-[00:14:12] Will: it's very scary.
-
-[00:14:13] Will: Oh yeah,
+[00:14:12] Will: it's very scary. Oh yeah,
 
 [00:14:14] Norm: those things—they're not toys.
 
@@ -350,9 +338,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:17:43] Adam: Yeah, exactly, exactly. So I mean, there's a lot of. Every time we finish an episode, all that footage goes to Australia, and some poor kid has to sit there and sift through hours and hours.
 
-[00:17:43] Will: And hours.
-
-[00:17:55] Will: I assume what, like 10 or 12 hours, 20 hours, probably.
+[00:17:43] Will: And hours. I assume what, like 10 or 12 hours, 20 hours, probably.
 
 [00:17:58] Adam: Well, it depends. On of main camera footage and second camera coverage, it's probably not a ton. But when you talk about 10 GoPros and Blackmagics placed all over the Alameda runway, each is rolling for its full battery or SD card of footage. Sometimes we we we we hone that before sending it. But sometimes we run out of time, and someone's just got to sift through it.
 
@@ -398,9 +384,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:20:37] Will: I don't think they are.
 
-[00:20:37] Adam: I haven’t seen it.
-
-[00:20:39] Adam: Oh, okay. We have a lawnmower episode airing later on this year, and like it was raining. It was we were out there and it was raining. It was raining so hard we actually had to talk about it narratively because it was affecting the experiment. And that means that Scott now has to go out and get shots that say it's raining.
+[00:20:37] Adam: I haven’t seen it. Oh, okay. We have a lawnmower episode airing later on this year, and like it was raining. It was we were out there and it was raining. It was raining so hard we actually had to talk about it narratively because it was affecting the experiment. And that means that Scott now has to go out and get shots that say it's raining.
 
 [00:20:56] Will: Hey guys, it's really raining hard.
 
@@ -482,11 +466,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:24:16] Adam: It just it's very difficult.
 
-[00:24:17] Will: If you leave the the phone connector on, recording?
-
-[00:24:19] Will: Yeah,
-
-[00:24:19] Will: the camera always punks out. Like that's the thing we found is if you leave the phone connected, 30 minutes is that hard limit.
+[00:24:17] Will: If you leave the the phone connector on, recording? Yeah, the camera always punks out. Like that's the thing we found is if you leave the phone connected, 30 minutes is that hard limit.
 
 [00:24:26] Adam: Yeah.
 
@@ -604,9 +584,7 @@ Episode URL: https://www.youtube.com/watch?v=7WntEGiTNaY
 
 [00:30:27] Adam: I do not know.
 
-[00:30:30] Will: I hope so.
-
-[00:30:32] Will: Any plans for STEM and or GEMS? I don't know what GEMS is.
+[00:30:30] Will: I hope so. Any plans for STEM and or GEMS? I don't know what GEMS is.
 
 [00:30:37] Adam: I'm a.
 

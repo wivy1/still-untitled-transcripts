@@ -54,11 +54,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:02:16] Will: And and you can't do it while you're on the tour because you can't take a day off or two days off or whatever.
 
-[00:02:19] Adam: And also, I was you know potentially going to get super puffy in the face. So then I got back. We had to run right back into MythBusters production, and then we were on a location shoot, and then we went to the Bahamas for reasons that I can't exactly explain right now for work.
-
-[00:02:39] Adam: For work,
-
-[00:02:39] Adam: yeah, it was for work. And in the middle of the Bahamas, the toothache. Now I've been taking Vicodin, and I can't stand that stuff. I mean, yes, it helps with the pain, but ibuprofen is more reliable to me. However, the pain was so extreme, up and down over the last month, vacillating between three and five.
+[00:02:19] Adam: And also, I was you know potentially going to get super puffy in the face. So then I got back. We had to run right back into MythBusters production, and then we were on a location shoot, and then we went to the Bahamas for reasons that I can't exactly explain right now for work. For work, yeah, it was for work. And in the middle of the Bahamas, the toothache. Now I've been taking Vicodin, and I can't stand that stuff. I mean, yes, it helps with the pain, but ibuprofen is more reliable to me. However, the pain was so extreme, up and down over the last month, vacillating between three and five.
 
 [00:02:58] Will: On the 10 scale,
 
@@ -428,9 +424,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:16:19] Will: Yeah.
 
-[00:16:19] Norm: and she makes the call, and she you know she makes a decision to to go off road, and then
-
-[00:16:23] Norm: She's like, oh, I'm gonna go to the gas town, and she's like, oh—
+[00:16:19] Norm: and she makes the call, and she you know she makes a decision to to go off road, and then She's like, oh, I'm gonna go to the gas town, and she's like, oh—
 
 [00:16:24] Will: well, and then everybody with her follows her unconditionally because that's the way it works.
 
@@ -492,9 +486,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:19:19] Will: Immortan— Immortan Joe. Um, they say we're not things like that's a thing that they clearly have repeated to themselves.
 
-[00:19:24] Adam: Yeah,
-
-[00:19:25] Adam: and and they actually they're actually fairly competent. They have their own minds. They don't become ah, you know, at the at the key moments of the film.
+[00:19:24] Adam: Yeah, and and they actually they're actually fairly competent. They have their own minds. They don't become ah, you know, at the at the key moments of the film.
 
 [00:19:34] Will: Well, they exhibit the whole range. Yeah, right. There are some that that want nothing to do with guns and won't do guns. There are some that are that are Counting bullets and reloading guns and shooting guns by the end of the movie, and then there's this amazing moment. What at the end of the second act when they reach the place that they've been going the entire time, and they meet a tribe of
 
@@ -552,9 +544,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:22:49] Adam: yeah. With the with the.
 
-[00:22:50] Norm: With the blood guy, yeah.
-
-[00:22:51] Norm: with the
+[00:22:50] Norm: With the blood guy, yeah. with the
 
 [00:22:51] Adam: interceptor that the tank tank tread thing. He just goes off into the fog.
 
@@ -566,9 +556,7 @@ Episode URL: https://www.youtube.com/watch?v=7LXH_zK8qWs
 
 [00:23:01] Adam: And we don't see that because the women only kill for self defense. Max actually goes for retaliation at that point.
 
-[00:23:09] Will: Yeah.
-
-[00:23:09] Will: Do you think that's retaliation? I mean, I think that's just it's stopping the like if he doesn't kill him, he's going to come for him.
+[00:23:09] Will: Yeah. Do you think that's retaliation? I mean, I think that's just it's stopping the like if he doesn't kill him, he's going to come for him.
 
 [00:23:14] Adam: Yeah.
 

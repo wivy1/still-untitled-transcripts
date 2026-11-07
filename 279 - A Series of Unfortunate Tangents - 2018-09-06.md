@@ -30,9 +30,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:00:24] Will: Both were wonderful.
 
-[00:00:24] Norm: Really good.
-
-[00:00:27] Norm: And but really, it is a welcome back for you, Adam, because you're kind of back to a schedule that you were in like three months ago.
+[00:00:24] Norm: Really good. And but really, it is a welcome back for you, Adam, because you're kind of back to a schedule that you were in like three months ago.
 
 [00:00:35] Adam: I am. I am. So we wrapped Mythbusters Junior. on Friday.
 
@@ -108,11 +106,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:03:23] Adam: So,
 
-[00:03:24] Norm: well,
-
-[00:03:25] Norm: yeah,
-
-[00:03:25] Norm: I was about to say,
+[00:03:24] Norm: well, yeah, I was about to say,
 
 [00:03:27] Adam: go for the go for the segue.
 
@@ -182,9 +176,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:05:38] Norm: Yeah.
 
-[00:05:38] Adam: I'd be like, " Ah, let me bring this helmet. I got four of those. Let me
-
-[00:06:11] Adam: bring up that helmet."
+[00:05:38] Adam: I'd be like, " Ah, let me bring this helmet. I got four of those. Let me bring up that helmet."
 
 [00:06:12] Norm: That's like moving in for summer camp, like going back home and then bring more stuff, and then when you got to leave summer camp and you empty your dorm, well, you have a lot more to bring back.
 
@@ -238,9 +230,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:07:52] Adam: Find, how do I even, how do I even search for something?
 
-[00:07:54] Will: I just, I
-
-[00:07:55] Will: I just replied and asked if he maybe a witch hunt was in order.
+[00:07:54] Will: I just, I I just replied and asked if he maybe a witch hunt was in order.
 
 [00:07:58] Adam: Oh, I saw that. Paul, there we go. So, his response to Trump tweeting treason is no, but thanks for offering.
 
@@ -262,9 +252,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:08:45] Adam: No, the first movie he made after Sex Lies and Videotape was Schizopolis, a Franz Kafka film. Then after that, he made King of the Hill. A coming of age story, which nobody saw.
 
-[00:09:02] Will: Well, I’ve never seen, I’ve never seen either of those.
-
-[00:09:04] Will: Very weird.
+[00:09:02] Will: Well, I’ve never seen, I’ve never seen either of those. Very weird.
 
 [00:09:04] Adam: Movie. Schizopolis is a madhouse with Jeremy Irons, if I remember correctly.
 
@@ -334,9 +322,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:11:30] Will: And Out of Sight was the next one after that.
 
-[00:11:30] Norm: Huh.
-
-[00:11:32] Norm: And then
+[00:11:30] Norm: Huh. And then
 
 [00:11:33] Will: Out of Sight is Limey, Brockovich, Traffic, Ocean's Eleven, Full Frontal Solaris. K Street.
 
@@ -364,9 +350,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:12:29] Adam: Right. Right. So.
 
-[00:12:30] Will: And then from there, I didn't
-
-[00:12:31] Will: do that at all.
+[00:12:30] Will: And then from there, I didn't do that at all.
 
 [00:12:32] Adam: But as they're sitting having a drink, they're also having a seduction, and it's a very mutual seduction, and it's beautifully done because you keep while they're talking over a table, you're flashing forward to them in a hotel room, slowly moving towards each other, and it's this, it's this unsynced time shifting that makes it such a powerful.
 
@@ -392,9 +376,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:13:30] Will: Yeah.
 
-[00:13:30] Adam: Clearly, that love scene from Out of Sight inspired him to see if he could structure a movie in a non-standard way, and The Limey is a total masterpiece in this regard.
-
-[00:13:41] Adam: I love the Limey.
+[00:13:30] Adam: Clearly, that love scene from Out of Sight inspired him to see if he could structure a movie in a non-standard way, and The Limey is a total masterpiece in this regard. I love the Limey.
 
 [00:13:42] Norm: every heist film he's done since the the flash forward of is a that's a essential part of every heist film.
 
@@ -568,9 +550,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:18:15] Adam: Sarah Polley,
 
-[00:18:23] Norm: Mindy Kaling, Mindy Kaling.
-
-[00:18:23] Norm: Awkwafina,
+[00:18:23] Norm: Mindy Kaling, Mindy Kaling. Awkwafina,
 
 [00:18:26] Will: and and and oh God, the I can't remember what's her name from all the Tim Burton movies.
 
@@ -602,11 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:19:40] Norm: You know, I watched recently in terms of old movies. I watched rewatch all of Heat.
 
-[00:21:09] Adam: Oh,
-
-[00:21:09] Adam: So
-
-[00:21:10] Adam: I was going to bring that up in terms of heist films with stakes because
+[00:21:09] Adam: Oh, So I was going to bring that up in terms of heist films with stakes because
 
 [00:21:13] Norm: it's at the other end of the heist, like goofy, fun, crazy, intense.
 
@@ -766,9 +742,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:26:54] Adam: I love that guy, and I have not watched the show yet, but I've finished my third Harry Bosch novel.
 
-[00:26:59] Norm: What's that?
-
-[00:27:00] Norm: Titus Welliver.
+[00:26:59] Norm: What's that? Titus Welliver.
 
 [00:27:01] Will: It's a deep cut, Norm.
 
@@ -978,9 +952,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:33:08] Unknown speaker: No. Presumed Innocent.
 
-[00:33:08] Norm: the Scott Turow novel.
-
-[00:33:08] Norm: We need to be the podcast equivalent of the Wikipedia slash IMDb. Click a link. Click a link. Click a link. That's what we did, guys. We started with started started with Ocean's Eleven.
+[00:33:08] Norm: the Scott Turow novel. We need to be the podcast equivalent of the Wikipedia slash IMDb. Click a link. Click a link. Click a link. That's what we did, guys. We started with started started with Ocean's Eleven.
 
 [00:33:20] Adam: So so then
 
@@ -990,11 +962,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:33:37] Will: Mary Sue Milliken is not a Mary Sue, by the way.
 
-[00:33:39] Adam: No, she's totally not a Mary Sue.
-
-[00:33:39] Adam: Yeah.
-
-[00:33:39] Adam: Although she is pretty good at everything,
+[00:33:39] Adam: No, she's totally not a Mary Sue. Yeah. Although she is pretty good at everything,
 
 [00:33:42] Will: she's wonderful.
 
@@ -1148,9 +1116,7 @@ Episode URL: https://www.youtube.com/watch?v=KB31Q6_IMk4
 
 [00:39:44] Norm: Unfortunate tangents.
 
-[00:39:46] Will: Yeah.
-
-[00:39:47] Will: See you guys next week.
+[00:39:46] Will: Yeah. See you guys next week.
 
 [00:39:47] Adam: That's the title of the podcast this week.
 

@@ -88,9 +88,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:04:45] Adam: each cut is in each commercial, each span of the episode between commercial breaks is a single shot.
 
-[00:04:49] Will: Yes,
-
-[00:04:50] Will: We talked about this. incredibly high concept for yeah.
+[00:04:49] Will: Yes, We talked about this. incredibly high concept for yeah.
 
 [00:04:52] Adam: It's a wonderful one.
 
@@ -138,9 +136,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:06:11] Norm: Yeah,
 
-[00:06:11] Will: Yeah.
-
-[00:06:11] Will: that happens with Guy Ritchie movies sometimes.
+[00:06:11] Will: Yeah. that happens with Guy Ritchie movies sometimes.
 
 [00:06:12] Norm: Did you see Spectre? I mean, did you see the trailer for Spectre?
 
@@ -186,9 +182,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:06:56] Norm: I'm going to presume people out there have seen at least the trailer for Spectre. Which Christoph Waltz is in there, we assume he plays the villain.
 
-[00:07:02] Adam: He has to be Blumfeld, right?
-
-[00:07:03] Adam: We had an we had an illegal international
+[00:07:02] Adam: He has to be Blumfeld, right? We had an we had an illegal international
 
 [00:07:07] Norm: cabal
 
@@ -524,9 +518,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:18:40] Will: It's better than Quantum of Solace. Agree.
 
-[00:18:42] Adam: It’s a lot better.
-
-[00:18:43] Adam: And so, if this one was disappointing, I have no doubt that they will respond and. Take some of the criticism on the chin and do something about it, because it seems right now lately it's been a very responsive franchise.
+[00:18:42] Adam: It’s a lot better. And so, if this one was disappointing, I have no doubt that they will respond and. Take some of the criticism on the chin and do something about it, because it seems right now lately it's been a very responsive franchise.
 
 [00:18:55] Norm: It's also a movie series that, in the history—
 
@@ -546,9 +538,7 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:19:14] Norm: Well, but on the how cat how how you know with someone with claws would.
 
-[00:19:17] Will: They came out of the top in the cartoon. They didn't come out between his knuckles in the cartoon. They came out of the top of his hand in the cartoon. They were thinner, whippier. It was a little bit of a lighter blade. A little more.
-
-[00:19:28] Will: Could be—
+[00:19:17] Will: They came out of the top in the cartoon. They didn't come out between his knuckles in the cartoon. They came out of the top of his hand in the cartoon. They were thinner, whippier. It was a little bit of a lighter blade. A little more. Could be—
 
 [00:19:29] Norm: Bond is a franchise that people expect reboots. They expect new actors to come in. Yes. And that's okay. You know, we can complain about oh they're rebooting Spider-Man again. Oh, they're going to reboot this again. Bond, that's part of the story.
 
@@ -790,10 +780,6 @@ Episode URL: https://www.youtube.com/watch?v=GjTq5IRUjCw
 
 [00:27:48] Adam: Thanks, guys.
 
-[00:27:48] Will: Bye.
+[00:27:48] Will: Bye. Every time you get those out, I can't help but think of the guys who asked for one super, you know, yeah, one super, any superpower they could have, and they picked Wolverine claws, but not regenerative healing. Such a good video.
 
-[00:27:56] Will: Every time you get those out, I can't help but think of the guys who asked for one super, you know, yeah, one super, any superpower they could have, and they picked Wolverine claws, but not regenerative healing. Such a good video.
-
-[00:28:12] Adam: I can't control them.
-
-[00:28:14] Adam: Okay, start, because I got something funny to talk about.
+[00:28:12] Adam: I can't control them. Okay, start, because I got something funny to talk about.

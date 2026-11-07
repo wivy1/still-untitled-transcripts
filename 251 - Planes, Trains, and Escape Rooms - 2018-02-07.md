@@ -116,9 +116,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:03:55] Adam: Wow,
 
-[00:03:55] Will: who's the subcontractor who makes airplane seats?"
-
-[00:03:58] Will: Yeah?
+[00:03:55] Will: who's the subcontractor who makes airplane seats?" Yeah?
 
 [00:03:59] Norm: Well, they the place to go would be a convention because there are international conventions for airplane manufacturers and the subcontractors. It's like a CES, yeah, for those parts.
 
@@ -206,9 +204,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:07:06] Will: Yes.
 
-[00:07:06] Norm: When you get a beverage.
-
-[00:07:07] Norm: You cannot refuse the paper napkin.
+[00:07:06] Norm: When you get a beverage. You cannot refuse the paper napkin.
 
 [00:07:10] Will: Why?
 
@@ -228,9 +224,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:07:25] Norm: They don't they don't conclude why.
 
-[00:07:26] Adam: That's a bad article.
-
-[00:07:27] Adam: That's a that's a standard internet article. It's two paragraphs long, and it felt like it was the middle, but it was the end.
+[00:07:26] Adam: That's a bad article. That's a that's a standard internet article. It's two paragraphs long, and it felt like it was the middle, but it was the end.
 
 [00:07:32] Norm: It could have been a tweet.
 
@@ -304,9 +298,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:09:17] Adam: Yeah.
 
-[00:09:17] Norm: a few blocks
-
-[00:09:17] Norm: away from Pixar. 12 hours from that to Los Angeles Union Station, and then we flew back next morning.
+[00:09:17] Norm: a few blocks away from Pixar. 12 hours from that to Los Angeles Union Station, and then we flew back next morning.
 
 [00:09:25] Will: Why did it take so? Did you did you stop at every town?
 
@@ -488,9 +480,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:16:52] Will: Well, so the the route that I've always wanted to do is the Seattle to Minneapolis one that goes through like north through the Badlands and through Montana and all that.
 
-[00:16:59] Adam: Wow.
-
-[00:17:00] Adam: Yeah.
+[00:16:59] Adam: Wow. Yeah.
 
 [00:17:00] Will: Just in in like the few last remaining desolate parts of the country, right? Yeah. Um. The other thing I was gonna say is that there's a, there's, people charter trains, so the train jam is a game jam, a video game jam that happens in the week before the game developer conference, which is here in San Francisco every spring. And they get on the train in Chicago and spend the three or four days going from Chicago to San Francisco, basically broken up into small teams and making a bunch of kind of you know four day game jam games, and then they present them when they get to GDC.
 
@@ -544,17 +534,13 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:19:21] Norm: Yeah,
 
-[00:19:22] Adam: why not?
-
-[00:19:22] Adam: That is that is understandable.
+[00:19:22] Adam: why not? That is that is understandable.
 
 [00:19:24] Norm: Yeah, can't assume everyone listened or watched the Super Bowl.
 
 [00:19:29] Will: You mean the superb owl?
 
-[00:19:31] Norm: Yeah, the big game. The big game.
-
-[00:19:34] Norm: Superb owl. I like, that's pretty good.
+[00:19:31] Norm: Yeah, the big game. The big game. Superb owl. I like, that's pretty good.
 
 [00:19:35] Will: It's my favorite.
 
@@ -586,9 +572,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:20:24] Will: yeah
 
-[00:20:25] Norm: right
-
-[00:20:24] Norm: because Tide had the series of commercials with David Harbour from Stranger Things
+[00:20:25] Norm: right because Tide had the series of commercials with David Harbour from Stranger Things
 
 [00:20:29] Will: yeah yeah
 
@@ -598,9 +582,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:20:41] Norm: and so they would do they bought a sequence of advertisements throughout the whole game where it would look like it was one type of ad including like the Old Spice guy on the horse
 
-[00:20:50] Adam: Right, right,
-
-[00:20:51] Adam: right
+[00:20:50] Adam: Right, right, right
 
 [00:20:51] Norm: except psych it's clean
 
@@ -712,9 +694,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:23:52] Will: It looks like it's glued. So it's two rings. This outer ring, and then yeah,
 
-[00:23:56] Adam: it's a zoetrope. It's a zoetrope.
-
-[00:23:58] Adam: It's a it's a it's a it's a little yeah zoetrope that shows an animation through the slot slits when you look at it. And he included several other. He included an envelope with some other things that we could slip in there for frames.
+[00:23:56] Adam: it's a zoetrope. It's a zoetrope. It's a it's a it's a it's a little yeah zoetrope that shows an animation through the slot slits when you look at it. And he included several other. He included an envelope with some other things that we could slip in there for frames.
 
 [00:24:10] Will: It's it's clever in that. Oh, I can't believe nobody thought of this before. Like, right? Like, you look and you're like, " Oh, right, yeah these these are all things that work together."
 
@@ -752,9 +732,7 @@ Episode URL: https://www.youtube.com/watch?v=I3NsDtia3VM
 
 [00:26:06] Adam: Was.
 
-[00:25:48] Norm: and it was, and it is. One's Houdini themed, one's Roosevelt themed, and one's Thomas Edison themed. We did the Roosevelt themed one, and it is by far
-
-[00:26:17] Norm: no, no. It's, it's, it's you know, it's a series of puzzles, but the the electronics that they built to automate the system and you know, multiple rooms and and things that happen with lights and sound was really, really impressive.
+[00:25:48] Norm: and it was, and it is. One's Houdini themed, one's Roosevelt themed, and one's Thomas Edison themed. We did the Roosevelt themed one, and it is by far no, no. It's, it's, it's you know, it's a series of puzzles, but the the electronics that they built to automate the system and you know, multiple rooms and and things that happen with lights and sound was really, really impressive.
 
 [00:26:31] Adam: Oh, cool!
 
